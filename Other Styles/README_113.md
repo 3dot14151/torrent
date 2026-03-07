@@ -1,3 +1,32 @@
+###  Публикация: 1250048   (428573) от 26.09.2018
+
+V.A. - Александр Зацепин: Лучшие песни из кинофильмов (1996) [APE|Lossless|image + .cue] <Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_428573.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Юрий Никулин - А нам все равно (3:05)
+02. Андрей Миронов - Остров невезения (2:18)
+03. Олег Анофриев - Есть только миг (3:41)
+04. Оркестр и хор МВО - Маруся (2:25)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:11:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4617002D69899CC3B9B214F79F7E7293DE73DFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1064041   (427902) от 19.10.2016
 
 Esperanza - 2 Альбома (1998, 2001) [FLAC|Lossless|tracks] <Instrumental, Latin, New Age>
@@ -720,35 +749,6 @@ VA - About Time (2013) [MP3|320 Kbps] <Soundtrack>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:192326670E5D27B0D124FFDB7462202186700B39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167034   (419558) от 19.09.2017
-
-VA - Snatch (Expanded) (2000) [MP3|320 Kbps] <Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Klint - Diamond
-02 - Penicio Del Toro - 'vere iz da storn_'
-03 - Overseer - Supermoves
-04 - The Johnston Brothers - Hernando's Hideaway(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:57:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24D8B16561AECC8963BC98F6AE68929533BDD7A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

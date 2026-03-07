@@ -1,3 +1,32 @@
+###  Публикация: 1735341   (50758) от 07.07.2024
+
+V.A. - Buddha Bar Beach 10 Years by Ravin (2024) 3CD [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Lounge, Chill Out>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_50758.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Tauon, Christoph Sebastian Pabst – Black Sand Beach
+02. Fluidia – Messzirol (Extended Mix)
+03. Lascivio Bohemia – Niebla(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill Out |Продолжительность: 04:11:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:994AA0D2D8E3E1C1D31699648C97B5C3433A7344
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1736384   (50224) от 12.07.2024
 
 Blank & Jones - Relax Edition 15 (2024) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Downtempo, Chill out>
@@ -716,35 +745,6 @@ VA - Lounge Empire (25 Afterwork Anthems), Vol 2 (2024) [FLAC|Lossless|WEB-DL|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3ABC580CA81B2C969B8E64BCC144E806AAECA5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755401   (40288) от 15.10.2024
-
-VA - Fashion Show Best Background Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40288.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Chiffre 100 - Frozen Sundae (04:13)
- 02 - The Sura Quintet - Similitudes (04:27)
- 03 - Roby Pherty - La Puesta del Sol (03:30)
- 04 - Aktnuance - About the Details (04:20)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:48:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3779B09B78A8279CC361DA5CBFA3AA85BD81D81
 ```
 
 https://mybot314.ru/tekegram_catalog/

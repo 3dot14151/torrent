@@ -1,3 +1,32 @@
+###  Публикация: 1216064   (752840) от 29.03.2018
+
+VA - Erotica Vol. 2 (Most Erotic Lounge And Chillout Tunes) (2016) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Lounge>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_752840.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marga Sol - Body Language
+02. Florito - Saigon Morning
+03. Pier-O - Fermer Les Yeux
+04. Soulavenue - Swept Away(   Читать дальше...   )Жанр: Balearic, LoungeПродолжительность: 01:19:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81442FECB3EBD0D4FBA73196CE58A9380111D81B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1216068   (752828) от 29.03.2018
 
 VA - Erotica Vol. 3 (Most Erotic Smooth Jazz & Chillout Tunes) (2018) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Lounge>
@@ -717,35 +746,6 @@ VA - Maretimo Chill Radio - Best of Vol. 1 - Positive Summer Vibes (2022) [FLAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:07FD5DA4A46F885A1547FCE9C387FC30DEEA2B72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530573   (728980) от 11.02.2022
-
-VA - Distant Places Lounge Vol.1: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728980.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Free Spirit Muse - Breath-Ful Moments (20:21)
-02. Matt Sour - Like a Fairy Tale (Original Mix) (4:44)
-03. Gary B - Afraid to Fall (Original Mix) (4:53)
-04. Michael E - Wind Chime (Original Mix) (5:53)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:26:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC95F4D0ECC4D135AE7FC26DC2BC9680CE393493
 ```
 
 https://mybot314.ru/tekegram_catalog/

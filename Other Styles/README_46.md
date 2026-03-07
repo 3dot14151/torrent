@@ -1,3 +1,32 @@
+###  Публикация: 1202903   (788646) от 01.02.2018
+
+Ernesto Cortazar - Blue Waters (2009) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Classical, Romantic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788646.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Remembrance (4:02)
+ 02. Mournful Seaside (2:52)
+ 03. Blue Waters (3:33)
+ 04. Perpetual Breeze (3:29)(   Читать дальше...   )Жанр: New Age, Piano, Classical, RomanticПродолжительность: 00:38:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC2488799085856D7C227D375782658FA6682E86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1276205   (788587) от 15.01.2019
 
 Thomas Cappeau - Commando Ninja / Коммандос-ниндзя (Original Motion Picture Soundtrack) (2018) [MP3|320 Kbps] <Soundtrack, Score, Synthwave>
@@ -715,35 +744,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9F6B77946B4FF7409BEC4771ABC41F809EA671E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277282   (785404) от 20.01.2019
-
-David Arkenstone - Fairy Dreams (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785404.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Twinklelace Glen
-02 – The Water Fairy
-03 – Dream Shadows
-04 – Fairy Dreams(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:52:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB9A61642EB7BDE9ED9320C0F9BB2B6742D7E72A
 ```
 
 https://mybot314.ru/tekegram_catalog/

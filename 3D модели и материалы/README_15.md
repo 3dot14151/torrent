@@ -1,3 +1,87 @@
+###  Публикация: 1535551   (684102) от 07.03.2022
+
+3D print - Gambody - Cylon Raider - Diorama [SLT]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684102.jpg" />
+</div>
+
+
+###  Подробнее
+
+Gambody is the online marketplace where you can download video game and comic book models in STL file format. High-poly, amazingly detailed and absolutely error-free 3D models files optimized for all types of 3D printers.
+
+Gambody — это онлайн-магазин, где вы можно скачать модели из видеоигр/комиксов/фильмов/сериалов в формате STL для 3D печати. Высокополигональные, (   Читать дальше...   )Формат: STL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92F8296C3C74AF481638C6E17DD16FF294FB510E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535493   (683967) от 07.03.2022
+
+3D print - Gambody - Pyramid Head - Диорама [STL]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_683967.jpg" />
+</div>
+
+
+###  Подробнее
+
+Gambody is the online marketplace where you can download video game and comic book models in STL file format. High-poly, amazingly detailed and absolutely error-free 3D models files optimized for all types of 3D printers.
+
+Gambody — это онлайн-магазин, где вы можно скачать модели из видеоигр/комиксов/фильмов/сериалов в формате STL для 3D печати. Высокополигональные, (   Читать дальше...   )Формат: STL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A48E7C54277DF830F5EC414A2F86FCDF2A09FA86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535590   (683963) от 07.03.2022
+
+3D print - Gambody - Hollow Knight - Diorama [STL]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_683963.jpg" />
+</div>
+
+
+###  Подробнее
+
+Gambody is the online marketplace where you can download video game and comic book models in STL file format. High-poly, amazingly detailed and absolutely error-free 3D models files optimized for all types of 3D printers.
+
+Gambody — это онлайн-магазин, где вы можно скачать модели из видеоигр/комиксов/фильмов/сериалов в формате STL для 3D печати. Высокополигональные, (   Читать дальше...   )Формат: STL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:980A63ECF2B3CD06FBE55E348B5F7BD82C9A17D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1535703   (683962) от 07.03.2022
 
 3D print - MyMiniFactory - Botched Tiefling Summoning - Miniature [STL]
@@ -616,84 +700,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6AA41E49338A9960A8ABAA5E10A31606AF7103A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032744   (643445) от 08.07.2016
-
-3D модели - Aston Martin 3D Collection [V-Ray|*.max]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643445.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представляю вашему вниманию коллекцию 3d моделей Aston Martin в колличестве 6шт.Формат: V-Ray|*.max
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:960391B8B28782C5010856FD5E36B94BF62B4718
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227792   (642494) от 28.05.2018
-
-3D модели - Kitbash3D - NEO TOKYO [FBX, MA, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642494.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создавайте небоскребы и мегаструктуры, которые возвышаются над цивилизацией и отгоняют философию будущих поколений, ориентируясь на максимальное пространство и энергоэффективность. Независимо от того, разрабатываете ли вы для фильмов или видеоигр, аниме или манги, этот комплект перенесет вас в не столь отдаленное будущее Олимпийских игр 2020 года в Японии или далеко (   Читать дальше...   )Формат: FBX, MA, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3D566BDC569A4F346ABD149815E2241387CA492
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227642   (642491) от 28.05.2018
-
-3D модели - KitBash3D - UTOPIA [FBX, MA, MAX, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642491.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создавайте неофутуристические города с дико изобретательными структурами, освобожденными от архитектурной геометрии, вдохновленными Захой Хадид и Фрэнком Гери. Используйте отличительные многоспектральные извилистые формы этого набора и фрагментированную геометрию, чтобы представить передовые цивилизации, богатые гигантскими стадионами и славными музеями или экологически (   Читать дальше...   )Формат: FBX, MA, MAX, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:859EB877E500D82366C7242FBB5BF6228F35EADD
 ```
 
 https://mybot314.ru/tekegram_catalog/

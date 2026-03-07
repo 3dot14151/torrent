@@ -1,3 +1,32 @@
+###  Публикация: 1286729   (711188) от 03.03.2019
+
+Toby Keith - How Do You Like Me Now?! (1999) [FLAC|Lossless|tracks + .cue] <Folk, Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711188.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 	How Do You Like Me Now?! 	3:27
+2 	When Love Fades 	3:04
+3 	Blue Bedroom 	3:28
+4 	New Orleans 	4:11(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:40:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C609A47F216293D0BFB79E46304B942B6A66BD9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1286288   (711138) от 03.03.2019
 
 Бурановские бабушки - Внучка (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Folk>
@@ -714,34 +743,6 @@ Brian Tyler - The Fate of the Furious / Форсаж 8 (Original Motion Picture 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF93F0A5BE7C3211C02B4DB05C2E2831D6EB1F18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026039   (706136) от 14.06.2016
-
-Midori - Island Paradise (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706136.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. To the Island [00:10:29]
-02. Sparkling Light [00:20:26]
-03. Temple Shrine [00:20:34]Жанр: New AgeПродолжительность: 00:51:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDF5C16C32A9EA87C0B62A71EB6C4202D994BF14
 ```
 
 https://mybot314.ru/tekegram_catalog/

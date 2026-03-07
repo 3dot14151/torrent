@@ -1,3 +1,119 @@
+###  Публикация: 1682764   (131050) от 08.12.2023
+
+Bryan Adams - Waking Up The Neighbours - Live At The Royal Albert Hall (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_131050.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Is Your Mama Gonna Miss Ya? (Live At The Royal Albert Hall) [00:03:32]
+02. Hey Honey - I'm Packin' You In! (Live At The Royal Albert Hall) [00:03:15]
+03. Can't Stop This Thing We Started (Live At The Royal Albert Hall) [00:04:56]
+04. Thought I'd Died And Gone To Heaven (Live At The Royal Albert Hall) [00:03:35](   Читать дальше...   )Жанр: Pop-RockПродолжительность: 01:06:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83D7E384B500399E26D782FB9E59941654FAFEBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682860   (130832) от 09.12.2023
+
+Dalida - Vive le vent (2023) [FLAC|Lossless|tracks] <Pop, French Music>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vive le vent (Nouvelle orchestration 2023) (3:01)
+02. Pour Vous (3:28)
+03. Dans le bleu du ciel bleu (2:53)
+04. Le Petit Clair De Lune (2:40)(   Читать дальше...   )Жанр: Pop, French MusicПродолжительность: 01:08:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07F2A0611AA4183FE51E02617D0F5EA9DD13FC35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524779   (130378) от 18.01.2022
+
+Molly Nilsson - Extreme (2022) [FLAC|Lossless|WEB-DL|tracks] <Dream Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130378.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Absolute Power (03:49)
+ 02. Earth Girls (04:11)
+ 03. Fearless Like A Child (04:03)
+ 04. Kids Today (04:05)(   Читать дальше...   )Жанр: Dream PopПродолжительность: 00:41:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:938E3E603B696ACF6E34F9526BE29425A0211AAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525129   (130036) от 19.01.2022
+
+Beach House - Once Twice Melody (2022) 3[EP] [FLAC|Lossless|WEB-DL|tracks] <Dream Pop, Indie Rock, Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_130036.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunset (04:00)
+ 02. Only You Know (04:50)
+ 03. Another Go Around (03:42)
+ 04. Masquerade (04:42)(   Читать дальше...   )Жанр: Dream Pop, Indie Rock, Indie PopПродолжительность: 01:02:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A51A5457A39D18F5DCED5C879890FD0622C3A52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1683010   (129908) от 09.12.2023
 
 НеАнгелы - Номер один (2006) [FLAC|Lossless|tracks + .cue] <Pop>
@@ -630,122 +746,6 @@ Penfield - We All Fall Apart (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B7B2C2EF3D0FA575F80C903109A95F6F2EC9FFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1688158   (121938) от 20.01.2024
-
-A-HA - Hunting High And Low (1985) 1st German Press Gold disc [APE|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take On Me (3:49)
-02. Train Of Thought (4:14)
-03. Hunting High And Low (3:45)
-04. The Blue Sky (2:36)(   Читать дальше...   )Жанр: PopПродолжительность: 37:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:769A6B65E5AE8AAFDA0EBB1806B24346D259678B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693234   (121900) от 20.01.2024
-
-Hurts - Happiness (2010) 1st EU Press [APE|Lossless|image + .cue] <SynthPop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121900.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silver Lining (4:57)
-02. Wonderful Life (4:14)
-03. Blood, Tears & Gold (4:18)
-04. Sunday (3:53)(   Читать дальше...   )Жанр: SynthPopПродолжительность: 48:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10F2FEECB4DA9FD1C824EB85DEF52BA0D34017D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690347   (121888) от 20.01.2024
-
-A-HA - Scoundrel Days (1986) 1st German Press [APE|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121888.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scoundrel Days (4:02)
-02. The Swing Of Things (4:14)
-03. I’ve Been Losing You (4:23)
-04. October (3:56)(   Читать дальше...   )Жанр: PopПродолжительность: 39:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C734DC6405306DAB7A9405058B2CCEA8E3600A4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693207   (121877) от 20.01.2024
-
-Hurts - Exile (2013) Deluxe Limited Edition [APE|Lossless|image + .cue] <SynthPop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121877.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Exile (4:16)
-02. Miracle (3:44)
-03. Sandman (3:54)
-04. Blind (4:23)(   Читать дальше...   )Жанр: SynthPopПродолжительность: 57:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:537ED433F56A2872BCF9527481575CC547CA45F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

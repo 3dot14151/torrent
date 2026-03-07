@@ -1,3 +1,236 @@
+###  Публикация: 836686   (361772) от 01.11.2014
+
+Club Des Belugas & Thomas Siffling - The Chinchin Sessions (2013) [FLAC|Lossless|WEB-DL]<Nu Jazz, Electro Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Small Steps
+02. This Little Life of Mine (Feat. Veronika Harcsa)
+03. Anticipation
+04. One Hand Clapping (Feat. Veronika Harcsa)(   Читать дальше...   )Жанр: Nu Jazz, Electro SwingПродолжительность: 00:51:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4AB7A29F1C9D366A6E8E7764C84FC4BD24FB325
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255829   (361769) от 19.10.2018
+
+Bob Cooper - Six Classic Albums (1954 - 1958) 4CD, 2017, Real Gone Jazz [FLAC|Lossless|image + .cue] <Bop, Mainstream Jazz, West Coast Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361769.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Group Activity [2:34]
+02. Excursion [3:42]
+03. Polka Dots And Moonbeams [3:03](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, West Coast JazzПродолжительность: 03:23:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7548A3DE7E2D47BB3C661373C1C9B0EE41C4468A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255677   (361663) от 19.10.2018
+
+Sonny Clark - Cool Struttin (1958) RVG Edition, 1999, Reissue, Remastered [FLAC|Lossless|tracks + .cue] <Jazz, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cool Struttin' (9:24)
+ 02. Blue Minor (10:20)
+ 03. Sippin' at Bells (8:18)
+ 04. Deep Night (9:34)(   Читать дальше...   )Жанр: Jazz, Hard BopПродолжительность: 00:53:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E99A55EED71D8E3CDD4DA5E5980B9F3A5BECB9C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255699   (361660) от 19.10.2018
+
+VA - Jazz Goes To Cinema (2003) [FLAC|Lossless|tracks + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361660.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abdullah Ibrahim - Angelica [6:27]
+02. Abraham Burton - Laura [5:00]
+03. Antonio Hart - Somewhere [5:25]
+04. Bennie Wallace - How Long Has This Been Going On [5:21](   Читать дальше...   )Жанр: JazzПродолжительность: 01:11:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B653456158B49DD053630399DF9A7581A22045B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 154414   (361572) от 23.11.2009
+
+Various Artists - SAX & SEX (1997) 4CD [FLAC|Lossless]<Instrumental, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_361572.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хорошая подборка соло саксофона с оркестром. К сожалению исполнители не указаны.
+Компиляция "Banana Records Publishing" U.K.01. Fernando (4:43)
+02. I Just Called To Say I Love You (4:56)
+03. One More Night (5:30)
+04. Comme Elle (3:47)(   Читать дальше...   )Жанр: Instrumental, Smooth JazzПродолжительность: 01:03:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1177743   (361266) от 26.10.2017
+
+Michael Brecker Group - The Cost Of Living (1989) 1994, Jazz Door [WavPack|Lossless|image + .cue] <Post-Bop, Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361266.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Istbynne Reel [09:36]
+02. Chime This [18:20]
+03. Choices [11:17]
+04. The Cost of Living [16:26](   Читать дальше...   )Жанр: Post-Bop, Jazz FusionПродолжительность: 01:13:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C526EBCF4085359153F7BFB83BD638699E2EAF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328697   (361229) от 01.10.2019
+
+Ryo Fukui - Scenery +2 (1976) 2005, Solid Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361229.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It Could Happen to You [4:17]
+02. I Want to Talk About You [6:33]
+03. Early Summer [10:44]
+04. Willow Weep for Me [7:43](   Читать дальше...   )Жанр: Hard Bop, Mainstream Jazz, Piano JazzПродолжительность: 01:00:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93D91FA0180602EE8ADAC90130AC52391A9DA96E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1177745   (361178) от 26.10.2017
+
+Sonny Stitt & The Hank Jones Trio - The Good Life (1980) 1994, Evidence [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361178.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deuce's Wild [02:39]
+02. Autumn Leaves [03:37]
+03. Angel Eyes [04:41]
+04. Bye Bye Blackbird [04:45](   Читать дальше...   )Жанр: Mainstream Jazz, Hard BopПродолжительность: 00:43:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EA37E2E4559528B6090A381F9C79DEB2FFB0CD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1177599   (361173) от 26.10.2017
 
 Chris Barber's Jazz & Blues Band - Chris Barber In Switzerland 1974/75 (2004) 2CD [FLAC|Lossless|tracks + .cue] <Jazz, Dixieland, Blues>
@@ -513,238 +746,6 @@ Kenny Dorham - K.D. Is Here: New York City 1962 & 1966 (2016) Uptown Records [FL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD45DDD266EBCEA7072FAC9D2E7FFF355F2546CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1178113   (358853) от 27.10.2017
-
-Sonny Stitt - Stitt Plays Bird (1963) 2003, Atlantic [FLAC|Lossless|tracks + .cue] <Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358853.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ornithology [03:42]
-02. Scrapple From The Apple [03:50]
-03. My Little Suede Shoes [03:07]
-04. Parker's Mood [04:22](   Читать дальше...   )Жанр: BopПродолжительность: 00:45:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6325FAA58AABC1F3CFBBC89E517AB2D4DFB8E610
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1177703   (358527) от 27.10.2017
-
-Janis Joplin & The Kozmic Blues Band - Live In The Netherlands 1969 The Rare Amsterdam TV Broadcast (2017) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358527.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Me (Instrumental) (5:15)
-02. Maybe (4:07)
-03. Summertime (4:49)
-04. Try (Just A Little Bit Harder) (6:20)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:45:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C968E37C583700883BEA3C83AEAD572368D7CED8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1177448   (358526) от 27.10.2017
-
-VA - Salsoul: The Club Remixes (2017) [MP3|320 Kbps] <Electronic, Soul, Jazz>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358526.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. First Choice - Double Cross (Danny Tenaglia Remix) (7:48)
-02. Skyy - Call Me (Blaze DJ Vocal Mix) (7:04)
-03. First Choice - Doctor Love (Kerri Chandler's Lost Mix) (7:50)
-04. Loleatta Holloway - Dreamin' (Satoshi Tomiie Shellshock Reconstruction Mix) (9:30)(   Читать дальше...   )Жанр: Soul, Jazz, DiscoПродолжительность: 03:21:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEAB6339A9C99CE5DC5625B4E91BE0837F4F22F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417433   (358428) от 20.10.2020
-
-Andrew Hill - Smoke Stack (1963) 1994, Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358428.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Smoke Stack [5:04]
-02. The Day After [5:11]
-03. Wailing Wall [5:48]
-04. Ode to Von [4:31](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E6ECFF6C65CBFE8C0C119406D50D2AF37F4D62F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417429   (358419) от 20.10.2020
-
-Tito Puente - The Best of Tito Puente: The Millennium Collection (1991 - 1999) 2005, Hip-O Records [FLAC|Lossless|tracks + .cue] <Latin Jazz, Afro-Cuban Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358419.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. El #100 [5:59]
-02. Hay Que Trabajar (with Oscar D'Leon) [4:56]
-03. Mambo Sentimental [3:27]
-04. Salsumba (with Domingo Quinones) [4:10](   Читать дальше...   )Жанр: Latin Jazz, Afro-Cuban JazzПродолжительность: 00:54:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0099317C1C9055C3B655AAB01A9DB6DCF19049CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328917   (358382) от 02.10.2019
-
-Debbie Davies - 13 Albums (1993 - 2015) [FLAC|Lossless|image + .cue|tracks + .cue] <Modern Electric, Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358382.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одна из лучших представительниц явления, характерного для 90-х, "women with guitars". Гитаристка, певица, композитор Debbie Davies родилась 22 августа 1952 года в Лос-Анджелесе в семье известного голливудского аранжировщика и преподавательницы музыки. Первую гитару ей купили, когда Дебби исполнилось 12 лет. Пластинка Эрика Клэптона и группы "Блюзбрейкерс" (   Читать дальше...   )Список альбомов:
-1993 Picture This
-1994 Loose Tonight
-1997 I Got That Feeling (BPCD 5039)\Жанр: Modern Electric, Blues-RockПродолжительность: 10:37:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:315F7E549385BC6E024829F8E9618543B0227BC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071525   (357380) от 11.11.2016
-
-Bobby Jaspar - Modern Jazz Au Club Saint Germain (1955) 2011, Universal[FLAC|Lossless|image + .cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357380.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Bag's Groove [04:47]
- 02.Memory of Dick [05:38]
- 03.Milestones [05:55]
- 04.Minor Drops [05:02](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:40:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5C2145ADBA18F2D8EA5A6CF6002210B7DC8D6A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071574   (357378) от 11.11.2016
-
-Peggy Lee - Dream Street (1957) 1999, Universal[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357378.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Street Of Dreams [03:23]
- 02.What's New [03:00]
- 03.You're Blase [02:51]
- 04.It's All Right With Me [02:25](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:35:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F579B922278EC9AC85A5D562CEDCE691D9246F20
 ```
 
 https://mybot314.ru/tekegram_catalog/

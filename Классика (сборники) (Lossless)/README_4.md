@@ -1,3 +1,32 @@
+###  Публикация: 1732524   (52002) от 25.06.2024
+
+VA - The Great Romantic Composers (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_52002.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Katya Kramer-Lapin - Gymnopédie No. 1 (2:36)
+02. Katya Kramer-Lapin - Suite Bergamasque, L. 75 Clair de Lune (5:13)
+03. Katya Kramer-Lapin - Piano Sonata No. 14 in C-Sharp Minor, Op. 27 No. 2 Moonlight Sonata I. Adagio sostenuto (5:43)
+04. Katya Kramer-Lapin - Lieder aus Franz Schubert's Schwanengesang, S. 560 No. 7, Ständchen (6:04)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 04:27:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4A27317C18E043FDD6A0E0E4B899E5AC0236265
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1732892   (51815) от 27.06.2024
 
 VA - Calming Classical Instrumental Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
@@ -716,35 +745,6 @@ VA - 100 Classics For Relaxation - A Glorious Sunrise (2008) CD, Compilation [FL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4605ECDE9CA7B2C05A691FC5507FAA25CB4EDD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819070   (1786) от 20.09.2025
-
-VA - Classical Adrenaline (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1786.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sir Simon Rattle - Short Ride in a Fast Machine Fanfare for Orchestra (4:26)
-02. Mariss Jansons - Symphony No. 10 in E Minor, Op. 93 II. Allegro (4:19)
-03. Paavo Järvi - Symphonic Dances from West Side Story IV. Mambo (2:25)
-04. Sir Simon Rattle - The Firebird, KC. 10, Tab. I Dance of Kashchei's retinue under Firebird's spell (4:13)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:13:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62A5710C5233E65BAD700E0A94D32BB4EB0E9E85
 ```
 
 https://mybot314.ru/tekegram_catalog/

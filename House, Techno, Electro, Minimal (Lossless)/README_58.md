@@ -1,3 +1,116 @@
+###  Публикация: 1516274   (166961) от 10.12.2021
+
+Gui Boratto - Pentagram (2018) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Techno, Minimal, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_166961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Walker (3:10)
+ 02. The Black Bookshelf (3:43)
+ 03. Overload (feat Luciana Villanova) (5:08)
+ 04. Forgotten (3:54)(   Читать дальше...   )Жанр: Tech House, Techno, Minimal, AmbientПродолжительность: 00:57:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:511386E27D28934D9BBA23799C784A61D6D08349
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516192   (166845) от 10.12.2021
+
+VA - Armada Music 2022 (2021) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_166845.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tinlicker, Helsloot - Because You Move Me (03:16)
+02. Kidnap, Leo Stannard - Moments (Ben Bohmer & Nils Hoffmann Remix) (04:10)
+03. Loud Luxury, Thutmose - Red Handed (02:51)
+04. Armin van Buuren, Davina Michelle - Hold On (03:28)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 03:22:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2B7585A722C47AE20EF12D115AAAC600103635D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597402   (166683) от 14.12.2022
+
+VA - Anjunadeep The Remixes 2022 (2022) Mixed [FLAC|Lossless|WEB-DL|tracks] <Melodic House & Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_166683.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  OLAN -  Wake And Return (Little Dragon Remix Mixed)  (5:10)
+02.  Lakou Mizik, Joseph Ray -  Ogou (Pran Ka Mwen) (Martin Roth Remix Mixed)  (4:16)
+03.  Marsh, Sun Ra -  Another Planet (LeSonic Remix Mixed)  (5:15)
+04.  Luttrell -  More Than Human (Antic Remix Mixed)  (4:39)(   Читать дальше...   )Жанр: Melodic House & TechnoПродолжительность: 01:41:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44A831B79CA90A4C871AB96C99F7CA98D16B6681
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671497   (166142) от 31.10.2023
+
+Miss Jane feat. Miichii - It's A Fine Day (2023) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_166142.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 It's A Fine Day (2023 original mix) (6:59)Жанр: Deep House, Progressive HouseПродолжительность: 00:06:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16E020D298B9AAB3114086B4A0C01802BEF7448B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1345782   (165852) от 16.12.2019
 
 Calibre - Planet Hearth (2019) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dub Techno>
@@ -623,122 +736,6 @@ S36 - Turkish Delight EP (2018) Sumo Smash Record [FLAC|Lossless|WEB-DL|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D49E734E3CEB215FCB0F1417E5B7FBD3879BD6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347113   (154374) от 22.12.2019
-
-SC-164 - CH-003 (2019) [FLAC|Lossless|WEB-DL|tracks] <Electro, Experimental>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154374.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 003-001 (06:26)
- 02. 003-002 (06:33)
- 03. 003-003 (06:27)
- 04. 003-004 (06:05)Жанр: Electro, ExperimentalПродолжительность: 00:25:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB835CBB683202E18561130C200137BE81AB8492
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270878   (154324) от 21.12.2018
-
-Orbital - Live At Eventim Hammersmith Apollo (15.12.18) (2018) Live Here Now [FLAC|Lossless|WEB-DL|tracks] <Leftfield, Techno, Electro, House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154324.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (01:46)
- 02. Monsters Exist (06:21)
- 03. There Will Come A Time (07:06)
- 04. Impact (The Earth Is Burning) (09:33)(   Читать дальше...   )Жанр: Leftfield, Techno, Electro, HouseПродолжительность: 01:41:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4524293D37668E384BBD5E615DCD290A5C5AFD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347153   (154275) от 22.12.2019
-
-Octal Industries - Our Seasons (2019) Vertex Recordings [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154275.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Borg Tekin (07:18)
- 02. Thorp I Vanda (05:26)
- 03. Roblegt (06:44)
- 04. Dreki Flyr (06:44)(   Читать дальше...   )Жанр: Dub Techno, Ambient, TechnoПродолжительность: 00:55:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D191BFA0304127844CECB4E9460C78CC977F48CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518634   (154099) от 20.12.2021
-
-The Dreamhouse Orkestra - Synthesizer Dreamhouse Greatest Vol. 1 (1997) [FLAC|Lossless|tracks + .cue] <Dream House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154099.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Killing Me Softly (3:29)
-02. I Like Chopin (3:35)
-03. Bilitis (3:50)
-04. Children (5:23)(   Читать дальше...   )Жанр: Dream House, TranceПродолжительность: 01:13:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D61B53A01819F7AC57A2B1F3FCB235DB95C0F968
 ```
 
 https://mybot314.ru/tekegram_catalog/

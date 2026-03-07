@@ -1,3 +1,32 @@
+###  Публикация: 1353619   (991927) от 18.01.2020
+
+Algiers - There Is No Year (2020) [FLAC|Lossless|Web-DL|tracks] <Alternative Rock, Post Punk, Psychedelic Soul>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_991927.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. There Is No Year (3:15)
+02. Dispossession (4:15)
+03. Hour Of The Furnaces (4:26)
+04. Losing Is Ours (3:44)(   Читать дальше...   )Производство: Matador RecordsЖанр: Alternative Rock, Post Punk, Experimental, Psychedelic SoulПродолжительность: 00:39:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89336DCD76CEB5C86C3D8C3598ADB175AB2F3DAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 595677   (991740) от 27.01.2013
 
 Theory of a Deadman - 3 Альбома (2002-2011) [FLAC|Lossless]<Alternative Rock / Post-Grunge>
@@ -732,35 +761,6 @@ Serch. - Concept (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1837C9DF366459EE42FD242A330DC0DBED63837
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358708   (967226) от 09.02.2020
-
-Green Day - Father of All Motherfuckers (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Father Of All... (02:31)
-02. Fire, Ready, Aim (01:53)
-03. Oh Yeah! (02:51)
-04. Meet Me On The Roof (02:40)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:26:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFF8DD668DCFFA493F76ADF49B04CFC8B83D199F
 ```
 
 https://mybot314.ru/tekegram_catalog/

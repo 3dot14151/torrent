@@ -1,3 +1,206 @@
+###  Публикация: 1330705   (336588) от 12.10.2019
+
+VA - ЕвроХит Топ 40 Europa Plus 11.10.2019 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_336588.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tiesto & Jonas Blue feat. Rita Ora - Ritual 3:19
+02. Shawn Mendes & Camila Cabello - Senorita 3:11
+03. C-BooL - Catch You 3:13
+04. Aaron Smith feat. Luvli - Dancin (Krono Remix) 3:17(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:09:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:829D49744C4D33D5219188930B91636796D05954
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 955055   (336549) от 09.11.2015
+
+VA - Хит-прорыв радио Record (2015) [MP3|192-320 кб/с]<Dance, club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_336549.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Dekku - Rescue Me (Feat. Juliana Chahayed)
+02 Akcent Feat. Lidia Buble & Ddy Nunes - Kamelia (Dj Ackym Mombahton Remix Edit)
+03 Dj Kuba & Ne!tan Vs. Paul - Gangsta (Original Mix)
+04 Jack U (Skrillex & Diplo) - Take U There (Feat. Kiesza)(   Читать дальше...   )Жанр: Dance, clubПродолжительность: 06:36:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA861539C9B554A915E5315CA750F4B5550987DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330597   (336477) от 12.10.2019
+
+VA - Зайцев.нет Лучшие новинки Октября (2019) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_336477.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kavabanga Depo Kolibri - Нет новостей 3:53
+02. Bahh Tee - Моей последней бывшей 3:14
+03. Мишель Барави - Милли 3:37
+04. Lera feat. Folkbeat - Волынка 3:03(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 01:43:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:884A401F69091832654F36856779D54D2B9BF89A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330656   (336265) от 12.10.2019
+
+VA - Громкие новинки Октября (2019) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_336265.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.5sta family - Завязала (3:41)
+2.7000$, Нуки - Хайпметал (3:22)
+3.Godfather of Harlem, Dave East, A$AP Ferg - Business is Business (2:55)
+4.Adam Lambert - Closer To You (4:19)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:15:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52A19BECBF777F4D42CCC4003033FB944302FD22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419573   (335816) от 30.10.2020
+
+VA - Beatport Deep House: Electro Sound Pack #195 (2020) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_335816.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Stereo Kill - Free Melody
+002. Amount - Graudancer (Original Mix)
+003. Eric Duncan - Acid Wave
+004. Holly Marquee - The Habit Of Always(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 10:43:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB4AE278954D1754D5D2C01E5B6538FBA99ED26C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419788   (335809) от 30.10.2020
+
+VA - Music News vol.44 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_335809.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soe - Сигналы (03:31)
+ 02. Alexander Popov & M11 feat. Will Church - Hold Back (03:40)
+ 03. Ally Brooke - Baby I'm Coming Home (03:16)
+ 04. Anton Lacosta & Aleks Marty - Beef Drip (02:31)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:58:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C80032F0E5175E9B145FA346E35FC295E305FDF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181201   (335686) от 06.11.2017
+
+VA - Empire Records - Dancenudisco 16 (2017) [MP3|320 Kbps] <Disco, Dance, Nu-Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_335686.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Block & Crown - You Started The Fire (Original Mix)
+02. M83 vs Kygo & Selena Gomez - It Ain't Midnight (DJ Nasa Mashup)
+03. Zayn & Taylor Swift - I Don't Wanna Live Forever (Eldar Stuff, Tim Cosmos Remix)
+04. Dj Ti-S - Take On Me (Radio Version)(   Читать дальше...   )Жанр: Disco, Dance, Nu-DiscoПродолжительность: 01:44:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0AA56C0F21015E743FCACF3E11A9B29701F5B75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1420130   (335615) от 30.10.2020
 
 VA - ЕвроХит Топ 40 Europa Plus 30.10.2020 [MP3|320 Kbps] <Pop, Dance>
@@ -527,209 +730,6 @@ VA - Осенняя свежая 30-тка Vol 3 (2020) [MP3|320 Kbps] <Pop, Dan
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF81858C78C3D932E40A053085EB109D9594AF17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 956264   (331068) от 13.11.2015
-
-VA - Hot Charts Известных радиостанций Октябрь (2015) [MP3|160-320 кб/с]<House, Dance, Indie, R&B>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331068.jpg" />
-</div>
-
-
-###  Подробнее
-
-Европа Плюс Еврохит Top 40
-01. Calvin Harris & Disciples - How Deep Is Your Love
-02. Dimitri Vegas & Like Mike Feat. Ne-Yo - Higher Place
-03. Imany Vs Filatov & Karas - Don't Be So Shy(   Читать дальше...   )Жанр: House, Dance, Indie, R&BПродолжительность: 08:04:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9D4C4FFD21D5DADDD71C07A6287E26BB98435B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580380   (330660) от 01.10.2022
-
-VA - Disco Remix Club & Dance Ritmos (2022) CD, Compilation [MP3|320 Kbps] <Club, Funky, Indie Dance, Nu Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330660.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Z.A.A.R. - Keep Pushing
-02. Xela Nitarab - Mr. Right Now (Radio Mix)
-03. Xavi Pinos - Free Of Love (Radio-Edit)
-04. Vicky Ace - Moonlight And Sunshine (Radio Edit)(   Читать дальше...   )Жанр: Club, Funky, Indie Dance, Nu DiscoПродолжительность: 04:52:16 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1138E5911C02040582479E7FF07E064EA347195
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 956292   (330152) от 14.11.2015
-
-VA - Car Audio. Великолепный сборник. Крутые мощные басы (2015) [MP3|320 кб/с]<Deep, House, G-House, Nu Disco, Indie, Trap, Dubstep, Progressive, Trance, Techno, Tech>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330152.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2night, 2907 - Stronger (Original Mix)
-02. 40 Thieves, Qzen - Dont Turn It Off (Greg Wilson Edit)
-03. Ace Ventura - Brave New World (Original Mix)
-04. 4U - Day Started (Original Mix)(   Читать дальше...   )Жанр: Deep, House, G-House, Nu Disco, Indie, Trap, Dubstep, Progressive, Trance, Techno, TechПродолжительность: 19:37:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53797ED06EB369F34E13C11FBB86E7B18738D54A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 841618   (329887) от 16.11.2014
-
-VA - My Favourite Hits of 1989 (12CD) (2014) [MP3|320 кб/с]<Disco, Pop, Synth pop, New wave, Pop rock, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329887.jpg" />
-</div>
-
-
-###  Подробнее
-
-184. The Rolling Stones - Hearts For Sale
-185. Hubert Kah - Midnight Sun
-186. Bob Dylan - What Was It You Wanted
-187. Cher - You Wouldn't Know Love(   Читать дальше...   )Жанр: Disco, Pop, Synth pop, New age, Pop rock, RockПродолжительность: 01:12:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D2AC17991FEFB1ACF54F4472CEBB37F3DE66D58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580660   (329760) от 02.10.2022
-
-VA - В машине с музыкой Vol.306 (2022) MP3 [320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lx24  - Шаг Вперёд Два Назад (02:55) 2022
-02. Melih Aydogan Feat. & Tanel - Ты Такая (02:25) 2022
-03. Lost Kings Feat. & Kiddo Ai - Save Me (03:08) 2022
-04. Dj. Smash Feat. & Nivesta - Позвони (03:00) 2022(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:33:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:758B6336D539AC1AEEA537326E17C308EE7CEDA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 956935   (329412) от 15.11.2015
-
-VA - Lounge Selection - The 50 Best Hits (2015) [MP3|320 кб/с]<Electronic, Downtempo, Trip-hop, Future Jazz, Deep House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329412.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jungle – Drops
-02. Brigitte – Ma Benz
-03. Bonobo – First Fires (feat. Grey Reverend)
-04. Cocoon – American Boy(   Читать дальше...   )Жанр: Electronic, Downtempo, Trip-hop, Future Jazz, Deep HouseПродолжительность: 03:36:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F01DC351F31BD0B20F94F98B3959F9701F1CE36E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 956861   (329367) от 15.11.2015
-
-VA - Italo Disco Hits Vol.8 (2015) [MP3|320 кб/с]<Italo Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329367.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Key West - Jesahel (04:59)
-02. Roger Meno - What My Heart Wanna Say (03:53)
-03. Johnny M5 - Moscow Nights (Maxi Version) (05:58)
-04. Lala - Johnny Johnny (Radio Version) (03:27)(   Читать дальше...   )Жанр: Italo DiscoПродолжительность: 04:50:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9956E11CFB057E5E097B38EE42F0540CA3626331
 ```
 
 https://mybot314.ru/tekegram_catalog/

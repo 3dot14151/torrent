@@ -1,3 +1,32 @@
+###  Публикация: 1190992   (265845) от 11.12.2017
+
+VA - Heavy Metal Collections Vol. 2 (5CD) (2017) [MP3|320 Kbps] <Heavy, Power, Progressive Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_265845.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+
+01.The Rods - Hurricane (1998) (4:45)
+02.Black Sabbath - Turn Up The Night (1996) (3:40)(   Читать дальше...   )Жанр: Heavy, Power, Progressive MetalПродолжительность: 05:07:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6044E3363C882FE9C5D22FD1335EAB6D8D57DF5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1191010   (265764) от 11.12.2017
 
 VA - Heavy Metal Collections Vol. 4 (6CD) (2017) [MP3|320 Kbps] <Heavy, Power, Progressive Metal>
@@ -752,35 +781,6 @@ VA - Fest Rebel Rock Radio, Vol.02 (2022) [MP3|320 Kbps] <Rock, Alternative, Ind
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:409FD184B8EA64C48A5616D7517F55BCC8E3BEBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624019   (242220) от 05.04.2023
-
-VA - Flower Power - Children of Flowers Best Of (2023) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242220.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Mamas & The Papas - California Dreamin' [02:42]
-02. The Byrds - Turn! Turn! Turn! (To Everything There Is a Season) [03:49]
-03. The Doors - Soul Kitchen (New Stereo Mix; Advanced Resolution) [03:31]
-04. The Animals - House Of The Rising Sun [04:30](   Читать дальше...   )Жанр: RockПродолжительность: 09:42:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C60F2DECF11CF0D401C0E4D4C77F54749B531B79
 ```
 
 https://mybot314.ru/tekegram_catalog/

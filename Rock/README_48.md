@@ -1,3 +1,32 @@
+###  Публикация: 929417   (519441) от 19.08.2015
+
+Eric Clapton - Eric Clapton & Friends - The Album (2015) [MP3|320 кб/с]<Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_519441.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Smokestack Lightning
+02. Train Kept a Rollin'
+03. Good Morning Little Schoolgirl
+04. Stroll On(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 02:18:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94DB7A390572B842775091ABB5288C43ED0DEA21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 929665   (518508) от 20.08.2015
 
 Ideal Zero - In Perfect Darkness (2014) [MP3|320 кб/с]<Alternative Rock , Heavy, Female Vocal>
@@ -737,35 +766,6 @@ Julien-K - We’re Here With You (2012) Deluxe Edition [MP3|320 кб/с]<Industr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DACC1B42464772C2FEC628FE299C2154D12CBD13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562248   (509104) от 09.07.2022
-
-Hienas - Socavon (2022) [MP3|320 Kbps] <Sludge, Doom, Stoner, Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509104.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Sombra del Cerro
-02 Abismo
-03 Puntualidad
-04 El Mejor y el Peor(   Читать дальше...   )Жанр: Sludge, Doom, Stoner, GrungeПродолжительность: 00:38:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DDC967E1C39009B3CB84785510EA386A71AB5B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

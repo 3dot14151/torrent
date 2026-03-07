@@ -1,3 +1,32 @@
+###  Публикация: 1127376   (731498) от 21.04.2017
+
+VA - Рок в машину (2015-2017) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731498.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Saving Abel - Addicted (3:43)
+02.	12 Stones - Hey Love (3:53)
+03.	AC/DC - You Shook Me All Night Long (3:30)
+04.	Adelitas Way - Last Stand (3:42)(   Читать дальше...   )Жанр: RockПродолжительность: 06:57:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84E512DE5FDFB3338E1285629BF80C508B81F831
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1530101   (730769) от 09.02.2022
 
 Kælan Mikla (Kaelan Mikla) - Gloomy Poetry & Darkwave (2016-2021) (Compilation Album) Неофициальный сборник от Yuridar [MP3|320 Kbps] <Darkwave, Gothic Rock, Post-Punk>
@@ -719,35 +748,6 @@ Splattafish - Celestial Plague (2016) [MP3|320 кб/с] <Death Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C7A43673A124F216F1EB3167257AFCD30B3B1F55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025600   (710180) от 12.06.2016
-
-Cryptic Abyss - Feed 'Em To The Sea (2016) [MP3|320 кб/с] <Death Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710180.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Machined Minds
-02. Unblinking Eye
-03. Alcoholic Surgeon
-04. Reduced To Bones(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:40:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E2A66C3A72E83DF98B5F13219B7D68703E86D6E
 ```
 
 https://mybot314.ru/tekegram_catalog/

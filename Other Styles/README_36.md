@@ -1,3 +1,32 @@
+###  Публикация: 1116154   (824442) от 19.03.2017
+
+Петр  Dранга (Петр Дранга) - Перспектива (2011) Полная Версия 22 трека [FLAC|Lossless|image + .cue] <Instrumental, Accordion>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824442.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интродукция
+02. Виртуозо
+03. Вечер
+04. Ирландский ветер(   Читать дальше...   )Жанр: Instrumental, AccordionПродолжительность: 01:10:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EB7B69341F2DA5D967DA888F6EBA505BBFF2909
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1196333   (823999) от 02.01.2018
 
 Mokadelic - Gomorra: La Serie (2014) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Experimental>
@@ -715,35 +744,6 @@ George Winston - Remembrance (A Memorial Benefit) (2001) [MP3|320 кб/с] <Folk
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83E2EC89E7D556D152AC649802BEEE4FDFF60112
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503501   (819398) от 19.10.2021
-
-24Relax - Native American Music (2021) 2CD [MP3|320 Kbps] <Native American, New age, World music>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819398.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pacific Blue
-02. The Power of Native Spirit
-03. Native American Horses
-04. The Nomadic Ancestors(   Читать дальше...   )Жанр: Native American, New age, World musicПродолжительность: 01:19:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D6838D63E03AFE8E670BCBB6EB75A397313A17E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,188 @@
+###  Публикация: 1041078   (584150) от 07.08.2016
+
+Amy Winehouse - Back to Black (2013) [DTS-HD MA, LPCM, Dolby TrueHD 2.0|96/24|Blu-ray] <Soul, Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>Blu-ray Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_584150.jpg" />
+</div>
+
+
+###  Подробнее
+
+Back to Black — второй и последний студийный альбом британской певицы Эми Уайнхаус, выпущенный 4 октября 2006 года на Island Records. Большинство музыкальных критиков положительно отозвались об альбоме, оценив талант автора в песнях, написанных Уайнхаус под влиянием классического соула и спродюсированных Саламом Реми и Марком Ронсоном. На 50-й церемонии «Грэмми» (   Читать дальше...   )01. Rehab
+02. You Know I'm No Good
+03. Me & Mr. Jones
+04. Just Friends(   Читать дальше...   )Жанр: Soul, JazzПродолжительность: 00:34:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12F70B632E8E3AAACD753BA1AA7915891210D206
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1301234   (584015) от 12.05.2019
+
+VA - Rock'n'Roll (1977) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Rock & Roll>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_584015.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1.a Shakin' Stevens And The Sunsets - It's Rock'N'Roll
+A1.b Shakin' Stevens And The Sunsets - I Told You So
+A2 Chas And Dave And Various - That's Alright Mama
+A3 Freddie "Fingers" Lee - Down On The Farm(   Читать дальше...   )Жанр: Rock & RollПродолжительность: 00:37:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EB95A32E2486E3A6FA6DFC163170B0380014B35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041372   (583171) от 08.08.2016
+
+Luciano Pavarotti - Ti Adoro (2003) [DTS 5.1 CD-DA|44.1/16|image+cue|SACD] <Classical - Vocal>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_583171.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.    Il canto    03:44
+02.    Neapolis    03:35
+03.    Starai con me    04:23
+04.    Ti adoro    03:13(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:55:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C85C521834722C39DBCE5FFBC9D672195C3EDB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 810810   (582453) от 06.08.2014
+
+Bad Company - 10 From 6 (1985)  [FLAC 2.0 24/192|image (Vinyl-Rip)]<Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_582453.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Can't Get Enough (4:18)
+A2. Feel Like Makin' Love (5:12)
+A3. Run With The Pack (5:25)
+A4. Shooting Star (6:17)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5DCA37F860681E62F864175C74038B3DA628726
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 359638   (581771) от 06.07.2011
+
+Billy Idol - Rebel Yell (1983) [APE 2.0 24/192|image (Vinyl-Rip)]<Pop Rock/Synth-Рop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_581771.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side 1
+A1 Rebel Yell [04:47]
+A2 Daytime Drama [04:04]
+A3 Eyes Without A Face [04:58]
+A4 Blue Highway [05:08]
+Side 2
+B1 Flesh For Fantasy [04:37]
+B2 Catch My Fall [03:43]
+B3 Crank Call [04:00]
+B4 (Do Not) Stand In The Shadows [03:12](   Читать дальше...   )1983Жанр: Pop Rock/Synth-РopПродолжительность: 00:38:19
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 360094   (580828) от 07.07.2011
+
+Sandra - Into A Secret Land (1988) [APE 2.0 24/96|image (Vinyl-Rip)]<Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_580828.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Secret Land [04:42]
+ 02.  We'll Be Together [04:09]
+ 03.  Heaven Can Wait [04:02]
+ 04.  Just Like Diamonds [05:28]
+ 05.  Around My Heart [03:16]
+ 06.  Crazy Joliet [04:09]
+ 07.  La Vista De Luna [03:43]
+ 08.  Celebrate Your Life [03:26]
+ 09.  Children of England [03:51]Жанр: Synth-popПродолжительность: 00:36:46
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1042170   (580390) от 11.08.2016
 
 Uriah Heep - Firefly (1977) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Hard Rock>
@@ -571,176 +756,6 @@ A4 Red Bird (Красная птица)(   Читать дальше...   )Жа�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B769561943A34700E8816A33302557EC72CFB03A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 691399   (559913) от 20.08.2013
-
-The Flirts - Blondes, Brunettes & Redheads (1985) US [FLAC 2.0|24/192|image|Vinyl-Rip]<Hi NRG, Synth-pop, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559913.jpg" />
-</div>
-
-
-###  Подробнее
-
-С начала 80-х годов маленькая независимая компания "O"Records заняла лидирующие позиции на американском, а затем и европейском рынке популярной музыки. Записи звёзд "O"Records, таких как Divine и The Flirts спродюсированные Бобби Орландо (Bobby ORLANDO) пользовались хорошим спросом по обе стороны Атлантического океана. В это время танцевальная (   Читать дальше...   )Жанр: Hi NRG, Synth-pop, DiscoФормат: Vinyl, LP, AlbumПродолжительность: 00:37:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5D7177BBC3582D38A31AF8DD0A25CD038A2DA89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924496   (559064) от 03.08.2015
-
-Genesis - Duke (1980) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559064.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Behind The Lines (5:36)
-A2. Duchess (6:36)
-A3. Guide Vocal (1:22)
-A4. Man Of Our Times (5:37)(   Читать дальше...   )Производство: Charisma Records / Nippon PhonogramЖанр: Progressive RockПродолжительность: 00:55:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E71868C9C0C7591109F2A7E68944F15264EC075
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045217   (556920) от 25.08.2016
-
-Каунт Бейси - Когда Садится Солнце (1985) Записи 1940 - 1950гг. [FLAC 1.0|96/24|image+.cue|Vinyl-Rip] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556920.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Когда Садится Солнце
-02. Пьеса Для Фортепиано
-03. Какой Медленный Блюз
-04. Привет, Мама Лоди(   Читать дальше...   )Жанр: JazzПродолжительность: 00:41:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CA72C8EA6F00CD75F694F84876057A3284DA01B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045758   (556844) от 25.08.2016
-
-Автограф - Ирландия. Ольстер (1981) [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Prog Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ирландия, Ольстер
-02. Пристегните ремни безопасности
-03. Блюз ''Каприз''Жанр: Prog RockПродолжительность: 00:14:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B656221AD61289DCF82480F0FA1066A83985867C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046074   (556831) от 25.08.2016
-
-Оризонт - Мой Светлый Мир (1982) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556831.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мой Светлый Мир
-02. Сани С Бубенцами
-03. Колыбельная
-04. Парус На Волне(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9619F222C9A03A8D61F87A188DE83CAFCFD6B977
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045939   (556778) от 25.08.2016
-
-Илья Словесник - Мы так любили Beatles (1988) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556778.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Провинция
-02. Мы так любили «Битлз»
-03. Биополе
-04. Солёное море(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:35:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47F05248CF781B8327BAEFD0BB5AF1BDD4E78380
 ```
 
 https://mybot314.ru/tekegram_catalog/

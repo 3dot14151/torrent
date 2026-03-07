@@ -1,3 +1,32 @@
+###  Публикация: 1370601   (893495) от 29.03.2020
+
+Cris Velasco & Sascha Dikiciyan - The Long Dark Soundtrack (2017) [MP3|320 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893495.jpg" />
+</div>
+
+
+###  Подробнее
+
+2017 - SURVIVAL Mode Ambient & Exploration
+2017 - WINTERMUTE, Ambient & Exploration
+2017 - WINTERMUTE, Episode One: "Do Not Go Gentle
+2017 - WINTERMUTE, Episode Two: "Luminance FugueЖанр: SoundtrackПродолжительность: 01:39:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F2F6B62D08BDFC6C5DCB79A5380F80504174240
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1370936   (893415) от 29.03.2020
 
 Richard Clayderman & James Last - Together At Last (1991) [FLAC|Lossless|tracks + .cue]<Instrumental, Piano, Easy Listening>
@@ -718,35 +747,6 @@ Relax With... Ocean's Relaxing Surf (1996)(   Читать дальше...   )Ж
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A5B2727FE8EEB37F5F098B0BDBA6D9ACE89E4FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 513757   (888049) от 01.04.2020
-
-VA - Музыка гармонии сна (2008) [FLAC|Lossless|image + .cue] <Relax, New age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888049.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Прохлада и чайки (1:57)
-02. Прилив (5:28)
-03. Музыка океана (9:03)
-04. Южный закат (1:41)(   Читать дальше...   )Жанр: Relax, New ageПродолжительность: 01:16:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA9956FA93FC0AEAF0AE3B965974A5648A7A9FA7
 ```
 
 https://mybot314.ru/tekegram_catalog/

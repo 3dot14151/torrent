@@ -1,3 +1,32 @@
+###  Публикация: 1231779   (603697) от 20.06.2018
+
+The White Stripes - Icky Thump (2007) [FLAC|Lossless|tracks + .cue] <Blues Rock, Garage Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603697.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Icky Thump (4:15)
+ 02. You Don't Know What Love Is (You Just Do as You're Told) (3:54)
+ 03. 300 M.P.H. Torrential Outpour Blues (5:29)
+ 04. Conquest (2:48)(   Читать дальше...   )Жанр: Blues Rock, Garage Rock, Indie RockПродолжительность: 00:48:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E4176810F10A77CFB894CAFC3D5B75B8C97F1F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1231776   (603689) от 20.06.2018
 
 The White Stripes - Elephant (2003) [FLAC|Lossless|tracks + .cue] <Rock & Roll, Punk, Indie Rock>
@@ -716,35 +745,6 @@ Gorillaz - The Now Now (2018) Parlophone UK [FLAC|Lossless|WEB-DL|tracks] <Alter
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:328CFA9BA453D6283DD7C14F48494292B2A7B6E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300243   (593216) от 06.05.2019
-
-Prefab Sprout - Crimson/Red (2013) BSCD2 release [FLAC|Lossless|tracks + .cue] <Alternative, Indie Rock, Sophisti-Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593216.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Best Jewel Thief in the World 03:51
-02. List of Impossible Things 03:43
-03. Adolescence 04:27
-04. Grief That Built the Taj Mahal 03:28(   Читать дальше...   )Жанр: Alternative, Indie Rock, Sophisti-PopПродолжительность: 00:40:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB955A50172BFE4DC4F2EEFBCA73740164E85EF7
 ```
 
 https://mybot314.ru/tekegram_catalog/

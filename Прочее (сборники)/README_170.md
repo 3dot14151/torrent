@@ -1,3 +1,206 @@
+###  Публикация: 1824227   (128988) от 14.10.2025
+
+VA - Music News For Forum vol.141 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_128988.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alysia Sun - Bad Girl (02:54)
+ 002. A. Rassevich & Rinat KHAM - Breath You (03:05)
+ 003. ADEX - Miss You Online (03:07)
+ 004. ADEX & Akmalov - Broken Inside (03:13)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 13:41:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10CF04F4E788511B7C5F6A7E0BB4EC2194F7F40B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1824164   (128907) от 15.10.2025
+
+VA - Musical kaleidoscope part 58 Assorted (2025) [MP3|320 Kbps] <Electronic, Easy listening, Instrumental, Sax, AI>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_128907.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Giovanni Marradi - Sarabande
+02 - York Patrick - Snow in Paris
+03 - Dj Aurm - Autumn Leaves
+04 - York Patrick - Winter Sweetness(   Читать дальше...   )Жанр: Electronic, Easy listening, Instrumental, Sax, AIПродолжительность: 00:37:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84B7E547C4EDBD88C6D5A758D64CDFBD00072C33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1824032   (128650) от 13.10.2025
+
+VA - Music News For Forum vol.140 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_128650.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Инна Маликова & Новые Самоцветы - Ночное рандеву (03:36)
+ 002. 2lup - Нет тебя (02:20)
+ 003. 2xA & PO$ITIV G - Tam Da Ram (01:35)
+ 004. 3ntry - Love Night (02:19)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 12:32:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C757B1D1AACB42D59F868165F2142936E750843E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684133   (127980) от 14.12.2023
+
+VA - CarMusic 2 for man (2023) [MP3|320 Kbps] <House, G-House, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_127980.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Fugees - Ready Or Not (E.Y. Beats Remix) (4:42)
+02. Afrika Bambaataa - Just Get Up And Dance (Kirasinka & Green Flash Mash Up Radio Edit) (3:00)
+03. The Bestseller, Rammstein - Gangsta, Du Hast (Kirasinka & Green Flash Mash Up) (5:03)
+04. 666 - Alarma (DBL Techno Flip) (5:56)(   Читать дальше...   )Жанр: House, G-House, OtherПродолжительность: 04:28:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:216A941E2C294192064EF18D7E627D0C49C9BBD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684116   (127962) от 14.12.2023
+
+VA - Music News vol.323 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_127962.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. CHINCHILLA - Cut You Off (03:33)
+ 002. 33 Below feat. Chrystel - Hold Tight (03:19)
+ 003. ABI - Мама (03:19)
+ 004. Adrianne Lenker - Ruined (04:33)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:25:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFEDF404103F98CE3F80A34F3E72167142430AA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684946   (127452) от 17.12.2023
+
+VA - Music News vol.324 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_127452.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Rozalia - Завяжи Мне Глаза (02:14)
+ 002. Aespa - Jingle Bell Rock (Sped Up Version) (01:33)
+ 003. Adventure Club feat. Delaney Jane - How Do I Say Goodbye (02:49)
+ 004. Andy Dust feat. Cyril M & Mougleta - Lucky You (Andy Dust Vip Mix) (02:25)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:44:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:109008D0FE871F1B4B78E6B902EBEF1B0AB94464
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686088   (126755) от 21.12.2023
+
+VA - Music News vol.325 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_126755.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. sozONik - Я Верила (02:20)
+ 002. ADO - Сон (02:14)
+ 003. Alina Eremia - Dans (02:39)
+ 004. Alina Eremia - Nu Te Mai Astept (Chopin Remix) (02:48)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:29:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1D840E1E52AEA6EFB1B1A9F018E8E2A4D0AA78D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1317474   (126690) от 22.12.2023
 
 VA - Понемногу отовсюду by Yuridar #D (1957-2023) Compilation Album [MP3|192-320 Kbps] <Rock, Blues, Other>
@@ -542,209 +745,6 @@ VA - Music News vol.332 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7433AD323C111183EF9ED2D30D6BAEA5B4294CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693294   (121939) от 20.01.2024
-
-VA - ЕвроХит Топ 40 Europa Plus 19.01.2024 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121939.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sarah De Warren feat. Charming Horses & Hanno - This Is The Life (2:57)
-02. Dua Lipa - Houdini (3:05)
-03. Jung Kook feat. Jack Harlow - 3D (3:21)
-04. Zerb feat. Sofiya Nzau - Mwaki (Tiesto's VIP Mix) (2:40)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:59:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D55892F4BFB6D4D2D89B769168D33B95F9663B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823240   (121515) от 10.10.2025
-
-VA - Musical kaleidoscope part 57 Assorted (2025) [MP3|320 Kbps] <Electronic, Easy listening, Instrumental>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121515.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Riltim - Last Kiss
-02 - Yenra - Prompts on the Seine
-03 - Aurora Night - Frozen Eyes
-04 - Stive Morgan - Romantic(   Читать дальше...   )Жанр: Electronic, Easy listening, InstrumentalПродолжительность: 00:42:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0FAC27D7F96CEFBAABBDCF355EDBFDDA9382E25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694009   (121329) от 23.01.2024
-
-VA - Music News vol.333 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121329.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sofia Coll - Here To Stay (02:39)
- 002. 128 Ударов В Минуту - Если Уходишь (02:57)
- 003. AARPI - Вернись В Мой Сон (03:37)
- 004. AARPI - Горизонт (04:06)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:38:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48D6B4A848A24BA9A202275314503430448249BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694761   (120806) от 26.01.2024
-
-VA - Music News vol.334 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120806.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Xristiana - Тишина (03:06)
- 002. A.V.G feat. MACAN - Спой (02:25)
- 003. Adi Ulmansky feat. Eva Timush - Un Pic (03:10)
- 004. Ale Acosta feat. Valeria Castro - La Ceniza (03:27)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 10:41:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5BB92099608D0F620462ADEDAF89BAD9C10D39A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695262   (120506) от 28.01.2024
-
-VA - Music News vol.335 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120506.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bad Gyal - Sexy (02:39)
- 002. Akritis feat. Slata - Наша Песня (03:29)
- 003. Alba Mbengue - A Punto De Saltar (02:29)
- 004. Alec Benjamin - Pick Me (02:59)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:46:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B4CF88C73C3A8C4DEBF4549160B0567686F3F87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696171   (119828) от 01.02.2024
-
-VA - Music News vol.336 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119828.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alosa feat. Catching Sunrises - Breaking Me (02:58)
- 002. Abraham Colona feat. David Emde - Horizon (So Blue) (02:15)
- 003. Adam Maniac feat. Bogdan Kiyashko - Братишка (01:55)
- 004. Adam Maniac feat. Bogdan Kiyashko - Кажется (03:53)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:52:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CA99DDF23D730122F1F4341BD48030AE29620FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696802   (119352) от 04.02.2024
-
-VA - Music News vol.337 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119352.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Anna Serj feat. Алексей Васильчук - Все Прошло (03:22)
- 002. Alberta Cross - Never Gonna Walk Away (04:18)
- 003. Alexander Popov feat. TRITICUM - Give It to Me (02:17)
- 004. Amay - Красные Поцелуи (02:37)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 08:53:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18B410B2BA0091ABAA61FE61FBEBA7A8C130FBFA
 ```
 
 https://mybot314.ru/tekegram_catalog/

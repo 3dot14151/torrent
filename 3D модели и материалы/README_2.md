@@ -1,3 +1,81 @@
+###  Публикация: 1475946   (1011977) от 09.06.2021
+
+3D модели - Hum3D - BelAZ 75710 Dump Truck 2013 [FBX, MAX, OBJ]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011977.jpg" />
+</div>
+
+
+###  Подробнее
+
+3d модель автомобиля марки BelAZФормат: FBX, MAX, OBJ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1A4C7D20E0A64508A1E744D3C3B7F88F7923B05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1475939   (1011942) от 09.06.2021
+
+3D модели - BMW 6 Series Gran Turismo M-Sport with HQ interior 2017 [3DS, C4D, FBX, LWO, MAX, OBJ, WRL]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011942.jpg" />
+</div>
+
+
+###  Подробнее
+
+3d модель автомобиля марки BMWФормат: 3DS, C4D, FBX, LWO, MAX, OBJ, WRL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A716A732C9C99BB34BB0A452393BE40391EDDA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1475954   (1011933) от 09.06.2021
+
+3D модели - 3ddd - Audi Q8 2019 [Corona|V-Ray|*.max, OBJ]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011933.jpg" />
+</div>
+
+
+###  Подробнее
+
+3d модель Audi Q8 2019 с анимацией.Формат: Corona|V-Ray|*.max, OBJ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEFE838551FD80F9530E419D21E389992A2ABAF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1481906   (1007941) от 05.07.2021
 
 3D модели - KitBash3D - Props: Machinery [Octane|RedShift|Native|V-Ray|*.max, FBX, OBJ, BLEND, C4D, MA]
@@ -591,87 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A12706829F92FA7976BC68D4333E0771C242339
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351181   (1002393) от 09.01.2020
-
-3D модели - Daz 3D - Jenni 8 Pro Bundle - 65275 [DUF]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002393.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комплект Jenni 8 для DAZ 3D из категории People.
-Для Genesis 8Формат: DUF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A2EDB0F1CD836F292FF6BB7976C54B1357BF13E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351230   (1002391) от 09.01.2020
-
-3D модели -  Daz 3D - Leisa 8 Pro Bundle - 64959 [DUF]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002391.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комплект Leisa 8 для DAZ 3D из категории People.
-Для Genesis 8Формат: DUF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C40517042B130C7C40AEE9A27E6E88B5ADFE5183
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351176   (1002387) от 09.01.2020
-
-3D модели - Daz 3D - dForce Rebel Yell Outfit Textures - 62723 [DUF]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002387.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор текстур для dForce Rebel Yell Outfit for Genesis 8 Female(s) из категории Clothing.
-Для Genesis 8Формат: DUF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEBD7810E3B7429F72086131C825B58DAFB5A2C4
 ```
 
 https://mybot314.ru/tekegram_catalog/

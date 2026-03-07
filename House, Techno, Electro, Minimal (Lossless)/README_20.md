@@ -1,3 +1,119 @@
+###  Публикация: 1275275   (791156) от 10.01.2019
+
+Danniel Selfmade - Parallel Life (2019) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791156.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (Original Mix) (3:30)
+ 02. Permanent Hadway (Original Mix) (6:38)
+ 03. Carnivalmind (Original Mix) (6:18)
+ 04. Timescope (Original Mix) (6:50)(   Читать дальше...   )Жанр: Progressive House, Tech HouseПродолжительность: 02:53:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:652D9C6F7C9D64AA3AC9A9CE1E38F3F7FA25E667
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201965   (791061) от 27.01.2018
+
+Violetshaped - Violetshaped (2013) Violet Poison [FLAC|Lossless|tracks|Vinyl] <Techno, Industrial>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. State Of Temporary Neuronal Effervescence (02:00)
+02. The Lord Won't Forget (08:09)
+03. Out Of Any Symmetry (04:40)
+04. cX310 (05:02)(   Читать дальше...   )Жанр: Techno, IndustrialПродолжительность: 00:38:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CD2F5F4D964FD52E3B93EA9A831E3EF4DD9539A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201966   (791060) от 27.01.2018
+
+The Octagon Man - The Exciting World Of.... (1995) Electron Industries [FLAC|Lossless|tracks] <Electro, Experimental>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791060.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tunx (05:45)
+ 02. The Second Shape (08:10)
+ 03. Klunk (07:26)
+ 04. Xon (02:38)(   Читать дальше...   )Жанр: Electro, ExperimentalПродолжительность: 01:00:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96CC34652F634E85E45ADB703AB9AD5FF059315E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201933   (791057) от 27.01.2018
+
+Daniel Avery - Slow Fade EP (2018) Phantasy Sound [FLAC|Lossless|WEB-DL|tracks] <Techno, Drone, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791057.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slow Fade (05:31)
+ 02. After Dark (04:34)
+ 03. Radius (08:03)
+ 04. Fever Dream (05:26)Жанр: Techno, Drone, AmbientПродолжительность: 00:23:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1FAA894F789E69712DFDC0EAEC82FF9BDF46172
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1201645   (791050) от 27.01.2018
 
 VA - Hed Kandi:Back To Love (1999) [FLAC|Lossless|tracks] <House, Garage House, Deep House, Disco>
@@ -627,122 +743,6 @@ Meute - Puls (2020) [FLAC|Lossless|tracks + .cue] <Deep House, Nu-Jazz, Broken B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76D3FAA5ADB1FEDF4CAF956BCD99F2D2D9305D8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123483   (786389) от 08.04.2017
-
-Martin Buttrich - Collaborator Vol.1 (2017) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep Tech, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786389.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Martin Buttrich & DJ Tennis - Perpetual (Original Mix) [12:49]
-02. Martin Buttrich & Ramon Tapia - Evita (Original Mix) [08:36]
-03. Martin Buttrich, Timo Maas - Nach Acht [03:29]
-04. Martin Buttrich, Loco Dice - Damn U Made It [03:26](   Читать дальше...   )Жанр: Tech House, Deep Tech, MinimalПродолжительность: 02:36:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:990E5DD6E1E06314BF652CEB288A662F02217962
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124817   (785582) от 12.04.2017
-
-VA - Live in Brooklyn Output NYC (Mixed by John Digweed) (2017) [FLAC|Lossless|WEB|tracks|image] <Progressive House, Deep House, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. John Digweed - Live in Brooklyn Output NYC (Continuous Dj Mix 1) (70:13)
-02. John Digweed - Live in Brooklyn Output NYC (Continuous Dj Mix 2) (77:23)
-03. John Digweed - Live in Brooklyn Output NYC (Continuous Dj Mix 3) (77:12)
-04. John Digweed - Live in Brooklyn Output NYC (Continuous Dj Mix 4) (69:25)(   Читать дальше...   )Жанр: Progressive House, Deep House, TechnoПродолжительность: 12:53:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34920BD4F09DE76B05BAF961498EB68BDF2945B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204128   (785467) от 04.02.2018
-
-Occer - Imperfect (2017) Zenon Records [FLAC|Lossless|WEB-DL|tracks] <Techno, Psy-Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785467.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Affection (06:22)
-02. Imperfect (06:05)
-03. Nefario (06:21)
-04. Tumult (06:31)Жанр: Techno, Psy-TranceПродолжительность: 00:25:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08F071207FF8593B7FFA146CA557B7C9712A5EC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277307   (785457) от 20.01.2019
-
-MRUKS - Deja VU Vol. 2 (2018) [FLAC|Lossless|WEB-DL|tracks] <Funky, Club House, Retrowave>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785457.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. MRUKS - UH
-02. MRUKS - FOX
-03. MRUKS - Tempore
-04. MRUKS - Ancient People(   Читать дальше...   )Жанр: Funky, Club House, RetrowaveПродолжительность: 00:39:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45182DC63AD509EB52BF8DD33E55946799F1CFDA
 ```
 
 https://mybot314.ru/tekegram_catalog/

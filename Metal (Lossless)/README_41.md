@@ -1,3 +1,282 @@
+###  Публикация: 1353859   (990853) от 19.01.2020
+
+Despised Icon - The Healing Process (2005) [APE|Lossless|image + .cue] <Death Metal, Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_990853.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bulletproof Scales
+02. Silver Plated Advocate
+03. Immaculate
+04. Warm Blooded(   Читать дальше...   )Жанр: Death Metal, DeathcoreПродолжительность: 00:32:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:818C6E59AB4377044D0376A9D51BC587A7579585
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353863   (990851) от 19.01.2020
+
+Abnormal Thought Patterns - Abnormal Thought Patterns (2011) [FLAC|Lossless|image + .cue] <Instrumental Technical Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_990851.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Machine Within (2:38 )
+02. Velocity and Acceleration: Movement 1 (3:50)
+03. Velocity and Acceleration: Movement 2 (4:25)
+04. Velocity and Acceleration: Movement 3 (1:43)(   Читать дальше...   )Жанр: Instrumental Technical MetalПродолжительность: 00:20:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53DFF36A271CAB9A3D4399D7557980F399989CF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353864   (990808) от 19.01.2020
+
+Abnormal Thought Patterns - Manipulation Under Anesthesia (2013) [FLAC|Lossless|image + .cue] <Instrumental Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_990808.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Velocity and Acceleration Movement 5 (3:51)
+02. Velocity and Acceleration Movement 6 (4:55)
+03. Velocity and Acceleration Movement 7 (3:03)
+04. Velocity and Acceleration Movement 8 (1:11)(   Читать дальше...   )Жанр: Instrumental Progressive MetalПродолжительность: 00:36:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0A2881F04A7B66C7C4ECB027B35068BCD695E75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353648   (990806) от 19.01.2020
+
+Flotsam And Jetsam - The Cold (2010) Korean Ed. [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_990806.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hypocrite
+02. Take
+03. The Cold
+04. Black Cloud(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:04:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6404E0353812DCD49D78BDD432F0F2217985A695
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353858   (990798) от 19.01.2020
+
+Dusk Dwell - Through the Bright Halls (2018) [FLAC|Lossless|image + .cue] <Melodic Death Metal, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_990798.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа DUSK DWELL была создана в далеком уже теперь 2006-м году автором музыки и текстов, вокалистом и клавишником — в общем, короче говоря, мастермайндом ансамбля, — Евгением Ковальчуком и гитаристом Денисом Лазаревым. Позднее к ней присоединились брат Евгения — Олег, исполняющий партии гроула, и барабанщик Алексей Другаков. Отличительной чертой музыки группы, красной (   Читать дальше...   )01. Memories of My Heart
+02. White Shroud of December
+03. Majestic Awakening
+04. Flame of Passions(   Читать дальше...   )Жанр: Melodic Death Metal, Doom MetalПродолжительность: 00:45:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A0219D94167F513D71C28EF77D3442DB1612CE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 610472   (990576) от 29.01.2013
+
+Ancient Ceremony - 2CD (1997 - 2002) [WavPack|Lossless]<Symphonic Black/Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_990576.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ex Insula Angelorum [01:25]
+02. Al Shaitan Mahrid [04:12]
+03. Litanies In Blood [05:02]
+04. Seed Of Evil [05:28]
+05. A Black Requiem [06:20]
+06. With Mephistophelic Egotheism [04:22]
+07. The Ultimate Nemesis [04:47]
+08. On Khaos Wings [05:07]
+09. Salute O Satana [03:05]
+10. Under Astral Tyranny [05:13](   Читать дальше...   )Жанр: Symphonic Black/Gothic MetalПродолжительность: 00:50:07
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 610673   (990287) от 29.01.2013
+
+Dreamshade - 3 Альбома (2008-2013) Дискография [FLAC|Lossless]<Modern Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_990287.jpg" />
+</div>
+
+
+###  Подробнее
+
+<<<
+----------------------------------------------------------------------------
+01. Photographs
+02. Your Voice
+03. The Gift of Life
+04. Sandcastles
+05. Consumed Future
+06. Our Flame
+07. Late Confessions
+08. Sincere(   Читать дальше...   )Тип издания: ДискографияЖанр: Modern Melodic Death MetalПродолжительность: 00:37:45 >>>
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 610600   (989967) от 29.01.2013
+
+Otep - 7 Альбомов (2002-2013) Дискография [FLAC|Lossless]<Alt. Metal | Nu Metal | Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_989967.jpg" />
+</div>
+
+
+###  Подробнее
+
+<<<
+----------------------------------------------------------------------------
+01. Rising
+02. Blowtorch Nightlight
+03. Seduce & Destroy
+04. Crush
+05. Hematopia
+06. Necromatic
+07. Quarantine
+08. Voyeur(   Читать дальше...   )Тип издания: ДискографияЖанр: Alt. Metal | Nu Metal | Female VocalПродолжительность: 00:72:44 >>>
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1160991   (989887) от 20.01.2020
+
+Stamina - System of Power (2017) [FLAC|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_989887.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Holding On
+02. Must Be Blind
+03. One in a Million
+04. Undergo (Black Moon Pt. 2)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:45:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15A948BA1296409057EA9F9FD2C2F957AA371ECF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 432309   (989661) от 07.01.2012
 
 System Of A Down - Kill Rock n Roll greatest hits (2008) [FLAC|Lossless] <Nu-Metal, Alternatve>
@@ -515,273 +794,6 @@ Breaking Benjamin - Aurora (2020) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Post
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43631DF186D37CC77BF2356BF5D0B90ED4348987
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355217   (984823) от 25.01.2020
-
-Ironsword - Servants of Steel (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984823.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Hyborian Scrolls (02:14)
-02 - Rogues in the House (05:45)
-03 - Upon the Throne (02:42)
-04 - Tower of the Elephant (05:05)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:51:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:648C02AA994F7AF2E82269D07A1796BC7DA223DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971339   (984596) от 04.01.2016
-
-Mechina - Progenitor (2016) [FLAC|tracks|WEB-DL]<Industrial, Symphonic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984596.jpg" />
-</div>
-
-
-###  Подробнее
-
-[01:40] 01. Mass Locked
-[06:26] 02. Ashes Of Old Earth
-[07:31] 03. Starscape
-[06:26] 04. Cryoshock(   Читать дальше...   )Жанр: Industrial, Symphonic Death MetalПродолжительность: 00:50:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D566BBC7767E4631618E7DC91333A3B4B9601A92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 613104   (984523) от 03.02.2013
-
-Centurian - Contra Rationem (2013) Scene [FLAC|Lossless]<Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thou Shallt Bleed For The Lord Thy God
-02. Crown Of Bones
-03. Feast Of The Cross
-04. Judas Among Twelve
-05. Antinomian
-06. The Will Of The Torch
-07. Sin Upon Man
-08. Damnatio Memoriae
-09. Adversus
-Альбом выпущен 28 января 2013 года лейблом Listenable Records.Жанр: Death MetalПродолжительность: 00:29:17
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355388   (983632) от 26.01.2020
-
-Meshiaak - Mask Of All Misery (2019) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983632.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miasma (04:07)
-02. Mask of All Misery (05:26)
-03. Bury the Bodies (05:10)
-04. City of Ghosts (04:04)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:51:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE59EECFFC54E86CB43D175DAEF34F6309470A2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355440   (983627) от 26.01.2020
-
-Wastelands - Until the End of Time (2019) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983627.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Prelude in E Major (02:36)
-02 - Conspiracy (05:20)
-03 - Game Over (04:58)
-04 - Dangerous Time (04:51)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:44:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F719D36E3126156C66C8DAF964E9CF79DBB43922
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355473   (983623) от 26.01.2020
-
-Konvent - Puritan Masochism (2020) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983623.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Puritan Masochism
-02. The Eye
-03. Trust
-04. World of Gone(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 00:48:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:000BEDD9631FCB900382AA0A9967499C7AA92344
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355316   (983615) от 26.01.2020
-
-Temperance - Viridian (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983615.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mission Impossible                                                    [04:06]
-02. I Am the Fire                                                         [04:06]
-03. Start Another Round                                                   [04:10]
-04. My Demons Can't Sleep                                                 [03:58](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:48:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECAF5606E525EC91D34E6AE397114D521C2049D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355443   (983521) от 26.01.2020
-
-Scream Of Death - Visible Sins (2020) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983521.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rise
-02. Stepfather
-03. Fear My Hate
-04. Mente Preguiçosa(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:37:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0552964850CC60F63ACFE6534EB4BD1D95D29679
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355465   (983371) от 26.01.2020
-
-Tool - 8 albums, 10CD (1992-2019) [FLAC|Lossless|image + .cue] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983371.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tool («инструмент») — американская рок-группа, образованная в 1990 году в Лос-Анджелесе. Возникнув как коллектив, играющий гранж (жанр их первого альбома Undertow можно охарактеризовать именно как гранж), Tool позже стали одной из самых известных прогрессивных групп, начиная с их второго студийного альбома Ænima. Усилия по объединению музыкальных экспериментов, (   Читать дальше...   )--------------------------
-
-01. Fear Inoculum (10:21)
-02. Pneuma (11:53)(   Читать дальше...   )Жанр: Progressive Metal, Prog Rock, Post-Metal, Alt Metal |Продолжительность: 10:24:58 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1EF29D7CF991FD09A4A37789BFF2F7049A2FD48
 ```
 
 https://mybot314.ru/tekegram_catalog/

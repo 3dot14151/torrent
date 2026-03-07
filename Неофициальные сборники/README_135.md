@@ -1,3 +1,293 @@
+###  Публикация: 1003797   (841909) от 04.04.2016
+
+VA - Happy Feeling Vol.1 (2016) [MP3|320 кб/с] <House, Progressive, Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_841909.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Dark Devil - Radio Signal (Original Mix) (feat. DJ Solar Riskov) 03:34
+02 Dave Silence - Infinitely Happy (Original Mix) 04:53
+03 Quantum Duxe - Sunwalker (Original Mix) 05:17
+04 Alex Drow - Inception (Original Mix) 04:45(   Читать дальше...   )Жанр: House, Progressive, Trance
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2953D7B9EEA4CD1C095801B14EE81237DEE9B7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003689   (841908) от 04.04.2016
+
+VA - DJ Pitkin Special Mix 22 (2016) [MP3|320 кб/с] <House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_841908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SNBRN feat. Nate Dogg - Gangsta Walk (Extended Mix) 4:20
+02. De La Soul - All Good (Wolfgang Lohr & Wonkers Remix) 3:49
+03. The Knocks & Matthew Koma - I Wish (East & Young Remix) 2:47
+04. Manufactured Superstars feat. Danni Rouge - Great Escape (Richard Grey Remix) 2:50(   Читать дальше...   )Жанр: HouseПродолжительность: 00:59:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EA954B9B35D30AC7FB256A8954DD5F6E6C774FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003927   (841902) от 04.04.2016
+
+VA - Party Anthems №1. The World Biggest Dance & Club Hits (2016) [MP3|320кб/с] <House, Progressive, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_841902.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Acero Mc & Hotfunkboys With Dj Tilo Feat. Sarah Riveira - Ke Lo Ke (Radio Edit) 03:25
+002. Akami And Funkybeat - Skirts (Radio Edit) 02:50
+003. Alessandro Ambrosio - Don't Srach Too Much (Original Mix) 04:04
+004. Alex Kenji - When I Feel (Original Mix) 04:52(   Читать дальше...   )Жанр: House, Progressive, ClubПродолжительность: 09:04:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FD8D2CC52FE57F7B1AE02DB15BC86CFB7DA2F8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003742   (841899) от 04.04.2016
+
+VA - Dance Club Vol.2 (2016) [MP3|320 кб/с] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_841899.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Klingande - Losing U (feat. Daylight) 03:35
+02 Jonas Blue - Fast Car (Radio Edit) (feat. Dakota) 03:30
+03 Alan Walker - Faded 03:29
+04 Robin Schulz - Show Me Love (Radio Edit) 03:32(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 03:55:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DD0206258766C3A3583DA72539E7563D009EEBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003831   (841871) от 04.04.2016
+
+VA - Lobby Bar Lounge Vol.3: 20 Midnight Lounge Tunes (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_841871.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matt Lovers - Analogamente (4:29)
+ 02. Coffee Time - The Beautifull Ass (3:25)
+ 03. Quantum Energy - Quality of Mind (5:17)
+ 04. Pure Chill - Un Attimo (4:28)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:23:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B3F18DB7CEB27B6983F0F018BFF10E40EACC8E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003669   (841851) от 04.04.2016
+
+Павел Малов и группа Бродяги - Наливай, Аркадий! (2003) [MP3|112 кб/с] <Авторская песня, Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_841851.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вступление + Наливай, Аркадий!
+02. Дикий пляж
+03. Спели б мы на два голоса
+04. Городской романс(   Читать дальше...   )Жанр: Авторская песня, ШансонПродолжительность: 01:19:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFA2BE8CC9D103D4098070DCEE11AAECAC017D48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003842   (841848) от 04.04.2016
+
+VA - Trance Desire Volume 65 (2016) [MP3|320 кб/с] <Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_841848.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Denis Kenzo feat. Sveta B. - Lullaby Lonely (Progressive Mix) (05:57)
+02. Dimension feat. Cat Martin - Memories (05:26)
+03. Lence & Pluton - Native Home (05:40)
+04. Hazem Beltagui feat. Charlotte Haining - Of What We Once Had (Vocal Mix) (06:56)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:05:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A96312369D2260515E95AB005910F769706622A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003845   (841689) от 04.04.2016
+
+VA - 100 Пудовый Auto hit 1 (2016) [MP3|256-320 кб/с] <Поп, Танцевальный>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_841689.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Тамерлан и Алена - Потоки Ветра
+02. Bartashevich - Не Оставляй Меня
+03. Benami - Побудь Со Мной
+04. Даша Суворова - 312 Закрыта(   Читать дальше...   )Жанр: Поп, ТанцевальныйПродолжительность: 06:05:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E9C4649F350700353A1EC00EBCA2AE67BE067C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003686   (841378) от 04.04.2016
+
+VA - Tropical Fantasy Reggae Mix April (2016) [MP3|320 кб/с] <Reggae, Jungle>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_841378.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sizzla - Dem Ago Suffer
+002. Skalette O'Hara - Barbwire
+003. Bazzookas - Haha
+004. Fat Melon Man - Wet Dream(   Читать дальше...   )Жанр: Reggae, JungleПродолжительность: 09:46:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:060F20E6E654492D2EF922A9282C5242DE9675E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112844   (841235) от 09.03.2017
+
+VA - Relax Piano Music: Instrumental Collection (2017) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_841235.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Romantic Lovers Music Song - Romantic Dinner
+02. Best Piano Bar Ultimate Collection - Piano Bar Restaurant
+03. Riccardo Ascani - Playa Arcobaleno
+04. Romantic Lovers Music Song - Music for Love(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 01:57:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE04426F96834D7594FCB04F087244AB3123DC64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1112746   (841222) от 09.03.2017
 
 Jimi Hendrix - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues, Blues Rock>
@@ -446,296 +736,6 @@ VA - Весенний Прорыв Шансона (2016) [MP3|256 кб/с] <Shan
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C78203C5AC95B0F9F8F892021D68063936AA71F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113048   (840121) от 10.03.2017
-
-VA - Natural Lounge Music (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840121.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ritmo Fatalismo - Sangria After Midnight
-02. Don Gorda Project - In Silencio
-03. Hardage - Hysterical Years
-04. Moonnight - I Need A New Love (Feat. Neptune)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 06:05:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4EA4CDB614754D9776E5EB0FF837C0458CECEED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112923   (840120) от 10.03.2017
-
-VA - Вечеринка в стиле радио Шансон. Часть № 4 (2017) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840120.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Рома Рязанский - Письмо Матери 5:39
-002. Александр Кирсс - Знал Бы 4:00
-003. Александр Талин - Я Люблю 3:00
-004. Александр Кузнецов & Регион 42 - Осинники 3:08(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:07:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A46894C9FEE56376766FB88159A134AF98C70B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112897   (840119) от 10.03.2017
-
-VA - Лучшая дискотека от Европы Плюс выпуск № 2 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840119.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Aisha - Взгляд 3:19
-002. Илья Гуров - Геолокация 3:14
-003. Арина Войт - Мама Я В Раю 3:12
-004. Мила Вандер - Ты Меня Держи 3:12(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:251C2AE11438C0C09DE1DEEFA181D2639410C165
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112917   (840116) от 10.03.2017
-
-VA - Ресторан Кураж для друзей. Выпуск № 7 (2017) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840116.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Алексей Брянцев & Елена Касьянова - Я Все Равно Тебя Люблю 4:17
-002. Сергей Ильясафов - Забудь 4:19
-003. Александр Курган - Если Музыка Звучит 3:10
-004. Евгений Росс - Не Уезжай 3:11(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:03:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF7CD767111F6AB4C91A16699B929489A9E6DEBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112907   (840115) от 10.03.2017
-
-VA - Любимые песни шансона (2017) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840115.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Олеся Атланова - Самый Важный Человечек 4:43
-002. Игорь Добролевский - Не Зови 3:33
-003. Александр Марцинкевич - Мой Мир Это Ты 3:33
-004. Алексей Босота - Прощай Друг 3:32(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:976A47F146ABE948CD54B6ABBF66D6A47284DDCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112915   (840113) от 10.03.2017
-
-VA - Отдыхаем с лучшими хитами. Звездная тусовочка (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840113.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Дима Вебер - Просто Обидно 3:40
-002. Charli Xcx Feat. Lil Yachty - After The Afterparty 3:40
-003. Юлианна Караулова - Больше Никогда 3:39
-004. Елка - Впусти Музыку 3:36(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA6E932CBD065E9948099B73C87A7491009C506B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003876   (840097) от 05.04.2016
-
-VA - Megahits Best Of (2016) [MP3|320 кб/с] <Pop, Dance, Club>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840097.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Cara - Down for Whatever 03:54
-02 Party Bombers - We Found Love 03:34
-03 George Powers, Party Bombers - Give Your Heart a Break 03:25
-04 George Powers - Party in the USA 03:23(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 03:27:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7061961F7B48853FDB397610880D054DB0EA750B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004126   (840088) от 05.04.2016
-
-VA - Весенний Mix. Клубная туса (2016) [MP3|320 кб/с] <Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840088.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Caribou - Second Chance (Cyril Hahn Edit)
-02. ZHU vs. Kolya Funk & Frankie - Faded (Dj Nilov Mashup)
-03. Calvin Harris & Disciples - How Deep is Your Love (Extended Mix)
-04. Nytron & M0b - So Much Fun (Original Mix)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 06:35:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44A58CFBC0DAF55406C7F00EAA9258926F0472EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112920   (840024) от 10.03.2017
-
-VA - Весна пришла. Лучшие хиты. Версия № 11 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840024.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Виолетта Литвиненко - Найдет 3:00
-002. Oxford (Ox4d) - Тебя Я Больше Не Люблю 3:36
-003. Зара - Без Многоточий 3:36
-004. Supernova - Я И Мои Девочки 3:09(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3727207B5ACC1BDB5335067B7E437ABEE5E19E8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113204   (840016) от 10.03.2017
-
-VA - Hits Collection [Compiled by Zebyte] (2017) [MP3|320 Kbps] <Dance, House, Trapical>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840016.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Carly Rae Jepsen - Run Away With Me 4:09
-002. Major Lazer & Showtek - Believer 3:43
-003. Robin Schulz Feat. Jasmine Thompson - Sun Goes Down 2:56
-004. The Chainsmokers Feat. Xylo - Setting Fires 4:07(   Читать дальше...   )Жанр: Dance, House, TrapicalПродолжительность: 04:34:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8C7EF03D40C539A47FCBA485FAA6631D052A1D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,30 @@
+###  Публикация: 947560   (417862) от 17.10.2015
+
+Проекты - Vintage Unique Moments [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_417862.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания слайд шоу.
+Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B773C1478EAEE9BEB048ECE07C0035E10B0C9D4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 947567   (417861) от 17.10.2015
 
 Проекты - Motion Array - Angular [AEP]
@@ -657,32 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1D2CBFD30FFC95C62E6872152C89DD9EE7279BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066626   (411221) от 26.10.2016
-
-Проекты - VideoHive - Epic Slideshow I Cinematic Opener - 18443863 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411221.jpg" />
-</div>
-
-
-###  Подробнее
-
-Epic Slideshow I Cinematic Opener - кинематографическое слайд-шоу.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A61FCA71451752AA5BD2AB1725E7B8644569568B
 ```
 
 https://mybot314.ru/tekegram_catalog/

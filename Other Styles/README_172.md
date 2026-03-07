@@ -1,3 +1,32 @@
+###  Публикация: 1751740   (42293) от 26.09.2024
+
+Tantric Music Masters, Tantric Sex Background Music Experts - Erotic Oasis Tantric Arabic Music (2024) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_42293.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tantric Music Masters - Sensual Sands (2:31)
+02. Tantra Healing Paradise - Desert Tantra (2:36)
+03. Tantric Sex Background Music Experts - Arabian Sensations (2:53)
+04. Tantric Music Masters - Oasis Rhythms (2:35)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:28:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:558B3D1BDA5ADE91D5A348A0135E2031C8C96958
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1752651   (41780) от 01.10.2024
 
 Pregnant Women Music Company - Harmony for Two: Music to Soothe Pregnancy Stress (2024) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -716,35 +745,6 @@ Conor Oberst - Conor Oberst (2008) [FLAC|Lossless|tracks + .cue] <Folk Rock, Ind
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B40910D3247A9CCB02CD266EF5DD200802A708B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762020   (36366) от 23.11.2024
-
-Joe Berluck - The Erotic Voice of Joe Berluck (1970) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36366.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Cry Little Girl (2:49)
-02. Past Is Getting Near (2:53)
-03. You Belong To My Heart (2:29)
-04. Faraway Places (3:34)(   Читать дальше...   )Жанр: Chillout, RelaxПродолжительность: 00:32:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88B7AD14048F8F8A98A3EDD2C45E02550D351DC4
 ```
 
 https://mybot314.ru/tekegram_catalog/

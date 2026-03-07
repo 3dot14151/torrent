@@ -1,3 +1,38 @@
+###  Публикация: 605904   (994780) от 22.01.2013
+
+Antonio Lucio Vivaldi-Bassoon Concertos: I Musici bassoon Klaus Thunemann 2CD (1985-1994)/2003, Philips [WavPack (iso.wv)|Lossless]<Chamber>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_994780.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1Жанр: ChamberПродолжительность: 01:15:07
+Concerto in G major, RV 492
+sol majeur G-Dur
+1.	Allegro non molto	03:17
+2.	Largo	02:22
+3.	Allegro	02:31
+Concerto in B flat major, RV 503
+4.	si bemol majeur B-Dur Allegro non molto	03:36
+5.	Largo	02:42
+6.	Allegro	03:01(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C50A5E8CA4A1B817AC36D597E6581D4E8F2074B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1353020   (993128) от 16.01.2020
 
 Secret Garden - Storyteller (2019) Japan Edition [FLAC|Lossless|image + .cue] <Neo-Classical, Classical Crossover>
@@ -801,41 +836,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE51C57CFAB758F53BF8E2CD409115EDC02519E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 615037   (977309) от 08.02.2013
-
-Antonio Lucio Vivaldi- The 37 Bassoon Concertos: English Chamber Orchestra Daniel Smith 5CD (1986-1991) /1996, ASV [WavPack (iso.wv)|Lossless]<Chamber>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977309.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1Жанр: ChamberПродолжительность: 01:10:22
-
-CONCERTO No.7 in A minor (RV497)
-1.	Allegro molto	3.20
-2.	Andante molto	3.08
-3.	Allegro	2.34
-CONCERTO No.8 in F (RV485)
-4.	Allegro non molto	4.04
-5.	Andante	2.39
-6.	Allegro molto	2.32(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1BBE9871DA5286C112C4EB340FBF0BB80354AC2
 ```
 
 https://mybot314.ru/tekegram_catalog/

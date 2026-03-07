@@ -1,3 +1,119 @@
+###  Публикация: 1148666   (603495) от 07.07.2017
+
+Rebbie Jackson - Yours Faithfully (1998) [FLAC|Lossless|image + .cue] <Pop, R&B, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603495.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 What You Need 04:34
+02 Play Your Game 04:42
+03 Yours Faithfully 04:34
+04 Get Back To You 04:00(   Читать дальше...   )Жанр: Pop, R&B, SoulПродолжительность: 00:50:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3A375595A5B58DED0E064657EEC6023172E27B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547189   (603386) от 27.04.2022
+
+Chris Isaak - Forever Blue (1995) [FLAC|Lossless|image + .cue] <Pop Rock, Soft Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603386.jpg" />
+</div>
+
+
+###  Подробнее
+
+Forever Blue - пятый альбом американского музыканта Chris Isaak'а вышедший 23 мая 1995. 15 марта 1996 года альбом был сертифицирован RIAA как платиновый, в Австралии альбом стал трижды платиновым, а в Канаде получил золото. Forever Blue был номинирован на Grammy в категории Best Rock Album, а сингл Somebody's Crying получил номинацию Grammy в категории Best Male (   Читать дальше...   )01. Baby Did a Bad Bad Thing (2:54)
+02. Somebody's Crying (2:48)
+03. Graduation Day (3:10)
+04. Go Walking Down There (2:50)(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 00:39:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:773B995ECB4B70A249997263C4EF57E2304705C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088318   (603308) от 27.04.2022
+
+VA - Golden Ballads Summer (2005) Unofficial Release [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603308.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Underdog Project - Summer Jam
+02. Despina Vandi - C'est La Vie (Simera)
+03. J-Five - Find A-Way
+04. Neneh Cherry feat. Youssou N'dour - Seven Seconds(   Читать дальше...   )Жанр: PopПродолжительность: 01:15:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F5E520BF63A4475BA6500FA68A01B700DF1F5E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297686   (603093) от 24.04.2019
+
+Chrysta Bell - Feels Like Love (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock, Dream Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tonight We Rise
+02. Feels Like Love
+03. Red Angel
+04. Everest(   Читать дальше...   )Жанр: Pop Rock, Dream PopПродолжительность: 00:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA7D95E91419DBE65B5FB3C43F1F79208E7101A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1297879   (602640) от 25.04.2019
 
 Madonna - The Confessions Tour (2007) CD [FLAC|Lossless|tracks + .cue] <Dance-Pop, Euro House, Disco>
@@ -629,122 +745,6 @@ VA - 100 Hits - 80s Love (2007) 5CD Box Set [FLAC|tracks + .cue]<Pop, Dance, Sou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0757523DFD523C645523252A3B225012CE23010A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 916002   (591404) от 07.07.2015
-
-Zucchero - BlueSugar (1998) [FLAC|image+.cue]<Pop, Soft Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591404.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. U Make Me Feel Loved (4:01)
-02. Blue (Blu – english version) (5:48)
-03. Thin Air (5:44)
-04. If Not Tonight (3:31)(   Читать дальше...   )Жанр: Pop, Soft RockПродолжительность: 00:51:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00876D890FB48EB05B1D9BCA104D37CFDCF65DB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550947   (591195) от 13.05.2022
-
-Charli XCX - Crash (2022) Japanese Edition [FLAC|Lossless|tracks + .cue] <Electropop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crash (2:11)
-02. New Shapes (3:20)
-03. Good Ones (2:17)
-04. Constant Repeat (3:09)(   Читать дальше...   )Жанр: ElectropopПродолжительность: 00:33:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D39760FC12E827613FE69CD7C6B99FFBD42806D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917034   (589918) от 10.07.2015
-
-VA - Pure... Dance Party (2014) Box Set, 4CD [FLAC|Image+.cue]<Pop, Rock, Electronic, R&B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589918.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжаю популярную серию от Sony. Лето – пора самых ярких музыкальных впечатлений, вот наша Соня и собрала все лучшие танцевальные треки за несколько лет в одном месте! Серия Pure... – это тематические сборники, где каждый трек по новому раскрывает заданную тему! Убедитесь в этом сами, ведь в одной компиляции сосредоточены самые горячие танцевальные треки.CD1:
-01. One Direction - Live While We're Young (2012)  (3:21)
-02. Wham - Wake Me up Before You Go-Go (1984)  (3:53)
-03. Rita Ora - Radioactive (2012)  (4:13)(   Читать дальше...   )Жанр: Pop, Rock, Electronic, R&BПродолжительность: 04:07:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C96055E8BC4D388FBAF629F5B7F9EA0623F0CA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917610   (589079) от 12.07.2015
-
-Lara Fabian - Mademoiselle Zhivago (2012) [FLAC|image + .cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589079.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Demain n'existe pas [4:36]
-02. Toccami [5:01]
-03. Llora [5:48]
-04. Russian Fairy Tale [4:08](   Читать дальше...   )Жанр: PopПродолжительность: 00:56:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EF50C558C439ED14D5F0339D44CD4516A0D2644
 ```
 
 https://mybot314.ru/tekegram_catalog/

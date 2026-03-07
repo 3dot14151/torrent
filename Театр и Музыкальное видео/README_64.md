@@ -1,3 +1,90 @@
+###  Публикация: 916507   (589580) от 11.07.2015
+
+Robbie Robertson Music For The Native Americans Live (1995) WEBRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_589580.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыка NATIVE AMERICANS  на выступлении в The Red Road Ensemble с группой североамериканских аборигенов. Первоначально разработанный в качестве фона на документальном TBS, Робертсон вернулся  к своим корням, смешивая традиционные ритмы коренных со звуком фолк и кантри. Звукозаписывающие компании думали, что это слишком "нетрадиционные" для основного радио (   Читать дальше...   )01 -  Ghost Dance (W/ Red Road Ensemble)
+02 -  Mahk Jchi (W/ Ulali)
+03 -  Golden Feather (W/ Red Road Ensemble)
+04 -  Eagle Dance (American Indian Dance Theater)Производство: США, The Red Road EnsembleЖанр: Native American, FolkРежиссер: The Red Road EnsembleАктеры: Robbie Robertson, Pura Fe Crescioni, Soni Moreno, Jennifer E Kreisberg, Laura Satterfield, Priscilla Coolidge, Rita Coolidge....Продолжительность: 00:57:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14AA2CECFA94FB8725DC0737A497C60B241F094D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 808627   (589279) от 29.07.2014
+
+Новая Волна 2014. День пятый (2014) HDTVRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_589279.jpg" />
+</div>
+
+
+###  Подробнее
+
+Международный конкурс "Новая волна" вновь приглашает всех любителей песни в Юрмалу - в концертный зал "Дзинтари".01. A’STUDIO и TOMAS N’EVERGREEN - "FALLING FOR YOU"
+02. Игорь Николаев - "Линия жизни"
+03. Гоша Куценко и Юлия Пак – "Светлый дым"
+04. Артур Пирожков и Вера Брежнева – "LUNA"(   Читать дальше...   )Жанр: Концерт, ТВ-шоуПродолжительность: 02:17:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F46A44C3FB93E35BD097B5B7BAB4357E76BC220B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 808629   (589236) от 29.07.2014
+
+Новая Волна 2014. День шестой (2014) HDTVRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_589236.jpg" />
+</div>
+
+
+###  Подробнее
+
+Международный конкурс "Новая волна" вновь приглашает всех любителей песни в Юрмалу - в концертный зал "Дзинтари".01. Леонид Агутин – "Не уходи далеко"
+02. Вера Брежнева – "Доброе утро"
+03. Дима Билан – "Болен тобой"
+04. Николай Басков и Игорь Крутой – "Вишнёвая Любовь"(   Читать дальше...   )Жанр: Концерт, ТВ-шоуПродолжительность: 01:48:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6291660A3C59B51A7C93E468AF357EB7A98E437
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 917649   (589019) от 12.07.2015
 
 Kiss - Live In Nurburgring (2010/2012) BDRip [H.264/720p]
@@ -637,93 +724,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E0176683F59067692C8BEA5F479C2E17AB3E580
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920397   (579924) от 22.07.2015
-
-Whitesnake - Made In Japan (2011/2013) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579924.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт Британской рок группы Whitesnake был записан 15 октября 2011 года во время Японского Loud Park Фестиваля на Saitama Super Arena в Saitama City. Этот концерт группы Кавердейла прошёл в рамках их "Forevermore World Tour". Первоначально представление было записано для Японского телевидения и последующей рекламной компании Loud Park, однако после трансляции (   Читать дальше...   )01. Best Years
-02. Give Me All Your Love Tonight
-03. Love Ain't No Stranger
-04. Is This Love(   Читать дальше...   )Жанр: Heavy Metal, Speed MetalПродолжительность: 01:13:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A93FABFF32CDEB57A7816A4DF0E99A9049C4C4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920420   (579921) от 22.07.2015
-
-Metallica - Orgullo Pasion Y Gloria - Tres Noches En Mexico (2009) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579921.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт Metallica с классической программой в Мехико в 2009 году. Концертное выступление чередуется общением с фанатами и эпизодами с Мексиканского ТВ.1. The Ecstasy Of Gold
-2. Creeping Death
-3. For Whom The Bell Tolls
-4. Ride The Lightning(   Читать дальше...   )Жанр: Hard Rock, Metal, ThrashРежиссер: Wayne IshamПродолжительность: 02:25:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F115A025896E10D0B8E5EBB4E23787BEF108ED17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302754   (579075) от 17.05.2019
-
-Сборник клипов - Rap & Hip Hop Video Collection от ALEXnROCK часть 1 (2019) WEBRip [H.264/1080p-LQ] [upscale]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579075.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лучшее, что есть в мировом рэпе и хип хопе. Ремастеринг видео и звука. Обложка и блин для диска в раздаче. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK00. Rap & Hip Hop - Intro
-01. 50 Cent - In Da Club
-02. Xzibit & Snoop Dogg & Dr. Dre - X
-03. Down Low - Potion(   Читать дальше...   )Жанр: Rap, Hip HopПродолжительность: 02:43:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:279CA724CFAE2882F6CEC29C1F68C9EEF886FC8A
 ```
 
 https://mybot314.ru/tekegram_catalog/

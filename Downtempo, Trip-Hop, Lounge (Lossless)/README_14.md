@@ -1,3 +1,32 @@
+###  Публикация: 921891   (569876) от 28.07.2015
+
+VA - Cafe Ipanema (2011) [FLAC|tracks+.cue]<Downtempo, Bossa Nova>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_569876.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ela E Carioca - Joao Gilberto
+2. Do You Really Want To Hurt Me - Karen Souza
+3. Escola Do Samba - Marcha Cordaz
+4. Catavento - Milton Nascimento(   Читать дальше...   )Жанр: Downtempo, Bossa NovaПродолжительность: 00:48:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D30A04F1663BB6A13CDD6B62C8C351ED84B6F34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 529448   (566467) от 31.07.2012
 
 Triangle Sun - Diamond (2008) 2CD Deluxe Edition [FLAC|Lossless]<Downtempo, Lounge>
@@ -718,35 +747,6 @@ VA - Sweet Lounge Session Vol 4 (2019) [FLAC|Lossless|WEB-DL|tracks] <Downtempo,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7878BB94D53E81F8D142040220EDABD3645CD94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1051578   (532693) от 11.09.2016
-
-VA - Cafe Deluxe Chillout Nu Ibiza Lounge (2016) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532693.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jean Mare - To the Balearic and Back (Lounge Flight Mix) [04:19]
-02. Soundset City - From Bar to Bar (Cafe Lounge Groove Mix) [05:10]
-03. Bernon - Into the Blue (Vocal Guitar Del Mar Mix) [04:43]
-04. Dave Neville - Funny Sky (Cosmic Space Mix) [05:48](   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 02:10:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4EE3ABEC954C417DBD6E020CAC2B986CB75AFA9
 ```
 
 https://mybot314.ru/tekegram_catalog/

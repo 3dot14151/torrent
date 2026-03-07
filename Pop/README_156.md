@@ -1,3 +1,218 @@
+###  Публикация: 1039342   (597789) от 31.07.2016
+
+Lipstique - At The Discotheque (1977) Reissue, 1993, Lollipop Records [MP3|320 Kbps] <Electronic, Disco, Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_597789.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. At The Discotheque (15:02)
+02. Venus / Light My Fire (7:17)
+03. I Wanna Play With You / Funny Games (5:32)
+04. Mah-Nah-Mah-Nah / Disco (4:09)(   Читать дальше...   )Жанр: Electronic, Disco, PopПродолжительность: 00:33:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEBA2C1FC3E923ECF78D547B1AA91FAED830D5FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 806388   (597026) от 20.07.2014
+
+Monte Kristo - Sherry Mi-Sai (2007) [APE|Lossless]<Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_597026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Girl Of Lucifer (Vocal) 5:26
+02. Sherry Mi-Sai 5:59
+03. Money For Your Love 4:44
+04. Give Me Your Night (A Touch Of Love) 5:43
+05. Lady Valentine 5:51
+06. The Girl Of Lucifer (Instrumental) 5:27
+07. La Vie D'un Enfant (Vocal) 3:46
+08. La Vie D'un Enfant (Instrumental) 3:46Жанр: Italo-DiscoПродолжительность: 00:40:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F93DF302BED4B694D5606AF9181B869E2B281DB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 806390   (597021) от 20.07.2014
+
+Monte Kristo - Sherry Mi-Sai (2007) [MP3|320 кб/с]<Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_597021.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Girl Of Lucifer (Vocal) 5:26
+02. Sherry Mi-Sai 5:59
+03. Money For Your Love 4:44
+04. Give Me Your Night (A Touch Of Love) 5:43
+05. Lady Valentine 5:51
+06. The Girl Of Lucifer (Instrumental) 5:27
+07. La Vie D'un Enfant (Vocal) 3:46
+08. La Vie D'un Enfant (Instrumental) 3:46Жанр: Italo-DiscoПродолжительность: 00:40:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:088BD95A2A64F1B79B82C56966CB1682C0B3C685
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 526425   (596881) от 24.07.2012
+
+Профессор Лебединский - Лучшее (2CD) (2011) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_596881.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Без тебя
+02. Беса ме мучо
+03. Резиновая моя
+04. Лашате ми кантаре
+05. Лица желтые
+06. Калямба - балямба
+07. Учат в школе
+08. Зато меня любят таксисты
+09. Лай - лай - лай
+10. Зачем , Герасим?(   Читать дальше...   )Жанр: PopПродолжительность: 01:06:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F65998A83351748BE493A5A6B4A6049468A81BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 356736   (596738) от 29.06.2011
+
+VA - Star Hit. 80-e возвращаются (2011) [MP3|320 kbps]<Pop,Dance>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_596738.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop,DanceПродолжительность: 01:17:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81F1E3816F0FFF822772AEDB78DDEB8B1A160D55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1150126   (596613) от 13.07.2017
+
+The Twins - 7 Albums (1981-1993) CD [MP3|320 Kbps] <Electronic, Synth-pop, Italo-Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_596613.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1980, немцы Sven Dohrow и Ronny Schreinzer решили создать новую группу. До этого они играли в различных группах как гитарист и барабанщик. Мощное влияние на их творчество оказали Tubeway Army, Gary Numan, OMD и Depeche Mode. В общем, стандартный состав для многих Synth-Pop и Disco-групп того славного времени, а-ля Sparks, Pet Shop Boys, Erasure или OMD, когда один (   Читать дальше...   )Список альбомов:
+1981 - Passion Factory
+1982 - Modern Lifestyle
+1983 - A Wild Romance(   Читать дальше...   )Жанр: Electronic, Synth-pop, Italo-DiscoПродолжительность: 05:41:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1EBE7EE6FE4E4D7ED0DDB6DB099A314B7DEE5FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 356929   (596556) от 29.06.2011
+
+Imperio - 2 альбома (1995-1996) [FLAC|Lossless]<Eurodance, Dreamdance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_596556.jpg" />
+</div>
+
+
+###  Подробнее
+
+Imperio - проект австрийского продюсера Норберта Райхарта (Norbert Reichart), солисты Мануэла Рэй (Manuela Ray) и Майкл Харрис (Michael Harris).
+Первый же сингл "Veni Vidi Vici" покорил хит-парады не только Австрии, но и многих Европейских стран. Затем последовали "Quo Vadis", "Nostra Culpa", "Amor Infinitus" и в 1995-м году (   Читать дальше...   )01. Intro
+02. Atlantis
+03. Wings Of Love
+04. Secrets Of Love(   Читать дальше...   )Жанр: Eurodance, DreamdanceПродолжительность: 01:36:12
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 914766   (596506) от 03.07.2015
 
 Maren Elise - Think About It And Say Yes! (2015) [MP3|320 кб/с]<Alternative, Chillwave, Exotic Pop, Indie Pop, Synthpop, Electronic>
@@ -539,220 +754,6 @@ Catherine Clarnette - Bold (2016) [MP3|320 Kbps] <Alternative Pop, Dark Pop, Jaz
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01A7C99703A8D06A28F2ED4A8A7AF83BE05639CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 527058   (595528) от 25.07.2012
-
-Schnuffel - 3 альбома + 5 синглов (2008-2009) [MP3|320 kbps]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_595528.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 03:02:59
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 527037   (595445) от 25.07.2012
-
-Fancy - Полная коллекция хитов (2012) [MP3|320 кб/с]<Pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595445.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, DiscoПродолжительность: 04:42:27
-
-01. A Neverending Ride
-02. A Voice In The Dark (Version 2008)
-03. Can't Help Falling In Love
-04. Changing My Ways (You Got Me)
-05. Cirque De La Lune
-06. Colours Of Life
-07. Come Back And Break My Heart
-08. D.I.S.C.O. (Lust For Life)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:955FC184652DC95D9260E8126D72021E738416FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 527007   (595406) от 25.07.2012
-
-VA - Les Annees Cultes 80 (6 CD) (2011) [MP3|320 кб/с]<Disco, Pop, Soundtrack>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595406.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыкальная коробочка
-6 CD
-Добрая хорошая музыка1. (Superman) - Theme Principal (4:09)
- 2. (Star Wars Episode IV) - Un Nouvel Espoir (3:09)
- 3. (Indiana Jones Et Les Aventuriers De L'arche Perdue) - March (2:51)
- 4. (La Soupe Aux Choux) - Generique (1:29)
- 5. (La Panthere Rose) - The Pink Panther Theme (3:21)
- 6. (E.T.) - Flying Theme (3:41)
- 7. (Vive Les Femmes) - Ca Vous Dirait...Avec Moi? (3:31)
- 8. (James Bond) - Theme Principal (1:08)
- 9. Francis Lalane (Le Passage) - On Se Retrouvera (2:42)
- 10. (Terminator) - Theme Principal (4:36)(   Читать дальше...   )Жанр: Disco, Pop, SoundtrackПродолжительность: 01:06:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AD77BCFADD22202A7C8FCFDE83E75B6501BB033
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150298   (595285) от 14.07.2017
-
-Peter Cornelius - Liederbuch (1998) [APE|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595285.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Du entschuldige i kenn Di (04:23)
-02. Reif für die Insel (04:41)
-03. Ganz Wien hat den Blues (04:21)
-04. Der Kaffee ist fertig (04:18)(   Читать дальше...   )Жанр: PopПродолжительность: 01:01:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:163D36185473C2322FFA2B125DC386C97230F76D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915086   (595197) от 04.07.2015
-
-n.Lannon - Falling Inside (2015) [OGG|444-549 кб/с]<Indie Pop Folktronica, Chillwave>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595197.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kill All These Machines (04:27)
-02. Endless Night (03:46)
-03. Dreamer (03:28)
-04. Another Love (03:58)(   Читать дальше...   )Жанр: Indie Pop Folktronica, ChillwaveПродолжительность: 00:39:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90803976D2464EF7E4782A6CCE9D5EE825F3731F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299727   (594969) от 04.05.2019
-
-VA - Schlager für Alle 4 (2019) [MP3|320 Kbps] <Pop, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594969.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-
-01. Eloy de Jong - Liebe kann so weh tun (im Duett mit Marianne Rosenberg)
-02. Thomas Anders feat. Florian Silbereisen - Sie sagte doch sie liebt mich(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 03:32:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81E8CA5FA17B3038ABE10DEF86FE3C88489B8A99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549118   (594744) от 05.05.2022
-
-VA - Disco Music (2021) [FLAC|Lossless|WEB-DL|tracks] <Dance, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594744.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bee Gees - Stayin Alive (4:46)
-02. Kool & The Gang - Celebration (Single Version) (4:57)
-03. Donna Summer - Hot Stuff (12'' Version) (6:41)
-04. Sylvester - You Make Me Feel (Mighty Real) (6:35)(   Читать дальше...   )Жанр: Dance, DiscoПродолжительность: 03:03:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6855E91651D9210D19845A5D7BDAE7F8E6708143
 ```
 
 https://mybot314.ru/tekegram_catalog/

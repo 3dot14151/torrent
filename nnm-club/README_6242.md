@@ -1,22 +1,25 @@
-###  Публикация: 1509192   (795288) от 11.11.2021
+###  Публикация: 1200233   (796452) от 20.01.2018
 
-Не время умирать / No Time to Die (2021) WEB-DL [H.265/2160p] [4K, SDR, 10-bit] [MVO]
+Горные лыжи. Кубок мира 2017–2018. Венген (Швейцария). Мужчины. Альпийская комбинация (12.01.2018) WEB-DL [H.264/720p-LQ] [hand made 50fps]
 
 >>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795288.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796452.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Джеймс Бонд оставил оперативную службу и наслаждается спокойной жизнью на Ямайке. Все меняется, когда на острове появляется его старый друг Феликс Лейтер из ЦРУ с просьбой о помощи. Миссия по спасению похищенного ученого оказывается опаснее, чем предполагалось изначально. Бонд попадает в ловушку к таинственному злодею, вооруженному опасным технологическим оружием.Производство: Великобритания, США, / Metro-Goldwyn-Mayer (MGM), Universal Pictures, Eon ProductionsЖанр: Боевик, триллер, приключенияРежиссер: Кэри Дзёдзи ФукунагаАктеры: Дэниэл Крэйг, Рами Малек, Леа Сейду, Лашана Линч, Бен Уишоу, Наоми Харрис, Билли Магнуссен, Ана де Армас, Кристоф Вальц, Рэйф ФайнсПеревод: Многоголосый профессиональный (Jaskier), Любительский двухголосый (Pazl Voice), Любительский одноголосый (Feofanio)Субтитры: Русские (FOCS), Английские (Forced, Full, SDH), Испанские (Full), Французские (Full), Корейские (Full)Продолжительность: 02:43:23
+12 января 2018 года, пятница. 12:30 МСК
+Этап Кубка мира по горнолыжному спорту сезона 2017-2018 года
+Венген (Швейцария). Мужчины
+Альпийская комбинация: Скоростной спуск + СлаломТелекомпания: Eurovision SportЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 03:43:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B4B664785F36C3F182F71DA42206DCAA656662A2
+magnet:?xt=urn:btih:728E0B65C552FB384F36C869B78E259F25A62674
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +27,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509172   (795287) от 11.11.2021
+###  Публикация: 1200424   (796451) от 20.01.2018
 
-Adobe Photoshop 2021 22.5.3.561 RePack by KpoJIuK [Multi/Ru]
+Иван Горбунов-Посадов (сост.) | Первые снежинки (1909) [PDF]
 
->>След.
->>Архив Программ
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795287.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796451.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Adobe Photoshop 2021 - новая версия программы для обработки растровой графики. Поддерживается множество графических форматов. Adobe Photoshop позволяет как создавать новые изображения, так и редактировать их. Фотошоп применяют для создания фотореалистических изображений, для работы с цветными отсканированными изображениями, для ретуширования, цветокоррекции, коллажирования, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+Сборник рассказов для детей младшего возраста.Жанр: Детская прозаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1A3F6CD58BF068F4660562BD1D5CD5B2E0C4D34F
+magnet:?xt=urn:btih:C8E7823498C766BE96A635FDC3F8A4D287B40DFF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,136 +53,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414728   (795286) от 11.11.2021
+###  Публикация: 1200234   (796450) от 20.01.2018
 
-За пределами Вселенной / The Beyond (2017) WEB-DL [H.264/1080p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795286.jpg" />
-</div>
-
-
-###  Подробнее
-
-Штатная процедура выхода в космос внезапно заканчивается загадочным исчезновением американского астронавта. Учёные, исследовавшие космическое пространство, вскоре обнаруживают, что к Земле приближается множество странных тёмных объектов сферической формы.
-Эксперты по всему миру начинают бить тревогу, предполагая, что в ближайшем будущем нашу планету ждёт неминуемый (   Читать дальше...   )Производство: Великобритания / Ground Control, HaZ Film, HaZ VFXЖанр: ФантастикаРежиссер: Hasraf DulullАктеры: Джейн Перри, Найджел Барбер, Ноэлин Комиски, Эзра Кан, Коша Энглер, Stuart Ashton, Александр Клэй, Louisa Hollway, Уэс Нике, Melissa GrahamПеревод: Дублированный, многоголосый профессиональныйСубтитры: Русские (forced), английскиеПродолжительность: 01:31:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFB712EA9967F9A6D7DD24BE1AB1D3CD2D9BFBC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509251   (795285) от 11.11.2021
-
-Adobe After Effects 2022 22.0.1.2 RePack by KpoJIuK [Multi/Ru]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795285.jpg" />
-</div>
-
-
-###  Подробнее
-
-After Effects — это ведущая в отрасли программа для создания и компоновки анимированной графики, которую используют многие разработчики визуальных эффектов и анимированной графики. Она предлагает великолепные функции управления, широкий выбор инструментов для творчества, а также возможность интеграции с другими приложениями для постобработки видеоматериалов. Сделайте (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C45FCD9BB7AC3B4959E2C81C00615E653A401C93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509029   (795283) от 11.11.2021
-
-Paragon Hard Disk Manager Advanced 17.20.9 RePack by elchupacabra [En]
-
->>След.
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795283.jpg" />
-</div>
-
-
-###  Подробнее
-
-Paragon Hard Disk Manager - многофункциональное и удобное решение, осуществляющее полный цикл обслуживания жесткого диска. С помощью этой программы вы сможете управлять процессом загрузки, производить разбиение диска на разделы, проделывать операции копирования и восстановления, обеспечивать безопасность системы и данных, выводить диск из эксплуатации. Программа (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D05B6D038731451B965657842BBCE1176233E367
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386266   (795282) от 28.05.2020
-
-Tony Bennett - Steppin' Out (1993) Columbia [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795282.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steppin' Out with My Baby [2:53]
-02. Who Cares? [3:17]
-03. Top Hat, White Tie and Tails [2:39]
-04. They Can't Take That Away from Me [3:36](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:52:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:414754A87F86A4C1727B7F201D14FF0AE0A0F09F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386194   (795281) от 28.05.2020
-
-Funkstörung (Funkstorung) - Viceversa (2001) Studio !K7 [FLAC|Lossless|tracks+.cue] <Abstract, IDM, Experimental>
+VA - Special Sport Songs 11 (2018) [MP3|320 Kbps] <Trance>
 
 >>Electronic
->>IDM (Lossless)
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795281.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796450.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Plaid - Eyen (Fünkstörung Remiks) (03:48)
- 02. Jay-Jay Johanson - I Want Some Fun (Fünkstörung Remiks) (04:47)
- 03. Nils Petter Molvær - Solid Ether (Fünkstörung Miks) (04:59)
- 04. A Guy Called Gerald - Humanity (Fünkstörung Remiks) (03:53)(   Читать дальше...   )Жанр: Abstract, IDM, ExperimentalПродолжительность: 00:51:39
+01. Dr. Beat - Come Down to Me (Radio Edit) 03:06
+02. Dennis Grkn - Winner (Radio Edit) 03:15
+03. Mr. Groove - We're Living for the Moment (Radio Edit) 03:31
+04. Miguel Alcobia - I Don't Need You Anymore (Radio Edit) 02:13(   Читать дальше...   )Жанр: TranceПродолжительность: 02:16:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:459932FAF14956B9F00B7584D3376B670BD3418C
+magnet:?xt=urn:btih:5D9501989F56E4BBEAEF70384D866B97814C2F89
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -187,25 +82,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386275   (795280) от 28.05.2020
+###  Публикация: 1200355   (796449) от 20.01.2018
 
-Adguard 2.4.8 (795) Nightly [Multi/Ru]
+PDF Expert 2.2.17 [Multi/Ru]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795280.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796449.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Adguard — это лучший способ избавиться от раздражающей рекламы, защититься от онлайн-слежки и мошеннических сайтов. Adguard – интернет-фильтр для защиты пользователей от опасных веб-сайтов, блокировки всех возможных видов рекламы в Интернете. Программа представляет собой отличное дополнение для вашей основной антивирусной защиты с эффективной блокировкой вредоносных, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.05.2020Разработчик: AdguardПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Немецкий и др.
+PDF Expert - лучший редактор файлов PDF
+PDF Expert - это один из лучших инструментов для работы с PDF на iPhone и iPad, который позволяет на ходу просматривать, редактировать и подписывать документы. Теперь популярное приложение доступно и на Mac.
+
+Разработчики учли все пожелания пользователей и сделали PDF Expert для Mac простым, как и его мобильная версия, но очень (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: Readdle Inc.Поддерживаемая ОС: macOS 10.10 +Язык интерфейса: Русский, Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DF2E8D1216746A0F5CC5B5826113AEFE5C87E6CE
+magnet:?xt=urn:btih:008F9084A80D5D8B56F9A27E19D4D1E4D8E56CEA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -213,28 +111,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386270   (795279) от 28.05.2020
+###  Публикация: 1010817   (796448) от 28.04.2016
 
-Split Heaven - The Devil's Bandit (2013) [WavPack|Lossless|image + .cue] <Heavy Metal>
+Футбол. Чемпионат Франции 2015-2016. 35 тур. Обзор матчей (25.04.2016) HDTVRip [H.264/720p-LQ]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Архив торрентов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795279.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796448.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Arrival Of The Gunslinger (Intro) (01:35)
-02. Danger Zone (04:11)
-03. False Martyr (04:04)
-04. March Of The Dead (04:44)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:41:24
+Обзор матчей 35-го тура.Телекомпания: Футбол 1 HDЖанр: СпортЯзык озвучки: Русский (Егор Серов)Продолжительность: 00:52:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F684F2217874371BC0A6791E068FE06D137FC5E1
+magnet:?xt=urn:btih:9B2F8F42FC0A18768B3F66D512040BE4D4651BD3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -242,28 +137,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385925   (795277) от 28.05.2020
+###  Публикация: 1011592   (796447) от 28.04.2016
 
-Lapsley / Låpsley / - Through Water (2020) [FLAC|Lossless|tracks + .cue] <Indie Pop>
+VA - Trance Desire Vol. 67 (2016) [MP3|320 кб/с] <Trance>
 
->>Pop
->>Зарубежная поп-музыка (Lossless)
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795277.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796447.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Through Water (03:01)
-02. My Love Was Like the Rain (04:12)
-03. First (03:20)
-04. Ligne 3 (04:01)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:34:17
+01. Tenishia, Jonathan Mendelsohn -  A New Dream (Original Mix)  6:16
+02. Andrew Rayel -  Andrew Rayel - 550 (Senta Aeth  7:44
+03. Karanda -  Agony - Shawn Mitiska Remix  7:08
+04. Fabio XB & Liuck ft. Christina -  Back To You (Purple Stories Re  8:38(   Читать дальше...   )Жанр: TranceПродолжительность: 02:13:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D93BCD38BBEC445164D7064131A4B45092790D96
+magnet:?xt=urn:btih:10E2ACE793508F26F8FB33A5A3C82EB9A80E9DAF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -271,28 +166,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386254   (795276) от 28.05.2020
+###  Публикация: 1011810   (796446) от 28.04.2016
 
-Tony Bennett - Tony Bennett's Greatest Hits of the '60s (2006) [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+George Garzone - Moodiology (1999) [FLAC|Lossless|tracks + .cue] <Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795276.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796446.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Put on a Happy Face (2:41)
-02. The Best Is Yet to Come (2:37)
-03. Once Upon a Time (2:59)
-04. (I Left My Heart In) San Francisco (2:54)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:48:08
+01. Moodiology (Prologue) (Garzone) - 02:30
+02. Hey, Open Up (Garzone) - 06:37
+03. Farewell to Athens (Garzone) - 05:28
+04. Summertime (Gershwin-Gershwin-Heyward) - 08:11(   Читать дальше...   )Жанр: JazzПродолжительность: 01:02:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7117DB3D0E402B06CC65B31FE448D6AAF3F94F37
+magnet:?xt=urn:btih:2ED59E7609B8E7D892EFD8F3A94BA6952CA2DBAD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -300,25 +195,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386322   (795275) от 28.05.2020
+###  Публикация: 1011706   (796445) от 28.04.2016
 
-Adguard 2.4.8 (795) Release [Multi/Ru]
+Blue Mitchell & Sonny Red - Baltimore 1966 (2016) Uptown Records[FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796445.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.If I Should Lose You [15:30]
+ 02.All Members [14:27]
+ 03.Fungi Mama [10:24]
+ 04.Blue Spring Variation (Shifting Down, Blue Spring, Blue Spring Shuffle) [10:14](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:10:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:067877D310EE80008AE997D7BA319D64043D6A84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011776   (796444) от 28.04.2016
+
+VA - Melodic Dreams Vol.4 (2016) [MP3|320 кб/с] <Trance>
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795275.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796444.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Adguard — это лучший способ избавиться от раздражающей рекламы, защититься от онлайн-слежки и мошеннических сайтов. Adguard – интернет-фильтр для защиты пользователей от опасных веб-сайтов, блокировки всех возможных видов рекламы в Интернете. Программа представляет собой отличное дополнение для вашей основной антивирусной защиты с эффективной блокировкой вредоносных, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.05.2020Разработчик: AdguardПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Немецкий и др.
+01. DJ I. GlazkoV -  Earlier Sound  5:00
+02. Dj Amigo -  Summer Time  6:33
+03. Dredd DJ -  Prizma  5:07
+04. Filek -  All Be O.k.  6:11(   Читать дальше...   )Жанр: TranceПродолжительность: 00:50:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EC453ABC7046AE4C650A68AAE825AF43EE406933
+magnet:?xt=urn:btih:94CFD4C3B01BB16ABFD0DF2460A815412DE5B5DC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -326,115 +253,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386299   (795274) от 28.05.2020
+###  Публикация: 1011600   (796443) от 28.04.2016
 
-Детский хор Yip's Canada (The Shanghai Restoration Project) - Little Dragon Tales (Chinese Children's Song) (2011) [MP3|192 Kbps]<Детские песни>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795274.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Making Friends (找朋友 - Zhǎo péngyǒu)
-02. Where is Spring? (春天在哪里 - Chūntiān zài nǎlǐ?)
-03. Clay Doll (泥娃娃 - Ní wáwá)
-04. Two Tigers (两只老虎 - Liǎng zhī lǎohǔ)(   Читать дальше...   )Жанр: Детские песниПродолжительность: 00:34:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA1993282A95E1E251D33E17EFA38AAA0618B2D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385817   (795273) от 28.05.2020
-
-VA - Dance Club 2020.02 (2020) Explicit [MP3|320 Kbps] <Dance, Pop, Electronic>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795273.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ily (i love you baby) (feat. Emilee) - Surf Mesa
-02. Stupid Love - Lady Gaga
-03. Physical - Dua Lipa
-04. In Your Eyes (feat. Alida) - Robin Schulz(   Читать дальше...   )Жанр: Dance, Pop, ElectronicПродолжительность: 01:49:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C462ACF8CF1B7DAA8EEA51BEA519E2D6986A82F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386233   (795272) от 28.05.2020
-
-Elite - Premiere (1980) LP [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795272.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boys On Hollywood Blvd (8:00)
-02. Poppers (7:54)
-03. Reach For Me (Can't You See Lovin' Me) (8:42)
-04. Papa Was A Rolling Stone (10:22)Жанр: Electronic, DiscoПродолжительность: 00:34:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5163A4D3AD417BF3EE9219EE1BA19995949315BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386239   (795271) от 28.05.2020
-
-VA - Beatport Hard Dance: Sound Pack #96 (2020) [MP3|320 Kbps] <Hard Dance, Hardcore>
+VA - Dance Floor Hits Destinations (2016) [MP3|320 кб/с] <House, Trance, Bigroom>
 
 >>Неофициальные сборники
->>Pop (сборники)
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795271.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796443.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Rob Iyf - Yade
-002. Francesco Zeta - Different Side
-003. Radical Redemption - Born Killers
-004. Vandal!Sm - Drums Of War(   Читать дальше...   )Жанр: Hard Dance, HardcoreПродолжительность: 08:38:04
+01. Max Styler & Charlie Darker -  D2b (Steve Aoki Remix)  3:53
+02. Borgeous -  Souls (Andres Fresko Remix) (Feat. M.Bronx)  4:08
+03. TIA Milano -  Wizard (Dirty Mix)  4:38
+04. DJoly -  Volcano (Original Mix)  4:52(   Читать дальше...   )Жанр: House, Trance, BigroomПродолжительность: 06:07:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3A6C994F706B613F0552AE859E8B9EF48F7667BE
+magnet:?xt=urn:btih:CB9AABA709BB3991C5570212CAAC4928DEA4FC5C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -442,25 +282,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386304   (795270) от 28.05.2020
+###  Публикация: 1011779   (796442) от 28.04.2016
 
-EJ Technologies JProfiler 11.1.3 [En]
+VA - Pearls Deep House Selection (2016) [MP3|320 кб/с] <Deep House>
 
->>Программы для macOS
->>Офис, Интернет для macOS
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795270.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796442.jpg" />
 </div>
 
 
 ###  Подробнее
 
-JProfiler - это мощный инструмент, который можно использовать для динамического профилирования приложений на основе Java и позволяет анализировать их. Интуитивно понятный пользовательский интерфейс JProfiler поможет вам устранить уязвимости в производительности, выявить утечки памяти и понять проблемы с многопоточностью.Тип издания: macOS SoftwareРелиз состоялся: 26.05.2020Разработчик: EJ TechnologiesПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+01. Guy Goldstone - Please Full - Deepfully Mix
+02. Carl Kennedy - Skank Henz - King Size's Cool Groove
+03. Claude Roberts - Ready for the Trip - Deephouse Mix
+04. George Deep - A Touch of Elegance - Pure Deep Mix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:12:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F47965CBD45E0DE0D4EFF55FF5462FB5DAA68104
+magnet:?xt=urn:btih:2BB9F230921F5DA82F609140A278B03CBBC118FC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -468,27 +311,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386169   (795268) от 28.05.2020
+###  Публикация: 1011620   (796441) от 28.04.2016
 
-Giorgio Farina - Discocross (1978) LP [MP3|320 Kbps] <Electronic, Disco>
+VA - Dance Map, Electro Stops Vol.3 (2016) [MP3|320 кб/с] <House, Progressve House>
 
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795268.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796441.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Farina's Suite (14:55)
-02. Tawawa's (5:49)
-03. Suite Slide Return (10:02)Жанр: Electronic, DiscoПродолжительность: 00:30:46
+01. Fuji -  Burn  6:39
+02. KountDown Project -  Moon Bass  7:56
+03. Sello -  Such as More  7:25
+04. DJ Afreek -  Orgasmo  6:30(   Читать дальше...   )Жанр: House, Progressve HouseПродолжительность: 02:02:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ED776CC019D42D09B7DE7224AFA7F9B979BACF36
+magnet:?xt=urn:btih:1F78ECD807F9B493B94EDC8E91BFDA070E353B8B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -496,190 +340,56 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386253   (795266) от 28.05.2020
+###  Публикация: 1011608   (796440) от 28.04.2016
 
-Numi 3.28 [Multi/Ru]
+VA - Club Music Junior Union (2016) [MP3|320 кб/с] <House, Electro, Tech, Funky, Tribal, Progressive, Bigroom, Soulful>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796440.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fabtrap - Your Love 03:35
+02. Bali Bandits - Mr. Meow (Extended Mix) 03:51
+03. Bobby Puma Feat. Katt Rockell - Deeper Than Love (Extended Mix) 04:29
+04. Felix Leiter - Just Can't Dance No More (Original Mix) 04:58(   Читать дальше...   )Жанр: House, Electro, Tech, Funky, Tribal, Progressive, Bigroom, SoulfulПродолжительность: 07:20:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4556B1F12D2E942077C36BE3CA50E7640C16CD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011627   (796439) от 28.04.2016
+
+Metadatics 1.5.6 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795266.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796439.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Numi - необычный калькулятор, который "общается" с вами на обычном языке - понимает единицы измерения, слова и имеет очень простой интерфейс. Numi может работать с валютами и различными единицами измерения. Чтобы конвертировать одну валюту в другую, нужно ввести сумму строку перевода в нужную валюту, например, $9 в евро — ответ показывается справа автоматически. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.05.2020Разработчик: Dmitry NikolaevПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4C84B1A0B7CABD93D1DCF93F376F468102A1236
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386268   (795265) от 28.05.2020
-
-Grave Digger - Fields of Blood (2020) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795265.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Clansman's Journey
-02. All for the Kingdom
-03. Lions of the Sea
-04. Freedom(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:53:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDA0C9E9F34AA6800248F5AAD53E5733C2529F02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386147   (795264) от 28.05.2020
-
-VA - Latin Music Summer Party (2020) [MP3|320 Kbps] <Latin, Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795264.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luis Fonsi, Daddy Yankee, Justin Bieber - Despacito (Remix) 03:51
-02. Luis Fonsi, Stefflon Don - Calypso 03:22
-03. Sebastian Yatra, Mau y Ricky - Ya No Tiene Novio 03:21
-04. Luis Fonsi, Ozuna - Imposible 02:41(   Читать дальше...   )Жанр: Latin, Pop, DanceПродолжительность: 01:55:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BFA7B153EA4E343CF6F6E1B2CB1F4DCF6992B62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011962   (795262) от 29.04.2016
-
-Николай Курдюмов | Мой огород. Максимальный урожай легко и просто (2016) [FB2]
-
->>Разное (категория книг)
->>Сад, огород, животноводство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795262.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как сделать, чтобы огород давал прекрасный урожай на протяжении многих лет, земля не теряла плодородности, а грядки не только радовали видом спелых овощей, но и стали украшением участка, расскажет в этой книге Николай Курдюмов.Но самое главное – он откроет секрет, как организовать огород так, чтобы вся работа по уходу за ним сводилась к посеву и сбору урожая.
- Главное, (   Читать дальше...   )Жанр: Сад, огородФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F93BF02AD41AF2686089362313D7FD12C0F15BA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011863   (795261) от 29.04.2016
-
-Николай Курдюмов | Огород на маленьком участке (2016) [FB2, RTF]
-
->>Разное (категория книг)
->>Сад, огород, животноводство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795261.jpg" />
-</div>
-
-
-###  Подробнее
-
-Большинство наших дачников имеют не более 6 соток. Но и такие маленькие участки могут стать источником прекрасных урожаев, если все на них организовать с учетом законов природного земледелия. Тут все важно: виды грядок, оптимальное соотношение имеющихся растений и потребностей семьи, безопасные для здоровья методы защиты от вредителей и болезней. Об этом и многом (   Читать дальше...   )Жанр: Сад, огородФормат: FB2, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D1BBF369F6BA6C79A718F8326022A652C2F1AA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011968   (795260) от 29.04.2016
-
-Николай Курдюмов | Виноград и другие ягоды вашего сада (2016) [FB2, RTF]
-
->>Разное (категория книг)
->>Сад, огород, животноводство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795260.jpg" />
-</div>
-
-
-###  Подробнее
-
-Большинство из нас не представляют свой сад без ягод. И действительно, как прожить без малины, смороды, крыжовника, клубники, ежевики? Они ведь могут многие годы радовать нас урожаем, почти не требуя особого ухода. Что касается винограда, то на юге, конечно, без него никуда, а вот дачники северных регионов далеко не все решаются выращивать его у себя на участке. (   Читать дальше...   )Жанр: Сад, огородФормат: FB2, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F298D46527A7EFD70B3E40239058DD9169BC5DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012034   (795259) от 29.04.2016
-
-Михаил Северный | Бета-тестер (2016) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795259.jpg" />
-</div>
-
-
-###  Подробнее
-
-Грязная общага. Постоянные прогулы в университете. Никаких перспектив. Но скоро жизнь студента кардинально изменится. Просто он об этом не знает.
+Metadatics является мощным и продвинутым редактором аудио метаданных. Поддерживает пакетное редактирование наиболее распространенных типов аудио файлов, включая MP3, M4A, AIFF, WAV, FLAC, APE, OGG, WMA, и многие другие.
 
-«А все так хорошо начиналось. Интересная работа с возможностью роста, новые знакомые с тугими кошелками. В перспективе - отличная зарплата, куча любовниц, жена-модель, куча детей, машина, квартира в центре Киева, отдых (   Читать дальше...   )Жанр: Фэнтези, LitRPGФормат: FB2
+Metadatics предоставляет возможности поиска метаданных из интернет-источников, переименование файлов на основе метаданных, или манипулировать метаданными, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 27 апреля 2016Разработчик: Mark VerstraeteПоддерживаемая ОС: OS X 10.6.6 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E4B3E7E9CA1C5F252BB0B3C4ED6C819CE4D2B238
+magnet:?xt=urn:btih:733EE3902448E015C2D0F781B57BCFA1AFF4749C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -687,25 +397,326 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011970   (795258) от 29.04.2016
+###  Публикация: 1011726   (796438) от 28.04.2016
 
-Knots 3D (Узлы 3D) 4.4.1 [Multi]
+Время покажет с Петром Толстым (28.04.2016) SATRip
 
 >>Архив торрентов
->>Архив КПК и Мобильных устройств
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795258.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796438.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Завязывайте, развязывайте и вращайте пальцем более 101 узлов в 3D! Наше популярное 3D-приложение Knots 3D позволит вам взглянуть на узлы совершенно по-новому! Берите кусок веревки и развлекайтесь! Лучший справочник по завязыванию узлов в 75 странах.Релиз состоялся: 23 апреля 2016 г.Разработчик: Nynix LLCПоддерживаемая ОС: 2.3.3 или более поздняяЯзык интерфейса: Русский, Английский, и другие
+В студии программы «Время покажет» обсуждают то, что волнует каждого из нас, жителей России. В дискуссии принимают участие как эксперты – политики, политологи, журналисты, предприниматели, так и просто неравнодушные россияне.Телекомпания: Первый каналЖанр: Тв-ШоуПродолжительность: 01:36:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4847C4C9226F0FAAE1BF7D2EF569D039CF6AF377
+magnet:?xt=urn:btih:ED8D37139A5C1BC22FF80A372FEC56F9BBCC5272
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011537   (796437) от 28.04.2016
+
+Футбол. Лига Чемпионов 2015-2016. 1/2 финала. Первый матч. Атлетико (Мадрид, Испания) - Бавария (Германия). (27.04.2016) HDTVRip [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796437.jpg" />
+</div>
+
+
+###  Подробнее
+
+27 апреля 2016, среда. 21:45 МСК
+1/2 финала. 1-й матч
+
+Стадион: Висенте Кальдерон (Мадрид, Испания) , 52 127 зрителей (95 % при вместимости 54 960)(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский (Роман Гутцайт, Нобель Арустамян) / ИнтершумПродолжительность: 01:52:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:744264D086DB7C4C06595DDB947CCE19C3965A5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011829   (796436) от 28.04.2016
+
+В теме. Эффект Бумеранга (28.04.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796436.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ряд стран ЕС выступил за снятие антироссийских санкций. Прислушаются ли ко мнению несогласных Германия и другие страны, определяющие курс ЕС? Об этом смотрите в программе "В теме"Телекомпания: Москва 24Жанр: ДокументальныйПродолжительность: 00:26:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DE96168EFF159F1787F4D935CFB501D16BCE8BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011826   (796435) от 28.04.2016
+
+Вести в 20-00. Большие Вести. Россия 1 (28.04.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796435.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Вести» — информационная телевизионная программа Всероссийской государственной телерадиокомпании. Выходит в эфир на каналах «Россия-24», «Россия-1», «РТР-Планета» и «РТР-Беларусь». Производятся Дирекцией информационных программ Государственной телекомпании «Россия». Самые последние новости в России и в мире - смотрите в последних выпусках новостей телеканала «Россия».В этом выпуске: Поехали! Наши ворота в космос распахнуты. 3 спутника на орбите. На Восточном за секунды до старта и сразу же после него. Павел Зарубин заглянул после запуска в шахту. Первый в ЕС. Французский парламент потребовал отменить антироссийские санкции. Что скажут в Брюсселе? Город сдан. К годовщине сожжения собственных граждан украинские власти ввели в Одессу фашистский (   Читать дальше...   )Телекомпания: Россия 1Жанр: ТелепередачаПродолжительность: 00:51:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFC3DDA33434B8A355B4DDB8FA9FE7266FDD0CFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011741   (796434) от 28.04.2016
+
+VA - Sexy Deep House Tracks (2016) [MP3|320 кб/с] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796434.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hairy Orchard - Bad Teen (Houzee Mix)
+02. Delirious Bird - Seven up Confusion (Vocal Deep Mix)
+03. Audrey Langston - Another Day in the Lake (Frank Castle's Deep Mix)
+04. Harry Ashton - Bye Bye Mivar (Martin Franklin Mix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:40:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EBDEE5B21C30FF42A11332E86001C87D7FA55B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011601   (796433) от 28.04.2016
+
+VA - Metal For The Masses 7th Deadly (2008) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal, Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796433.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1 01
+01. In This Moment - The Great Divide (4:13)
+02. Suicide Silence - No Pity for a Coward (live) (3:16)
+03. Arsonists Get All the Girls - Scobra Vs. Cupcake: The Battle of the Bulge (4:02)(   Читать дальше...   )Жанр: Hard Rock, Heavy Metal, HardcoreПродолжительность: 02:28:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B206BD549DD63FC2B6D7FD1EAE00183DB68CFB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011730   (796431) от 28.04.2016
+
+VA - Club Vibes: European EDM Mix (2016) [MP3|320 кб/с] <Trance, Electro, Dance, EDM>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796431.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Chase, Sunlounger, Roger Shah - Surrender feat. Chase (Pierre Pienaar Remix)
+002. Robin Schulz - Sugar
+003. Felix Jaehn - Eagle Eyes (Lucas & Steve Remix) ( feat. Lost Frequencies & Linying)
+004. Jordi Castillo - Darth (Original Mix)(   Читать дальше...   )Жанр: Trance, Electro, Dance, EDMПродолжительность: 08:15:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D92D62A8E3C06CB98A2A38886C2164755577CCCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011386   (796430) от 28.04.2016
+
+Короли без капусты (2009) DVB
+
+>>Документалистика и Телепередачи
+>>Отечественная история
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796430.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1959 году на волне хрущевской оттепели и Первого фестиваля молодежи и студентов в Москве появилось совершенно дикое для того времени явление – черный валютный рынок. В июле 1961 года ВС РСФСР приговорил "королей" черного валютного рынка к высшей мере наказания – расстрелу. Что предшествовало громким приговорам? Кто были эти люди?Телекомпания: Россия, ТВ ЦентрЖанр: ДокументальныйРежиссер: Наталия МитрошинаПродолжительность: 00:38:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FE9A4CE7E76C36727877B75BD47C9BDD9E0A4F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011610   (796429) от 28.04.2016
+
+Газета | Поварешка №7 (2016) [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796429.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выпуск поможет хозяюшкам подготовится к светлому празднику всех христиан - Пасхе, а именно с составлением праздничного меню: определиться в огромном количестве вариантов с рецептом "своего" кулича, сырной пасхи или другой пасхальной выпечки. В издании вы найдете не только рецепты самой разной выпечки, но и секреты приготовления пасок, узнаете о традициях (   Читать дальше...   )Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00C4F6C63E0DAC4E14C57C6EB9896A6896994332
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200376   (796428) от 20.01.2018
+
+Cyberfox 52.6.0 for AMD + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796428.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одна из лучших версий веб-браузера Firefox, имеющая 64-разрядную архитектуру, что делает ее быстрее, надежнее и стабильнее. Cyberfox использует Windows 8 SDK и оптимизирован под процессоры AMD. Браузер поддерживает дополнения и работает со своим профилем, отдельным от Firefox - это дает возможность использовать собственные закладки и историю.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF3187E4C47A5C698696258110DB4C1C48F56307
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200459   (796427) от 20.01.2018
+
+Primal Code - Konstrukt 008 (2018) Konstrukt [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Artemisia (07:06)
+ 02. Allysum (05:51)
+ 03. Acaulis (05:58)
+ 04. Alpine Violet (07:08)Жанр: Techno, AmbientПродолжительность: 00:26:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7FC2FB1300D5C71C67F3475DBD77A9A000FFF00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200368   (796426) от 20.01.2018
+
+CoolUtils PDF Combine 5.1.0.115 RePack by вовава [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796426.jpg" />
+</div>
+
+
+###  Подробнее
+
+PDF Combine - надежный инструмент и незаменимая программа для быстрого склеивания нескольких файлов PDF в один. Утилита работает с любыми типами PDF файлов очень быстро и качественно, что позволяет в считанные секунды получить нужный нам результат. Результат работы всегда точен и аккуратен, что важно для инвойсов, контрактов, банковских указов и других документов. (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB218B2D255C723F06887F5579AC7BD1887399A9
 ```
 
 https://mybot314.ru/tekegram_catalog/

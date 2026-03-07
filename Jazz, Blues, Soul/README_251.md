@@ -1,3 +1,235 @@
+###  Публикация: 1049004   (545863) от 03.09.2016
+
+Tone Jansa Quartet featuring Woody Shaw - Dr. Chi (1986) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_545863.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Dr. Chi [15:21]
+ 02.Odra [08:04]
+ 03.Stroll And Flight [12:34]
+ 04.Nostalgia [03:48](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:57:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D5654016170ED90C17BC26C26D4624A20F031C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048653   (545811) от 03.09.2016
+
+Russell Malone - All About Melody (2016) [FLAC|Lossless|image + .cue] <Contemporary Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_545811.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On the Real Side
+02. Message to Jim Hall
+03. Message From Jim Hall
+04. Nice Lady(   Читать дальше...   )Жанр: Contemporary Jazz, Guitar JazzПродолжительность: 00:50:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEC328D3164EAD8181E8E3B23F1A38BC06F495AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049017   (545807) от 03.09.2016
+
+Sadao Watanabe - How's Everything (1980) Remaster, 2016, Sony Music[FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_545807.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Up Country [10:55]
+ 02.Mzuri [03:55]
+ 04.All About Love [04:52]
+ 05.Nice Shot [07:38](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:08:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E776DD42A85FB7A1D6D20622FB644AB876066D43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048791   (545806) от 03.09.2016
+
+Bobby Hackett - A String Of Pearls & Trumpets' Greatest Hits (1965) 2002, Collectables[FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_545806.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Perfidia [02:48]
+ 02.Adios [02:39]
+ 03.Blue Moon [03:12]
+ 04.Georgia On My Mind [03:41](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:15:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F648F3418F0DD27A4DC1FD4B84465F6507047176
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049005   (545667) от 03.09.2016
+
+VA - Jazz Funk Instrumentals (Funky Soul Jazzy Instrumental Acid Tracks) (2016) [MP3|320 Kbps] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_545667.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Mighty Wax - Manhattan Skyline (feat. Piero Odorici) 5:25
+02. Black & Brown - Tribal Boogaloo 3:38
+03. Sam Paglia - Lo bianco theme 3:43
+04. Jestofunk - Close to My Heart 4:44(   Читать дальше...   )Жанр: JazzПродолжительность: 02:21:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA26B987778A12CB9F75340ECDB574B32941C6F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1310756   (545340) от 26.06.2019
+
+Xose Miguelez - Ontology (2019) Origin Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_545340.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ontology [4:32]
+02. Chasing Myself [4:21]
+03. Frozen Roses [3:40]
+04. Sweet Delia [7:03](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:44:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A28CAF682E5E1DB877DFA7E42B429B71D618D8BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049289   (544979) от 04.09.2016
+
+Hank Crawford - Mr. Blues (1967) Remaster, 2013, Warner[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544979.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Mr. Blues [03:53]
+ 02.On A Clear Day (You Can See Forever) [03:08]
+ 03.Hush Puppies [03:28]
+ 04.Danger Zone [03:32](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:33:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:323884CFBF6FBDDEF1B8F12333949A0A91E269B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048954   (544970) от 04.09.2016
+
+Iiro Rantala, Lars Danielsson, Peter Erskine - how long is now? (2016) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544970.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Voyage     (04:21)
+02. How Long Is Now      (04:02)
+03. Snapchat      (04:13)
+04. Taksim by Night      (04:54)(   Читать дальше...   )Жанр: Contemporary Jazz, Piano JazzПродолжительность: 00:57:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:213CBC2E44506D8B73F552562DA5649DA38C7A38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1049284   (544926) от 04.09.2016
 
 Teddy Wilson And His Piano - Intimate Listening (1954) Remaster, 2016, Universal[FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz, Piano Jazz>
@@ -519,238 +751,6 @@ Aaron Goldberg - Worlds (2006) [MP3|320 кб/с]<Post-Bop/Piano Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4D0DBA033FCF218DF4D98EE48205BE8BBE35FEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154231   (542666) от 29.07.2017
-
-VA - Cocktail Jazz Hits (2017) [MP3|320 Kbps] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542666.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Antonio Carlos Jobim - The Girl from Ipanema
-02. Ella Fitzgerald - A Man and a Woman
-03. Ahmad Jamal - Misty
-04. The Modern Jazz Quartet - Over the Rainbow(   Читать дальше...   )Жанр: JazzПродолжительность: 01:39:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3C4FF3C154BA6EBA8E987BB047F4DC5116D2CDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239095   (542539) от 03.08.2018
-
-Curtis Fuller - The Opener (1957) 1996, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542539.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Lovely Way to Spend an Evening [6:53]
-02. Hugore [6:44]
-03. Oscalypso [5:41]
-04. Here's to My Lady [6:43](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:37:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAA716DF225581DB5D77F16414976E75071CC27E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239093   (542533) от 03.08.2018
-
-Gabor Szabo - In Budapest Again (1978, 1981) 2018, Moiras Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542533.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Concorde [11:04]
-02. Magic Mystic Faces [9:12]
-03. Django Part 1 [3:58]
-04. Django Part 2 [6:13](   Читать дальше...   )Жанр: Jazz Fusion, Guitar JazzПродолжительность: 00:51:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:050D1AAF37BE87A3CFFB9DE89271A291F1F37375
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049896   (542481) от 06.09.2016
-
-Ed Bickert - Ed Bickert (1975) Remaster, 2013, Ratspack Records[FLAC|Lossless|tracks + .cue] <Cool, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Come Rain Or Come Shine [09:47]
- 02.Where Are You [04:39]
- 03.When Sonny Gets Blue [06:00]
- 04.It Might As Well Be Spring [05:51](   Читать дальше...   )Жанр: Cool, Guitar JazzПродолжительность: 00:40:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:625778EEEB1F874E303B3BBD1DC3AB573FE45A96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239182   (542431) от 03.08.2018
-
-The Record Company - All Of This Life (2018) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542431.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Life To Fix (03:59)
-02. I'm Getting Better (And I'm Feeling It Right Now) (03:16)
-03. Goodbye To The Hard Life (04:12)
-04. Make It Happen (04:02)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:44:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B20258EEAF83B7A628924C9E2017807B60CB364F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239106   (542425) от 03.08.2018
-
-Boz Scaggs - Out Of The Blues (2018) Exclusive Edition [FLAC|Lossless|tracks + .cue] <Blues, Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock and Stick
-02. I've Just Got to Forget You
-03. I've Just Got to Know
-04. Radiator 110(   Читать дальше...   )Жанр: Blues, Blues-RockПродолжительность: 00:52:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD3B116AF5C53F20BACA992F76CF0E085EAC1BBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049886   (542405) от 06.09.2016
-
-Junior Mance - Live At The Top (Guest Artist: David Newman) (1968) Remaster, 2012, Warner[FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542405.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Before This Time Another Year [09:34]
- 02.I Wish I Knew How It Would Feel To Be Free [09:40]
- 03.That's All [09:13]
- 04.Turning Point [07:52]Жанр: Hard BopПродолжительность: 00:36:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B281E5C4649C906B24F7A8ACF8322F03D63FCEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049496   (542402) от 06.09.2016
-
-Jack DeJohnette - Zebra (1985) Pan Music[FLAC|Lossless|tracks + .cue] <Post-Bop, Free Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542402.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.NToro I [08:41]
- 02.Jongo [04:54]
- 03.Aho [09:43]
- 04.Kpledzo [07:59](   Читать дальше...   )Жанр: Post-Bop, Free FunkПродолжительность: 00:40:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0710CFBBB0923CE81FA48EA71DEA3554FA257EF3
 ```
 
 https://mybot314.ru/tekegram_catalog/

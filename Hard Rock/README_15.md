@@ -1,3 +1,38 @@
+###  Публикация: 526418   (597074) от 24.07.2012
+
+Heart - Greatest Hits (1985-1995) (2000) [MP3|320 кб/с]<Hard Rock / Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_597074.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What About Love
+ 02. If Looks Could Kill
+ 03. Never
+ 04. These Dreams
+ 05. Nothin' At All
+ 06. Alone
+ 07. Who Will You Run To
+ 08. There's The Girl
+ 09. Surrender To Me (Ann Wilson & Robin Zander)
+ 10. All I Wanna Do Is Make Love To You(   Читать дальше...   )Жанр: Hard Rock / RockПродолжительность: 01:12:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C30DB858FB646CB06086FB66AADB5BB4E1E91FD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 915052   (595044) от 04.07.2015
 
 Smoke No. 7 - Old Bones (2015) [MP3|320 кб/с]<Hard Rock>
@@ -727,35 +762,6 @@ The Black Moods - Into the Night (2022) [MP3|320 Kbps] <Alt.Rock, Hard Rock, Ind
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99D6C8B5CB285969C6C4DDDCB402F8D10D1DC969
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555739   (567485) от 05.06.2022
-
-Rise of Division - Dichotomy (2022) [MP3|320 Kbps] <Hard Rock, Post-Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567485.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Cynical [00:03:28]
-02 - Addiction Remains [00:04:11]
-03 - Feed Me To The Wolves [00:03:33]
-04 - Burn it Down [00:03:28](   Читать дальше...   )Жанр: Hard Rock, Post-GrungeПродолжительность: 00:46:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A1FBC6C16D3FB3E6A11708200432E984519B7C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

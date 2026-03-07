@@ -1,3 +1,87 @@
+###  Публикация: 756711   (848874) от 26.03.2014
+
+Alex M.O.R.P.H. - 6 Albums , 7 Compilations (2006 - 2014) [MP3|320 кб/с]<Trance , Uplifting Trance , Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_848874.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Trance , Uplifting Trance , Progressive TranceПродолжительность: 02:23:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCE734D7708BE4F61B0550149FA9850B86FEB90E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003791   (841894) от 04.04.2016
+
+VA - Trance Only Vol.6 (Future Club and Hardtrance Anthems) (2016) [MP3|320 кб/с] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_841894.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Altek - 2nd Chance 07:46
+02 Blufeld - A World Less Ordinary (Mark Found Remix) 09:38
+03 Benya - Rhea (Fredin Remix) 07:12
+04 Arrakeen, Jaki Song - Time (Neo Kekkonen Remix) 07:18(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 03:18:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3779D53D3A5C2E7AED524AEF71322029B396A348
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003707   (841844) от 04.04.2016
+
+Gareth Emery - 100 Reasons to Live (2016) [MP3|320 кб/с] <Progressive Trance, Progressive House>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_841844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gareth Emery - The Story So Far (06:43)
+02. Gareth Emery feat. Joseph - Cloudline (06:54)
+03. Gareth Emery feat. Gavrielle - Far From Home (03:50)
+04. Gareth Emery feat. Wayward Daughter - Reckless (03:22)(   Читать дальше...   )Жанр: Progressive Trance, Progressive HouseПродолжительность: 01:10:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7C2E696155095A6A74E5D0430FC8FCD4BC16753
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1004107   (840015) от 05.04.2016
 
 VA - Vocal Trance Philosophy Vol.2 (Mixed by Vyze) (2016) [MP3|320 кб/с] <Trance, Uplifting Trance, Vocal Trance>
@@ -655,93 +739,6 @@ VA - Dark Sessions 043 (Mixed by Chris Hampshire) (2018) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:32FCD6D19520DB29DD4ED4F25F6F3685F4092FE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197711   (812132) от 09.01.2018
-
-VA - Best Of Trancer 2017 (Mixed by Nick Turner) (2018) [MP3|320 Kbps] <Trance, Orchestral Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812132.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  JosephAli  -  New World (Etasonic Remix)  8:30
-02.  AirLab7 & Andrew Wu  -  Be Yourself (Original Mix)  7:26
-03.  Dreamlife  -  Walk Alone (Original Mix)  7:11
-04.  Alternate High  -  Invisible Walls (Original Mix)  7:50(   Читать дальше...   )Жанр: Trance, Orchestral TranceПродолжительность: 01:49:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79530C1A4FA8462BC3A5CC439C624232104A7CB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197927   (812131) от 09.01.2018
-
-Luke Terry - Supersonic (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812131.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luke Terry - Prelude (Original Mix)
-02. Luke Terry - Minerva (Original Mix)
-03. Luke Terry - Eternal (Original Mix)
-04. Luke Terry - Skylab (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:20:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82B07ECBF45CCB940836925D6492FDF2AD148E13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197688   (812130) от 09.01.2018
-
-VA - The Best Of Levitated Music 2017 (2018) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812130.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Sergey Lagutin  -  Lazure (Original Mix)  6:23
-02.  Dachs  -  Flower Master (Original Mix)  6:10
-03.  Mart Sine  -  Atlantis (Original Mix)  6:05
-04.  Braulio Stefield  -  Chain Of Memories (Original Mix)  7:39(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:23:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:198C6BABE9C8C97F22E3E3A93EE179BE2EA922C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

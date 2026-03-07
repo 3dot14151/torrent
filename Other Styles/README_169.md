@@ -1,3 +1,38 @@
+###  Публикация: 464920   (81362) от 11.03.2012
+
+Irish Ёрш - Я Ирландец! (2011) [MP3|320 кб/с]<Celtic, Irish Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_81362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Навигатор (03:22)
+ 02. Дубадам вдрабадан (03:23)
+ 03. Если горцу выпить не с кем (03:22)
+ 04. Ковбойская (02:47)
+ 05. Четыре упыря для Кухулина (03:12)
+ 06. Ирландские старцы (03:55)
+ 07. Тёмные джунгли Лондона (03:13)
+ 08. Джиги (04:02)
+ 09. Как всё достало! (03:07)
+ 10. Три пузыря (03:01)(   Читать дальше...   )2011Жанр: Celtic, Irish FolkПродолжительность: 00:49:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14E49253F9925BC45792310117D9A2E2C7E5E7DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 459899   (79120) от 29.02.2012
 
 VA - Mystic India (Vol.1) (2001) [MP3|320 кб/с]<New Age, Meditative>
@@ -745,35 +780,6 @@ VA - Go Ask Alice: Dark Melancholic Rock & Folk Mix (2025) [FLAC|Lossless|WEB-DL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13038A18CA1B5AB2ECD73C996B705B284181B4AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792096   (67760) от 17.04.2025
-
-VA - Lost in Thoughts: Sentimental Rock Folk Soundtrack (2025) [FLAC|Lossless|WEB-DL|tracks] <Folk, Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Atwater Collective - You Are My Rock (3:54)
-02.  Paul James Moore - Good Morning Sun (3:27)
-03.  Sten Veiths - Die Young (4:09)
-04.  Tanya Shakison - Give Me a Sign (3:12)(   Читать дальше...   )Жанр: Folk, RockПродолжительность: 00:56:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C61F3F1AC3B90D5B4722D72B84CCFB5D6E41AFFB
 ```
 
 https://mybot314.ru/tekegram_catalog/

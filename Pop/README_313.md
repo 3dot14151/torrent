@@ -1,3 +1,207 @@
+###  Публикация: 1088113   (142873) от 29.12.2016
+
+Elissa - A'ayashalak (2002) [FLAC|Lossless|tracks + .cue] <Lebanese Pop, Levantine Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_142873.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - A'ayashalak (04:38)
+02 - Ah Min Hawak (04:42)
+03 - Ajmal Ihssas (05:54)
+04 - Shaghilni (04:11)(   Читать дальше...   )Жанр: Lebanese Pop, Levantine PopПродолжительность: 00:46:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A31CC3BA19E46E043A69CB199A0BAB769B363E52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272668   (142814) от 28.12.2018
+
+Michelle Gurevich - Exciting Times (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dark-Romantic, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_142814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Way You Write (4:22)
+02 Fatalist Love (4:39)
+03 Something Has Changed (4:10)
+04 Almost Shared a Lifetime (5:07)(   Читать дальше...   )Жанр: Pop, Dark-Romantic, BalladПродолжительность: 00:39:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA81E85327521AFAC1E147F962E98554B13B7D50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087632   (142737) от 29.12.2016
+
+Donna Summer - Crayons (2016) Reissue Deluxe Edition [MP3|320 Kbps] <Soul, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_142737.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stamp Your Feet 3:37
+02. Mr. Music 	3:14
+03. Crayons 3:20
+04. The Queen Is Back 3:30(   Читать дальше...   )Жанр: Soul, PopФормат: CD, Album, Reissue
+2хCD, Compilation, RemasteredПродолжительность: 03:19:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F31CCF6C1464D4EC7C74EE22619D40BB9E5418A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435576   (142393) от 29.12.2020
+
+Peter Noone - Sings The Greatest Hits Of Herman's Hermits (1993) [FLAC|Lossless|image + .cue] <Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_142393.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm into something good (2:23)
+02. Dandy (1:57)
+03. There's a kind of hush (all over the world) (5:06)
+04. Listen people (2:38)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:49:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27003FA15B7F0BCC7AC61CA711195AFBF1332B5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195447   (142241) от 29.12.2017
+
+Ева Польна - Феникс (2017) [APE|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_142241.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Феникс. Intro
+02. Официальные лица
+03. Фантастика (New Version)
+04. Вернись ко мне(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEB56528C8E4CB594A1C7E327C59C1E3CD9FAFBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435573   (141976) от 29.12.2020
+
+Donovan - Till I See You Again (1993) [FLAC|Lossless|image + .cue] <Folk Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_141976.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Till I See You Again (3:17)
+02. I Love You Baby (3:29)
+03. Bye Bye Girl (3:24)
+04. Sunshine Superman (4:07)(   Читать дальше...   )Жанр: Folk Rock, PopПродолжительность: 00:39:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C9E30EB9B845B89082F38DEBA18635E8A272FD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435566   (141960) от 29.12.2020
+
+The Beach Boys And Jan & Dean - Beach Party (1993) [FLAC|Lossless|image + .cue] <Rock, Pop, Surf>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_141960.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jan & Dean - Surf City (2:30)
+02. Jan & Dean - Deadman's Curve (2:27)
+03. Jan & Dean - I Get Around (2:06)
+04. Jan & Dean - Help Me Rhonda (2:56)(   Читать дальше...   )Жанр: Rock, Pop, SurfПродолжительность: 00:34:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81351C217E07A5E55BA96D94B49D033794A9949E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1678905   (141953) от 23.11.2023
 
 Romantic Avenue - Through the Years (2023) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco>
@@ -543,210 +747,6 @@ VA - I Love Retro Dance 90's (2010) [MP3|320 Kbps] <Eurodance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4750DC11965A6569494172FF8A6F5C1B41A903D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520659   (140247) от 29.12.2021
-
-V.A. - Big 80's Ballads (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A-Ha – Hunting High And Low (7 Remix)
-02. Duran Duran – Save A Prayer
-03. The Smiths – Last Night I Dreamt That Somebody Loved Me
-04. Spandau Ballet – I’ll Fly For You (Glide Mix)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 02:10:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0162FABDAB7C3E7CCF8E7D40D0ED68D178C9C810
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195208   (140157) от 30.12.2017
-
-Алена Свиридова - 7 альбомов, 1 сборник (1994-2017) [FLAC, APE|Lossless|image + .cue, tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140157.jpg" />
-</div>
-
-
-###  Подробнее
-
-1994 - Розовый фламинго
-1997 - Ночью все иначе (переиздание 2002)
-2000 - Линия жизни (переиздание 2002)
-2002 - Игра в классики(   Читать дальше...   )Жанр: PopПродолжительность: 00:54:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:147F3B3B58CE768347AE36289F7DCD6B3C3CA596
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349149   (140023) от 30.12.2019
-
-MONATIK - Мріяти не шкідливо (2019) EP [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140023.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Мріяти не шкідливо
-2. Свято наближається
-3. Батькам
-4. КрасаЖанр: PopПродолжительность: 00:12:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73CB93B9F962B601CB571DCCC6751EA74FC7936F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088326   (139996) от 30.12.2016
-
-Любэ - Сборник лучших песен группы... (2001) Л'Этуаль представляет [APE|Lossless|image + .cue] <Pop, Pop Rock>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139996.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Конь
-02. Атас
-03. Дорога
-04. Самоволочка(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 01:52:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0A27C7DD4EDB1146F6926A2E3DD1A2980CBD753
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195618   (139941) от 30.12.2017
-
-VA - Давай попробуем вернуть (2007) [FLAC|Lossless|image + .cue] <Советская эстрада, Ретро>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139941.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Валерий Леонтьев – Разноцветные ярмарки 5:46
-02 Красные Маки – Встречай меня 4:03
-03 Самоцветы – Горький мед 5:17
-04 Группа Стаса Намина – Есть глаза у цветов 4:17(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 00:53:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B84EAD612D2F1FD7AC567816C607CD7704F0154
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 590859   (139931) от 18.12.2012
-
-Robbie Williams - Different (Maxi-Single) (2012) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139931.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Different (4:55)
- 2. On My Own (ft.Tom Jones)(3:23)
- 3. Soul Transmission (4:29)
- 4. White Man In Hanoi(3:53)
- 5. The Promise (3:49)Жанр: PopПродолжительность: 00:20:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30EE10E0A81E279EB1C7B8FEDBC7305BCB624DB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679159   (139924) от 24.11.2023
-
-VA - Hit News Vol. 4 '96 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139924.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Sisters N' Brothers - Bing Bing Boom!!
-02.  Respect - Take Me Away
-03.  Alpha Base - Heaven Help My Heart
-04.  Cherlane - Strong Like The Fire(   Читать дальше...   )Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:18:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53CCE0CE8C74B31BA90279C526DC5950647F99F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 906558   (643483) от 09.06.2015
+
+Led Zeppelin - Live (Bootleg) (1993) [MP3|320 кб/с]<Сlassic Rock, Hard Rock, Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643483.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whole lotta love 4:15 (Page - Plant - Jone - Bonham)
+02. Communication breakdown 3:17 (Page - Jones - Bonham)
+03. Immigrant song 3:17 (Page - Plant)
+04. Going to California 3:54 (Page - Plant)(   Читать дальше...   )Жанр: Сlassic Rock, Hard Rock, BluesПродолжительность: 00:53:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF3F3284A0C679FF5A1D14947EE1E8AC16A52621
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1292772   (643201) от 31.03.2019
 
 Fatboy - Diggin' the Scene (2019) [MP3|320 Kbps] <Rockabilly>
@@ -730,35 +759,6 @@ Sweet - Hits (2022) Special Edition, Remastered [MP3|320 Kbps] <Glam Rock, Class
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E3005BC56CBB652C043EDF51EB2C06EDD2ADB49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542613   (637105) от 07.04.2022
-
-Joe Satriani - The Elephants Of Mars (2022) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637105.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Sahara
-2. The Elephants of Mars
-3. Faceless
-4. Blue Foot Groovy(   Читать дальше...   )Жанр: RockПродолжительность: 01:06:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9ED1A57AC2149DF1025EA3F3F5519EF5A90053B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

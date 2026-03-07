@@ -1,3 +1,31 @@
+###  Публикация: 1418277   (346130) от 25.10.2020
+
+Linuxfx 10.7.105 KDE Plasma. Дистрибутив Linux, с рабочим столом Windows 10 [amd64] 1xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_346130.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бразильские разработчики из Linuxfx Software выпустили одноименный дистрибутив, интерфейс которого похож на оболочку OC Microsoft Windows 10. Авторы проекта постарались скопировать каждую иконку и каждый элемент интерфейса, влияющий на общее его восприятие, включая стартовое меню, таскбар и вид окон файлового менеджера.
+
+Новая оболочка доступна в составе дистрибутива (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0234801FB48B2D4015A34392EB973F2154CC046B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 953930   (344056) от 06.11.2015
 
 RFRemix (Russian Fedora Remix) 23 Wayland (Server DVD + Netinstall) [i386, x86-64] 2xDVD, 2xCD
@@ -678,32 +706,6 @@ Red Hat Enterprise Linux (Server, Workstation, Client) 6.10 1xDVD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:025CEF17BC712B0758EE4B92681E038BE978522D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422729   (305888) от 10.11.2020
-
-Red Hat Enterprise Linux 7.9
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305888.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компания Red Hat выпустила дистрибутив Red Hat Enterprise Linux 7.9 (о новой версии неделю назад объявлено только на портале access.redhat.com, в списке рассылки и в разделе пресс-релизов анонс так и не появился). Установочные образы RHEL 7.9 доступны для загрузки только зарегистрированным пользователям Red Hat Customer Portal и подготовлены для архитектур x86_64, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4518A735EEEA3B187639CB04A56D30ED581A5D43
 ```
 
 https://mybot314.ru/tekegram_catalog/

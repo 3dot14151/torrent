@@ -1,3 +1,32 @@
+###  Публикация: 1300243   (593216) от 06.05.2019
+
+Prefab Sprout - Crimson/Red (2013) BSCD2 release [FLAC|Lossless|tracks + .cue] <Alternative, Indie Rock, Sophisti-Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593216.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Best Jewel Thief in the World 03:51
+02. List of Impossible Things 03:43
+03. Adolescence 04:27
+04. Grief That Built the Taj Mahal 03:28(   Читать дальше...   )Жанр: Alternative, Indie Rock, Sophisti-PopПродолжительность: 00:40:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB955A50172BFE4DC4F2EEFBCA73740164E85EF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1551021   (591240) от 13.05.2022
 
 Cancerslug - Full Term Abortions (2022) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock, Horror Punk>
@@ -717,35 +746,6 @@ Scary Kids Scaring Kids - Out Of Light (2022) [FLAC|Lossless|WEB-DL|tracks] <Alt
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7797E981F05C62F7944853031558F35F13924762
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302593   (579332) от 17.05.2019
-
-Morabeza Tobacco - Morabeza Tobacco (2019) [FLAC|Lossless|tracks + .cue] <Аlternative, Dream - Pop, Lo-Fi>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579332.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Almost Home (04:24)
-02. Kiss of Death (03:43)
-03. TTYL (03:52)
-04. A little longer (04:25)(   Читать дальше...   )Жанр: Аlternative, Dream - Pop, Lo-FiПродолжительность: 00:43:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13645BDF5AA1EE10A10C9065653DC87231E24905
 ```
 
 https://mybot314.ru/tekegram_catalog/

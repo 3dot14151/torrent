@@ -1,3 +1,116 @@
+###  Публикация: 939826   (975042) от 02.02.2020
+
+Красная плесень - Дискография 60 альбомов (1993-2019) [FLAC|Image + .cue]<Punk>
+
+>>След.
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_975042.jpg" />
+</div>
+
+
+###  Подробнее
+
+(1993) 01-Альбом №1
+(1993) 02-Сопля в левом ухе
+(1993) 03-Удар по яйцам
+(1993) 04-Металлист БаллалайкинЖанр: PunkПродолжительность: 47:54:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00100D983704EEA6EA582504E2B805995CC4861D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357398   (974275) от 03.02.2020
+
+Маша и медведи - Пиф-Паф (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_974275.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Мира Война
+2. Воскресенье
+3. Пиф-Паф
+4. Спокойной Ночи(   Читать дальше...   )Жанр: RockПродолжительность: 00:23:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D26430A9E3C8248F716E92277EB9B3C0AEEA86A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 439375   (972344) от 21.01.2012
+
+Мураками - Верь... (2011) [FLAC|Lossless|image + .cue]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_972344.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Нимфетка
+02. 8 марта
+03. Парагвай
+04. Сказка(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:04
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 168538   (968209) от 22.01.2010
+
+Машина Времени - Избранное том 1-4 (8CD) (1999) [APE (image+.cue)|Lossless]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_968209.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: RockПродолжительность: 10:28:59
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 976853   (967707) от 19.01.2016
 
 Мураками - Без суеты (2015) [FLAC|Lossless|image + .cue] <Rock>
@@ -650,122 +763,6 @@ Project NT - Ottobre Nero (2016) [FLAC|Lossless|image + .cue] <Dark Ambient, Exp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20178461753CCC1A7412F5AD0D2C907EEE500DD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089443   (951817) от 03.01.2017
-
-Тараканы! - Сила одного (2016) [FLAC|Lossless|image + .cue] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Семь миллиардов
-02. За тех, кто в меньшинстве
-03. Ни рыбы, ни мяса
-04. Ложь за ложь(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:48:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEF238ADD057003865FF1460A31596193F14D873
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981757   (951200) от 01.02.2016
-
-Кукрыниксы - Вера, Надежда, Любовь (2016) Single [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951200.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вера
-02. Надежда
-03. Любовь
-04. Надежда (Kukremix - Фомин М.)(   Читать дальше...   )Жанр: RockПродолжительность: 00:14:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33420D4C7A26D70FC36FB59A392A93CD19D7D492
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362107   (951179) от 22.02.2020
-
-Inexist - Relax And Feel Free (2006) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951179.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. F*ck The Difficult (3:36)
-02. Infected (2:28)
-03. Failed (3:25)
-04. Neoworld Prophecy (3:49)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:37:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9BC2B4F0F9228E0BC7AA902AF24B060BBDB3035
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362058   (951139) от 22.02.2020
-
-Рада и Терновник - Подлинная история трех миров 1991-2001 (2001) [FLAC|Lossless|image + .cue]<Rock, Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Над водою
-02. Когда будет тепло
-03. Холодные времена
-04. Ты всю ночь молился чужим богам(   Читать дальше...   )Жанр: Rock, Folk RockПродолжительность: 01:11:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAD8B129DC2396BC1F264C79FF9D8ABCDFBDE5A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

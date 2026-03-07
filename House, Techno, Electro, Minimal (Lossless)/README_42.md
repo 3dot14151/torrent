@@ -1,3 +1,124 @@
+###  Публикация: 1161483   (463353) от 30.08.2017
+
+Daft Punk - Alive 2007 (2007) [FLAC|Lossless|tracks] <French House, House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_463353.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robot Rock / Oh Yeah (6:28)
+02. Touch It / Technologic (5:30)
+03. Television Rules The Nation / Crescendolls (4:51)
+04. Too Long / Steam Machine (7:02)(   Читать дальше...   )Жанр: French House, HouseПродолжительность: 01:14:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:051D8597B1E56E1F9255A1C30E887CAB9F8933EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1059118   (462106) от 04.10.2016
+
+VA - Melodica Electronica Vol.1 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_462106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Solee & Boss Axis - Still Here (Solee Club Re edit) [08:43]
+02. No Accident In Paradise - Schornstein Milchreis [05:39]
+03. Gareth Bilaney - Undone [03:12]
+04. Reynold - Craft [07:32](   Читать дальше...   )Жанр: Deep House, Tech House, DowntempoПродолжительность: 02:23:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFE018AB1621EC44685F60787E8521A1FAEBFB20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568539   (462088) от 08.08.2022
+
+Dwson - A Tape For You (2022) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_462088.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lover (feat Jullian Gomes) (Original Mix) (7:06)
+ 02. You & Me (Original Mix) (6:43)
+ 03. Weightless (feat Atjazz) (Original Mix) (6:02)
+ 04. The Silence (feat Hyenah & Apple Gule) (Original Mix) (7:31)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:53:49.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB0803D773EB246ACB333AA1704751539A55FE48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 550048   (460162) от 21.09.2012
+
+DJ Aligator - Kiss My B-ass (2009) [FLAC|Lossless]<House, Euro House, Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_460162.jpg" />
+</div>
+
+
+###  Подробнее
+
+DJ Aligator - Kiss My B-ass (2009)
+
+Год: 2009
+Жанр: House, Euro House, Trance
+Продолжительность: 01:05:33
+Сканы: Front , Back, CD
+Тип рипа: image+.cue
+Кодек: FLAC
+Битрейт: LosslessТрек лист:(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1568729   (459924) от 09.08.2022
 
 VA - Songspire Summer of Love 2022 (2022) [FLAC|Lossless|WEB-DL|tracks] <EDM, Progressive House, Indie Dance>
@@ -645,122 +766,6 @@ VA - Deep Nu Disco House Sounds (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D98075B05E96DE99437E9664CD9D0C96D57CB1E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062224   (442311) от 13.10.2016
-
-Brando Lupi - Sleeping World (2015) [FLAC|Lossless|WEB-DL|tracks] <Techno, Psy-Tech, Acid>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442311.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frame Of Light (09:13)
-02. Liquid Garden (08:21)
-03. Overload (07:18)
-04. Mutant Phase (07:07)(   Читать дальше...   )Жанр: Techno, Psy-Tech, AcidПродолжительность: 00:48:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CB31047FA4FB912BF6A7669599B2301DADA68EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248428   (442253) от 20.09.2018
-
-The XX - Remixes (2018) Compilation [FLAC|Lossless|tracks + .cue] <Deep House, Tech House, Downtempo, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01/10. VCR (Four Tet Remix) (8:38)
- 02/10. Chained (John Talabot and Pional Blinded Remix) (8:33)
- 03/10. Reconsider (Jamie xx Edit) (5:32)
- 04/10. Sunset (Jamie xx Edit) (6:18)(   Читать дальше...   )Жанр: Deep House, Tech House, Downtempo, MinimalПродолжительность: 01:07:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DA261D099B7B6C5B201D544D8B0E8ECEED81F02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248926   (440186) от 21.09.2018
-
-Cherie Lily - The Dripping Wet EP (2013) [FLAC|Lossless|tracks + .cue] <Electro House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440186.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kiss My Lips (3:33)
- 02. Dripping Wet (3:25)
- 03. Do Your Thing Girl (3:18)
- 04. Body (3:32)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 00:47:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B74E0DF6A2A762A6A6A304AF35EA59689412534B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062651   (440104) от 14.10.2016
-
-VA - Armada - Amsterdam Dance Event (2016) [FLAC|Lossless|WEB-DL|tracks] <House, Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440104.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Mokita - Monopoly [03:26]
-02 Disco Killerz - Stellar (Morgan Page Remix) [03:30]
-03 Kav Verhouzer - Get What You Came For [03:15]
-04 Julian Jordan - A Thousand Miles [03:15](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:09:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8464E3128C737DF6FF94F6C998A83D58CB475658
 ```
 
 https://mybot314.ru/tekegram_catalog/

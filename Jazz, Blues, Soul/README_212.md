@@ -1,3 +1,235 @@
+###  Публикация: 910438   (622022) от 20.06.2015
+
+Mario Biondi - Beyond (2015) /[FLAC|tracks|WEB-DL]<Funk, Soul, Disco>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Open Up Your Eyes
+02. All Of My Life
+03. Love Is A Temple
+04. All I Want Is You(   Читать дальше...   )Жанр: Funk, Soul, DiscoПродолжительность: 01:03:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1929CAACE58DF20C492DB0097D24E92A8EF142D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145360   (621643) от 25.06.2017
+
+Othman Wahabi - Night Trippin' Vol.1 (2017) [FLAC|Lossless|WEB-DL|tracks] <Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621643.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Celestial Quest (06:10)
+02. Burning Sun (05:53)
+03. Catfish Blues (05:09)
+04. Soul For The Devil (03:21)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:24:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA0498B55944C2DF35F5B3CB1045C53816C6B101
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036335   (621172) от 20.07.2016
+
+Stephane Grappelli - Jazz Collection (1973, 1974, 1989) 1989, Object Enterprises[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621172.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.More than you Know [04:15]
+ 02.Et Maintenant [03:46]
+ 03.I Found a New Baby [06:01]
+ 04.It's Only Paper Moon [03:44](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 00:58:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BDFF7F518B3A04A291E79FC15968179AD41A215
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036385   (621087) от 20.07.2016
+
+The Stumble - The World Is Tough (2006) [FLAC|Lossless|image + .cue] <Blues, Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621087.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  You Upset Me Baby    03:34
+02.  Leading Me On    02:41
+03.  The World Is Tough    03:55
+04.  All Over Again    11:03(   Читать дальше...   )Жанр: Blues, Electric BluesПродолжительность: 00:45:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E82C72BCBED2DCF95B461CAEAF7405AD0BBECE4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229928   (620971) от 09.06.2018
+
+Blue Mitchel - Blue Mitchel (1971) 2014, Boplicity Records [FLAC|Lossless|image + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_620971.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soul Village [6:15]
+02. Blues For Thelma [7:05]
+03. Queen Bey [4:50]
+04. Are You Real [7:24](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:30:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:281F9F46C7370FAA927E1A8A2D74557B328EFF54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229933   (620970) от 09.06.2018
+
+Andre Hodeir - Essais Par Le Jazz Groupe De Paris (1949 - 1954) 2017, Sony Music [FLAC|Lossless|image + .cue] <Bop, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_620970.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cross Criss [4:01]
+02. Paraphrase Sur Saint-Tropez [4:22]
+03. On A Standard [3:44]
+04. Esquisse I [2:39](   Читать дальше...   )Жанр: Bop, Big BandПродолжительность: 00:52:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1341D26AC1BCC851E27501CC184F9A23BA937C77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910769   (620794) от 21.06.2015
+
+Giant Jack - Giant Jack (2015) [MP3|320 кб/с]<Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_620794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Old Town (04:09)
+02. Money Farm (05:00)
+03. Chained Up World (04:10)
+04. Sometimes (05:12)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:34:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86FCF173C464BF5EE5AC0A6CEF47453E52E7E2FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295392   (620772) от 12.04.2019
+
+Anthony Wilson - Campo Belo (2010) Goat Hill Recordings [FLAC|Lossless|tracks + .cue] <Post-Bop, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_620772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Campo Belo [7:35]
+02. March to March [7:12]
+03. Edu [4:24]
+04. After the Flood [5:34](   Читать дальше...   )Жанр: Post-Bop, Guitar JazzПродолжительность: 00:58:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A98E68542DA37E0DC7EB05014AAF87FED851E4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1295452   (620771) от 12.04.2019
 
 Bridges with Seamus Blake - Continuum (2019) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz>
@@ -513,240 +745,6 @@ Beth Hart - A Tribute To Led Zeppelin (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EAEA008E140853910A2B789F210114B2DD795398
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145727   (619678) от 26.06.2017
-
-Diana Krall - Turn Up the Quiet (2017) Japan, SHM-CD [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Like Someone In Love
-02. Isn't It Romantic
-03. L-O-V-E
-04. Night And Day(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:53:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F84FB9516697D8AC43AAED30311F71DBFDF4F62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145823   (619677) от 26.06.2017
-
-VA - Buddha Jazz Bar Lounge: Best Relaxation Instrumental Soft Music (2017) [MP3|320 Kbps] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619677.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good Morning Jazz Academy - Buddha Jazz Bar
-02. Wake Up Music Paradise - Pleasure (Erotic Games)
-03. Jazz Music Collection - Unforgettable Moments
-04. Instrumental Jazz Music Ambient - Emotional Music(   Читать дальше...   )Жанр: JazzПродолжительность: 01:23:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE98398E9D8E32B2EC249019BD2BC3A772D45F39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 682112   (619516) от 28.07.2013
-
-Etta James - 44 CDs (1960..2011) Discography [MP3|152..320 kbps]<Blues, R&B, Soul, Rock & Roll, Jazz, Gospel>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_619516.jpg" />
-</div>
-
-
-###  Подробнее
-
-Jamesetta "Etta James" Hawkins (25.01.1938 - 20.01.2012) — американская блюзовая и R&B певица.
-Джемисетта Хокинс родилась 25 января 1938 года в Лос-Анджелесе. Её матери, афроамериканке Дороти Хоукинс, на тот момент было всего 14 лет. Отец остался неизвестен, хотя сама Дороти утверждала, что им был знаменитый бильярдист Рудольф Вандерон.
-Уже в пять лет (   Читать дальше...   )Список альбомов:
-1960 - At Last!
-1965 - The Queen Of Soul
-1968 - Tell Mama(   Читать дальше...   )Жанр: Blues, R&B, Soul, Rock & Roll, Jazz, GospelПродолжительность: 37:45:11
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036587   (619335) от 21.07.2016
-
-Warren Bernhardt Trio - Ain't Life Grand (1990) Digital Music Products[FLAC|Lossless|image + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619335.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Sara's Touch [07:03]
- 02.Blue Lake [06:13]
- 03.Ain't Life Grand [04:38]
- 04.Sweet Gardenia [05:50](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:00:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5297544F4A3D914B57AD62F62538AAB0C6B6345D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036552   (619247) от 21.07.2016
-
-VA - King & Deluxe Acetate Series: Beef Ball Baby - New Orleans R&B Sessoions (2015) [MP3|320 Kbps] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eddie Gorman - Answer To Chubby's Bedroom Blues (2:54)
- 02. Eddie Gorman - Beef Ball Baby (2:37)
- 03. Paul Gayten & His Band, vocal Eddie Gorman - Don't Worry 'Bout Nothin' (2:44)
- 04. Eddie Gorman - Hey Now (2:22)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:05:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FC557D818FE06563461EC5F1A93BFA1DA1D14A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036613   (619147) от 21.07.2016
-
-Larry Miller - Unfinished Business (2010) [APE|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619147.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Mad Dog    04:14
-02.  As Blue As It Gets    04:13
-03.  Cruel Old World    09:21
-04.  Still Aint Done With The Blues    03:58(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:48:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58C0BF063C42DF8B26EA915A900F7A6912445AF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036820   (619146) от 21.07.2016
-
-VA - When the Saints Go Marching in: Jazz Greatest (2005) [FLAC|Lossless|tracks + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619146.jpg" />
-</div>
-
-
-###  Подробнее
-
-Название диска происходит от известнейшей композиции впервые исполненной Louis Armstrong - When The Saints Go Marching In (Когда святые маршируют). Впоследствии практически каждый джазист почитал своим долгом перепеть (и переиграть) эту, ставшую классикой, композицию. Ну и, конечно, только от одного перечисления имен тех, кто представлен на этом сборнике может у (   Читать дальше...   )01. Louis Armstrong - When The Saints Go Marching In  (3:12)
-02. Duke Ellington - The Mooche  (5:26)
-03. Benny Goodman - King Porter Stomp  (3:08)
-04. Nat King Cole - It's Only A Paper Moon  (1:59)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:52:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:517A7391146DB05EBA9E7797CD0829796A611CB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036753   (619145) от 21.07.2016
-
-The Stumble - The Other Side (2016) [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619145.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New Orleans    04:43
-02. Just Stop    04:16
-03. Be My Slave    05:57
-04. Freedom Like a Woman    07:25(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:56:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF81A869B9D16098045600579E151BA2747BC7A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,5 +1,34 @@
 https://t.me/izofen
-###  Публикация: 1856647   (1059037) от 
+###  Публикация: 1857441   (1059739) от 05.03.2026
+
+Сборники - FOUR Editors - Platinum Bundle: OUR ENTIRE COLLECTION (ALL-IN-ONE) - 10,000+ [MP4, CUBE, MOGRT, MP3, WAV, PRFPSET, XMP, DNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1059739.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот платиновый пакет предоставляет вам полный набор видео- и аудиоматериалов на всю жизнь,
+созданных профессионалами отрасли. Создавайте впечатляющие видеоролики всего за несколько кликов.
+
+Независимо от того, являетесь ли вы новичком, опытным профессионалом, видеоблогером или редактором контента для социальных сетей — этот пакет станет мощным дополнением к инструментарию (   Читать дальше...   )Формат: MP4, CUBE, MOGRT, MP3, WAV, PRFPSET, XMP, DNG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:729146E0DAE8B4DF3231A6435D82ABB736BB5536
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856647   (1059037) от 01.03.2026
 
 Сборники - Luxury Leaks - The Total Collection Bundle [MOGRT, FFX, AEP, PRPROJ, MOV, MP4]
 
@@ -20,6 +49,32 @@ https://t.me/izofen
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:907D5A937DC241166BED2A16CE76A703E263F6E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854529   (1057266) от 18.02.2026
+
+Сборники - SICKBOAT - Photo Film Frames: PNG Film Borders + Texture (10k) [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1057266.jpg" />
+</div>
+
+
+###  Подробнее
+
+Реалистичные сканы пленок — совместимы со всем программным обеспечением. С набором Photo Film Frames PNG Pack вы получите кадры 35-мм пленки Kodak 400 в формате PNG, кадры 120-мм среднеформатной пленки, кадры Instax Polaroid в формате PNG, наложения перфорации 35-мм пленки, отверстия, заставки, мусор, грязь, шум и акценты текстуры пленки. Перетаскивайте наложения (   Читать дальше...   )Формат: PNGРазрешение файлов: 10k
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E4151FBEF276C7854B0329F7E73EA6E7D17DFD9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -626,58 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EDB437989A95BABC13D67176BAAD9144A1EB0A98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488642   (1001711) от 12.08.2021
-
-Сборник - GraphicRiver - 10 in 1 Christmas Photoshop Actions Bundle - 22793168 [PSD, PAT, GRD, ABR, ATN, ASL, TPL, EPS, AI, PNG]
-
->>Материалы для мультимедиа и дизайна
->>Сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001711.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот рождественский набор содержит более 50 экшенов Photoshop премиум-класса для Рождества, сгруппированных в 10 наборов, и сделан PSDDude.Формат: PSD, PAT, GRD, ABR, ATN, ASL, TPL, EPS, AI, PNG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4BD73E613C7C8C8EAC338440DF4C6F04571E535
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353443   (991688) от 18.01.2020
-
-Сборник - Creative Market - Big Bundle Clipart Volume 2 - 4396150 [AI, PNG, EPS, JPEG, SVG]
-
->>Материалы для мультимедиа и дизайна
->>Сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991688.jpg" />
-</div>
-
-
-###  Подробнее
-
-Большая подборка клипарта на различную тематику.Формат: AI, PNG, EPS, JPEG, SVGРазрешение файлов: 1663x3505-4569x2274
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73498D4B505EDA2AC1AFAA562B7A8E31E869F439
 ```
 
 https://mybot314.ru/tekegram_catalog/

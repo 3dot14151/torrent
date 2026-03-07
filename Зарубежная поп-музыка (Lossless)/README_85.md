@@ -1,3 +1,119 @@
+###  Публикация: 1688158   (121938) от 20.01.2024
+
+A-HA - Hunting High And Low (1985) 1st German Press Gold disc [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121938.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take On Me (3:49)
+02. Train Of Thought (4:14)
+03. Hunting High And Low (3:45)
+04. The Blue Sky (2:36)(   Читать дальше...   )Жанр: PopПродолжительность: 37:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:769A6B65E5AE8AAFDA0EBB1806B24346D259678B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693234   (121900) от 20.01.2024
+
+Hurts - Happiness (2010) 1st EU Press [APE|Lossless|image + .cue] <SynthPop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121900.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silver Lining (4:57)
+02. Wonderful Life (4:14)
+03. Blood, Tears & Gold (4:18)
+04. Sunday (3:53)(   Читать дальше...   )Жанр: SynthPopПродолжительность: 48:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10F2FEECB4DA9FD1C824EB85DEF52BA0D34017D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690347   (121888) от 20.01.2024
+
+A-HA - Scoundrel Days (1986) 1st German Press [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121888.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scoundrel Days (4:02)
+02. The Swing Of Things (4:14)
+03. I’ve Been Losing You (4:23)
+04. October (3:56)(   Читать дальше...   )Жанр: PopПродолжительность: 39:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C734DC6405306DAB7A9405058B2CCEA8E3600A4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693207   (121877) от 20.01.2024
+
+Hurts - Exile (2013) Deluxe Limited Edition [APE|Lossless|image + .cue] <SynthPop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121877.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Exile (4:16)
+02. Miracle (3:44)
+03. Sandman (3:54)
+04. Blind (4:23)(   Читать дальше...   )Жанр: SynthPopПродолжительность: 57:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:537ED433F56A2872BCF9527481575CC547CA45F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1693249   (121870) от 20.01.2024
 
 Philip Oakey & Giorgio Moroder (1985) 1st UK Press [APE|Lossless|image + .cue] <Pop>
@@ -627,122 +743,6 @@ Al Corley - Square Rooms (1984) [FLAC|Lossless|WEB-DL|tracks] <Pop, Synth-pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9EFCEDB3F613904BD03518B1B83BE13269522D59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702063   (116005) от 23.02.2024
-
-Elsa Esnoult - 7 (2024) [FLAC|Lossless|WEB-DL|tracks] <French Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116005.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Guerrier de l'amour (3:21)
-02. Sauvage (3:04)
-03. Comme une petite fille (2:56)
-04. Avec toi (3:24)(   Читать дальше...   )Жанр: French PopПродолжительность: 01:09:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31CA993C10B4610C608014102672033ADA6043F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702598   (115726) от 25.02.2024
-
-Celine Dion - Courage (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115726.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flying On My Own
-02. Lovers Never Die
-03. Falling In Love Again
-04. Lying Down(   Читать дальше...   )Жанр: PopПродолжительность: 01:14:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA1A009248BDD02D7730B317A4983E339CFE61C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702150   (115167) от 28.02.2024
-
-Al Corley - Riot of Color (1986) Expanded Edition, 2023, Mercury [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115167.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Face to Face (04:35)
-02. Havana Blue (04:07)
-03. House of Courage (03:38)
-04. Waste of Time (04:43)(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EED303D17DA88437D5863B0B6E0F0289CCC873E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702145   (115164) от 28.02.2024
-
-Al Corley - The Big Picture (1988) Expanded Edition, 2023, Mercury [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115164.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Where Are the Children? (04:34)
-02. My O My (03:48)
-03. Sad Man on a Red Rock (04:01)
-04. Tall Girls (04:40)(   Читать дальше...   )Жанр: PopПродолжительность: 00:54:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45BD06A037BD60C6108F8D9DD36E2124066530F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

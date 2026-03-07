@@ -1,3 +1,32 @@
+###  Публикация: 904418   (654389) от 03.06.2015
+
+Indigo Girls - One Lost Day (2015) [MP3|320 кб/с]<Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_654389.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elizabeth (3:36)
+02. Happy In The Sorrow Key (2:56)
+03. Southern California Is Your Girlfriend (4:19)
+04. Texas Was Clean (4:11)(   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:51:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:834305CE677EF531EA3A68251D6DA07204EF7BFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 904414   (654325) от 03.06.2015
 
 The Rolling Stones - 2120 South Michigan Avenue (The Unreleased 1964 Blues Album) (2010) [MP3|320 кб/с]<Rock, Blues>
@@ -727,35 +756,6 @@ Animal Soup - Lover's Leap (2015) [MP3|320 кб/с]<Progressive Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2DC75A7AEBE6A5BC6D1D260372031462828AA16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905484   (649596) от 06.06.2015
-
-Steve Hughes - Tales From The Silent Ocean (2015) [MP3|320 кб/с]<Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649596.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Will We Ever Be Free (9:42)
-2. 50/50 Zone (7:11)
-3. Tapestry of Change (13:55)
-4. One Day (7:50)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:18:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9312163011F07BCE43FDE0D0406B65E9DD57D75D
 ```
 
 https://mybot314.ru/tekegram_catalog/

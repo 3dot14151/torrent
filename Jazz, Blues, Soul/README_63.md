@@ -1,3 +1,235 @@
+###  Публикация: 1093254   (935435) от 14.01.2017
+
+Melvin (Mel) Rhyne - Organ-izing (1960) 2000, Original Jazz Classics[FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_935435.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Things Ain't What They Used to Be [11:00]
+ 02.Blue Farouq [10:45]
+ 03.Barefoot Sunday Blues [12:53]
+ 04.Shoo, Shoo Baby [08:43]Жанр: Hard BopПродолжительность: 00:43:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:366D01F4287121678121D3D32EABA222E8C1CDD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092981   (935430) от 14.01.2017
+
+Ornette Coleman And Prime Time - Virgin Beauty (1988) [FLAC|Lossless|image + .cue] <Jazz-Rock, Free Improvisation, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_935430.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 3 Wishes
+02. Bourgeois Boogie
+03. Happy Hour
+04. Virgin Beauty(   Читать дальше...   )Жанр: Jazz-Rock, Free Improvisation, FusionПродолжительность: 00:45:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB12639C25E73DC81B00DC9B794709122A349FCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093255   (935428) от 14.01.2017
+
+The Lew Tabackin Quartet - What A Little Moonlight Can Do (1994) Concord Jazz[FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_935428.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.What A Little Moonlight Can Do [05:15]
+ 02.Easy Living [07:23]
+ 03.I Wished On The Moon [06:52]
+ 04.Love Letters [05:03](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:56:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BECE603317AE9280C356CDC0EDA4A995FF58FD91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093119   (935420) от 14.01.2017
+
+Glenn Kaiser Band - Octane (2008) [APE|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_935420.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  Glenn Kaiser Band / Broken Love  (03:35) 
+02|  Streetcorner Blues  (03:51) 
+03|  Roller Coaster  (03:00) 
+04|  Depends On Where You Stand  (03:39) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:45:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E820F1718C0D129370D650228F1CC64A5007A62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093248   (935358) от 14.01.2017
+
+Dave Brubeck - Time Out / Gone With The Wind (1959) 2CD, 2010, Not Now Music[FLAC|Lossless|image + .cue] <Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_935358.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Time Out:
+01.Blue Rondo A La Turk [06:49]
+02.Strange Meadow Lark [07:26]
+03.Take Five [05:29](   Читать дальше...   )Жанр: CoolПродолжительность: 01:19:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85AE9BCD7C842C5343602C8FAA3D8B580093E5FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093022   (935265) от 14.01.2017
+
+Ксения Федулова - Блюзорукость (2013) [FLAC|Lossless|image + .cue] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_935265.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Прощай, моя боль [2:47]
+02. Не повезло [4:40]
+03. Жизнь - только хобби [3:44]
+04. Серьги [4:49](   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AB58D8C88FCD903EED019938C12D8A24A18F827
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093155   (935259) от 14.01.2017
+
+Проходной двор (Юрий Наумов) - Блюз в тысячу дней (2002) [FLAC|Lossless|image + .cue] <Blues / Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_935259.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Отдавшим сердце рок-н-роллу
+02. Когда не остаётся слов
+03. Пессимистический блюз
+04. Кошка на крыше(   Читать дальше...   )Жанр: Blues / Blues-RockПродолжительность: 00:54:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:721053BC343A12DFC0F7AF2D83091473B266C247
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364668   (935038) от 04.03.2020
+
+Hal Galper - Ivory Forest 1979 (2013) P-Vine Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_935038.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ivory Forest [7:37]
+02. Continuity [6:39]
+03. My Dog Spot [6:34]
+04. Monk's Mood [6:02](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:40:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11AA60217124F28F5946AE38FD2A9D759C326CAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1364667   (935037) от 04.03.2020
 
 Tom Harrell - The Art Of Rhythm (1998) RCA Victor [FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -513,235 +745,6 @@ Chet Baker - Sings and Plays with Bud Shank, Russ Freeman and Strings 1955 (1987
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6146C93C9E837ED9508183B4E84969B1A133600
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364952   (933817) от 05.03.2020
-
-Lonnie Liston Smith & The Cosmic Echoes - Astral Traveling (1973) 2014,  BGP Records [FLAC|Lossless|tracks + .cue] <Fusion, Free Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Astral Traveling (Smith) - 5:30
-02. Let Us Go into the House of the Lord (Smith) - 6:22
-03. Rejuvenation (Smith) - 5:36
-04. I Mani (Faith) (Smith) - 6:11(   Читать дальше...   )Жанр: Fusion, Free JazzПродолжительность: 00:59:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EC3EB0773524CE799F7D0ACC6DA24AA9141C23B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 175312   (933147) от 19.02.2010
-
-George Benson - 47 Альбомов (1963-2003) [MP3|192-320 kbps]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933147.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: JazzПродолжительность: 43:08:37 |
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986109   (932644) от 13.02.2016
-
-Dave McKenna & Hal Overton - Dual Piano Jazz (1960) Remaster, 2014, Solid Records[FLAC|Lossless|tracks + .cue] <Stride, Swing, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932644.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Keepin' Out Of Mischief [04:43]
- 02.Monk's Mood [04:22]
- 03.Dizzy Atmosphere [04:17]
- 04.Baubles, Bangles And Beads [05:15](   Читать дальше...   )Жанр: Stride, Swing, Piano JazzПродолжительность: 00:35:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:591AFC6EE451D8612CB8A07C375AFDE7A045672C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986113   (932632) от 13.02.2016
-
-Tete Montoliu - Blues For Myself (1977) Remaster, 2015, DiscMedi Blau[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932632.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Blues for Corien [05:15]
- 02.You've Changed [07:36]
- 03.It Could Happen to You [06:12]
- 04.Blues for Myself [06:15](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:40:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA3B6F3C2A45CA074241FB9F4D03A167F5F2207E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985977   (932623) от 13.02.2016
-
-Lino Muoio - Mandolin Blues The Piano Session (2016) [MP3|320 кб/с] <Blues, Piano Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932623.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Last Chance Blues (feat. Mario Donatone) (3:50)
-02.  Dayjob (feat. Mario Donatone) (2:44)
-03.  Help Yourself (feat. Mario Donatone) (2:59)
-04.  Falling Star (feat. Mario Donatone) (4:13)(   Читать дальше...   )Жанр: Blues, Piano BluesПродолжительность: 00:39:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D66BC9F69C6EC5A71329694EC20E54574666B15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986055   (932589) от 13.02.2016
-
-Datura - Datura (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Jazz-Pop, Blues>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932589.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Devil's Tune
-02. One Sorry Boy
-03. Restless Heart
-04. Two Guns(   Читать дальше...   )Жанр: Vocal Jazz, Jazz-Pop, BluesПродолжительность: 00:28:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37D62B15F5D2522DF3A878E4466E91CB83AB02BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093864   (932545) от 16.01.2017
-
-Dusko Goykovich - Bebop City (1995) Enja[FLAC|Lossless|image + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932545.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Sunrise In St. Petersburg [07:42]
- 02.In The Sign Of Libra [07:02]
- 03.Bebop City [07:08]
- 04.Lament [06:30](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:06:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7935C3A07EF68EE13CAD320057CA040D3144922
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093866   (932544) от 16.01.2017
-
-George Cables Trio - Cables' Fables (1991) 1995, SteepleChase[APE|Lossless|image + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.In walked Bud [06:29]
- 02.Lullaby [05:52]
- 03.Waltz for Debbie [08:40]
- 04.Helen's song [06:35](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:06:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DE2D1D1942357D48051029B3326CEFE13D14068
 ```
 
 https://mybot314.ru/tekegram_catalog/

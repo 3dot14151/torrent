@@ -1,3 +1,32 @@
+###  Публикация: 1692110   (122768) от 15.01.2024
+
+18 Summers - Virgin Mary (2002) [FLAC|Lossless|image + .cue] <Downtempo, Synth-pop, Darkwave>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_122768.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turn Off The Radio
+02. Virgin Mary
+03. Here And Everywhere
+04. Girl Of 18 Summers(   Читать дальше...   )Жанр: Downtempo, Synth-pop, DarkwaveПродолжительность: 00:45:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F06E81A6858D7FF30E4F96B1DE437F84334407B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1693830   (121474) от 22.01.2024
 
 VA - Lounge O'Clock, Vol. 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
@@ -716,35 +745,6 @@ VA - Chillout Music 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6917099AE375915539B5E89C9FB10D89A92253C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710350   (112742) от 26.03.2024
-
-VA - Chillout & Lounge Music for Dreaming (2024) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Lounge, Chill Out>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112742.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silbermaus - Flawless Elegance (4:32)
-02. Premasara Council - Reflective Dream (4:24)
-03. Quadra Montres - Widening Horizons (4:22)
-04. Proxy Brides - Binomial Expressions (4:27)(   Читать дальше...   )Жанр: Electronic, Lounge, Chill OutПродолжительность: 02:12:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE5C37A4CC0ACADCFC71398E503BBA1AC64B9E84
 ```
 
 https://mybot314.ru/tekegram_catalog/

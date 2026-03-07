@@ -1,3 +1,32 @@
+###  Публикация: 1147001   (611093) от 01.07.2017
+
+VA - The Real... Country Collection (The Ultimate Collection) (2016) 3CD [FLAC|Lossless|tracks + .cue] <Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_611093.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+01. The Carter Family: Can The Circle Be Unbroken
+02. Jimmie Rodgers: In The Jailhouse Now
+03. Flatt & Scruggs: Foggy Mountain Breakdown(   Читать дальше...   )Жанр: CountryПродолжительность: 02:21:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2228D8D2D1EE4DC4F0E72A9C1BA69A606B978AD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 524318   (611046) от 19.07.2012
 
 Hans Zimmer - The Dark Knight Rises / Тёмный Рыцарь: Возрождение Легенды(Original Motion Picture Soundtrack (2012) [AAC|258-285 кб/с (VBR)]<OST>
@@ -752,35 +781,6 @@ Faun - Märchen & Mythen (2019) [FLAC|Lossless|WEB-DL|tracks] <Folk, Medieval>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D9CC672C1B5D2E49C260BF1FE80A4D0A41ED78B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147954   (604312) от 05.07.2017
-
-Karushanti - Isle of Skye (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604312.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Long Road to Skye
-02. Skye Bridge
-03. Pure Sligachan
-04. Mealt Waterfall(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A90A3F7E8716EF22B1A4F9359A3BDF367E87C3CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

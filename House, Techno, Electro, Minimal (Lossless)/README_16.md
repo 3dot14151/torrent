@@ -1,3 +1,119 @@
+###  Публикация: 1502862   (824843) от 16.10.2021
+
+Miss Monique - FGIX (2020) DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Melodic Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miss Monique - FGIX (Continuous DJ Mix) (01:04:45)
+ 02. Sergey Muzarks - Eclipse (7:32)
+ 03. Evegrem - Skylab (9:01)
+ 04. Bulk Beat - Flaming June (8:08)(   Читать дальше...   )Жанр: Progressive House, Melodic TechnoПродолжительность: 02:18:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC8D6A64B5DC08473D349C31B6C49CCCAEEF21FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116195   (824439) от 19.03.2017
+
+VA - Nu Disco, Volume 1 (2017) [FLAC|Lossless|WEB-DL|tracks] <Nu Disco, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824439.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anton Ishutin - Devil In My Head (feat Irina Makosh) [06:25]
+02. Ffunk - About You [03:48]
+03. NekliFF/Mary SK - First Dot (Tosel & Hale remix) [05:58]
+04. Tunnelvision - Popping Candy (Monrabeatz & Black Birdz remix)[05:50](   Читать дальше...   )Жанр: Nu Disco, Deep HouseПродолжительность: 04:29:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF5DFDFC7120E685318FD8112B747B6DD0F93A9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196267   (824235) от 02.01.2018
+
+VA - Yoshitoshi: Best Of 2017 (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824235.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yoshitoshi: Best Of 2017 (continuous DJ mix 1) [57:17]
+02. Yoshitoshi: Best Of 2017 (continuous DJ mix 2) [01:02:22]
+03. Aaaron - Black Arp (original mix) [07:05]
+04. PQM Feat. Cica - The Flying Song (UNER remix) [06:29](   Читать дальше...   )Жанр: Deep House, Tech House, MinimalПродолжительность: 04:23:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:330BDEAE2F416DC9271F8F76A2C2A020BBA1AE11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196300   (823888) от 02.01.2018
+
+Bob Moses - Days Gone By (Never Enough Edition) (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Downtempo, Dub House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_823888.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Like It Or Not (6:20)
+ 02. Talk (6:49)
+ 03. Before I Fall (3:59)
+ 04. Too Much Is Never Enough (5:25)(   Читать дальше...   )Жанр: Deep House, Downtempo, Dub HouseПродолжительность: 01:52:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6964C55E9A7D68118BFC90D5D628C379D5F9EAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1007327   (823020) от 14.04.2016
 
 Klartraum - E (2016) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Minimal>
@@ -624,119 +740,6 @@ VA - Spring Tube Vocal Themes, Vol.12 (2017) [FLAC|Lossless|WEB-DL|tracks] <Prog
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2326A8F5C42939F418276EB2C0529C37956D042
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008894   (811788) от 20.04.2016
-
-Oliver Schories - Fields Without Fences (2015) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House,>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811788.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Undisguised (6:21)
-02. Copilot (6:49)
-03. Brizzle (8:09)
-04. Fields Without Fences (6:40)(   Читать дальше...   )Жанр: Tech House, Deep House,Продолжительность: 01:18:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DCCFD1F5B5DD7D156632F8B0090C3D1004CB62A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383694   (809969) от 16.05.2020
-
-Tiesto - The London Sessions (2020) [FLAC|Lossless|WEB-DL|tracks] <Future House, House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809969.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. God Is A Dancer (feat. Mabel) (2:48)
-02. Nothing Really Matters (feat. Becky Hill) (2:37)
-03. Ride (feat. The Kid Daytona & Roe) (3:23)
-04. Ritual (feat. Jonas Blue & RITA ORA) (3:19)(   Читать дальше...   )Жанр: Future House, House, DanceПродолжительность: 00:42:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9F0AD56CBAE755982F8FAEC07E77AF0EB180495
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009503   (807576) от 22.04.2016
-
-Boris Brejcha - 22 (2016) [FLAC|Lossless|WEB-DL|tracks] <Techno, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807576.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It Start's (07:59)
- 02. Moondancer (08:29)
- 03. Schattenmonch (06:57)
- 04. White Rainbow (08:14)(   Читать дальше...   )Жанр: Techno, MinimalПродолжительность: 02:56:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D37EEBB41C4B909CB2DA31CBE27016DBEAAC053C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 658290   (807279) от 19.05.2013
-
-Scooter - Age Of Love (20 Years Of Hardcore Expanded Edition) (2013) [3CD|FLAC|Lossless] <Techno, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807279.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Techno, TranceПродолжительность: 02:33:42
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

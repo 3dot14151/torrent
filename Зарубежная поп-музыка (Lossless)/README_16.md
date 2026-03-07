@@ -1,3 +1,117 @@
+###  Публикация: 1494018   (890494) от 06.09.2021
+
+ABBA - Still Have Faith In You, Don't Shut Me Down (2021) [FLAC 2.0|96/24|tracks|WEB-DL] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_890494.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Still Have Faith In You (05:11)
+ 02. Don't Shut Me Down (03:59)Жанр: PopПродолжительность: 09:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74D202BFC3CA63B24B9E865904AA04B456B851F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 640070   (890268) от 05.04.2013
+
+Alizee - 5 (2013) [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_890268.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Cause De L’automne (03:55)
+ 02. 10 Ans (03:01)
+ 03. Je Veux Bien (03:39)
+ 04. Mon Chevalier (03:04)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FF3FFD0C4EE5A3F313CD433B321CBB538A1AA82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994661   (889825) от 08.03.2016
+
+The Twins - Hold On To Your Dreams (1987) Remastered, 2003, Passion Factory Records [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Euro Disco, New Wave>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_889825.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hold on to your dreams
+02. Love can change it all
+03. Time will tell
+04. What do you live for(   Читать дальше...   )Жанр: Synthpop, Euro Disco, New WaveПродолжительность: 00:58:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5FCE22047611FD339D924FA0CD41B7CCC8CD4D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994600   (889795) от 08.03.2016
+
+Wax - A Hundred Thousand In Fresh Notes (1989) [FLAC|Lossless|WEB-DL|tracks] <New Wave, Pop Rock, Synth Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_889795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anchors Aweigh
+02. Wherever You Are
+03. Railroad To Heaven
+04. He Said She Said(   Читать дальше...   )Жанр: New Wave, Pop Rock, Synth PopПродолжительность: 00:44:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A05454FFACBD57D6531A0E40B432E8E8C5EFDB23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 994469   (889641) от 08.03.2016
 
 VA - Die Hit-Giganten - Sommerhits (2007) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Pop, Latin>
@@ -628,123 +742,6 @@ VA - Got Hits! Perfect Pop Album (2003) [FLAC|Lossless|tracks + .cue] <RnB, Swin
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F05296EDD8D1BD5044C0DF0D63159AB531B0062
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 871109   (882698) от 20.02.2015
-
-VA - Pure... Crooners (2011) Box Set, 4CD [FLAC|Lossless]<Pop, Vocal Pop, AM Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882698.jpg" />
-</div>
-
-
-###  Подробнее
-
-По многочисленным просьбам одноклубников ускоряю публикацию всего того что есть у меня в серии Pure... Вот дошла очередь до Crooners, а ведь в переводе с английского это просто эстрадные певцы. Как то не принято у нас называть зарубежных поп-заезд эстрадными певцами. Хотя многие из современных великих подходят под это определение.
-Вот и здесь собраны звезды - великие (   Читать дальше...   )CD1:
-01. Andy Williams - Where do I begin (Love story)  (3:12)
-02. Tony Bennett - A taste of honey  (2:54)
-03. Perry Como - Magic moments  (2:40)(   Читать дальше...   )Жанр: Pop, Vocal Pop, AM PopПродолжительность: 03:39:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4759763F29BC53CF57EA4DC5785E711DDA4AB4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995913   (882582) от 12.03.2016
-
-Tanita Tikaram - Closer To The People (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Glass Love Train
-02. Cool Waters
-03. The Way You Move
-04. Closer To The People(   Читать дальше...   )Жанр: PopПродолжительность: 00:35:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F69EB02F10F3295667DC0FD0414F7F4920B30699
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495257   (882299) от 11.09.2021
-
-Lady Gaga - Dawn Of Chromatica (2021) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Remixes, Electropop, Pop, House>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882299.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alice (LSDXOXO Remix)
-02. Stupid Love (COUCOU CHLOE Remix)
-03. Rain On Me ft. Ariana Grande (Arca Remix)
-04. Free Woman (Rina Sawayama & Clarence Clarity Remix)(   Читать дальше...   )Жанр: Remixes, Electropop, Pop, HouseПродолжительность: 00:49:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B774A3C13A283955FF7576F99749431FA59A994E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 871258   (881216) от 21.02.2015
-
-VA - Pure... Party (2012)  Box Set, 4CD[FLAC|Lossless]<Pop, Dance, Eurodance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881216.jpg" />
-</div>
-
-
-###  Подробнее
-
-Думаю, что самое время перед предстоящими праздниками устроить маленькое музыкальное Party. Правда оно уж и не такое маленькое. А главное очень даже заводное. P!nk, Ke$ha, Shakira, Lou Bega - от всех этих имен может снести башню. Так что в эти праздничные дни смело врубайте этот бокссет и наслаждайтесь.CD1:
-01. P!nk - Get the Party Started   (3:14)
-02. Ke$ha - TiK ToK  (3:22)
-03. Shakira - She Wolf  (3:10)(   Читать дальше...   )Жанр: Pop, Dance, EurodanceПродолжительность: 04:20:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7F20192BCBA585BA14CC7BC206B7C44B27752AF
 ```
 
 https://mybot314.ru/tekegram_catalog/

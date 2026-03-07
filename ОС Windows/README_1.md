@@ -1,3 +1,32 @@
+###  Публикация: 1848391   (1052745) от 17.01.2026
+
+Windows 7 SP1 7601.28117 x64 3in1 by OneSmiLe [17.01.2026] [Ru]
+
+>>ОС Windows
+>>Сборки Windows 7
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052745.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка сделана из оригинальных образов
+• ru_windows_7_professional_with_sp1_vl_build_x64_dvd_u_677774
+• ru_windows_7_ultimate_with_sp1_x64_dvd_u_677391
+• ru_windows_7_enterprise_with_sp1_x64_dvd_u_677671(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD2B32E9383167054B57F2B795B2BCC0CB2604ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1848259   (1052743) от 17.01.2026
 
 Windows 11 24h2 (build 26100.7623) Enterprise LTSC 2024 by Izual Soft [v14.01.26] [Ru/En]
@@ -104,6 +133,32 @@ Windows 10 v22H2 19045.6691 и Windows 10 Корпоративная LTSC v21H2 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1BCCA8E27FF74EC6C6ACEE5665DDABEE310AE92A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845491   (1050628) от 01.01.2026
+
+Windows 11 25H2 + LTSC (x64) 28in1 +/- Office 2024 by Eagle123 (12.2025) [Ru/En]
+
+>>ОС Windows
+>>Сборки Windows 11
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050628.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 11 v25H2 26200.7462, включающая в себя 5 редакций x64 с русским и английским интерфейсом и 2 облегченные x64 Lite-редакции, с обновлениями по 12.2025, дополнительными системными библиотеками (C++ Redistributable Package), с возможностью выбора опций установки и наличием MSDaRT. А также инсталляции Windows c уже предустановленным (или без - по выбору) Word, (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34D49AEE13E67FFF56E4BB4D5B4667339759DD58
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -650,61 +705,6 @@ updated_nov_2025_x64_dvd_4ace2901.iso.
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4013473E906C0DB00EF1ACCA27BD8CF8B19B573
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839561   (1046610) от 29.11.2025
-
-Windows 11 (v25h2) x64 PRO by KulHunter v2 (esd) [En]
-
->>ОС Windows
->>Сборки Windows 11
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046610.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка основана на официальном образе от MDSN: en-us_windows_11_consumer_editions_version_25h2_
-updated_nov_2025_x64_dvd_4ace2901.iso.
-Использован переработанный установщик от Windows 11 25h2
-(SecureBoot и TPM 2.0 не требуется)..(   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E65C0FA15D723EF8E7D629719AC97E74D06C3D09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604345   (1045350) от 13.01.2023
-
-Windows 7 Профессиональная VL SP1 2in1 x86+x64 (build 6.1.7601.26321) by ivandubskoj 12.01.2023 [Ru]
-
->>ОС Windows
->>Сборки Windows 7
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045350.jpg" />
-</div>
-
-
-###  Подробнее
-
-Авторская сборка из 2-х русских редакций Windows 7 Профессиональная VL SP1 (x86-x64) на основе оригинальных образов, с интегрированными обновлениями, отключенной телеметрией и минимальным набором необходимых драйверов и ПО.Разработчик: MicrosoftЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52EC113BC604110589FA2357710AA2B90331A0AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 992012   (904445) от 29.02.2016
+
+Andy Logan & The O.C. 75s - Transistors of Mercy (2016) [MP3|320 кб/с] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_904445.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Breakin' the Rules (04:08)
+02. Fall Again (05:29)
+03. Lost in Fantasy (03:42)
+04. Dreaming in My Sleep (04:29)(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB424C9525B38151BCA56A3E7F38C682D52BD96A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1369315   (903495) от 23.03.2020
 
 Smash Hits Cover Band - A Tribute To AC DC - We Salute You (2011) [MP3|320 Kbps] <Rock>
@@ -717,35 +746,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:476408782BE9F66EDEDDD1C24193A9B94893704A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494453   (889351) от 07.09.2021
-
-Proud Peasant - Peasantsong (2021) [MP3|320 Kbps] <Progressive-Rock, Symphonic-Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889351.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Prelude [00:01:49]
-02. Daybreak [00:03:26]
-03. Cencibel [00:03:14]
-04. Turbulence [00:01:48](   Читать дальше...   )Жанр: Progressive-Rock, Symphonic-ProgПродолжительность: 00:32:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC996F1F8F90BFED4550E06BFBEFB989DF73C156
 ```
 
 https://mybot314.ru/tekegram_catalog/

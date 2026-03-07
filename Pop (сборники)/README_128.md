@@ -1,3 +1,61 @@
+###  Публикация: 1814229   (4303) от 05.09.2025
+
+Reyvi - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_4303.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Amore
+02 - Te Busco
+03 - Amore Mio
+04 - Reste Un Peu(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 00:20:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A3C96500EE2A7241E96742C90B1ECDEA91EF65C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1817596   (3309) от 11.09.2025
+
+Reyvi - Favorites Collection Part 4 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_3309.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Heartbeat
+ 02 - Why Did You Say Goodbye
+ 03 - My Love
+ 04 - L’amour Nous(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 00:18:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCB41EBD1B81797DC9E55727DAA70786AD3DB524
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1817789   (2647) от 15.09.2025
 
 Sofia Bellini - Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Sunoai>

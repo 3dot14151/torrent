@@ -1,3 +1,61 @@
+###  Публикация: 180592   (593429) от 05.05.2019
+
+VA - Музыкальные новинки от радио Record 50/50 (2010) [MP3|256 kbps]<Pop | Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593429.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Dj Leonid Rudenko Ft Vicky Fee - Real Life (Radio Edit)
+2. Paul Van Dyk - For An Angel (Dave Darell)
+3. Потап И Н.Каменских - Не Люби Мне Мозги
+4. Bob Taylor & Inna - Deja Vu (Remake)(   Читать дальше...   )Жанр: Pop | DanceПродолжительность: 05:53:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C7C4C16606939A5FFCF54E21AD35509DD69FDE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 915336   (592386) от 05.07.2015
+
+In-Grid - Место Встречи на HOROSHEE.FM с Валентином Малюговым (2015) [MP3|128 кб/с]<Pop, Speech>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_592386.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Tu es foutou
+2. In-tango
+3. Нежность
+4. La Trompette (Rico Bernasconi Club Mix)(   Читать дальше...   )Жанр: Pop, SpeechПродолжительность: 00:38:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:139967A2599A0AC4EFD0355D3D7AEB526D298BDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 915343   (592247) от 05.07.2015
 
 VA - Союз летних хитов от Европа Плюс. Часть 4 (2015) [MP3|256 кб/с]<Pop>
@@ -669,64 +727,6 @@ VA - Хитовые Летние Песни 7 (2016) [MP3|256 Kbps] <Поп, Dan
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE35B3F6F64BFBE611338A31D32665F6071D149B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552259   (586688) от 21.05.2022
-
-VA - Laidback Acoustic (2022) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586688.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Laura Zocca - I Want You Back (2:46)
-002. The Mayries - I Love The Way You Love Me (3:23)
-003. Laurence O’Brien - There She Goes - Acoustic (2:55)
-004. Music Travel Love - Let Her Go (3:10)(   Читать дальше...   )Жанр: PopПродолжительность: 06:58:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE92482DC2899349036705357F8FF4C00317BC21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 809768   (586421) от 02.08.2014
-
-Madonna - 25 Best Songs (2014) [MP3|~245 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586421.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Masterpiece 2012
-02. Music 2000
-03. Hung Up 2005
-04. 4 Minutes (Feat. Justin Timberlake and Timbaland) 2008(   Читать дальше...   )Жанр: PopПродолжительность: 01:56:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D8DF397482B7F9B9CBCF23EB39AF78BBD404CF4
 ```
 
 https://mybot314.ru/tekegram_catalog/

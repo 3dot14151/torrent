@@ -1,3 +1,32 @@
+###  Публикация: 1591191   (185460) от 20.11.2022
+
+Basteiro-Bertoli - Boh (2022) [FLAC|Lossless|WEB-DL|tracks] <Folk Rock, Songwriter, Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_185460.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Grey
+02. Cofing
+03. Ladies in Black (feat. Ian Anderson)
+04. Mirror(   Читать дальше...   )Жанр: Folk Rock, Songwriter, RockПродолжительность: 00:28:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4BD952D1E860EA31B3DD1C400217C2FE65E33DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 252371   (184769) от 26.11.2020
 
 VA - Romantic Melodies - Moonlight Sax (2004) [APE|Lossless|image + .cue] <Instrumental, Smooth Jazz, Saxophone>
@@ -715,35 +744,6 @@ VA - The Orient Collective: Mystic Rhythms (2025) [FLAC|Lossless|WEB-DL|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DAF86EB36FFE7576EA3E14427F4ED732EF8E0748
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668634   (173341) от 13.10.2023
-
-VA - Love & Passion: The Sexiest Tantric Sensual Music for Sex (2023) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Easy Listening, Jazz>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Neo Tantra - Sensual Mood (4:05)
-02. Erotic Massage Music Ensemble - Slow Hands (3:14)
-03. Erotic Music Zone - Temple of Love (3:14)
-04. Neo Tantra - Into Ecstasy (3:00)(   Читать дальше...   )Жанр: Instrumental, Easy Listening, JazzПродолжительность: 00:54:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB45D998F78F0223C2DD5EDDF34989013969BC7D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,56 @@
+###  Публикация: 1811343   (8781) от 09.08.2025
+
+Сборники - The TakeOver - The Viral Short-Form Workflow - All in One Bundle [PRPROJ, MP4, MP3, PRFPSET, CUBE, LOOK, XMP]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_8781.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все, что вам нужно для профессионального редактирования короткометражного контента! В общей сложности 25 хуков на выбор, 50 предустановок для редактирования коротких форм + мои луты.Формат: PRPROJ, MP4, MP3, PRFPSET, CUBE, LOOK, XMP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA39B5DABD0023EB6970149BC64FB2725FE185FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1814639   (5983) от 25.08.2025
+
+Сборники - CO$MOHILL - Beatmaker's Cover (DESIGN KIT) [JPG, PNG, PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5983.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данный набор предназначен для создания "АРТ" обложек для артистов и исполнителей любого жанра.
+Любое использование и видоизменение файлов является бесплатным.Формат: JPG, PNG, PSD
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4154709F7CB7F81F85F03F0C563AD6C766ACCCC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1809568   (4483) от 04.09.2025
 
 Сборники - Marco Ibanez - Super Combo: Ultimate Boudoir Posing guide + Original Dark and Moody LR Presets + Dark & Moody LR Presets Vol.2 [XMP, PDF]

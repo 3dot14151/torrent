@@ -1,3 +1,61 @@
+###  Публикация: 1837565   (257956) от 17.11.2025
+
+Reyvi - Favorites Collection Part 8 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_257956.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - It's Killing Me
+ 02 - Amour
+ 03 - Endless Sorrow
+ 04 - Your Eyes(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 00:47:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AE909AF1AA7307F88C2700BB2CF89523F857004
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837833   (257591) от 19.11.2025
+
+Smtve - Favorites Collection (2025) [MP3|320 Kbps] <Romantic / Cinematic Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_257591.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Beautiful Again
+ 02 - The Morning
+ 03 - Stay
+ 04 - Streetlight(   Читать дальше...   )Жанр: Romantic / Cinematic PopПродолжительность: 02:00:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A00685F5EBFC73E94F483E1B37A7E75EDC494DE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 500304   (257295) от 23.05.2012
 
 VA - Сборник классных хитов (2012) [MP3|256 кб/с]<Pop>
@@ -789,70 +847,6 @@ VA - Весенняя Вечеринка Non-Stop (2012) [MP3|256 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97DD2B12862588BFFCF4316C6941E183B8DDCB73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 491314   (246335) от 03.05.2012
-
-VA - Сказочный Мир Русского Радио (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246335.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Reflex - Первый Раз (Версия 2012)
-002 Nikita - 2012 (Video Version)
-003 Dj Fudge - My Budem Vmeste
-004 Алсу - Утро Надежд
-005 Авраам Руссо - Нелюбимая
-006 Samol Feat. A - Sen - Малиновые Сны (Dj Movskii & Dj Karasev Official Extended Rework)
-007 Алисия - Поцелуй Меня (Ночное Движение Remix)
-008 Анна Суворова - Слезы На Твоей Подушке
-009 Аника - Прятки
-010 Стас Пьеха - Старая История2012Жанр: PopПродолжительность: 06:12:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3963E74EE737EED00F26590255E349AF94370034
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833367   (246165) от 01.11.2025
-
-Sofia Bellini - Favorites Collection Part 8 (2025) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Sunoai>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_246165.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Goditi il momento 3  version
- 02 - Nel silenzio di te 1  version
- 03 - Ti voglio bene 1  version
- 04 - Amaro in bocca(   Читать дальше...   )Жанр: Italodisco, Italodance, Eurodisco, Eurodance, SunoaiПродолжительность: 00:34:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7FAF470BE483A3006F43006AA29E87BD42798BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1497976   (859430) от 25.09.2021
+
+Vangelis - Juno to Jupiter (2021) [FLAC 2.0|48/24|tracks|WEB-DL] <Modern-Classical, New-Age>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_859430.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vangelis: Atlas’ push [00:03:40]
+02. Vangelis: Inside our perspectives [00:03:32]
+03. Vangelis: Out in Space [00:04:14]
+04. Vangelis: Juno’s quiet determination [00:05:17](   Читать дальше...   )Жанр: Modern-Classical, New-AgeПродолжительность: 01:12:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67BD5A97B5BDB3F21EAE1097AA75022DECD6AC9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1000394   (859191) от 25.03.2016
 
 Nikolaus Harnoncourt Chamber Orchestra of Europe - Dvorak - Slavonic Dances (2002) [FLAC|Lossless|image + .cue] <Classical>
@@ -716,35 +745,6 @@ Sextet for strings in D, Op. 10
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2419C4DF915F48EE5CA4DEE4E5B9E42B2C7E0D06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001277   (853850) от 28.03.2016
-
-Tatiana Sergeeva - Russian Harpsichord Music of the XIX century. (1997) [FLAC|Lossless|image + .cue] <Classical, Baroque, Keyboard>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853850.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Bortnyansky: Sonata B-dur  3:57
-02.  Bortnyansky: Sonata C-dur - I. Allegro moderato  4:41
-03.  II. Adagio  6:18
-04.  III. Rondo  2:36(   Читать дальше...   )Жанр: Classical, Baroque, KeyboardПродолжительность: 00:52:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89568C70D7B25A25D5CCBABFC64047DEC1000D4C
 ```
 
 https://mybot314.ru/tekegram_catalog/

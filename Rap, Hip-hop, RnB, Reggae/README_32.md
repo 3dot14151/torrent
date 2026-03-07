@@ -1,3 +1,90 @@
+###  Публикация: 1682864   (131076) от 08.12.2023
+
+VA - Chillhop Essentials Winter (2023) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Chillhop, Trip Hop, Jazz Fusion>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_131076.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ØDYSSEE, Ruck P – Lost Memories, ft. Bastien Brison (3:33)
+02. Masked Man – Unknwn (2:19)
+03. Boukas, A D M B – Let Go (Philanthrope Remix) (2:18)
+04. G Mills – 30 (2:25)(   Читать дальше...   )Жанр: Hip-Hop, Chillhop, Trip Hop, Jazz FusionПродолжительность: 01:12:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80600D428C848E438E66407D0782648AD7209173
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684035   (128112) от 13.12.2023
+
+Триагрутрика - THE BEST (2023) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_128112.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Мою машину украшает рэпак
+2. Провинция моя
+3. Биг сити лайф
+4. Доказательстфло(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 02:01:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92AA0DC86EE36B68E39BF0CC0A9B87007FDBED52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684945   (127112) от 19.12.2023
+
+Переучёт (Oxxxymiron) - Семейный альбом (2023) [MP3|320 Kbps] <Alternative, Hip-Hop, Experimental>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_127112.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Заходи скорее
+02 Всё сразу
+03 Макдональдс
+04 Семейный альбом(   Читать дальше...   )Жанр: Alternative, Hip-Hop, ExperimentalПродолжительность: 00:32:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0DB1A41C96434D867935D400710EEA4F2AC23E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1689200   (124780) от 01.01.2024
 
 Мутант Ъхвлам - АРМАГЕДОНИЗМЪ (Сторона А) (2023) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop>
@@ -658,93 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B8353AEEF4D6BA55BDA72DBB513F67BDB9E52ECD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741978   (105348) от 18.08.2024
-
-Logic - Ultra 85 (2024) [MP3|320 Kbps] <Hip-Hop, Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105348.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul Rodriguez
-02. Mission Control (feat. T Man the Wizard)
-03. Deja Vu (feat. DJ Drama)
-04. Glorious Ultra Panavision (Skit)(   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 01:17:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0854CE2643D4DF02C08448609B24A2651789253F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741464   (105337) от 18.08.2024
-
-Master Spensor - Чужой (2009) [WavPack|Lossless|image + .cue] <Rap, Hip Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105337.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Чужой (Intro)
- 02. Чужие
- 03. Спеши любить
- 04. На эстакаде(   Читать дальше...   )Жанр: Rap, Hip HopПродолжительность: 00:43:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B02D0285D00459BAEEDA8C91871EE780C307A2BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741466   (105335) от 18.08.2024
-
-Мишка - Мама (2002) [WavPack|Lossless|image + .cue] <Hip Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105335.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Октябрь 87
- 02. Нормальный
- 30. Быть лучшим
- 04. Шесть(   Читать дальше...   )Жанр: Hip HopПродолжительность: 00:43:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCECC631A298071A0C220D853324E129CB19597B
 ```
 
 https://mybot314.ru/tekegram_catalog/

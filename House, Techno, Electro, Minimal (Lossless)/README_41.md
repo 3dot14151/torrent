@@ -1,3 +1,116 @@
+###  Публикация: 1244210   (483950) от 31.08.2018
+
+VA - Deep & Melodic Techno #03 - Best of 5 Years (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep Techno, Tech House, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_483950.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daniel Harris – Let Down (06:55)
+02. DJ Andrew Force – Element (06:29)
+03. Dr. Pause T – Ouh !!! Yeah !!! (08:32)
+04. Alex ll Martinenko – Follow My Mind (09:30)(   Читать дальше...   )Жанр: Deep Techno, Tech House, MinimalПродолжительность: 05:18:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1768D47711282CF406B44A64FF7C51DCAA02222C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 545769   (482901) от 11.09.2012
+
+VA - Hamburg Elektronisch Vol 1-2: Von House Zu House (2011-2012) [FLAC|Lossless]<Tech House, Deep House, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_482901.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Tech House, Deep House, TechnoПродолжительность: 02:45:05
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244392   (482171) от 01.09.2018
+
+Arnaud Rebotini - Flowers For Algernon (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_482171.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flowers For Algernon  (6:35)
+ 02. Jacob's Cycle  (6:55)
+ 03. My 909  (6:27)
+ 04. The Great Frog  (7:06)(   Читать дальше...   )Жанр: TechnoПродолжительность: 00:32:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60B542C5A1B2ECDFA202C13053CC144BD8E0E17F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1160153   (478204) от 23.08.2017
+
+Roderic - Perfect Mirror Remix (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_478204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Midnight Sorrow (Dirty Doering remix) (6:20)
+ 02. Slowly (Christopher Schwarzwalder remix) (7:43)
+ 03. Kissing Into Each Other (Ante Perry remix) (6:48)
+ 04. No Name (Franz Alice Stern Latenight mix) (5:17)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 00:33:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:941BAF5675683175040E10FF2FAB4792C5FCF5A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1406249   (477485) от 02.09.2020
 
 VA - Workout Motivation 2020 [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
@@ -628,127 +741,6 @@ VA - Funky House Classics (2018) 4CD [FLAC|Lossless|image + .cue] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1733B0EABFF4E58A2EB4E34FEF98620BB6EB640F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161483   (463353) от 30.08.2017
-
-Daft Punk - Alive 2007 (2007) [FLAC|Lossless|tracks] <French House, House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463353.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Robot Rock / Oh Yeah (6:28)
-02. Touch It / Technologic (5:30)
-03. Television Rules The Nation / Crescendolls (4:51)
-04. Too Long / Steam Machine (7:02)(   Читать дальше...   )Жанр: French House, HouseПродолжительность: 01:14:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:051D8597B1E56E1F9255A1C30E887CAB9F8933EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059118   (462106) от 04.10.2016
-
-VA - Melodica Electronica Vol.1 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462106.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Solee & Boss Axis - Still Here (Solee Club Re edit) [08:43]
-02. No Accident In Paradise - Schornstein Milchreis [05:39]
-03. Gareth Bilaney - Undone [03:12]
-04. Reynold - Craft [07:32](   Читать дальше...   )Жанр: Deep House, Tech House, DowntempoПродолжительность: 02:23:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFE018AB1621EC44685F60787E8521A1FAEBFB20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568539   (462088) от 08.08.2022
-
-Dwson - A Tape For You (2022) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462088.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lover (feat Jullian Gomes) (Original Mix) (7:06)
- 02. You & Me (Original Mix) (6:43)
- 03. Weightless (feat Atjazz) (Original Mix) (6:02)
- 04. The Silence (feat Hyenah & Apple Gule) (Original Mix) (7:31)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:53:49.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB0803D773EB246ACB333AA1704751539A55FE48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 550048   (460162) от 21.09.2012
-
-DJ Aligator - Kiss My B-ass (2009) [FLAC|Lossless]<House, Euro House, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460162.jpg" />
-</div>
-
-
-###  Подробнее
-
-DJ Aligator - Kiss My B-ass (2009)
-
-Год: 2009
-Жанр: House, Euro House, Trance
-Продолжительность: 01:05:33
-Сканы: Front , Back, CD
-Тип рипа: image+.cue
-Кодек: FLAC
-Битрейт: LosslessТрек лист:(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

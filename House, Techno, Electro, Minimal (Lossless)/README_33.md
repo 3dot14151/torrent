@@ -1,3 +1,119 @@
+###  Публикация: 1144357   (627742) от 22.06.2017
+
+Breathdub - Modulations (2017) [FLAC|Lossless|WEB-DL|tracks] <Techno, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627742.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. This Moment (06:40)
+2. Return To Nightfall (06:49)
+3. Whispers (06:57)
+4. Clouds (06:53)(   Читать дальше...   )Жанр: Techno, Tech HouseПродолжительность: 01:11:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57FB12840C395431343D83E826EEB4E46DC122C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144421   (627613) от 22.06.2017
+
+Philip Anders - My Kind Of Car (2017) [FLAC|Lossless|WEB-DL|tracks] <Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627613.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Exhaust (06:57)
+2. Disco Balls (07:03)
+3. Happy Feet (06:38)
+4. Transformers (feat Leif Hatfield) (06:00)(   Читать дальше...   )Жанр: Tech HouseПродолжительность: 01:11:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2F2C9ADD8E78243D013DB582173749F0B37D22C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294505   (627320) от 08.04.2019
+
+Imperfect - Flow (2016) [FLAC|Lossless|WEB-DL|tracks] <Electro, Breaks, IDM, Synthwave>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627320.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Immersion (03:30)
+02. Far away from here (04:00)
+03. New World (03:40)
+04. Gravitational waves (03:03)(   Читать дальше...   )Жанр: Electro, Breaks, IDM, SynthwaveПродолжительность: 00:30:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:518A36F694CB421913ED59CFBE3028CAABA1098D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035593   (626717) от 17.07.2016
+
+WillowMan - Away (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Deep House, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626717.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Like The Way (Original Mix) [00:06:16]
+02. My Baby Groove (Original Mix) [00:05:47]
+03. Away (Space Flute) (Deep Mix) [00:04:39]
+04. Tonight (Original Mix) [00:05:11](   Читать дальше...   )Жанр: Electronic, Deep House, DowntempoПродолжительность: 00:48:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9B0E66388FA4BE0F7DD6D9964A61D0AA2AB4BE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1035661   (626703) от 17.07.2016
 
 Oliver Schories - Relatively Definitely (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
@@ -628,118 +744,6 @@ VA - Re:Commended - Deep House Edition, Vol.7 (2016) [FLAC|Lossless|WEB-DL|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE1FD5609ED60275C64F859C88CEE9F4B888EB9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037960   (610108) от 26.07.2016
-
-VA - 538 Dance Smash 2016 Festival Edition (2016)2CD [FLAC|Lossless|image + .cue] <House, Club, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Martin Garrix & Third Party - Lions in the wild (03:30)
-02. Otto Knows & Avicii - Back where I belong (02:53)
-03. Lucas & Steve - Can't get enough (02:36)
-04. Sam Feldt, Wulf, Lucas & Steve - Summer on you (02:40)(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:19:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5443F9182DCA43E92DC594090543B2A62459B1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147273   (609720) от 02.07.2017
-
-VA - InFine Pres: Tomorrow Sounds Better With You (2017) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Indie Dance, Ambient, Techno, Electronic>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609720.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Жанр: Progressive House, Indie Dance, Ambient, Techno, ElectronicПродолжительность: 01:45:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58C1AF786F6C75795809C406DC658A07E3903C12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296966   (608650) от 19.04.2019
-
-Zen - Live. Love. Create (2019) Altar Techno [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Techno, Psytech>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608650.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Live. Love. Create (Protoculture Remix) (07:20)
-02. Live. Love. Create (Austin Leeds remix) (09:09)
-03. Live. Love. Create (09:04)Жанр: Progressive House, Techno, PsytechПродолжительность: 00:25:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26628391573A6F6F16C789B11C8820E7728FBE64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912864   (607090) от 28.06.2015
-
-VA - Blue Marlin Ibiza Vol. 09 (Mixed by UNER & Dosem) (2015) [FLAC|Lossless]<Tech House, Deep House, Minimal, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607090.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Noir - "Around" (feat Hayze - album version)
-02. Little By Little - "Bang The Box"
-03. Gotsome - "Heart Starts" (Phil Weeks remix)
-04. Dale Howard - "Intervention"(   Читать дальше...   )Жанр: Tech House, Deep House, Minimal, TechnoПродолжительность: 01:14:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0044F52696B3A30EE4C9067022962F8894D8BB37
 ```
 
 https://mybot314.ru/tekegram_catalog/

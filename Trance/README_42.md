@@ -1,3 +1,90 @@
+###  Публикация: 1838036   (257744) от 20.11.2025
+
+VA - New Year Trance Rave 2026 (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_257744.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andrew Mactire - Irruption 07:28
+02. Andrew Modens - Dreaming 05:04
+03. Betelgeuze - Dissolution 06:49
+04. Chris Pryde - The Last Fight 05:37(   Читать дальше...   )Жанр: TranceПродолжительность: 01:26:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D541E9B1C94CEC29162DBAC093F039AE337E30EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838003   (257740) от 20.11.2025
+
+VA - The Best Of Suanda Progressive 2025 (2025) [MP3|320 Kbps] <Trance, Progressive>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_257740.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rospy - Value Of A Teardrop (Extended Mix) [6:31]
+02. Adip Kiyoi & ZUZAH - Together (Extended Mix) [5:17]
+03. PoLYED & Max Denoise - The Sundays (Extended Mix) [6:15]
+04. Everi - Memories (Extended Mix) [7:45](   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 01:03:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BED2523EF9468FB88B70F7CF3501EB80723DF10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838000   (257737) от 20.11.2025
+
+VA - Autumn Trance 2025 (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_257737.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Glassman - Never Do More (Original Mix) [6:35]
+02. Master Beat Projekt - Free Your Mind (Original Mix) [4:22]
+03. Mazeev - 21st Century (Original Mix) [5:56]
+04. Dimassive - Immensity (Extended Mix) [6:11](   Читать дальше...   )Жанр: TranceПродолжительность: 02:15:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94580E90911452CB341E54825DBC6EAC478CB6C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1837255   (256853) от 15.11.2025
 
 VA - Progressive Trance Awakening, Vol. 09 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
@@ -655,93 +742,6 @@ VA - Exotic Paradise Vol.1 (2021) [MP3|320 Kbps] <Trance, UpliftingTrance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E6133A0BD6C355EC88212C67E556D106757F37F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630572   (245512) от 02.05.2023
-
-Roger Shah & Ambedo - Tribute To Earth (2023) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245512.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roger Shah & Ambedo - Tribute To Earth (Mixed) [6:34]
-02. Roger Shah & Ambedo - Sun And Moon (Mixed) [5:41]
-03. Roger Shah & Ambedo - Oceans (Mixed) [5:39]
-04. Roger Shah & Ambedo & Yélow feat. Capri - The Greatest Gift (Mixed) [6:19](   Читать дальше...   )Жанр: TranceПродолжительность: 01:14:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B4E32522EFB145A13B10161E00266D86F99F273
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631155   (245244) от 04.05.2023
-
-VA - Best Essentials Hype SFR (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245244.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Noise Generation - Tulum Mantra (Original Mix) [8:43]
-02. ATIK ATH - Atermon (Focus FL Remix) [7:17]
-03. Daniel Testas - Koko (Zy Khan Remix) [7:28]
-04. Nick Mason - Dreams Stay Dreams (Original Mix) [8:24](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:19:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3CBE372C7E199857F433025F7C8C5D8581799DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266348   (245212) от 01.12.2018
-
-VA - Artist Focus 82 (Miikka Leinonen) (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245212.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miikka Leinonen – Firewatch (Original Mix)
-02. Miikka Leinonen – Kingdom Fall (Original Mix)
-03. Miikka Leinonen – Resurgam (Original Mix)
-04. Miikka Leinonen – Shadow Hearts (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:51:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08FEB5DB836DFA4053BBB30C4CDE6E6C12C7790F
 ```
 
 https://mybot314.ru/tekegram_catalog/

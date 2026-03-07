@@ -1,3 +1,61 @@
+###  Публикация: 1032450   (645698) от 07.07.2016
+
+VA - Dance Leto (2016) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645698.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lost Frequencies feat. Sandro Cavazza - Beautiful Life (feat. Sandro Cavazza)
+02. Willy William feat. Cris Cab - Paris (feat. Cris Cab; Radio Edit)
+03. Iyeoka - Breakdown Mode (Dj Antonio Radio Remix)
+04. Freischwimmer feat. Dionne Bromfield - Ain't No Mountain High Enough (feat. Dionne Bromfield; Calvo Edit)(   Читать дальше...   )Жанр: PopПродолжительность: 01:43:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92A7D3A97430C34833A7086B5BE44F77E611EB32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032402   (645568) от 07.07.2016
+
+VA - Самый Хитовый Сборник (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ludacris Feat. Miguel - Good Lovin
+02. Рекиречи - Телепортанец
+03. Lyuba Almann - Делай Мне Хорошо
+04. Вирус - Спасибо Тебе(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C17511ED9F43DCAD7EB44F7F8F7C05C8D0BC3560
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 517965   (645474) от 02.07.2012
 
 VA - Летний Кураж Европы Плюс (2012) [MP3|256 кб/с]<Pop>
@@ -735,64 +793,6 @@ VA - My Boo: R&B Dance (2016) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E9875FACC7075A48314EDE01C5F15635443B5A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033115   (640009) от 10.07.2016
-
-VA - Summer Running (2016) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640009.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stereo Palma Feat. Craig David - Our Love (Club Mix)
-02. Sean Norvis & Lil Lee - Piece of Me
-03. Sky and Sand - Feeling Alive (Radio Love)
-04. Soundmietzen Feat. Egowelle - Meine Welt (Mabose Radio Edit)(   Читать дальше...   )Жанр: PopПродолжительность: 07:39:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:990FB7A5BDE5E93C7B6EADEB293CAEDAD8908EA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033326   (640007) от 10.07.2016
-
-VA - Summer Hits 2016 Vol.3 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640007.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Fait - Lost (Short Mix)
-02. Ti-Mo - One Way Street (Radio Edit)
-03. Ray Knox - Reach Out (Rob Mayth Edit)
-04. Age Pee - Out of the Dark (Rob Mayth Remix)(   Читать дальше...   )Жанр: PopПродолжительность: 02:03:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8A558CFF158E6C8487C1E1C9CC6A7AF305A1271
 ```
 
 https://mybot314.ru/tekegram_catalog/

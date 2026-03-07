@@ -1,3 +1,90 @@
+###  Публикация: 1327137   (378490) от 23.09.2019
+
+ГРОТ - Акустика (2019) [MP3|320 Kbps] <Acoustic, Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_378490.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Я тебя вспомнил
+2. Дорога к себе
+3. Баллада о северном племени
+4. Духовная археология(   Читать дальше...   )Жанр: Acoustic, RapПродолжительность: 00:25:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B28BB225DB3FEA04093CEE3B9D5BC0F7795A11A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253906   (377053) от 12.10.2018
+
+Anacondaz - Я тебя никогда (2018) [MP3|320 Kbps] <Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_377053.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ни капли не больно
+02. Дубак
+03. Твоему новому парню
+04. На..уй тебя и твоих друзей(   Читать дальше...   )Жанр: Hip-HopПродолжительность: 00:40:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D487652445DD35383D9D59B5F43883CA01A047C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069504   (373452) от 04.11.2016
+
+Alicia Keys - Here (2016) Deluxe Edition [FLAC|Lossless|image + .cue] <R&B, Soul>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>RnB, Reggae (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_373452.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Beginning (Interlude)
+02. The Gospel
+03. Pawn It All
+04. Elaine Brown (Interlude)(   Читать дальше...   )Жанр: R&B, SoulПродолжительность: 00:52:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E061E4EF12A23DD6EDF3D6E7D83CEB84D35386BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1575647   (373094) от 11.09.2022
 
 John Legend - LEGEND (2022) 2xCD [FLAC 2.0|44/24|tracks|WEB-DL] <R&B, Soul, Pop>
@@ -658,93 +745,6 @@ VA - Reggae Gold 2017 [MP3|320 Kbps] <Reggae, Ska, Dub>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72C0887D3C53D7E894B69AD16D98C78E9B68FA3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420136   (335610) от 30.10.2020
-
-Busta Rhymes - Extinction Level Event 2: The Wrath of God (2020) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335610.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. E.L.E. 2 Intro (7:12)
-02. The Purge (1:10)
-03. Strap Yourself Down (2:57)
-04. Czar (3:01)(   Читать дальше...   )Производство: The Conglomerate Entertainment, Inc. / EMPIREЖанр: Hip-HopПродолжительность: 01:17:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC678D1F14E2478D2CB46D6C6103AD24D1AD7F1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258980   (333021) от 01.11.2018
-
-Мафик & Маракеш - Любовь вне закона (2018) [MP3|320 Kbps] <Rap, Hip-hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333021.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Любовь вне закона (3:40)
-02. Чужая (3:47)
-03. Рано или поздно (5:15)
-04. По часовой (4:13)(   Читать дальше...   )Жанр: Rap, Hip-hopПродолжительность: 00:45:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF2AFE1EDB74EE6A7CF195EFCC1BDC4042BDDE8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580218   (331831) от 30.09.2022
-
-Noize MC - Voyager-2 (2022) Live at Stadium [MP3|320 Kbps] <Rap, Hip-Hop, Rock>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331831.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Миокард (Live at Stadium)
-2. Грабли (Live at Stadium)
-3. Yes Future! (Live at Stadium)
-4. Устрой дестрой (Live at Stadium)(   Читать дальше...   )Жанр: Rap, Hip-Hop, RockПродолжительность: 02:13:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD3D9A9B4823AE41952405C6C96ACA623F8A5C6F
 ```
 
 https://mybot314.ru/tekegram_catalog/

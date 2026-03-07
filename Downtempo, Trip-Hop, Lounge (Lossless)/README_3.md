@@ -1,3 +1,32 @@
+###  Публикация: 1451131   (1028354) от 02.03.2021
+
+VA - My Cat Loves to Chill: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028354.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Schwarz & Funk - Phil Me (Original Mix)
+02. Lounge Groove Avenue - Hold You Tight
+03. Soul Trend - Before It Gets Too Late
+04. Peter Mac - Waste No Time(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:21:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C9B0DBEB077703C40F83486B27FB0EBED5FB655
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1451838   (1028066) от 04.03.2021
 
 VA - The Perfect Sunset Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -716,35 +745,6 @@ Vladi Strecker - Sax the Night Away - Saxophone Lounge Music & Chillout Grooves 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7B65DA81AA6819BCB3E7E4588A118E6B7023AF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470595   (1015634) от 17.05.2021
-
-VA - Mellow Dreams: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015634.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marga Sol, Digby Jones - What I Need - Instrumental Mix (4:38)
-02. Living Room - The Hippojazz (2:45)
-03. Lounge Groove Avenue - Count the Days (4:21)
-04. Patiotic - Welcome to the Infinite Sense (2:21)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:03:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EA5EA6D35C56BD8628B324EF82534BAAE305259
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,30 @@
+###  Публикация: 957574   (326392) от 18.11.2015
+
+Проекты - VideoHive - Another World - 11207585 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326392.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания эффектного слайд-шоу.
+Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F64A465576599841C2034EB9A8BC3727F811BC24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 958221   (324764) от 20.11.2015
 
 Проекты - Проект ProShow Producer - Wall Calendar Style [PSH]
@@ -656,32 +683,6 @@ VideoHive - Sweet Memories - 5654512 [AEP]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5E77F3FA28E1BD6484FB0A321F6C9358C97AEF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 844340   (317787) от 25.11.2014
-
-VideoHive - Experimental 3D Photo Slideshow - 8026338 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317787.jpg" />
-</div>
-
-
-###  Подробнее
-
-Замечательный проект слайд-шоу с редким, на первый взгляд непонятным, но в то же время очень красивым 3D эффектомФормат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B42C08CC5C2FBB8D3AA6D69714BEF2E38B606CEC
 ```
 
 https://mybot314.ru/tekegram_catalog/

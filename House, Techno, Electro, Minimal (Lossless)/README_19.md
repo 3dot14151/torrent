@@ -1,3 +1,114 @@
+###  Публикация: 1274128   (795064) от 05.01.2019
+
+Drexciya - Neptune's Lair (1999) Tresor [FLAC|Lossless|tracks+.cue] <Electro, Detroit Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795064.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro: Temple Of Dos De Agua (1:00)
+02. Species Of The Pod (3:53)
+03. Andreaen Sand Dunes (6:15)
+04. Running Out Of Space (1:54)(   Читать дальше...   )Жанр: Electro, Detroit TechnoПродолжительность: 01:11:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F047C61C339118569404440F9007C6BC5A0B9FCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274157   (795045) от 05.01.2019
+
+Derrick May - Innovator (1997/2008) R & S Records [FLAC|Lossless|tracks+.cue] <Detroit Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795045.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. To Be Or Not To Be (06:54)
+ 02. Icon (Montage Mix) (05:50)
+ 03. Phantom (01:43)
+ 04. Kaotic Harmony (06:35)(   Читать дальше...   )Тип издания: CD, Remastered, ReissueЖанр: Detroit Techno •Продолжительность: 01:08:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67FAA32B2C9BB65ADE0F3800B1960A57AF21541A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200766   (795019) от 22.01.2018
+
+IsoQuant - Discography 4 Releases (2015-2017) [FLAC|Lossless|WEB-DL|tracks] <Techno, Minimal, Dark Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795019.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Random Walker (10:50)
+ 02. Pulses (09:22)Тип издания: WEBЖанр: Techno/MinimalПродолжительность: 00:20:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1595A8CA37D9E28916613C880AED9B8389D5E92E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1156137   (794930) от 05.01.2019
+
+Radius - Discography 7 Releases (2017-2018) echospace [detroit] [FLAC|Lossless|tracks+.cue, tracks] <Dub Techno, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794930.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Interpolation Tapes 0.1Тип издания: CD, Web, VinylЖанр: Ambient/Dub TechnoПродолжительность: 01:10:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D100A0BAE17E0FF76A580ACB2EAD81B736E73308
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1386423   (794554) от 29.05.2020
 
 Microworld - Microworld (2004) [FLAC|Lossless|tracks + .cue] <Techno, Deep House>
@@ -629,122 +740,6 @@ Moby - All Visible Objects (2020) Little Idiot [FLAC|Lossless|WEB--24Bit|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11E1EEEF1BCBA8464B0BB917D6CB6EB8A4A651EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275275   (791156) от 10.01.2019
-
-Danniel Selfmade - Parallel Life (2019) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791156.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (Original Mix) (3:30)
- 02. Permanent Hadway (Original Mix) (6:38)
- 03. Carnivalmind (Original Mix) (6:18)
- 04. Timescope (Original Mix) (6:50)(   Читать дальше...   )Жанр: Progressive House, Tech HouseПродолжительность: 02:53:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:652D9C6F7C9D64AA3AC9A9CE1E38F3F7FA25E667
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201965   (791061) от 27.01.2018
-
-Violetshaped - Violetshaped (2013) Violet Poison [FLAC|Lossless|tracks|Vinyl] <Techno, Industrial>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791061.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. State Of Temporary Neuronal Effervescence (02:00)
-02. The Lord Won't Forget (08:09)
-03. Out Of Any Symmetry (04:40)
-04. cX310 (05:02)(   Читать дальше...   )Жанр: Techno, IndustrialПродолжительность: 00:38:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CD2F5F4D964FD52E3B93EA9A831E3EF4DD9539A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201966   (791060) от 27.01.2018
-
-The Octagon Man - The Exciting World Of.... (1995) Electron Industries [FLAC|Lossless|tracks] <Electro, Experimental>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791060.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tunx (05:45)
- 02. The Second Shape (08:10)
- 03. Klunk (07:26)
- 04. Xon (02:38)(   Читать дальше...   )Жанр: Electro, ExperimentalПродолжительность: 01:00:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96CC34652F634E85E45ADB703AB9AD5FF059315E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201933   (791057) от 27.01.2018
-
-Daniel Avery - Slow Fade EP (2018) Phantasy Sound [FLAC|Lossless|WEB-DL|tracks] <Techno, Drone, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791057.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slow Fade (05:31)
- 02. After Dark (04:34)
- 03. Radius (08:03)
- 04. Fever Dream (05:26)Жанр: Techno, Drone, AmbientПродолжительность: 00:23:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1FAA894F789E69712DFDC0EAEC82FF9BDF46172
 ```
 
 https://mybot314.ru/tekegram_catalog/

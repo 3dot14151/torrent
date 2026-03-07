@@ -1,3 +1,32 @@
+###  Публикация: 1321750   (456570) от 25.08.2019
+
+Tool - Fear Inoculum (2019) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_456570.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fear Inoculum
+02. Pneuma
+03. Invincible
+04. Descending(   Читать дальше...   )Жанр: RockПродолжительность: 01:19:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB0EF09F5A269F614FF9EBA5A34E8D6BE0918B45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1408396   (456133) от 12.09.2020
 
 Stoned Harpies - Another Land (2020) EP [MP3|320 Kbps] <Rock, Stoner Rock, Psychedelic Rock>
@@ -747,35 +776,6 @@ Tramtracks - Then? (2020) [MP3|320 Kbps] <Progressive Rock, Crossover Prog>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA4957878C5146C826551388300A4DAD2AB1995D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409405   (447488) от 16.09.2020
-
-Mythos - 3 Albums (1978-1980) Reissue CD [MP3|320 Kbps] <Electronic, Krautrock, Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447488.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа Mythos образована в 1969 году в Берлине, Германия. В раздаче представлены альбомы одной направленности, соответствующей указанному жанру.Список альбомов:
-1978 - Strange Guys (R-CD 1997)
-1979 - Concrete City (R-CD 1999)
-1980 - Quasar (R-CD 2012)(   Читать дальше...   )Жанр: Electronic, Krautrock, Prog RockПродолжительность: 02:00:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D61EFEB394E6EABDCE5AC746BF3C7506B52C952E
 ```
 
 https://mybot314.ru/tekegram_catalog/

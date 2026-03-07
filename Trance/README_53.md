@@ -1,3 +1,87 @@
+###  Публикация: 795600   (137731) от 31.12.2014
+
+Armin van Buuren - 20 Albums , 117 Compilations (1999 - 2014) [MP3|320 кб/с]<Trance , Uplifting Trance , Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_137731.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Trance , Uplifting Trance , Progressive TranceПродолжительность: 08:22:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90F2001A824023C022A3E138FB3058A8AA46B0D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1824968   (136793) от 16.10.2025
+
+VA - Dark Amsterdam 2025 (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_136793.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roman Messer & Main Engine - New Reality (Suanda 500 Anthem) (Extended Mix) [6:42]
+02. Tom Exo - Dare To Dream Big (Extended Mix) [6:55]
+03. AMINTO - Spectrum Of Sound (Extended Mix) [5:24]
+04. Mike Zaloxx - Future (Extended Mix) [7:04](   Читать дальше...   )Жанр: TranceПродолжительность: 01:56:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:491BC1B8F071B55740AAD85B3E791843544F88D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679429   (134961) от 27.11.2023
+
+VA - Uplifting Only Top 15: November 2023 (Extended Mixes) (2023) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kohta Imafuku - Best Wishes (Tsuki Shizumutoki Intro Remix) [4:43]
+02. Tycoos & Daisy Lou - Darkness Into Light (Extended Mix) [5:15]
+03. New World - One (Emotional Mix) [9:17]
+04. Rowan Van Beckhoven - Conjunction (Extended Mix) [7:15](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:46:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3178A5B9FAEB83FDBBAB9BDA096924597691F2D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1679409   (134933) от 27.11.2023
 
 VA - Keep It Trance Vol. 17 (2023) [MP3|320 Kbps] <Trance>
@@ -658,93 +742,6 @@ VA - Black Hole Trance Music 12-23 (2023) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2AA6D4FF1FAFBEAD191E3AC0AB726447831132E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684500   (127565) от 16.12.2023
-
-VA - Interplay 2023 (Selected By Alexander Popov) - Extended Versions (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127565.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DaWTone - I Still Want More (Extended Mix) [4:14]
-02. ANASTASiiA - Swan (Extended Mix) [6:36]
-03. Alexander Popov & Fedo - Lost In Space (Extended Mix) [4:25]
-04. Alexander Popov & Chester Young & Whiteout - Overtaking (VIP Extended Mix) [3:56](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 03:13:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0761F6D6FD6C0B33E95AEFAB3EF2E9133D0A6DCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685009   (127219) от 18.12.2023
-
-VA - The Best Of Full On 140 Records 2023 [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127219.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SMR LVE - Never Say Goodbye (Extended Mix) [5:43]
-02. James Dust - Be The Same (Extended Mix) [6:33]
-03. Spy & Dave Steward - Reflection (Extended Mix) [6:33]
-04. PITTARIUS CODE & Remeya Kingston - Forever (Extended Mix) [5:27](   Читать дальше...   )Жанр: TranceПродолжительность: 01:34:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BECDA3BD1C4D1B5B9F36DA1E306C0AAE8951E481
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684973   (127208) от 18.12.2023
-
-VA - The Best Of Trancemission 2023 [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127208.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hypersia - Revolution (Extended Mix) [4:56]
-02. Sergey Salekhov & Andrew Mirt - Everest (Extended Mix) [7:05]
-03. ILYIN - All About You (Extended Mix) [6:23]
-04. Anton Pallmer - Intentions (Extended Mix) [7:01](   Читать дальше...   )Жанр: TranceПродолжительность: 01:54:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BA2BED612CB7640009E668903FE43DF1F2739E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

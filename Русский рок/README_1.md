@@ -1,3 +1,206 @@
+###  Публикация: 1602294   (1046129) от 05.01.2023
+
+ДекаЛог - 2 Albums (2019-2022) [MP3|320 Kbps] <Industrial>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Нам нужна любовь [00:04:46]
+02. Ты далеко [00:03:58]
+03. Кто ты [00:03:16]
+04. Ад для нас [00:04:32](   Читать дальше...   )Жанр: IndustrialПродолжительность: 2 CD, 01:35:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B92909552D611A3646B9B069005673C7230E56A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602266   (1046128) от 05.01.2023
+
+Istomin - Пустошь (2023) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046128.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Предисловие [00:01:25]
+02 - Аспид [00:05:12]
+03 - Первый полет [00:04:40]
+04 - Обречены [00:04:33](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:59:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAC2A4E3227D6FBAB8BC20E9E29622BA4B548504
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602279   (1046126) от 05.01.2023
+
+Треснул Шлем - Мой компас загружен (2022) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046126.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Прет барсук [00:04:10]
+02 - Препарат [00:03:22]
+03 - Гавайи [00:04:08]
+04 - Волшебник [00:03:39](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE0AD4924FD089DC2A1DAA18AED1D960443B0DB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602281   (1046125) от 05.01.2023
+
+Оле Лукойе - Танцы железных дорог (2022) [MP3|320 Kbps] <Alternative, New wave, Post-punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046125.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Танцы железных дорог [00:07:57]
+02 - Наблюдатель [00:04:26]
+03 - Это приказ! [00:04:33]
+04 - Поля Великой Любви [00:03:54](   Читать дальше...   )Жанр: Alternative, New wave, Post-punkПродолжительность: 00:36:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9BDC611290D1FDF9C3FD6E65563A3AFD72CE9CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602258   (1046124) от 05.01.2023
+
+Sicarios - Крысиный король (2023) [MP3|320 Kbps] <Progressive Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046124.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Интро [00:01:44]
+02 - Триггер [00:03:51]
+03 - Плоть [00:04:06]
+04 - Бэд Трип [00:03:48](   Читать дальше...   )Жанр: Progressive MetalcoreПродолжительность: 00:37:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4C63A0DF51C5560CF6290883A8212C94E7965D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602492   (1046123) от 05.01.2023
+
+Радиант - Легенды далёких миров (2022) [MP3|320 Kbps] <Power Metal, Symphonic Metal, Metal Opera>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Пролог [00:04:11]
+02 - Радиант [00:04:38]
+03 - Первый шаг [00:04:41]
+04 - Долг и честь [00:05:18](   Читать дальше...   )Жанр: Power Metal, Symphonic Metal, Metal OperaПродолжительность: 01:14:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:539C41BBEB28DA81BD94C2778DCCAEAE46E6B78A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602499   (1046120) от 05.01.2023
+
+Гардарика - Летопись (2022) [MP3|320 Kbps] <Hard'N'Heavy>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Наша доля [00:04:35]
+02 - Медовый день [00:05:38]
+03 - Город [00:05:35]
+04 - Ария Дождя [00:04:54](   Читать дальше...   )Жанр: Hard'N'HeavyПродолжительность: 00:39:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DFAD4C39E2226ABEF8856CA8B03A2E029F9B4FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1602494   (1046118) от 05.01.2023
 
 Поднебесье - Вслед за мечтой (2022) [MP3|320 Kbps] <Heavy Metal>
@@ -540,210 +743,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6A5046704C95705F79FB8B0430D8FFEB2F802C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606814   (1044296) от 23.01.2023
-
-The Hatters - По ходу люблю (2023) [MP3|320 Kbps] <Rock, Ska>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044296.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Просто проваливай
-2. У-ля-ля
-3. Знаю
-4. Hey You(   Читать дальше...   )Жанр: Rock, SkaПродолжительность: 00:31:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05E56D730437CC725496E59A9E677AA7550F9C3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607160   (1044079) от 26.01.2023
-
-Moltano - Поэма столкновений (2023) [MP3|320 Kbps] <Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044079.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Intro [00:01:33]
-02 - Время [00:02:58]
-03 - Калаби-Яу [00:05:20]
-04 - Поезд в никуда [00:04:45](   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:36:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C79C3257E369304BD6269C1E3CD600346B9CB80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607183   (1044072) от 26.01.2023
-
-Impress - 3 Albums (2019-2023) [MP3|320 Kbps] <Art Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044072.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-Impress - 2019 - Крепость (The Fortress)
-Impress - 2020 - По куску земли каждому (A piece of land to everyone)
-Impress - 2023 - Враг Не Дремлет (The Enemy Is Not Asleep)Жанр: Art Rock, Hard RockПродолжительность: 3 CD, 01:29:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C2E4D5A84E0DA8BE24C99488D23DADA177C8975
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607193   (1044070) от 26.01.2023
-
-Aikko - 3 Albums (2020-2022) [MP3|320 Kbps] <Alternative, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044070.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-Aikko - 2020 - мои друзья не должны умирать
-Aikko - 2021 - Тёмные делишки
-Aikko - 2022 - Сборник акустических песенЖанр: Alternative, RockПродолжительность: 3 CD, 01:46:36
-vk
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65E146EB8D570B5739635998A1B88E2CDCD95157
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607168   (1044069) от 26.01.2023
-
-Остров Пасхи - Лифты и лестницы (2023) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044069.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Северо-юг [00:05:06]
-02 - Рукавицы [00:04:04]
-03 - Кот Шредингера [00:06:02]
-04 - Лифты и лестницы [00:03:59](   Читать дальше...   )Жанр: RockПродолжительность: 00:42:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:744822AB1A590501CA897795B8AFF836DB97910E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607436   (1043974) от 27.01.2023
-
-Necrus - 5 Relises (2014-2022) [MP3|320 Kbps] <Modern Death, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043974.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-Necrus - 2014 - Necrus
-Necrus - 2018 - Проказник (Single)
-Necrus - 2019 - Накопил(   Читать дальше...   )Жанр: Modern Death, Thrash MetalПродолжительность: 5 CD, 01:51:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1EDAF50EBD9BF8B59804AF2D6BBC6DC5D6C3044
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607416   (1043968) от 27.01.2023
-
-Глазная Яблоня - Reborn, Pt. 1-2 (2022-2023) [MP3|320 Kbps] <Alternative, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043968.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Будет ли кто-то петь, после того как мы уйдем? (Артём Маларев) [00:03:15]
-02. Леденец [00:03:33]
-03. Воздушный змей [00:02:39]
-04. Без радости в глазах [00:03:21](   Читать дальше...   )Жанр: Alternative, RockПродолжительность: 2 CD, 00:50:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A53DF305C009E352C4D9AA102416960040060A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

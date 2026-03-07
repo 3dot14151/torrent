@@ -1,3 +1,119 @@
+###  Публикация: 1438866   (1040379) от 11.01.2021
+
+Rauw Alejandro - Afrodisíaco / Afrodisiaco (2020) [FLAC|Lossless|tracks + .cue] <Latin, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040379.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dile a El (03:30)
+02. Strawberry Kiwi (03:32)
+03. Mood (02:56)
+04. Química (04:55)(   Читать дальше...   )Жанр: Latin, PopПродолжительность: 01:01:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA19B55167D99D05F5D8784069AE3ABF2988031A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439732   (1039530) от 14.01.2021
+
+Barry Gibb and Friends - Greenfields: The Gibb Brothers' Songbook (Vol. 1) (2021) [FLAC|Lossless|image + .cue] <Pop, Folk, Country>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039530.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Barry Gibb feat. Keith Urban - I’ve Gotta Get a Message to You (3:14)
+02. Barry Gibb feat. Jason Isbell - Words of a Fool (3:47)
+03. Barry Gibb feat. Brandi Carlile - Run to Me (3:22)
+04. Barry Gibb feat. Alison Krauss - Too Much Heaven (3:39)(   Читать дальше...   )Жанр: Pop, Folk, CountryПродолжительность: 00:44:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:291AA5AB817A6A9756AD310ED9C4ACE6E6360421
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1613316   (1039352) от 19.02.2023
+
+Roxette - Tourism (1992) 30th Anniversary Edition, 2023, Parlophone UK[FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039352.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fingertips '93 [00:03:40]
+02. 2, Cinnamon Street [00:05:06]
+03. How Do You Do! (T&A Demo Apr 4, 1992) [00:03:16]
+04. Never Is A Long Time (Torsgatan Piano Demo Sep 24, 1987) [00:04:12](   Читать дальше...   )Жанр: Pop, RockПродолжительность: 2 CD, 02:19:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49AD57BEB22EB6DFA2F0EB6606A5902150A52742
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439917   (1039336) от 15.01.2021
+
+Showaddywaddy - Under The Moon Of Love (1993) [FLAC|Lossless|image + .cue] <Rock & Roll, Rockabilly, Bubblegum>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039336.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Three Steps To Heaven  (2:59)
+02. Under The Moon Of Love  (3:14)
+03. You Got What It Takes  (3:04)
+04. Hey Rock And Roll  (3:26)(   Читать дальше...   )Жанр: Rock & Roll, Rockabilly, BubblegumПродолжительность: 00:42:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F27BCA98E3225DF316F5F357F5218F58C1A279BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1439911   (1039332) от 15.01.2021
 
 Showaddywaddy - Greatest-Hits-Medley (1991?) [FLAC|Lossless|image + .cue] <Rock & Roll, Rockabilly, Bubblegum>
@@ -628,122 +744,6 @@ Various - Here It Is: A Tribute To Leonard Cohen (2022) [FLAC|Lossless|image + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8AE33E170C44A58EBCD0961721604CA4946B0B9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617573   (1035008) от 07.03.2023
-
-Grace Jones - Hurricane (2008) [FLAC|Lossless|tracks + .cue] <Pop, Reggae>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035008.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Is
-02. Williams’ Blood
-03. Corporate Cannibal
-04. I’m Crying (Mother’s Tears)(   Читать дальше...   )Жанр: Pop, ReggaeПродолжительность: 00:48:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EE2C1183C7586915E04949EF0B084F0455D9048
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444048   (1034931) от 31.01.2021
-
-Michelle - Tabu (2018) [FLAC|Lossless|image + .cue] <Pop, Schlager>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034931.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tabu [3:35]
- 02. Meine Welt [3:55]
- 03. Lieben, Lieben, Lieben [3:38]
- 04. Wenn ich was gelernt hab [3:29](   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 01:00:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:020DFC73257DBD4867EFC60332BA43C63719594F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443703   (1034886) от 31.01.2021
-
-Mylene Farmer - En Concert (2xCD) (1989) Reissue, Remastered, 2019, Polydor [FLAC|Lossless|tracks + .cue] <Chanson, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034886.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-1.Prologue (5:49)
-2.L'Horloge (4:46)
-3.Plus grandir (4:46)(   Читать дальше...   )Жанр: Chanson, Synth-popПродолжительность: 01:53:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F43EAA9334DFBEC3399F96051322DA5658EE6FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444411   (1034684) от 01.02.2021
-
-Dave Dee, Dozy, Beaky, Mick & Tich - Zabadak (1995) [FLAC|Lossless|image + .cue] <Beat, Pop Rock, Oldies>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034684.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Legend of Xanadu (3:38)
-02. Bend It (2:33)
-03. Save Me (3:01)
-04. Mr. President (3:16)(   Читать дальше...   )Жанр: Beat, Pop Rock, OldiesПродолжительность: 00:52:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:335AFDF5A539D186FC217A65596995DAE0995198
 ```
 
 https://mybot314.ru/tekegram_catalog/

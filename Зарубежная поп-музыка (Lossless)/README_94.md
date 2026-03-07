@@ -1,3 +1,119 @@
+###  Публикация: 1751865   (42261) от 27.09.2024
+
+Modern Talking - Modern Talking 40 (2024) Compilation [FLAC|Lossless|WEB-DL|tracks] <Pop, Euro Dance, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_42261.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Cheri Cheri Lady [3:46]
+02 - Brother Louie [3:39]
+03 - You're My Heart, You're My Soul [5:31]
+04 - Brother Louie Mix '98 (Radio Edit) [3:25](   Читать дальше...   )Жанр: Pop, Synth-Pop, Euro Dance, DiscoПродолжительность: 02:32:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:383511BB1CCF0F4E223964B8E15636978340E016
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751860   (42214) от 27.09.2024
+
+Sting - Brand New Day (1999) Expanded Edition, 2024, A&M [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_42214.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Thousand Years [00:05:57]
+02. Desert Rose [00:04:45]
+03. Big Lie Small World (Album Version) [00:05:05]
+04. After The Rain Has Fallen (Album Version) [00:05:03](   Читать дальше...   )Жанр: Pop RockПродолжительность: 02:56:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:179E59B31A418FACBF0AB027C623A93B74186080
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1752071   (42089) от 28.09.2024
+
+Mylene Farmer - Nevermore (2024) Live [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_42089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prologue
+02. Du temps
+03. Peut-être toi
+04. Libertine(   Читать дальше...   )Жанр: PopПродолжительность: 01:41:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2768C3395C25DC545B4361E884B85017F7884D71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1752200   (41994) от 29.09.2024
+
+VA - Let's Party (1988) [FLAC|Lossless|WEB-DL|tracks + .cue] <Pop, Disco, Funk, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_41994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sly & The Family Stone - Dance To The Music (3:01)
+02. Kool & The Gang - Celebration (4:56)
+03. Earth, Wind & Fire - Let's Groove (4:05)
+04. Hot Chocolate - You Sexy Thing (3:58)(   Читать дальше...   )Жанр: Pop, Disco, Funk, SoulПродолжительность: 01:12:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:810AC842A43D4B7ADEAF7B7D533E1896B4E57CBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1752943   (41567) от 03.10.2024
 
 VA - RetroFutur (2022) [FLAC|Lossless|WEB-DL|tracks] <Indie Dance, Nu-Disco, Rave>
@@ -631,122 +747,6 @@ Gwen Stefani - Bouquet (2024) [FLAC|Lossless|WEB-DL|tracks] <RnB/Swing, Electron
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EFB4FEE2F4CDFF279FF7B80AB701AF72BB3633F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761221   (36859) от 18.11.2024
-
-VA - WORKOUT HITS (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36859.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Troye Sivan - Rush (2:36)
-02. Sam Smith - Unholy (2:36)
-03. James Hype - Ferrari (3:06)
-04. Jazzy - Giving Me (2:49)(   Читать дальше...   )Жанр: PopПродолжительность: 02:55:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63D63F801A4D209D4A470043559F6604379EE1CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761581   (36596) от 21.11.2024
-
-Cheryl - Only Human (2014) [FLAC|Lossless|tracks + .cue] <Pop, Dance-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36596.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (1:50)
-02. Live Life Now (2:53)
-03. It's About Time (3:49)
-04. Crazy Stupid Love (3:46)(   Читать дальше...   )Жанр: Pop, Dance-popПродолжительность: 00:51:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCCD2602F79CCE056C311D98218D4E861C29FDFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761779   (36448) от 22.11.2024
-
-Bette Midler - Sings The Rosemary Clooney Songbook (2003) [FLAC|Lossless|tracks + .cue] <Pop, Vocal, Jazz>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36448.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bette Midler - You’ll Never Know (1:44)
-02. Bette Midler - This Ole House (3:03)
-03. Bette Midler with Barry Manilow - On a Slow Boat to China (2:32)
-04. Bette Midler - Hey There (3:31)(   Читать дальше...   )Жанр: Pop, Vocal, JazzПродолжительность: 00:30:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1A0BD3765EF8687B361C707E41E76CB6A3B92DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762340   (36155) от 25.11.2024
-
-Steve Lawrence & Eydie Gorme - The Best of Steve & Eydie (1990) CD, Compilation [FLAC|Lossless|tracks + .cue] <Pop, Vocal, Jazz>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Could Be The Start of Something Big (2:29)
-02. Besame Mucho (2:58)
-03. Cheek to Cheek (3:00)
-04. Side By Side By Side (2:35)(   Читать дальше...   )Жанр: Pop, Vocal, JazzПродолжительность: 00:27:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:406A75F777970812DB5C338994C03CC41479D5B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

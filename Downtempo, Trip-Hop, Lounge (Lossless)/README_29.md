@@ -1,3 +1,32 @@
+###  Публикация: 1710350   (112742) от 26.03.2024
+
+VA - Chillout & Lounge Music for Dreaming (2024) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Lounge, Chill Out>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112742.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silbermaus - Flawless Elegance (4:32)
+02. Premasara Council - Reflective Dream (4:24)
+03. Quadra Montres - Widening Horizons (4:22)
+04. Proxy Brides - Binomial Expressions (4:27)(   Читать дальше...   )Жанр: Electronic, Lounge, Chill OutПродолжительность: 02:12:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE5C37A4CC0ACADCFC71398E503BBA1AC64B9E84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1711564   (112479) от 30.03.2024
 
 VA - Restaurant Lounge Ambient Background Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
@@ -716,35 +745,6 @@ VA - Travel In The Universe, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4AEC3BFEA326B394CF74237E9305345ACDDFEB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724569   (109209) от 20.05.2024
-
-VA - Good Morning Best Chillout Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109209.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roy Bell - Noche Hermosa (3:46)
-02. Hints of soul - Cloudscape (4:30)
-03. Rhythmphoria - Indistinguishable (4:31)
-04. Silex Soils - Without Disguise (4:29)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:51:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A5669BC3B8A8A1E8B36812949BA0586891C6867
 ```
 
 https://mybot314.ru/tekegram_catalog/

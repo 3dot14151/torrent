@@ -1,3 +1,67 @@
+###  Публикация: 513744   (658152) от 24.06.2012
+
+VA - Пляжная Дискотека Хит FM 50+50 (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_658152.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Disco Temperer - Get Up
+02 Меседа Багаудинова - Дым
+03 Silent Circle - Tell Me Why
+04 Натаника - Жить Красиво
+05 Pitbull Feat. Ne - Yo & Afrojack & Nayer - Give Me Everything
+06 Жасмин - Тук-Тук
+07 Flashtronica - Like A Bomb (Radio Edit)
+08 Виктория Дайнеко - Always
+09 St Connection Feat. Sam Wood & Eddie Thoneick - Deeper Free Love (Martin Freak Mash Up)
+10 Maxima - Алло (Fidel Wicked Mix)2012Жанр: PopПродолжительность: 06:16:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68C66B8F93D347F8A08B2DABEEDC3D10AA07D6AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1225901   (657755) от 18.05.2018
+
+VA - 150 Sport Dance Music (2018) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657755.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alan Walker - Faded
+002. Calvin Harris feat. Pharrell Williams, Katy Perry & Big Sean - Feels
+003. Shawn Mendes - Stitches
+004. The Chainsmokers feat. Daya - Don't Let Me Down(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 09:13:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96E317303FF51EBC793E9BDAD71B153CE67A2AE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1225852   (657751) от 18.05.2018
 
 VA - NRJ Latino Hits Only! 2018 Vol.2 (2018) [MP3|320 Kbps] <Pop, Latin Dance>
@@ -739,70 +803,6 @@ VA - Хит парад Союз лето (2012) [MP3|256 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5DC11E924E81E44D58488E6E865B79D184D8FBDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904423   (654123) от 03.06.2015
-
-VA - Лето в кайф. Сборник 50/50 (2015) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654123.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Shaman - Лето Будет
-002. Mariah Carey - Infinity
-003. Ирина Дубцова - Люби Меня Долго
-004. Nicco & Chris Deelay - Remember(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:869588E8F3956154AA96F1EFCFE0420EFBA1B16A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 516283   (653109) от 28.06.2012
-
-VA - Радио Чарт Energy - Жгучий Танцевальный Сборник 50/50 (2012) [MP3|256 kbps]<Pop|Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653109.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Bad Boys Blue - I'll Be Good
-002 Группа Red Energy - Capital Nigt
-003 Mayari Project - Hayati
-004 Ольга Lucky - Последний Поцелуй (Руки Вверх)
-005 Itaka - La Danza De Ibiza (Zumpa Remix Radio Edit)
-006 Дискотека Авария и Нюша - Moscow Never Sleeps
-007 Demi Lovato - All Night Long (Feat. Missy Elliott & Timbaland)
-008 Тимур Темиров - Лето Жаркое
-009 Radio Killer - Is It Love Out There (Radio Edit)
-010 Vilana - Море(   Читать дальше...   )Жанр: Pop|DanceПродолжительность: 05:39:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5446CC9046D3254DD93AD633D2281AF0271A7B9F
 ```
 
 https://mybot314.ru/tekegram_catalog/

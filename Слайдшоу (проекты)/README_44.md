@@ -1,3 +1,29 @@
+###  Публикация: 1135357   (682385) от 18.05.2017
+
+Проекты - VideoHive - Hybrid Typo Opener - 19879373 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682385.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hybrid Typo Opener - современный шаблон After Effects. Создайте свой впечатляющий, динамичный ролик к подходящему событию!Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D7DD02671D4FD47174D1B3A731EAE6ED5A64FC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1135044   (682270) от 18.05.2017
 
 Проекты - VideoHive - Elegant Slideshow - 19682576 [AEP]
@@ -649,32 +675,6 @@ Cinematic Slideshow - кинематографическое слайд-шоу �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A086890F8C6491B04A538B8D11D0F0E7C82DB62F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030379   (673804) от 30.06.2016
-
-Проекты - VideoHive - Elegant Slideshow - 16579036 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673804.jpg" />
-</div>
-
-
-###  Подробнее
-
-Elegant Slideshow - спокойный, чистый, элегантный вариант слайд-шоу.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A9B88DF8F2D3B0D3E3667C9D53D8FA3F330067B
 ```
 
 https://mybot314.ru/tekegram_catalog/

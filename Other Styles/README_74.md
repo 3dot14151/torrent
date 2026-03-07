@@ -1,3 +1,32 @@
+###  Публикация: 1140583   (654768) от 07.06.2017
+
+Indiajiva - Inner Sanctum (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_654768.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Indiajiva - Awakening (7:16)
+2. Indiajiva - Dreaming (14:30)
+3. Indiajiva - Immersion (12:53)
+4. Indiajiva - Inner Sanctum (31:16)Жанр: New AgeПродолжительность: 01:06:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7420D4F18F78AEC0896D979255B8B0A5FADC0C9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1226534   (654712) от 21.05.2018
 
 Atom Music Audio - Collision (2018) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
@@ -725,35 +754,6 @@ Claire Hastings - Those Who Roam (2019) [FLAC|Lossless|tracks + .cue] <Folk, Cel
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C193470160CB672D17538CD63F671716DA69271
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292020   (648635) от 28.03.2019
-
-Current 93 - Invocations Of Almost (2019) [FLAC|Lossless|tracks + .cue] <Folk, Country, Ambient>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648635.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Untitled (10:22)
-2. Untitled (05:56)
-3. Untitled (03:40)
-4. Untitled (07:06)(   Читать дальше...   )Жанр: Folk, Country, AmbientПродолжительность: 01:00:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF54BCC2D5296B199E6C6ACBA7EB29B8C2C0A499
 ```
 
 https://mybot314.ru/tekegram_catalog/

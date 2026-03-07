@@ -1,3 +1,206 @@
+###  Публикация: 1007642   (819654) от 16.04.2016
+
+VA - Весенняя 100-ка любимой музыки 9 (2016) [MP3|256-320 кб/с] <Pop, Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819654.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Аркадиас - Сон Случайный
+002. Far East Movement & Hook N Sling - Break Yourself
+003. Biffguyz - Ты Вкусно Пахнешь
+004. T-Pain - Make That Shit Work(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 06:06:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:075E99F4A452BCCC77B5DFE2DA88F707007F69FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117213   (819110) от 22.03.2017
+
+VA - Painting With Dreams: Trance Euphoria (2017) [MP3|320 Kbps] <Trance, Progressive Trance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819110.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Airlab7 - Le Fruit de la Grisaia (Miroslav Vrlik Remix)
+002. Andrew Modens & DJ Bratan - Be Good (Vocal Trance Mix)
+003. The Cracken - Saturn (Original Mix)
+004. X-Den Project - Open Fire (Original Mix)(   Читать дальше...   )Жанр: Trance, Progressive Trance, ClubПродолжительность: 10:49:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF0070FE7D73FFD4DFA0251C7F352D2F8F2ACB04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503346   (819074) от 19.10.2021
+
+VA - Tik Tok Треки выстрелили осенью 2021 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819074.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. SKAYA - В далёком 2030 (2:29)
+002. Настя Каменских - Ничего не говори, я танцую ты смотри (3:38)
+003. Макс Барских - Just Fly (3:07)
+004. Chebanov - Ночь (2:47)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:09:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA1A5EFE9382227794F2F1EC55DE4298B3D8EA5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196943   (819056) от 05.01.2018
+
+VA - Eurodance & Pop (2017) [MP3|320 Kbps] <Disco, Dance, 2 Step и другие>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819056.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Foxmelody - Be Junior (Original Mix) 2:46
+02. Aviator Feat. Camii - Me And U (Original Mix) 4:30
+03. Eduardo Espada - We Will Together (Original Mix) 4:15
+04. The Gravity - High With The Wind (Original Mix) 4:38(   Читать дальше...   )Жанр: Disco, Dance, 2 Step и другиеПродолжительность: 09:27:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B56F103EF254DDBD2D40B3B7A87A4E6FB7A6745E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117219   (818559) от 22.03.2017
+
+VA - Привет из СССР (2017) [MP3|192-320 Kbps] <Поп, Шансон, Рок>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_818559.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Муслим Магомаев - Лучший город Земли 2:30
+002. Голубые гитары - Ветер северный 1:59
+003. Добры молодцы - Прощальный вальс 3:43
+004. Лев Барашков - Главное, ребята... 2:50(   Читать дальше...   )Жанр: Поп, Шансон, РокПродолжительность: 01:02:01:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DE1803A094135C8267783BB234D64B5A68B77A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008140   (818092) от 17.04.2016
+
+VA - Созвездие весеннее - 3 (2016) [MP3|256 кб/с] <Pop, Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_818092.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Гарри Польский - Ну Погоди
+002. Turbotronic - Booty Shake
+003. Кира Стертман - Небо
+004. Emotion - Самая(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 06:06:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:274855BF808A1A607598FB8751830B0CD5AF3663
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008162   (817938) от 17.04.2016
+
+VA - German Top 100 Single Charts (25.04.2016) [MP3|256-320 кб/с] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817938.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alan Walker - Faded
+02. Sia - Cheap Thrills
+03. Stereoact - Die immer lacht (Radio 2016 Mix) (feat. Kerstin Ott)
+04. Twenty One Pilots - Stressed Out(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:58:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F201E50484EB6B27EC2E514D450658A803B294C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1008275   (817593) от 17.04.2016
 
 VA -  Музыкальные Новинки От Зайцев.Нет Весна 2016 (2016) [MP3|128-320 кб/с] <Поп, Dance, Рок, Рэп, Electronic>
@@ -544,209 +747,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F8178D8B8A9B2496FD97A683E30F340AEACAED5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008967   (812061) от 20.04.2016
-
-VA - Весенний хит супер популярный 4 (2016) [MP3|256 кб/с] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812061.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sasha Mars - Забудь Меня
-002. Sia - Blinded By Love
-003. Тамара Викберг - Фата В 24
-004. Katie Louise - Too Far Gone(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:05:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1787FAA94B4B3D61B26AE7F70615A3CCB2422715
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008916   (812050) от 20.04.2016
-
-VA - KissFM top 40 Апрель (2016) [MP3|320 кб/с] <Electro House, Dance, Trance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812050.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Duke Dumont - Ocean Drive (3:26)
- 02. Alan Walker - Faded (3:32)
- 03. DJ Smash ft. Stephen Ridley - Lovers 2 Lovers (3:52)
- 04. Ben Delay - The Boy Is Mine Feat. Alexandra Prince (Alternative Mix) (6:32)(   Читать дальше...   )Жанр: Electro House, Dance, TranceПродолжительность: 02:51:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5DF6109FF897A20B64325103B9ED0A578FFCB0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197938   (811880) от 09.01.2018
-
-VA - Billboard Year End Hot 100 Singles Chart (2017) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811880.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Ed Sheeran  -  Shape Of You  3:54
-002.  Luis Fonsi feat. Daddy Yankee  -  Despacito  3:46
-003.  Bruno Mars  -  That's What I Like  3:27
-004.  Kendrick Lamar  -  HUMBLE  2:57(   Читать дальше...   )Жанр: PopПродолжительность: 06:12:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19AAB9CF449CD68F8F6473C1A72B523CC313714F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118742   (811495) от 26.03.2017
-
-VA - Club Dance Ambience Vol.104 (2017) [MP3|320 Kbps] <House, Mash Up, Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811495.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  DJ Tarantino - Кукушка (Cover Виктор Цой)  4:20
-002.  Happy People - Ночами не спали (Kolya Funk & Batura Remix)  4:43
-003.  DJ HaLF & Денис Мусаев - Плюс 32  (Mike Stazz 2o17 Remix Edit)  5:24
-004.  Пропаганда - Волшебство (KalashnikoFF Remix)  5:02(   Читать дальше...   )Жанр: House, Mash Up, Dance, ClubПродолжительность: 07:24:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93D8541CBC6519425DE9C93EE72F2B2F6CC7F56E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009213   (811487) от 20.04.2016
-
-VA - The Best World Ballads - 29 (2016) [MP3|320 кб/с] <Pop, Rock, Blues, Rap, R'n'B>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811487.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Sia-House On Fire 4:01
-002 Gavin DeGraw-Soldier 3:31
-003 The Hardkiss-Helpless 3:37
-004 Ronan Keating-Grow Old With Me 4:18(   Читать дальше...   )Жанр: Pop, Rock, Blues, Rap, R'n'BПродолжительность: 16:25:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFE87620548BF826C8F1EEE6A9D145EDE522C28B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118875   (811485) от 26.03.2017
-
-VA - Hits Cocktail vol.4 (2017) [MP3|192-320 Kbps] <Dance , Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811485.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thimlife Feat. BibianeZ - Home (CandyCrash & Black Due Bootleg)
-02. Lizot Feat. Emelie Cyreus - On The Top
-03. Kungs Feat. Ephemerals - I Feel So Bad
-04. Sick Individuals & Holl & Rush - Helix (Extended Mix)(   Читать дальше...   )Жанр: Dance , ClubПродолжительность: 06:24:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:529D0B7BE1AB47F349E6AC78A01D4539F9AAD225
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118873   (810556) от 26.03.2017
-
-Баян MIX - Новое и лучшее (2017) [MP3|320 Kbps] <Instrumental, Bayan, Classical Crossover, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810556.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Баян MIX - Хава нагила
-02. Баян MIX - Полёт шмеля
-03. Баян MIX - Red Tango
-04. Баян MIX - Кан-кан(   Читать дальше...   )Жанр: Instrumental, Bayan, Classical Crossover, PopПродолжительность: 03:42:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DD28EA43E5AA78BE52A827EF589A77FF4F4F457
 ```
 
 https://mybot314.ru/tekegram_catalog/

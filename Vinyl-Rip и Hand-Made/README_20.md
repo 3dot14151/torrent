@@ -1,3 +1,177 @@
+###  Публикация: 1543465   (629373) от 11.04.2022
+
+Муслим Магомаев - Сумерки Зеленые/Прощай, Любовь Моя (1983) [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629373.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сумерки Зеленые
+(А. Мажуков - Е. Митасов)
+02. Прощай, Любовь Моя
+(А. Мажуков - О. Шамхалов, перевод Н. Горохова)(   Читать дальше...   )Жанр: PopПродолжительность: 00:10:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C85997CC5FC2605B8D46AABA8C767540C76C0B98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143821   (629152) от 21.06.2017
+
+Dire Straits - ExtendeDancEPlay (1982) [FLAC 2.0|192/24|tracks|Vinyl-Rip] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629152.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Twisting by the Pool (3:30)
+02. Badges, Posters, Stickers, T-Shirts (4:54)
+03. Two Young Lovers (3:23)
+04. If I Had You (4:16)Жанр: RockПродолжительность: 00:16:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63EC11C1F8317AB11F08FBF560769CCFDCF4CD8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 802489   (628788) от 05.07.2014
+
+The Who - Face Dances (1981)  [FLAC 2.0 24/192|image (Vinyl-Rip)]<Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628788.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. You Better You Bet (5:38)
+A2. Don't Let Go The Coat (3:43)
+A3. Cashe Cashe (3:56)
+A4. The Quiet One (3:09)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:38:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D4BBB4A420ABA0305F29469CA3488B47FDC7C5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 887298   (627585) от 12.04.2022
+
+Acker Bilk - Klarinet (1980) [FLAC 2.0 (image+.cue)|Vinyl-rip (24/96)]<Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627585.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1	Szállj Fel Magasra
+Written-By – Gallai Péter, Köves Miklós
+A2	Képzelet
+Written-By – Bágya András, Mészáros Ágnes(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22B3A869E7A2CCEE6E02273FDB462F13F279209D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 852481   (627576) от 12.04.2022
+
+Billie Piper - Walk Of Life (2000) [FLAC 2.0|16/44,1 (MC-Rip)]<Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627576.jpg" />
+</div>
+
+
+###  Подробнее
+
+01	Day & Night	3:15
+02	Something Deep Inside	3:21
+03	Walk Of Life	3:49
+04	Safe With Me	3:32(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98F4979DD7AC0E8640EF81EFA2426AD453D6384E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 853575   (627459) от 12.04.2022
+
+Jennifer Paige - Positively Somewhere (2001) [FLAC 2.0 (image+.cue)|16/44,1 (MC-Rip)]<Soft Rock, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627459.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 These Days
+02 Here With Me
+03 Stranded
+04 Make Me(   Читать дальше...   )Жанр: Soft Rock, Pop RockПродолжительность: 00:40:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:246D8D1872131F105E7C4E1EE00B08834621E8A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1144551   (627358) от 22.06.2017
 
 Slade - The Story Of Slade (1977) 2LP, Compilation [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Rock>
@@ -564,178 +738,6 @@ A4	История Любви(   Читать дальше...   )Жанр: Pop, C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1E65B9B856742027C7E9D86F3727932BD599739
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070326   (619907) от 16.04.2022
-
-VA - Golden Hits Of Turkish / Золотые Хиты Турецкой Эстрады (2003) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619907.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Emrah - Tirlamisim
-02. Infernal - Turkish Bizarre
-03. Izel - Bebek
-04. Ruber Hatemo - Vur dibine(   Читать дальше...   )Жанр: PopПродолжительность: 01:12:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCDF75C9E94F3F159AD388A4B25EC609962A71D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910949   (619835) от 21.06.2015
-
-Scorpions - Love At First Sting (1984) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619835.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Bad Boys Running Wild (3:55)
-A2. Rock You Like A Hurricane (4:12)
-A3. I'm Leaving You (4:18)
-A4. Coming Home (5:00)(   Читать дальше...   )Производство: EMI / HarvestЖанр: Hard RockПродолжительность: 00:41:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3B46D2EB83A020829F628B0FEE437476965C456
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145493   (619610) от 26.06.2017
-
-Therion - Vovin (1998) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Symphonic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619610.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Rise Of Sodom And Gomorrah (6:46)
-02. Birth Of Venus Illegitima (5:15)
-03. Wine Of Aluqah (5:05)
-04. Clavicula Nox (8:50)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:55:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A88B23D3DDD9EE3C97D1BEA7B1B5CD40C5C5185D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043512   (618294) от 17.04.2022
-
-Abdul Hafis - Flute Music (1998) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Arabian, Folk, Traditional>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618294.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flute Music track 01
-02. Flute Music track 02
-03. Flute Music track 03
-04. Flute Music track 04(   Читать дальше...   )Жанр: Arabian, Folk, TraditionalПродолжительность: 00:41:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB7427027A7CF52C9C988FD34456C283D0878ECE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047276   (618125) от 17.04.2022
-
-Трио Современной Джазовой Музыки: В. Чекасин, В. Тарасов, В. Ганелин - Джазовые Импровизации (1976) [FLAC 2.0|96/24|side-tracks|Vinyl-Rip] <Free Jazz>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618125.jpg" />
-</div>
-
-
-###  Подробнее
-
-А	Джазовые Импровизации
-В	Джазовые Импровизации (Окончание)Жанр: Free JazzПродолжительность: 00:41:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:864A40CB67B61C44A369D71699BE3CE1AFA27DF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049808   (617994) от 17.04.2022
-
-VA - Вас Поздравляют Звёзды! (1990) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop, Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617994.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 А. Пугачева, Р. Горобец, Б. Шукенов, А. Барыкин, А. Буйнов - Рождество
-A2 С. Минаев - Ломбаба
-A3 Е. Семенова - А жизнь меня кружила
-A4 И. Саруханов - Barbe(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:41:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E02200B0E797239E4C67177E3DBA9B2A5D48BA3E
 ```
 
 https://mybot314.ru/tekegram_catalog/

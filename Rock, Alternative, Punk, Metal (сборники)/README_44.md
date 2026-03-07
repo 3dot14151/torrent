@@ -1,3 +1,32 @@
+###  Публикация: 1763514   (102816) от 01.12.2024
+
+Arctic Monkeys - Compilation (2005-2022) [MP3|320 Kbps] <Indie rock, Post punk, Psychedelic rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chun Li's Spinning Bird Kick (I Bet You Look Good On The Dancefloor EP 2005)
+02. 505 (Favourite Worst Nightmare 2007)
+03. 2013 (AM 2013)
+04. American Sports (Tranquility Base Hotel & Casino 2018)(   Читать дальше...   )Жанр: Indie rock, Post punk, Psychedelic rock, AlternativeПродолжительность: 03:04:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0DE5C1AC386D4A2B36EAEB54BE54ABC81A0ECB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 490520   (102529) от 01.05.2012
 
 Чиж & Co - Лучшая Коллекция (2012) [MP3|320 кб/с]<Rock>
@@ -734,35 +763,6 @@ VA - Instrumental guitar (2024) [MP3|320 Kbps] <Rock, Instrumental, Flamenco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81FD9A26BA597CA463A8661C4A6AB6429AE152CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737357   (49107) от 23.07.2024
-
-VA - Music of Vikings, Scandinavians, Pagans, Celts and the Middle Ages (2024) 2CD [MP3|320 Kbps] <Celtic, Folk, Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49107.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heldom - Vaknan [03:31]
-02. Vikings Main Title - If I Had a Heart ("Vikings" Main Title) [03:49]
-03. Danheim, Heldom - Blodfest [03:32]
-04. Gealdyr - Voluspa [03:37](   Читать дальше...   )Жанр: Celtic, Folk, RockПродолжительность: 09:01:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB1CC3C926BF102B43CB17541D8CB761127864A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

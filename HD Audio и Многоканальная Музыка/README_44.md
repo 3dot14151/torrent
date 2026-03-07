@@ -1,3 +1,171 @@
+###  Публикация: 1188830   (273235) от 03.12.2017
+
+VA - Синий Туман. Песни В. Добрынина (1989) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273235.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. В. Добрынин - Синий Туман
+02. В. Легкоступова - Капля В Море
+03. А. Глызин - Треугольник
+04. С. Лазарева - Желтые Кораблики(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:38:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F13CDAE0C49A94E23FCA50DCF35F3567E5EFC8D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 275827   (267389) от 05.12.2018
+
+Antonio Vivaldi - The Four Seasons (2008) [MLP 2.0, 4.0 96/24 |DVD-Audio (SACD-Rip)]<Classic Music, Orchestral>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_267389.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Classic Music , OrchestralПродолжительность: 01:00:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F68931F50CC4CB096C1F0351624C2DE1B6AC9932
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 53106   (267333) от 05.12.2018
+
+Mozart - Classics London Symphony Orchestra (2005) [MLP 5.1 48/24 |DVD Audio]<classic>
+
+>>HD Audio и Многоканальная Музыка
+>>DVD-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_267333.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.  Concerto for Piano no 22 in E flat major, K 482: 2nd movement, Andante
+2.  Symphony no 35 in D major, K 385 "Haffner": 2nd movement, Andante
+3.  Serenade no 13 in G major, K 525 "Eine kleine Nachtmusik": 4th movement, Rondo
+4.  Concerto for Flute and Harp in C major, K 299 (297c): 2nd movement, Andantino(   Читать дальше...   )Жанр: классическая музыкаПродолжительность: 00:59:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6B5ED2EFD2A7DDA37AEA36AF5E8E209F5CAAACD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 154483   (267329) от 05.12.2018
+
+Denon Sonic Boom - DVD Audio Demonstration Disc (2002) [MLP 5.1 96/24 |DVD-Audio]<Classical, Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>DVD-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_267329.jpg" />
+</div>
+
+
+###  Подробнее
+
+I. Musical Demonstration Section: Classical
+1. Richard Strauss: Also Sprach Zarathustra (2001, A Space Odyssey) - Opening - Herbert Blomstedt conducting the Staatskapelle Dresden Orchestra
+2. Ludwig van Beethoven: Symphony No. 5 - Opening - Otmar Suitner conducting the Saatskapelle Berlin
+3. Georg Friedrich Handel: Music from the Royal Fireworks - The I Solisti Italiani (   Читать дальше...   )Жанр: Classical, JazzПродолжительность: 01:00:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B9FB46C50AC457080CCCE4DB3E0ADACE17AE624
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 101957   (267273) от 05.12.2018
+
+Vivaldi - Flute Concerti, Op. 10 (2005) [MLP 5.1 48/24 |DVD-Audio]<Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>DVD-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_267273.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ClassicalФормат: DVD-Audio, MLP 5.1 48/24, DD 5.1, DTS 5.1Продолжительность: 1:07:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4326582C7AF522858631E014508B6B98605F0029
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191929   (263708) от 15.12.2017
+
+Electric Light Orchestra - A New World Record (1976) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263708.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Tightrope (5:04)
+A2. Telephone Line (4:40)
+A3. Rockaria! (3:12)
+A4. Mission(A World Record) (4:27)(   Читать дальше...   )Производство: United Artists - GP 530Жанр: Progressive RockПродолжительность: 00:36:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDBD5D10CE6E703E5EE4343BB379C0BDBBA1EEFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1192188   (263373) от 16.12.2017
 
 Electric Light Orchestra - Face The Music (1975) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Progressive Rock>
@@ -576,180 +744,6 @@ A4 Where The Ending Starts 3:48(   Читать дальше...   )Жанр: Ele
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:720C605DE80BE1B08DFCEC547486DF8D45F147DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626464   (255201) от 14.04.2023
-
-Bucks Fizz - Bucks Fizz (1981) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255201.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Piece Of The Action 3:37
-A2 Midnight Reservation 3:42
-A3 It's Got To Be Love 3:08
-A4 Took It To The Limit 3:46(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B43F11E2BB300820044587F5FD4FB626F4C6113F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626965   (255126) от 16.04.2023
-
-Taboo - The Same Word (1988) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You & I
-02. This Is The World
-03. Jerusalem
-04. Prego(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:42:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D82AEBA72CE6857847ED085006886AFC1163655D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627632   (254994) от 20.04.2023
-
-Раймондс Паулс - Raimonds Pauls - В Тональности Раймондса Паулса - In The Mood Of Raimonds Pauls (1984) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Jazz, Funk / Soul, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254994.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1		Беспокойный Пульс = Restless Beat	4:10
-A2		Печаль = Sadness	4:20
-A3		Испанский Мотив = Spanish Theme	3:40
-A4		Все Твое = All Yours	3:12(   Читать дальше...   )Жанр: Jazz, Funk / Soul, PopПродолжительность: 00:34:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45D975DEF44FD0773D4E03B10D2CD3B14F0BF69A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628322   (254888) от 23.04.2023
-
-Раймондc Паулс - Мой Путь (1980) Мелодия [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Smooth Jazz, Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254888.jpg" />
-</div>
-
-
-###  Подробнее
-
-А1 Увеселитель - The Entertainer (S. Joplin)
-А2 Как Велика Твоя Любовь - How Deep Is Your Love (В., M., R. Gibb)
-АЗ Здравствуй! - Salut! (C. Pallavicini)
-А4 Мой Путь - My Way (P. Anka)(   Читать дальше...   )Жанр: Smooth Jazz, Easy ListeningПродолжительность: 30:4:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0653A447D54DA5F2EAF13F3755A7B882BCCC859
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628677   (254852) от 24.04.2023
-
-Kim Carnes - Barking At Airplanes (1985) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254852.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crazy In The Night (Barking At Airplanes) 3:39
-02. One Kiss 3:32
-03. Begging For Favors (Learning How Things Work) 4:53
-04. He Makes The Sun Rise (Orpheus) 4:30(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:43:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33F2D73C8105AB49777FA2DB41F1DEDDD619A1B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628877   (254819) от 25.04.2023
-
-Underworld - Underneath The Radar (1988) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop Rock, Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254819.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Glory! Glory! 4:50
-A2 Call Me No. 1 3:57
-A3 Rubber Ball (Space Kitchen) 3:38
-A4 Show Some Emotion 3:48(   Читать дальше...   )Жанр: Pop Rock, Synth-popПродолжительность: 00:44:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC2CDF3AB7551983EC057E40159B7AD5EC014802
 ```
 
 https://mybot314.ru/tekegram_catalog/

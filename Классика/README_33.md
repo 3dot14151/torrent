@@ -1,3 +1,32 @@
+###  Публикация: 1063350   (434291) от 16.10.2016
+
+Wolfgang Amadeus Mozart - Romantic Classic (1999) [FLAC|Lossless|tracks + .cue] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_434291.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Symphony № 40 in G-minor, K.550 (Molto Allegro) - (07:54)
+02. Serenada № 13 in G-major ''Eine Klein Nacht Musik'', K.525 (Allegro) - (05:40)
+03. Concerto for Piano and Orchestra № 20 in D-minor (''Don Guan''), K.466 (Allegro) - (02:41)
+04. Fantasy in D-minor, K.551 (Fantasy) - (03:43)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:09:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:488BD4A9909E8942BE87372C4D24716E3C29DF50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1063341   (434287) от 16.10.2016
 
 Ludwig Van Beethoven - Romantic Classic (1999) [FLAC|Lossless|tracks + .cue] <Classical>
@@ -710,35 +739,6 @@ Dirk Maassen - An Evening at Wilhelmsburg (2020) EP [FLAC|Lossless|WEB-DL|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E7120B81508AD4E6C9658C848A4468155946B3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251806   (413353) от 03.10.2018
-
-Annabel Parker - The New Classics (1994) A Tom Parker Project [FLAC|Lossless|image + .cue] <Neo-Classical, Pop, Classical>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413353.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	Autumn Rain
-2.	Meditation
-3.	Song Without Words
-4.	Intermezzo(   Читать дальше...   )Жанр: Neo-Classical, Pop, ClassicalПродолжительность: 00:51:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4F635CE73DD48FE3B07F1C888DAED37D85412C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

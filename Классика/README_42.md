@@ -1,3 +1,32 @@
+###  Публикация: 1080170   (290076) от 06.12.2016
+
+Mozart, Herbert von Karajan, Berliner Philharmoniker - Requiem (1961) 1989 Deutshe Grammophon [FLAC|Lossless|image + .cue] <Vocal-symphonic>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_290076.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I. Introitus: 'Requiem aeter...[6'01]
+  02.  II. 'Kyrie eleison' [2'51]
+  03.  IIIa. Sequenz: 'Dies irae'[1'59]
+  04.  IIIb. Sequenz: 'Tuba mirum'[4'24](   Читать дальше...   )Жанр: Vocal-symphonicПродолжительность: 00:56:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51E1ED3DF45EC4FC52A5741607024AB116F875E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1263329   (289044) от 18.11.2018
 
 The Piano Guys - Limitless (2018) [FLAC|Lossless|WEB-DL|tracks] <Classical>
@@ -711,35 +740,6 @@ Opera Babes ‎ - Beyond Imagination (2002) [FLAC|Lossless|image + .cue] <Classi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB4FB9999F292314950AAC208EABD35D6B6EC5F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338552   (266082) от 19.11.2019
-
-Peter Hahn & Anna Maria Kaufmann - CD2 Opera (2010) [FLAC|Lossless|image + .cue] <Opera>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266082.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peter Hahn & Anna Maria Kaufmann - Wiener Blut (2:31)
-02. Peter Hahn & Anna Maria Kaufmann - Mikado (2:55)
-03. Peter Hahn & Anna Maria Kaufmann - Carrambolina, Carramboletta (2:40)
-04. Peter Hahn & Anna Maria Kaufmann - Ich Sing Mein Lied Im Regen Und Schnee (6:24)(   Читать дальше...   )Жанр: OperaПродолжительность: 00:51:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0D2286440289180143CAD47942E280B5BDE279B
 ```
 
 https://mybot314.ru/tekegram_catalog/

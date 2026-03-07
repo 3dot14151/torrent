@@ -1,3 +1,30 @@
+###  Публикация: 1015548   (774112) от 11.05.2016
+
+Проекты - Rocketstock - Summertime [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_774112.jpg" />
+</div>
+
+
+###  Подробнее
+
+Summertime - идеальное минутное слайд-шоу для семейных альбомов, воспоминаний об отпуске, и многих других событий произошедших в летний период.
+Проект прост в работе. Настройка шрифтов, цветов, фильтров, и многого другого.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17D04FCDBF5741DBB35C6ECEAB0DA398A0572B2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1212869   (774066) от 14.03.2018
 
 Проекты - VideoHive - Journey to History - 21458544 / Motion Array - Journey to History - 65899 [AEP]
@@ -657,32 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37E7A2BDE1A73BD5F90D1AE40A73AD3BEF032940
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214160   (765665) от 20.03.2018
-
-Проекты - VideoHive - Inks Forever Parallax Slideshow - 21017163 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765665.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания слайдшоу или вступительного ролика для вашего видео.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9903E5980918FA277C099E1B7B8D971E64B7BC7C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1387534   (791299) от 02.06.2020
+
+VA - Hopes For Tomorrow (2020) [MP3|320 Kbps] <Pop Lyric, Romantic>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791299.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Alanis Morissette - Diagnosis (4:47)
+2. Albatros - Lys Og Varme (3:37)
+3. Klara Vytiskova - Love Is Gold Intro (0:38)
+4. Dermot Kennedy - The Corner (3:18)(   Читать дальше...   )Жанр: Pop Lyric, RomanticПродолжительность: 09:11:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54E09623548E34DE8279F473280B99463237299D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275129   (790949) от 10.01.2019
+
+Boney M - The Magic 2 CD (2019) (Compilation) [MP3|320 Kbps] <Pop, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790949.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Painter Man
+02. Silly Confusion
+03. Sunny
+04. Fever(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 02:58:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEFB8EBE03163B7A36A086D33BCC8D9D63917222
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1202158   (790945) от 27.01.2018
 
 VA - De Top 100 Aller Tijden 1979 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, Rock, Disco>
@@ -684,64 +742,6 @@ VA - Музыкальный подарок выпуск № 4 (2017) [MP3|256 Kb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5B4ED66F0F97372485A0A4EBA8136A64275E2C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123511   (786401) от 08.04.2017
-
-VA - Популярные весенние новинки (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786401.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Жанна Прохорихина - Стилистам 3:31
-002. Алиса Кожикина - В Стране Чудес 3:32
-003. Caravella - Твой Последний Уикенд 3:24
-004. Виктор Поплеев - Половина Мира 3:21(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4FFF823DDC6B81916687EBFD88E13FDACFAA0E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123529   (786397) от 08.04.2017
-
-VA - Весенние заводные хиты. Выпуск № 3 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786397.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Миша Майер - Вспоминай 3:29
-002. Alex Kafer & Lera - Я У Твоих Ног 3:36
-003. Proвокация - Два Сердца 3:35
-004. Елка - Впусти Музыку 3:36(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5F219625DA59877AAADC70F17D8C09B01E2EE18
 ```
 
 https://mybot314.ru/tekegram_catalog/

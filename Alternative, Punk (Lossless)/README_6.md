@@ -1,3 +1,32 @@
+###  Публикация: 1363012   (945317) от 26.02.2020
+
+Ash ‎ - Teenage Wildlife: 25 Years Of Ash (2020) 3 CD, Compilation, Limited Edition [FLAC|Lossless|tracks + .cue] <Alternative Rock, Brit Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_945317.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Here Comes the Music (03:11)
+02. Spellbound (03:17)
+03. Teenage Wildlife (06:01)
+04. I Shall Not Die (03:23)(   Читать дальше...   )Жанр: Alternative Rock, Brit PopПродолжительность: 03:41:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1C5982E44B58D9A5FD0E4340B21024CEF4D913E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1363187   (945304) от 26.02.2020
 
 Anna Calvi - Hunted (2020) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Indie Rock, Female Vocal>
@@ -716,35 +745,6 @@ Envy - The Fallen Crimson (2020) [FLAC|Lossless|tracks + .cue] <Hardcore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C5BCCD15FBEE729AB07C010FC475FCF664D2DBB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364613   (935034) от 04.03.2020
-
-Envy - Compiled Fragments 1997-2003 (2005) Anthology [FLAC|Lossless|tracks + .cue] <Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935034.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Far-Off Reason (06:18)
-02. An Adventure of Silence and Purpose (06:07)
-03. Invisible Understanding (08:02)
-04. Chacun de tes pas (04:45)(   Читать дальше...   )Жанр: HardcoreПродолжительность: 01:04:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:629BE365AFA346E644CEFE9C2DD6BFFE6E5E8155
 ```
 
 https://mybot314.ru/tekegram_catalog/

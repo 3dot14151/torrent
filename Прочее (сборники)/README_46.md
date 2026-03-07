@@ -1,3 +1,203 @@
+###  Публикация: 1201609   (792227) от 25.01.2018
+
+VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0007 (2018) [MP3|320 Kbps] <Italo disco, HI-NRG, Eurodance, Disco House, Electropop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792227.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. After Midnight - Disco Light ( 1986 )
+02. Mike Mareen - Lady Ecstasy ( 1988 )
+03. Dyva - Clap Again ( Extended Version 1983 )
+04. Body Heat - Dancing In The Moonlight ( Murder Mix 1986 )(   Читать дальше...   )Жанр: Italo disco, HI-NRG, Eurodance, Disco House, ElectropopПродолжительность: 00:56:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8ECED146C135BE111747F8E0B96DEA18F837AED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201500   (792221) от 25.01.2018
+
+VA - One On One: Auto Dance Mixtape (2018) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792221.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ina Wroldsen - Strongest
+002. Bigflo & Oli - Dommage
+003. David Guetta - Dirty Sexy Money
+004. Flo Rida - Hola (Feat. Maluma)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 08:28:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C258A3053DE153E6837B641C9DEC530A2871776
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201624   (792220) от 25.01.2018
+
+VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0010 (2018) [MP3|320 Kbps] <Italo disco, HI-NRG, Eurodance, Disco House, Electropop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792220.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gurcan Erdem - Hold My Hand ( 12'' Version )
+02. Valerie Star - Call My Name ( 2014 )
+03. Michael Bedford - Space Boys ( 7'' Version 1987 )
+04. Ryan Paris - Together Again ( 2015 )(   Читать дальше...   )Жанр: Italo disco, HI-NRG, Eurodance, Disco House, ElectropopПродолжительность: 00:59:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D51C8CAF72D2AB74703239DCC17EA7B817980C60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201524   (792155) от 25.01.2018
+
+VA - Back To 80's Party Disco (2018) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ryan Paris  -  Together Again (Extended Version)  6:38
+02.  Coo Coo  -  You Can Set Me Free (Instrumental Version)  3:57
+03.  D. White  -  Wonderful Day  6:02
+04.  Shipra  -  Joy (In My Heart)  5:28(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 05:26:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CD724B6750DF2F19EE226019B8A13631A910F4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274653   (792005) от 08.01.2019
+
+Виктор Павлик - Город Зеленого Цвета (2019) Remix [MP3|320 Kbps] <Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792005.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Город Зеленого Цвета - Виктор Павлик (Ivan ART Extended Remix)Жанр: Club, DanceПродолжительность: 00:04:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27AAC9247F6B033315417736092568CBBE5C0BE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201687   (791986) от 25.01.2018
+
+VA - Музыка, с которой мы выросли (зарубежная). Выпуск 2 (1969-1993) [MP3|320 Kbps] <Rock, pop, disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791986.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Creedence Clearwater Revival - It Came Out Of The Sky (1969) 02:57
+02. Creedence Clearwater Revival - Travelin' Band (1970) 02:11
+03. Led Zeppelin - Bron-Y-Aur Stomp (1970) 04:18
+04. The Sweet - Santa Monica Sunshine (1971) 03:28(   Читать дальше...   )Жанр: Rock, pop, discoПродолжительность: 06:23:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:634F21A7B6C0BF3910842B2F3465BA656030A69A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387326   (791825) от 01.06.2020
+
+VA - Music for You vol.3 (2020) [MP3|320 Kbps] <Progressive Rock, Progressive Metal>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791825.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Echopraxia - 3s Without 4 (03:51)
+ 02. Jason Becker - Air (05:40)
+ 03. Arch Echo - Tempest (05:18)
+ 04. Dream Theater - Forsaken (05:37)(   Читать дальше...   )Жанр: Progressive Rock, Progressive MetalПродолжительность: 04:08:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57B064D85702C52B4ABD789F993D259C739678BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1387426   (791817) от 01.06.2020
 
 VA - не Громкие новинки недели 69 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -542,206 +742,6 @@ VA - ЕвроХит Топ 40 Europa Plus 11.01.2019 [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0C903BEAA908469039BA6E9A40A2B4E9227DA23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275576   (789869) от 12.01.2019
-
-VA - Rare Pop Dance (2019) [MP3|320 Kbps] <Electronic, Synthpop, Pop, Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789869.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A' La Carte - Cubataro (1981) (3:48)
-02. Angela Werner - Spieglein, Spieglein (1981) (3:26)
-03. Annabel Lamb - Riders On The Storm (1983) (5:57)
-04. Azoto - Havah Nagilah (1978) (8:49)(   Читать дальше...   )Жанр: Electronic, Synthpop, Pop, DiscoПродолжительность: 05:05:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F707140C3F142F524593D02FE97EB374D72B8E86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511063   (789804) от 19.11.2021
-
-VA - Viskas Bus Gerai (lietuviska muzika) (2021) 2CD [MP3|256-320 Kbps] <Pop, Rock, Folk>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sel - Nes As Tik Vejas
-02. Mia - Yra Kaip Yra
-03. Karcema - Aukso zuvele
-04. Andrius Mamontovas - Viskas Is Naujo(   Читать дальше...   )Жанр: Pop, Rock, FolkПродолжительность: 08:13:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA91DF567A2D6FC351DEE3BBB5250EA94393FC89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275188   (789624) от 12.01.2019
-
-Пропаганда - Мелом (2018) Remix [MP3|320 Kbps] <Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789624.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Пропаганда - Мелом (Ice & Nitrex & Remix)Жанр: Club, DanceПродолжительность: 00:04:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F05BD4ADA8EB84B5DE9BF8231DA5B129F638ACF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275772   (789439) от 13.01.2019
-
-VA - Billboard Hot 100 Singles Chart 12.01.2019 (2019) [MP3|320 Kbps] <Pop, Dance, Euro>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789439.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Halsey - Without Me
-002. Ariana Grande - thank u, next
-003. Post Malone - Sunflower (Spider-Man_ Into the Spider-Verse)
-004. Travis Scott - SICKO MODE(   Читать дальше...   )Жанр: Pop, Dance, EuroПродолжительность: 05:31:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F578357EECA09D365E05FF01C286B874191F814E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275804   (789389) от 13.01.2019
-
-VA - Зарубежные Хиты-Январь (2019) [MP3|320 Kbps] <Pop, Alternative, Electro, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789389.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Aaron Watson-Kiss That Girl Goodbye
-002. Agustin Casanova-Bye Bye
-003. Allen(IT)-PopLock
-004. Allie X-Little Things (Analog Version)(   Читать дальше...   )Жанр: Pop, Alternative, Electro, DanceПродолжительность: 05:41:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88EFE427986F4CEA21BAAD79CF3C2EF51C16EE68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202674   (789277) от 30.01.2018
-
-VA - Дискотека 2018 Dance Club Vol.174 от NNNB (2018) [MP3|320 Kbps] <Club, Deep House, Synth Pop, Dance и другие>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789277.jpg" />
-</div>
-
-
-###  Подробнее
-
-Part 1 (Discoteka):
-01.  Claudia Leitte feat. Pitbull  -  Carnaval  3:44
-02.  Arash feat. Helena  -  Dooset Daram (Radio Version)  3:17
-03.  Joy feat. Matami  -  Get Lost (Original Mix)  3:32(   Читать дальше...   )Жанр: Club, Deep House, Synth Pop, Dance и другиеПродолжительность: 03:51:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:280A2A8363CD2C8C5061F582ADFFAC24E47B7ABF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511598   (788938) от 21.11.2021
-
-VA - Music News vol.149 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788938.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Adele - Cry Your Heart Out (04:15)
- 002. ADDA - Sa Nu-mi Iei Trandafiri (03:25)
- 003. Adele - Can I Get It (03:30)
- 004. Activ - Doar Cu Tine (Andrey Vertuga DFM Radio Edit) (02:52)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 05:55:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1A354D2DAE1147D8F8228C9623257AB092C829C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,127 @@
+###  Публикация: 472139   (83950) от 23.03.2012
+
+Madonna - MDNA (2012) Deluxe Edition [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_83950.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1
+
+01. Girl Gone Wild (3:43)
+02. Gang Bang (5:26)
+03. I'm Addicted (4:34)
+04. Turn Up The Radio (3:47)
+05. Give Me All Your Luvin' (3:23)
+06. Some Girls (3:54)
+07. Superstar (3:55)
+08. I Don't Give A (4:19)(   Читать дальше...   )Жанр: PopПродолжительность: 01:09:07
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 324775   (82711) от 17.03.2012
+
+Lionel Richie - 2 альбома (2003, 2012) [FLAC|Lossless]<Pop, Soul, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_82711.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы:
+2003 - The Definitive Collection
+2012 - TuskegeeЖанр: Pop, Soul, R&BПродолжительность: 02:46:35
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466229   (81386) от 11.03.2012
+
+Billy Ocean - Suddenly (1984) [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_81386.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Disco, PopПродолжительность: 00:44:54
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 461198   (79641) от 02.03.2012
+
+George Michael - 5 Студийных альбомов (1987 - 2004) /Japan/ [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_79641.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Patience
+02. Amazing
+03. John And Elvis Are Dead
+04. Cars And Trains
+05. Round Here
+06. Shoot The Dog
+07. My Mother Had A Brother
+08. Flowless (Go To The City)
+09. American Angel
+10. Precious Box(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:47
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 457234   (78217) от 24.02.2012
 
 Lady GaGa - The Singles (2011) [FLAC|Lossless]<Pop>
@@ -638,122 +762,6 @@ KT Tunstall - Eye To The Telescope (2004) [FLAC|Lossless|tracks + .cue] <Rock, P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9C20FC898F7142D0BA855F8124251631AF1DD9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797520   (66772) от 17.05.2025
-
-Barry Manilow - Ultimate Manilow (2002) CD, Compilation, Club Edition [FLAC|Lossless|tracks + .cue] <Pop, Vocal, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66772.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mandy    [0:03:17.55]
-02. It’s a Miracle    [0:03:51.37]
-03. Could It Be Magic    [0:06:47.55]
-04. I Write the Songs    [0:03:50.30](   Читать дальше...   )Жанр: Pop, Vocal, BalladПродолжительность: 01:17:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87C05F0DF27A1CAC4C9CCF4874BCF02D228A5379
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797550   (66702) от 18.05.2025
-
-NSYNC - Celebrity (2001) CD, Album, Enhanced [FLAC|Lossless|tracks + .cue] <Pop, Funk / Soul, Contemporary R&B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66702.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pop    [0:03:58.32]
-02. Celebrity    [0:03:18.55]
-03. The Game Is Over    [0:03:27.40]
-04. Girlfriend    [0:04:14.68](   Читать дальше...   )Жанр: Pop, Funk / Soul, Contemporary R&BПродолжительность: 00:49:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FBC3C5911E885D9CC7B5512FC2F810674FF376A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798552   (66635) от 22.05.2025
-
-MIKA - The Boy Who Knew Too Much (2009) CD, Album [FLAC|Lossless|tracks + .cue] <Electronic, Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66635.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Are Golden    [0:03:58.03]
-02. Blame It on the Girls    [0:03:34.36]
-03. Rain    [0:03:43.56]
-04. Dr John    [0:03:44.06](   Читать дальше...   )Жанр: Electronic, Rock, PopПродолжительность: 00:41:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C007C8290C420B63BBEA42A7CCD225876F0D35D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798425   (66629) от 22.05.2025
-
-VA - Ultimate Dance Divas (2003) CD, Compilation [FLAC|Lossless|tracks + .cue] <Pop, Dance, Soul, R&B, Funk>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66629.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Aretha Franklin - A Deeper Love (C + C Tribesman mix) - (04:11)
-  02 - Whitney Houston - Love That Man (Peter Rauhofer mix) - (04:06)
-  03 - Toni Braxton - Un-Break My Heart (Soul Solution & Hex Hector mix) - (04:47)
-  04 - Deborah Cox - Nobody’s Supposed to Be Here (Hex Hector mix) - (04:14)(   Читать дальше...   )Жанр: Pop, Dance, Soul, R&B, FunkПродолжительность: 01:02:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0034503F4F10CA36674E758E8DFE3F5B4693DC6F
 ```
 
 https://mybot314.ru/tekegram_catalog/

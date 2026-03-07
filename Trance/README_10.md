@@ -1,3 +1,90 @@
+###  Публикация: 1202745   (789541) от 30.01.2018
+
+VA - Neostatics Sounds Best Of 2017 (2018) [MP3|320 Kbps] <Trance ,House>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789541.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wanya Bruch - September Meer (Original Mix)
+02. Voger - The Base Camp (Original Mix)
+03. Intoxic Joker - Mello Sunset (Original Mix)
+04. NYUSKA - Like This (Original Mix)(   Читать дальше...   )Жанр: Trance ,HouseПродолжительность: 01:40:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63C60CD3CEB8B967B169FFB4C2BE77235EBD4352
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202813   (789538) от 30.01.2018
+
+VA - FG Top 10: January (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789538.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Orphyd - Human Empire (Original Mix)
+02. Max Freegrant - Inside Your Eyes (extended mix)
+03. Envytone - Tonight (feat Scolario - extended mix)
+04. Kojun - You're Here (extended mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:59:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EF8C76A06A2214B5597FC9FD12B829ED2BD48DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202628   (789536) от 30.01.2018
+
+VA - Base Hits Vol.3 (2018) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789536.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Roman Messer & Betsie Larkin  -  Unite (Original Mix)  4:04
+02.  Bigtopo & Omar Diaz  -  Gallow (Original Mix)  3:45
+03.  Ruslan Radriges presents Mantra & Lucid Blue  -  Take Me Higher (Club Mix)  3:51
+04.  Feel  -  The Nutcracker (Original Mix)  3:27(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:10:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02EE680D7D4C24478776D13F91EBEE5064B148CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1202947   (789110) от 31.01.2018
 
 VA - Uplifting Trance Sessions Vol. 05 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
@@ -657,93 +744,6 @@ VA - Eleven (2018) [MP3|320 Kbps] <Trance,Psytrance,Progressive House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08B398A7731E92050E55E5B873927948474DABBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205047   (784097) от 08.02.2018
-
-VA - Uplifting Only: Orchestral Trance Year Mix 2017 (Mixed by Ory Uplift) (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784097.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ram & Arctic Moon & Stine Grove - A Billion Stars Above (Intro Mix)
-02. Afternova & Andrea Becker - For You (Trance Mix)
-03. Illitheas & Manuel Rocca - Enchanted (Original Mix)
-04. Ana Criado - Still There's You (A.R.D.I. Radio Edit)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 04:36:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2C1FCB57683DB90C656EFC166649789DACE2EC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205261   (783547) от 10.02.2018
-
-VA - The Sound Of Trance Vol.08 (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783547.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Cold Stone  -  Skyline (Extended Mix)  6:10
-02.  Lee Coulson  -  Lomachenko (Original Mix)  6:34
-03.  Venetica  -  Force Majeure (Original Mix)  3:37
-04.  Paul Pollux  -  Lights Of Abell (Original Mix)  6:54(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:34:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:619B000DAC769E36512CEFD05A011804328465FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205263   (783546) от 10.02.2018
-
-VA - Tech Trance Essentials Vol.11 (2018) [MP3|320 Kbps] <Trance, Tech Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783546.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Sulaco  -  Requiem Of Souls (5thDimension Remix)  8:48
-02.  Thomas Kelly  -  Wasted Talent (Original Mix)  5:55
-03.  S5 & ReDrive  -  This Love (Original Mix)  7:22
-04.  Josef Linecker  -  Back (Original Mix)  5:29(   Читать дальше...   )Жанр: Trance, Tech Trance, Uplifting TranceПродолжительность: 02:42:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34E68116322FF2ED8BA8A5F8B0008A95E8B541D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1727474   (108532) от 02.06.2024
+
+Stefano Maggio & Alessandro Giordani - Miss Erotica (2017) [FLAC|Lossless|WEB-DL|tracks] <Instrumental Pop, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108532.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jewellery (2:47)
+02. Poetica Erotica (3:17)
+03. Sexagesimal (2:56)
+04. Vibrating (4:14)(   Читать дальше...   )Жанр: Instrumental Pop, Easy ListeningПродолжительность: 00:51:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53709FD4EB1E424477D56B1430CFC56A96AA7930
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1733148   (107358) от 28.06.2024
 
 Иванушки International - Тур с Иванушками (2024) [MP3|320 Kbps] <OST, Pop>
@@ -716,35 +745,6 @@ Tim Janis - The Promise (2005) [FLAC|Lossless|tracks + .cue] <New Age, Instrumen
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0636AFC3C6F0E3D2BA99C26CF42C3D7BA4251DD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763450   (102824) от 01.12.2024
-
-VA - The Orient Collective: Shadow Seeker (2024) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102824.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Mauro Masi - Mana Le (4:09)
-2. Tibetania - Lockdown (5:46)
-3. F-Theme - Hold Your Mouth (6:35)
-4. Noam Garcia - Amanda (7:06)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 00:58:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A8670DE0F62645115BE45B39C2DEA58BE5A49F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

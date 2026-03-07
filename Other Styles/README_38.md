@@ -1,3 +1,32 @@
+###  Публикация: 1503976   (815876) от 21.10.2021
+
+VA - Peaceful Night Instrumental Music (2021) [FLAC|Lossless|WEB-DL|tracks] <Instrumental Soft Rock>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815876.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wildlife - Wishing You Were Here (04:17)
+02. Ray Hamilton Orchestra - Anytime You Need A Friend (04:25)
+03. Tony Skeggs - Hotel California (06:44)
+04. Wildlife - Take It Easy (03:35)(   Читать дальше...   )Жанр: Instrumental Soft RockПродолжительность: 00:49:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36026D76084CDEF2205226031308E64CB2DA2958
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1008282   (815700) от 18.04.2016
 
 VA - Los clasicos argentinos Tango - Vol.10  - Alfredo De Angelis: El tango alegre (1996) [MP3|128 кб/с] <Tango>
@@ -710,35 +739,6 @@ VA - Intimate Piano: Moonlight Love (1999) [FLAC|Lossless|image + .cue] <Instrum
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FFC1BB326DA39ACF2FC39DAEE1B858DD739F9B31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118127   (811083) от 26.03.2017
-
-VA - La La Land / Ла-Ла Ленд - The Complete Musical Experience (2017) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811083.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La La Land Cast - Another Day of Sun (with Radios) (04:34)
-02. Justin Hurwitz - Mia Gets Home (00:24)
-03. Justin Hurwitz - Bathroom Mirror / You’re Coming Right? (01:19)
-04. Emma Stone, Callie Hernandez, Sonoya Mizuno & Jessica Rothe - Someone in the Crowd (04:19)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:33:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A218F52D16017FE6FE88E53E4E48527378BB66D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

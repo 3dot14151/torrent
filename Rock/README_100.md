@@ -1,32 +1,3 @@
-###  Публикация: 1748846   (43769) от 12.09.2024
-
-The The - Ensoulment (2024) [MP3|320 Kbps] <Pop Rock, Alternative, Indie>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43769.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Cognitive Dissident [00:03:06]
-02 - Some Days I Drink My Coffee by the Grave of William Blake [00:04:03]
-03 - Zen & the Art of Dating [00:04:30]
-04 - Kissing the Ring of Potus [00:03:33](   Читать дальше...   )Жанр: Pop Rock, Alternative, IndieПродолжительность: 00:45:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:342C224CB65875F7E8C1DA316F08F86A4B0B3120
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1748978   (43758) от 12.09.2024
 
 Tony Levin - Bringing It Down to the Bass (2024) [MP3|320 Kbps] <Progressive Rock, Jazz Fusion, Instrumental>
@@ -745,6 +716,35 @@ Pink Floyd - Pink Floyd at Pompeii - MCMLXXII (1972) Mix, Remaster, 2025, Legacy
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:657528A038C31F4C9C843C8A56B5FA7B5613DF71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799105   (16814) от 26.05.2025
+
+Sweet - Hannover Sessions (2025) [4CD Box-Set] [MP3|320 Kbps] <Rock, Glam Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_16814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. X-Ray Specs (Non Album Track) [04:07]
+02. Marshall Stack (Version 1) [04:18]
+03. Red Tape [05:17]
+04. Mind [04:26](   Читать дальше...   )Жанр: Rock, Glam Rock, Hard RockПродолжительность: 02:35:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A673D8293417FA1C65CD2DD23AF63BE554A8385F
 ```
 
 https://mybot314.ru/tekegram_catalog/

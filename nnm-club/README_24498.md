@@ -1,24 +1,25 @@
-###  Публикация: 1790228   (68097) от 08.04.2025
+###  Публикация: 1786008   (69110) от 18.03.2025
 
-Чарльз Диккенс | Рождественская песнь в прозе (2022) [MP3, Виктор Гвоздицкий]
+VA - Jazztronical 3 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Soul>
 
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68097.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69110.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Серия/Цикл: Литературные чтения.
-Чарльз Диккенс (1812–1870) – один из самых знаменитых английских романистов, прославленный создатель ярких комических характеров, искусный рассказчик и публицист.
-Главный герой – старый мрачный скряга Скрудж, который давно уже никого и ничего не любит, кроме собственных денег. Он не понимает радости, которую другие испытывают по поводу (   Читать дальше...   )Жанр: Зарубежная литература, классика, повесть-сказкаИздательство: Радио России – Санкт-ПетербургПродолжительность: 02:04:48
+01.  Ralf Stritt - Afric (2:26)
+02.  Tiziano Bianchi - A Bright Future (3:48)
+03.  Joe Rehmer - Next To Canada (6:11)
+04.  Lo Greco Bros - Gonna Be Alright (3:54)(   Читать дальше...   )Жанр: Jazz, Funk, SoulПродолжительность: 01:44:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:532850098C337751DE9C886FB13A1D2F27C0902B
+magnet:?xt=urn:btih:297E6FB2D6F7BC4D95D273192BC62DD2714722FB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -26,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790340   (68096) от 08.04.2025
+###  Публикация: 1786112   (69109) от 19.03.2025
 
-Nightwish - The Crow, the Owl and the Dove (2012) (Single) [FLAC|24/192|image + .cue|Vinyl-Rip] <Symphonic Power Metal>
+...And Oceans - The Dynamic Gallery of Thoughts (1998) Reissue, 2021, Those Opposed Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Symphonic Black Metal, Industrial, Electronic Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68096.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69109.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Crow, the Owl and the Dove (Radio Edit)
-02. The Heart Asks Pleasure First (Theme From 'The Piano')
-03. The Crow, the Owl and the Dove (Album Version)
-04. The Crow, the Owl and the Dove (Instrumental)(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:20:49
+A1 Trollfan
+A2 Som Öppna Böcker
+A3 Je Te Connais Beau Masque
+A4 September (När Hjärtat Blöder)(   Читать дальше...   )Жанр: Symphonic Black Metal, Industrial, Electronic MetalПродолжительность: 00:48:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B42C39634DEBE05012EDDE53406DD5E490D8ADF4
+magnet:?xt=urn:btih:77DAAA6B5271AA5C046ED5A0777F6DA08867175E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -55,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790286   (68095) от 08.04.2025
+###  Публикация: 1786108   (69108) от 19.03.2025
 
-Arida Vortex - Wild Beast Show (2016) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
+At The Gates - At War With Reality (2014) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68095.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69108.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Escaping from Hell (instrumental) 02:10
-02. Ghost Rider 04:38
-03. Dance of the Walking Dead 04:40
-04. Strangers in Space 04:36(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:49:02
+Disc 1:
+01. El Altar Del Dios Desconocido 1:06
+02. Death And The Labyrinth 2:33
+03. At War With Reality 3:08(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 01:00:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:250BBDF6FC2930980DC51036F0D674F548841AB7
+magnet:?xt=urn:btih:1FD547C183B0A6A1C877E26E2765866AF757658F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -84,228 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790412   (68094) от 08.04.2025
+###  Публикация: 1786207   (69107) от 19.03.2025
 
-Стефан Цвейг | Жгучая тайна (Радиоспектакль) (2024) [MP3, Александр Лыков, Марианна Мокшина и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68094.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Театр у вас дома.
-Стефан Цвейг (1881–1942) – австрийский писатель, поэт, драматург, автор множества беллетризованных биографий.
-Новелла «Жгучая тайна»  (Brennendes Geheimnis,  1911 год).
-Молодой человек, некий барон, отправляется в недельный отпуск в Земмеринг. Не нуждаясь в отдыхе и не имея никаких дел в гостинице, барон, «всегда готовый к новым победам», (   Читать дальше...   )Жанр: Зарубежная литература, классика, новеллаИздательство: Радио России – Санкт-ПетербургПродолжительность: 01:27:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6C54F0DEDE30DD6A2114824CB0EDB863E59820B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790347   (68093) от 08.04.2025
-
-Solar - Frantically Calm (2025) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68093.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Shifter [00:05:03]
-2. The Fortune Lied [00:03:48]
-3. Come Undone [00:04:03]
-4. Convoy [00:04:16](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:35:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B88575580ECED823B17F5173F6D365CC86F8A292
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790375   (68092) от 08.04.2025
-
-Растровый клипарт - Pattern Universe - Creative Fabrica - Red Green White Glitter Seamless Pattern [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68092.jpg" />
-</div>
-
-
-###  Подробнее
-
-Орнаменты (узоры) с красно-зелёно-белыми блёстками 12 штук.
-Разрешение 300 DPI.Формат: JPGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:431642AE8C4E723AA55491EFFC8669DB2069D3B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789918   (68091) от 08.04.2025
-
-DJ Koze - Music Can Hear Us (2025) [FLAC|Lossless|WEB-DL|tracks] <House, Deep>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68091.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – The Universe in a Nutshell
-02 – Pure Love
-03 – Der Fall
-04 – Wie sch”n du bist(   Читать дальше...   )Жанр: House, DeepПродолжительность: 01:05:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E410F42D7E29211162F978FF10FDC269C00BE77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790148   (68090) от 08.04.2025
-
-Чердакъ - Сказки - Ложь..., Часть 1-2 (2020,2024) [MP3|320 Kbps] <Punk Rock, Horror Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68090.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мертвецы [00:03:32]
-02. Вой [00:03:05]
-03. Полуночница [00:04:00]
-04. Музыкант [00:03:53](   Читать дальше...   )Жанр: Punk Rock, Horror PunkПродолжительность: 2 CD, 01:13:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:334104EAC676A130928EAE665B43A97A0A3C988A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789982   (68089) от 08.04.2025
-
-Otto Dix - Классика (2025) [MP3|320 Kbps] <DarkWave, New Age, Акустика, Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Аквариус (Акустика) [00:04:23]
-02. Анима (Акустика) [00:05:19]
-03. Глазами бабочек (Акустика) [00:05:40]
-04. Каменный ангел (Акустика) [00:04:10](   Читать дальше...   )Жанр: DarkWave, New Age, Акустика, AlternativeПродолжительность: 00:44:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E8E6A1B6F024A554FD4FB00226D91F2B0824344
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790533   (68088) от 09.04.2025
-
-Футбол. Лига Чемпионов 2024-2025. 1/4 финала. Арсенал (Англия) - Реал (Мадрид, Испания) (08.04.2025) HDTVRip [H.264/1080p]
-
->>Спорт и активный отдых
->>Футбол
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68088.jpg" />
-</div>
-
-
-###  Подробнее
-
-Футбол. Лига Чемпионов 2024-2025. 1/4 финала. Арсенал (Англия) - Реал (Мадрид, Испания) (08.04.2025)
-СУДЬЯ Пельто Ирфан (Босния и Герцеговина)
-СТАДИОН «Эмирейтс» (Лондон) Зрителей: 60110Телекомпания: OkkoЖанр: Спорт, ФутболЯзык озвучки: русскийПродолжительность: 01:53:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EA8421500CAC41F0EB813EDA7651ED84F08372E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790524   (68087) от 09.04.2025
-
-Nightwish - Endless Forms Most Beautiful (2015) [FLAC|24/192|image + .cue|Vinyl-Rip] <Symphonic Power Metal>
+...And Oceans - The Symmetry of I -  The Circle of O (1999) Reissue, 2016, Those Opposed Records [FLAC|24/192|image + .cue|Vinyl-Rip]<Symphonic Black Metal, Industrial, Electronic Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68087.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69107.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Shudder Before the Beautiful
-02. Weak Fantasy
-03. Élan
-04. Yours Is an Empty Hope(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:18:52
+A1 Mechanical Hippie
+A2 Aquarium Of Children - Ajatusten Merenpinta
+A3 The Black Vagabond And The Swan Of Two Heads
+A4 Salipsism(   Читать дальше...   )Жанр: Symphonic Black Metal, Industrial, Electronic MetalПродолжительность: 00:41:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8DE29F8B9BA0D9429AA0EF54717194E2D7AE47C7
+magnet:?xt=urn:btih:36D3E118E0EEDA51858FD9786C791EA073AB2626
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -313,28 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790514   (68086) от 09.04.2025
+###  Публикация: 1785983   (69106) от 19.03.2025
 
-Plen - Состояние ночи (2025) [MP3|320 Kbps] <Emo, Shoegaze, Grunge>
+Celestial Scourge - Observers of the Inevitable (2025) [FLAC|Lossless|WEB-DL|tracks] <Technical Death Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Русский рок
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68086.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69106.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Листья [00:03:16]
-02. Забирая [00:04:35]
-03. Разруби Луну [00:04:20]
-04. Истерика от бессилия [00:04:00](   Читать дальше...   )Жанр: Emo, Shoegaze, GrungeПродолжительность: 00:43:50
+01 - The Advent of Deities (04:23)
+02 - Vessels (02:46)
+03 - Exterminated (03:49)
+04 - Wandering Waste of Oxygen (03:18)(   Читать дальше...   )Жанр: Technical Death MetalПродолжительность: 00:30:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:05249E9F71965596C0756A0F8E17C75DAA97FE23
+magnet:?xt=urn:btih:656051E61E9EA6F9B360416E97632F1A35D69153
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -342,115 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790510   (68085) от 09.04.2025
+###  Публикация: 1786163   (69105) от 19.03.2025
 
-Telepathy - Transmissions (2025) [MP3|320 Kbps] <Post-Metal, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68085.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Oath [00:09:10]
-2. Augury [00:06:26]
-3. Knife Edge Effect [00:04:12]
-4. Tears in the Fibre [00:14:19](   Читать дальше...   )Жанр: Post-Metal, Progressive MetalПродолжительность: 00:57:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CABF13FE95BA4B807610A9C6241D2A119D1EEA3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790534   (68084) от 09.04.2025
-
-NightKill - Survive The Night (2025) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68084.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Survive The Night (05:06)
-02. Lost Heaven (05:45)
-03. The Only One (03:42)
-04. Don't Give Up (05:35)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:40:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6B74538E4237F518E7D57075AB01A717F39D898
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790454   (68083) от 09.04.2025
-
-VA - Luminaries 01 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68083.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Grafine - Feel [2:45]
-02. Dias Ridge - Moment [3:00]
-03. Hayyoo - Goes Away [2:36]
-04. Fløa - Unlock [3:24](   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 00:47:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A63A3F52D922994F9BA30E5B9C6D29348199F77C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790501   (68082) от 09.04.2025
-
-Manowar - Sign of the Hammer (1984)  [FLAC|24/192|tracks|Vinyl-Rip]<Heavy Metal>
+Bat - Under the Crooked Claw (2024) [FLAC|24/192|image + .cue|Vinyl-Rip]<Heavy, Speed Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68082.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69105.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - All Men Play On Ten
-02 - Animals
-03 - Thor (The Power Head)
-04 - Mountains(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:40:36
+01. Una Torcia Illumina Il Cielo
+02. Vampyre Lore
+03. Rite For Exorcism
+04. Streetbanger(   Читать дальше...   )Жанр: Heavy, Speed MetalПродолжительность: 00:35:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BB9A79AEC20990809E3B4ACD9FA7E0A21645188A
+magnet:?xt=urn:btih:D5A288FA5F177452F98525446DCA667D3EB7DF3E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -458,26 +172,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790522   (68081) от 09.04.2025
+###  Публикация: 1786083   (69104) от 19.03.2025
 
-Зинаида Гиппиус | Мой лунный друг (2023) [MP3, Ирина Патракова]
+Wayne Shorter - Juju (1964) 2024, Universal [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
 
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68081.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69104.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Зинаида Николаевна Гиппиус (1869–1945) – русский поэт, прозаик, драматург, критик и публицист, литературно-общественный деятель.
-Зинаида Гиппиус написала свои воспоминания об Александре Блоке «Мой лунный друг» (1922) сразу после его смерти. Они положили начало мемуарной книге «Живые лица» (Прага, 1925), посвященной современникам (Блоку, Брюсову, Сологубу и др.) и (   Читать дальше...   )Жанр: Русская литература, классика, воспоминания, мемуарыИздательство: Радио России – Санкт-ПетербургПродолжительность: 01:23:41
+01. Juju [8:33]
+02. Deluge [6:53]
+03. House of Jade [6:54]
+04. Mahjong [7:44](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:42:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DFCF8F617852D824CA6A10D5EBEF0ECD1AF42916
+magnet:?xt=urn:btih:F921E81DB95A71744333B2E130AF99DC7599A82E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -485,27 +201,141 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790529   (68080) от 09.04.2025
+###  Публикация: 1786081   (69103) от 19.03.2025
 
-Дмитрий Мамин-Сибиряк | Светлое озеро (Радиоспектакль) (1977) [MP3, Олег Борисов, Нина Ургант и др.]
+Anita O'Day - Live At Basie (1978) 2007, Ratspack Records [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69103.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let's Fall In Love [4:26]
+02. Honey Suckle Rose [4:56]
+03. It Don't Mean A Thing [5:02]
+04. Like Someone In Love [3:07](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:53:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C03EB73553C50E6E0971D1B9065F0128E248688
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785546   (69102) от 19.03.2025
+
+Илья Казанцев - Скажи мне ангел (2025) [MP3|320 Kbps] <Chanson>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69102.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Актер [00:02:57]
+02 - Скажи мне ангел [00:04:01]
+03 - Роща [00:04:21]
+04 - Колокольный звон [00:03:41](   Читать дальше...   )Жанр: ChansonПродолжительность: 00:54:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92A2769F270A62C474453E28EC52D10CE34B3FC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786110   (69101) от 19.03.2025
+
+River of Magma - Into the Unknown (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69101.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Children of the Night [3:03]
+02 - The House on Haunted Hill [4:13]
+03 - Thunder Lightning Fire [3:55]
+04 - Into the Unknown [6:07](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:30:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA11B3CB5999F83A5FE2012CF5CF5B39EF33E389
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785999   (69100) от 19.03.2025
+
+Купидон в операционной / Operating on Cupid (1915) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69100.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эксцентричная фарс-комедия. В некой больнице врач-хирург влюбился в медсестру. Что ж, обычное дело, сплошь и рядом служебные романы. Но у барышни уже есть сердечный друг, отнюдь не медик. Он приходит в больницу, чтобы повидаться с любимой. Тут и разворачивается соперничество за юное сердце. В больничных интерьерах и с медицинским юморком.Производство: США / Nestor Film CompanyЖанр: короткометражный, комедия, немое киноРежиссер: Хорас ДэвейАктеры: Билли Родс, Рэй Галлахер, Нил БарнсПеревод: немой с интертитрамиСубтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:10:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:533C05A3244E7F115678AAEFE5686F8697E512B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786171   (69099) от 19.03.2025
+
+Антоний Погорельский | Лафертовская маковница (1992) [MP3, Аркадий Волгин]
 
 >>Художественные аудиокниги и публицистика
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68080.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69099.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Серия/Цикл: Звучащая библиотека.
-Дмитрий Наркисович Мамин-Сибиряк (1852–1912) – подлинно народный русский писатель. В своих произведениях он проникновенно и правдиво отразил дух русского народа, его вековую судьбу, национальные его особенности – мощь, размах, трудолюбие, любовь к жизни, жизнерадостность.
-Очерк Д.Н. Мамина-Сибиряка «Говорок» был впервые напечатан (   Читать дальше...   )Жанр: Русская литература, классика, очеркИздательство: ТРК «Петербург – Пятый канал»Продолжительность: 01:21:45
+Антоний Погорельский (1787–1836) – русский писатель, учёный и переводчик.
+«Лафертовская маковница» – это первое фантастическое романтическое произведение в русской прозе, написанное Антонием Погорельским в 1825 году.
+Запись произведена в студии Ленинградского радио в марте 1992 года.(   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: ТРК «Петербург – Пятый канал»Продолжительность: 01:07:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BD5386D48DDD52C37B6A13DEBB52904DEF0E3F3D
+magnet:?xt=urn:btih:5B2C013C8C48AC4272E8E8B3874A028C9498A668
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -513,56 +343,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790486   (68079) от 09.04.2025
+###  Публикация: 1786047   (69098) от 19.03.2025
 
-Dream Theater - The Broadcast Archives - Classic Live FM Broadcast Recordings (2019) BOX Set, 6xCD, Compilation, Unofficial Release [FLAC|Lossless|image + .cue] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68079.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1, CD2 - New Millennium The Classic Broadcast 1999
-CD3, CD4 - Another Day In Tokyo The Japan Broadcast 1995
-CD5, CD6 - Dying To Live Forever Summerfest Broadcast Milwaukee 1993Жанр: Progressive MetalПродолжительность: 05:42:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3C56068E5B599190D6B3EAA6BBEF86F9FB391C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790556   (68078) от 09.04.2025
-
-Антон Чехов | Верочка (Радиоспектакль) (2024) [MP3, Антон Багров и др.]
+Николай Лесков | Скоморох Памфалон. Страницы повести (2000) [MP3, Станислав Ландграф]
 
 >>Художественные аудиокниги и публицистика
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68078.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69098.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Серия/Цикл: Театр у вас дома.
-Антон Павлович Чехов (1860–1904) – один из величайших писателей и драматургов русской литературы, тончайший психолог, ироничный юморист.
-Рассказ «Верочка» (1887) впервые опубликован «Петербургская газета», 1887, № 32, 2 февраля, стр. 3–4, отдел «Летучие заметки». Подпись: А. Чехонте.
-Иван Алексеевич Огнев, завершив свои служебные дела (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: Радио России – Санкт-ПетербургПродолжительность: 00:34:06
+Серия/Цикл: Звучащая библиотека.
+Николай Семёнович Лесков (1831–1895) – русский писатель. Его называли самым национальным из писателей России, он вошёл в литературу как величайший знаток духовной и бытовой жизни народа. Он был блестящим автором, имитировавшим язык восемнадцатого века, любившим красочный стиль и умевшим писать и изысканно просто.
+Повесть «Скоморох (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: ТРК «Петербург – Пятый канал»Продолжительность: 01:56:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BCD0D5DC26C5FE59DCAB42ADA37377D7C3795457
+magnet:?xt=urn:btih:D00BF4D978AFE6FB55AFF319B7F974A71B8EACA4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -570,28 +371,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790315   (68077) от 09.04.2025
+###  Публикация: 1786137   (69097) от 19.03.2025
 
-Behind Crimson Eyes - An Exodus From Eden (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Post-Hardcore>
+Волейбол. Лига Чемпионов 2024/25. Женщины. 1/4 финала. Ексачибаши Динавит (Турция, Стамбул) - Нумия Веро Воллей (Италия, Милан) (13.03.2025) WEBRip [H.264]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Спорт и активный отдых
+>>Баскетбол, Волейбол, Гандбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68077.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69097.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Wake Up [00:03:16]
-02. Burn It Down (feat. Lunacy) [00:03:21]
-03. A Place In Hell [00:03:07]
-04. You Can’t Save Me [00:02:57](   Читать дальше...   )Жанр: Post-HardcoreПродолжительность: 00:24:06
+Ексачибаши Динавит (Турция, Стамбул) - Нумия Веро Воллей (Италия, Милан)
+ECZ (Istanbul) - VVM (Milano)
+На прошлой неделе в первом четвертьфинальном матче «Веро Воллей» воспользовался преимуществом домашней площадки и уверенно забрал победу (3-0). Теперь команды встретятся в Турции, где итальянский клуб имеет отличные шансы укрепить преимущество и выйти в полуфинал. (   Читать дальше...   )Телекомпания: СтартЖанр: спорт, волейболЯзык озвучки: РусскийПродолжительность: 01:31:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:20EE13026CA52E7F0FB16716092D413AECE9BFF7
+magnet:?xt=urn:btih:746E5C5BA8099B71FD2844C0F1244AE55CD25BA5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -599,57 +399,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790447   (68076) от 09.04.2025
+###  Публикация: 1785728   (69096) от 19.03.2025
 
-VA - Top 14 January 2025 Emotional and Uplifting Trance (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68076.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aurora-bird (CHN) - Lost In Dreams (Original Mix) [7:50]
-02. Jef Karlen - Love Of Yesterday (Vocal Mix) [7:07]
-03. Andre Wildenhues & Stacey Jay - Hold On To Hope (Original Mix) [6:24]
-04. Matthew Rudnitskiy - Warriors Of Light (Original Mix) [5:55](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:31:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4463474B22DAFC272C5E7E7C1568DB175807CCFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790473   (68075) от 09.04.2025
-
-Siberian Dixieland - The Scent Of The Era (2024) Apollon & Evterpa [FLAC|Lossless|tracks + .cue] <Dixieland, Swing>
+Phil Woods - Four Classic Albums (1956 - 1961) 2CD, 2015, Avid Jazz [FLAC|Lossless|tracks + .cue] <Bop>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68075.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69096.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Stevedore Stomp [6:50]
-02. Doctor Jazz [3:57]
-03. Kansas City Stomp [4:12]
-04. The Western Blues [4:09](   Читать дальше...   )Жанр: Dixieland, SwingПродолжительность: 01:16:36
+01. Strollin' With Pam [5:22]
+02. Au Privave [6:57]
+03. Las t Fling [6:33]
+04. Sugan [9:27](   Читать дальше...   )Жанр: BopПродолжительность: 02:39:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:51FE694C7CD85E1B9E0C1477674078E085AEDAED
+magnet:?xt=urn:btih:4EBE867D70B7A6578657F467EDF949E76C5DC33A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -657,28 +428,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790509   (68074) от 09.04.2025
+###  Публикация: 1786086   (69095) от 19.03.2025
 
-Регионы - Называй, как хочешь! (2025) [MP3|320 Kbps] <Punk>
+Photo Lab PRO v3.13.51 Mod by Mixroot [Ru/Multi]
 
->>Rock, Alternative, Punk, Metal
->>Русский рок
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68074.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69095.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ночь [00:03:28]
-02. Дождь [00:03:52]
-03. В гримёрку [00:03:31]
-04. Из нулевых [00:03:21](   Читать дальше...   )Жанр: PunkПродолжительность: 00:37:52
+Photo Lab PRO - супер-лаборатория фотоприколов у вас в кармане. Встречайте PRO-версию приложения Photo Lab! Неограниченные возможности для создания фотоэффектов, анимированных фотокарикатур, аватарок, виртуальных открыток, заставок на телефон, фотомонтажей и фотоприколов!Тип издания: ProРелиз состоялся: 18.03.2025Разработчик: Linerock Investments LTDПоддерживаемая ОС: Android 5.1+Язык интерфейса: Русский / Мульти
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6E026ECAB678E139E8B8D2A4465560B4639B3A00
+magnet:?xt=urn:btih:00752333DF11D0023E43123A6555BC6B1D66C3C8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -686,28 +454,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790557   (68073) от 09.04.2025
+###  Публикация: 1786191   (69094) от 19.03.2025
 
-НХЛ 2024/2025. Регулярный чемпионат. Даллас Старз - Ванкувер Кэнакс (08.04.2025) WEB-DL [H.264/720p]
+НХЛ 2024-2025. Нью-Йорк Айлендерс - Питтсбург Пингвинз (18.03.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
 
 >>Спорт и активный отдых
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68073.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69094.jpg" />
 </div>
 
 
 ###  Подробнее
 
-09 апреля 2025, среда. 03:00 МСК
-Стадион: Американ Эйрлайнс-центр (Даллас, США), 18 532 зрителя (98% при вместимости 18 889)
-НХЛ - Регулярный сезон. Даллас Старз (Даллас) — Ванкувер Кэнакс (Ванкувер)
-Главный судья: Вес Макколи (Джорджтаун, Канада)Телекомпания: Victoty+Жанр: Спорт, хоккейЯзык озвучки: английскийПродолжительность: 01:55:02
+19 марта 2025, среда. 02:00 МСК. Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 17 484 зрителя (94% при вместимости 18 673)
+Главный судья: Майк Салливан (США); Главный судья: Крис Ли (Сейнт Джон, Канада)Телекомпания: PITSNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:44:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F3A70A55EFA0979230E97F0E7E204DB4C6E9E1CD
+magnet:?xt=urn:btih:7677C0B2025FD4B3555DF47AF88E4F8CA5C95D74
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -715,26 +481,241 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790531   (68072) от 09.04.2025
+###  Публикация: 1786123   (69093) от 19.03.2025
 
-НХЛ 2024-2025. Чикаго Блэкхоукс - Питтсбург Пингвинз (08.04.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
+Defile The Crown - Tooth And Nail (2021) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metalcore, Groove Metal>
 
->>Спорт и активный отдых
->>Хоккей
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68072.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69093.jpg" />
 </div>
 
 
 ###  Подробнее
 
-9 апреля 2025, среда. 02:00 МСК. Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 15 029 зрителей (80% при вместимости 18 673)
-Главный судья: Франсуа Сен-Лорен (Гринфилд Парк, Канада); Главный судья: Алекс Лепковски (Баффало, США); Линейный: Джесси Маркис (Буктуч, Канада); Линейный: Тайсон Бэкер (Сейнт Мэрис, Канада)Телекомпания: PITSNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:47:39
+01 - Long Road Home (Intro) [1:16]
+02 - Ashes Of War [3:41]
+03 - Lose Control [2:54]
+04 - Unknown Entity [4:26](   Читать дальше...   )Жанр: Metalcore, Groove MetalПродолжительность: 00:36:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:066134D070967E9A12AEC908A3EA845D9FE8316F
+magnet:?xt=urn:btih:CBF29BD330FB69CA3CB66302561BD9D93016CADE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786185   (69092) от 19.03.2025
+
+НХЛ 2024-2025. Детройт Ред Уингз - Вашингтон Кэпиталз (18.03.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69092.jpg" />
+</div>
+
+
+###  Подробнее
+
+19 марта 2025, среда. 02:00 МСК. Стадион: Кэпитал Уан-Арена (Вашингтон, США), 18 573 зрителя (100% при вместимости 18 573)
+Главный судья: Гарретт Рэнк (Эльмира, Канада); Главный судья: Коди Бич (Нанаймо, Канада)Телекомпания: MNMTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:32:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CD53CE58FEEF5B8F5596831328ED7BE74DB9C30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777953   (69091) от 20.03.2025
+
+В.Ф. Бутузов, В.В. Прасолов | Геометрия. Учебник для 10-11 класса (2022) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69091.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наглядность при изложении материала и строгая логика, подкреплённые красочными иллюстрациями, помогают учащимся лучше понять изучаемый материал. Учебник содержит большой заданный материал к каждой главе, систематизация которого тщательно продумана, а также задачи с практическим содержанием и исследовательские задачи. Сведения из истории развития геометрии, список (   Читать дальше...   )Жанр: УчебникЯзык: РусскийИздательство: ПросвещениеФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA0C00BFCB0C944FC1EB81A516A899F09D627929
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786249   (69090) от 20.03.2025
+
+Мужчина по вызову 2 / Deuce Bigalow: European Gigolo (2005) WEB-DLRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69090.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дьюс отправляется по приглашению своего бывшего сутенёра на отдых в Амстердам и в итоге понимает, что его вновь хотят вернуть в бизнес эскорт-услуг для женщин. Не то чтобы Дьюс был против - платят неплохо, но, во-первых, у него уже есть постоянная подружка, а во-вторых, у европейских женщин слишком бурная сексуальная фантазия…Производство: США / Columbia Pictures Corporation, Happy Madison Productions, Out of the Blue... EntertainmentЖанр: комедияРежиссер: Майк БигелоуАктеры: Роб Шнайдер, Эдди Гриффин, Ерун Краббе, Тиль Швайгер, Дуглас Силлс, Карлос Понсе, Чарльз Китинг, Ханна Вербум, Алекс Димитриадес, Костас СоммерПеревод: Дублированный (Невафильм)Язык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 01:23:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C301F0ACC7F2667109A056A4982052D8486CA09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786339   (69089) от 20.03.2025
+
+Менеджер Паролей SafeInCloud 1 v25.0.12 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69089.jpg" />
+</div>
+
+
+###  Подробнее
+
+Менеджер паролей SafeInCloud позволяет хранить ваши логины, пароли и другую личную информацию в безопасности в зашифрованной базе данных. Вы можете синхронизировать данные с другим телефоном, планшетом, маком или ПК через ваш собственный аккаунт в облаке.Тип издания: Pro / Extra ModРелиз состоялся: 20.03.2025Разработчик: SafeInCloud S.A.S.Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0877F4830A27586CBF70F5D9A21EF080CFC615C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786415   (69088) от 20.03.2025
+
+Дневной свет / Daylight (1996) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69088.jpg" />
+</div>
+
+
+###  Подробнее
+
+В подземном туннеле между Нью-Йорком и Нью-Джерси происходит масштабная авария, в результате которой свод обваливается, отрезав от внешнего мира полтора десятка выживших. Вытаскивать людей из-под завалов бросается бывший спасатель Кит Латура, случайно оказавшийся около места происшествия...Производство: США / Universal Pictures, Davis Entertainment, Joseph M. Singer EntertainmentЖанр: драма, боевик, приключения, триллерРежиссер: Роб КоэнАктеры: Сильвестр Сталлоне, Эми Бреннеман, Вигго Мортенсен, Дэн Хедайя, Джей О. Сандерс, Карен Янг, Клер Блум, Ванесса Белл Кэллоуэй, Реноли Сантьяго, Колин Фокс, Даниэль Харрис, Трина МакГи, Марселло Тедфорд, Сэйдж Сталлоне, Джо Андерсон (III)Перевод: дублированный (Ист-Вэст), профессиональный многоголосый (OPT; СТС), авторский (Андрей Гаврилов)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:54:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D2DCD60886F76BC86CD1AC18A382F0F7EFF92C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786440   (69087) от 20.03.2025
+
+TikTok 39.1.3 Mod by Dmitry Nechiporenko + Plugin 2.1 [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69087.jpg" />
+</div>
+
+
+###  Подробнее
+
+TikTok - социальное приложение для тех кто предпочитает визуальный контакт, более оригинальный контент, творчество и всё прочее, чего зачастую не хватает в стандартных проектах для общения между людьми. Здесь делается упор на ролики и трансляции. Набор инструментов поможет отредактировать и подправить исходный материал, различные эффекты, шрифты, эмодзи, фильтры (   Читать дальше...   )Тип издания: ModРелиз состоялся: 17.03.2025Разработчик: TikTok Pte. Ltd.Поддерживаемая ОС: Android 8.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB2826401397423292DDB29B60BEF04A35AB9BCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786489   (69086) от 20.03.2025
+
+Марина Берестова | Пакет «Цветочный»  (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69086.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пакет "Цветочный"
+
+1) БАЗОВЫЕ ПРАВИЛА СОСТАВЛЕНИЯ СОВРЕМЕННЫХ ЦВЕТНИКОВ
+Формат: видео мастер-класс(   Читать дальше...   )Жанр: Видеогид, мастер-классЯзык озвучки: РусскийПродолжительность: 04:49:21Реклама: Ватермарки и вставки
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C87CFA6EAC480D4961C17231722D2DA0440702C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786423   (69085) от 20.03.2025
+
+Genius Art: Image AI Generator v1.2.6 Mod by vadj [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69085.jpg" />
+</div>
+
+
+###  Подробнее
+
+Раскройте свой творческий потенциал с помощью инструментов для рисования и изображений на базе искусственного интеллекта.
+Превратите свои фотографии и идеи в потрясающие творения с помощью Genius Art: Image AI Generator. Независимо от того, являетесь ли вы художником, дизайнером или просто любителем творчества, это приложение предоставит вам всю мощь передовых инструментов (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 20.03.2025Разработчик: AMOBEAR TECHNOLOGY GROUPПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8653C6E3871852F0C11D57714EBEE7DD07452FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

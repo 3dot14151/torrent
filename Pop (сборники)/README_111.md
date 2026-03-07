@@ -1,3 +1,61 @@
+###  Публикация: 1640460   (196897) от 19.06.2023
+
+VA - Музыка для машины Vol.27 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_196897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Саша Санта - Время-Жить (03:04)
+02. Jake Shears Feat. & Kylie Minogue - Voices (04:27)
+03. Kalifarniya - Puerto-Rico (03:53)
+04. Андрей Картавцев - Налей Огня (03:49)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:42:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCF8ADC8333F56A8F98AEBD60637CFDD49E268C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1644086   (196113) от 04.07.2023
+
+VA - Pop 3 Remix NNM (2023) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_196113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Swedish House Mafia - Moth To A Flame (feat. The Weeknd) - Adriatique Remix (6:30)
+02. Gorillaz - New Gold (feat. Tame Impala and Bootie Brown) - Dom Dolla Remix (6:03)
+03. Bee Gees - More Than A Woman - SG's Paradise Edit (5:57)
+04. Lana Del Rey - Summertime - Imanbek Remix (5:06)(   Читать дальше...   )Жанр: PopПродолжительность: 03:55:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADEBE046AC365B1329D7A38382E5D614B14EC969
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1645087   (195889) от 11.07.2023
 
 VA - Музыка для машины Vol.30 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
@@ -686,64 +744,6 @@ VA - Pop Sun Hits: November Session (2020) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B84BFA2E62E7935D146FCBFC901D2FC107CBCBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594323   (176510) от 03.12.2022
-
-VA - Hit Music: зима ( 2022) от Мяу [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_176510.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bastard! - Don't Stop The Party
-002. Alma - Summer Really Hurt Us
-003. VAVAN - Субботним Вечером (Remix)
-004. Joel Corry feat. Tom Grennan - Lionheart (Fearless)(   Читать дальше...   )Жанр: PopПродолжительность: 14:46:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1136840B60489759589222843B6374CF422C05AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668018   (175036) от 10.10.2023
-
-VA - Осень на Love Radio (2023) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_175036.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ANNA ASTI - Царица (3:35)
-02. Rita Ora - Don't Think Twice (2:49)
-03. Troye Sivan - Rush (2:36)
-04. Jony - Воздушный Сарафан (3:03)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:58:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87E14432C16D28A8C25636C23EAB8778B99DC573
 ```
 
 https://mybot314.ru/tekegram_catalog/

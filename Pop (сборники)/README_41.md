@@ -1,3 +1,61 @@
+###  Публикация: 1218970   (717662) от 12.04.2018
+
+VA - River Of Love (2018) [MP3|320 Kbps] <Pop, Lyric, Romantic>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_717662.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jamie Woon - Sharpness
+002. AWOLNATION - Sail
+003. Demo Taped - Insecure
+004. Kiiara - Gold(   Читать дальше...   )Жанр: Pop, Lyric, RomanticПродолжительность: 08:09:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:786F54063D76B9CEEDD2B601221DF39DA4B4E40C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218900   (717661) от 12.04.2018
+
+VA - Весенний марафон на Europa Plus (4) (2018) [MP3|256 Kbps] <Поп>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_717661.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Летта - Хочу Я Быть Твоей Невестой
+002. Оксана Бойко - Мини-Юбка
+003. Dikaya - Я Отдала
+004. Наташа Королева & Герман Титов - Если Мы С Тобой(   Читать дальше...   )Жанр: ПопПродолжительность: 06:06:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BB089B64D1E4F964525CAF8A032DE7D3BFDAC20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1219081   (717659) от 12.04.2018
 
 VA - Экспресс русских хитов на Hit FM (4) (2018) [MP3|256 Kbps] <Поп>
@@ -687,64 +745,6 @@ VA - Весеннее созвездие хитов (2) (2018) [MP3|256 Kbps] <�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08EAA23B13F3C2ED3E706D0FC632DDA3673CA304
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219430   (711908) от 15.04.2018
-
-VA - De Top 100 Aller Tijden 1987 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, Rock, Synth-pop, Disco, World>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711908.jpg" />
-</div>
-
-
-###  Подробнее
-
-"De Top 100 Aller Tijden" (Топ 100 на Все Времена) от голландской радиостанции "Radio-Veronica" .001. Piet Veerman - Sailin' Home (4:36)
-002. Jan Hammer - Crockett's Theme (3:31)
-003. Whitney Houston - I Wanna Dance With Somebody (4:50)
-004. Mixed Emotions - You Want Love (Maria Maria) (3:59)(   Читать дальше...   )Жанр: Pop, Rock, Synth-pop, Disco, WorldПродолжительность: 07:06:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ACB88122C9CF7669E16138EACAEDA32A849A839
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286659   (711325) от 03.03.2019
-
-VA - German Top 50 Official Dance Charts 01.03.2019 (2019) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711325.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Niels Van Gogh - Pulverturm (Tiësto's Big Room Remix)
-02. Calvin Harris - Giant
-03. Hugel - WTF (feat. Amber Van Day)
-04. Picco - Cubano(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:57:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30DD2E61EA86FEF8B8677EE266258094AEA7F00E
 ```
 
 https://mybot314.ru/tekegram_catalog/

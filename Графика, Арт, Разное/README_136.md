@@ -1,3 +1,29 @@
+###  Публикация: 1830116   (202419) от 26.10.2025
+
+Wallpapers - BING Wallpapers (November 2021 - October 2024) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_202419.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920х1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63F7BC312981D5674FC5B3F1AFA06654C69CC5DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1654377   (202130) от 25.08.2023
 
 Фотография - ArtStation - Satine Zillah - An Art Poses + Hands Photo Reference Pack For Artists 881 JPEGs [JPG]
@@ -655,36 +681,6 @@ Gallery 2021: 711х1300 - 1300х1300(   Читать дальше...   )
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73C5BE67723AC4119ED3201D9C66222EE2505BE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649377   (195103) от 29.07.2023
-
-Фотография - Comedy Pet Photo Awards (2020-2023 года) [PNG]
-
->>Графика, Арт, Разное
->>Современная фотография
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195103.jpg" />
-</div>
-
-
-###  Подробнее
-
-Comedy Pet Photo Awards - соревнование, придуманное двумя профессиональными фотографами, Полом Джойнсом-Хиксом и Томом Салламом, с целью показать позитивную роль домашних животных в жизни людей.
-Вашему вниманию представлены работы финалистов 2020-2023 годов.Формат: PNGРазрешение файлов: Gallery of 2020 finalists: 749х1200 - 1600х1200
-Gallery of 2021 finalists: 675х1200 - 1600х1200
-Gallery of 2022 finalists: 800х1200 - 1600х1167
-Gallery of 2023 finalists: 800х1200 - 1600х1176
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:049C71E503BC9D3263C10C57CC1565181AA3508F
 ```
 
 https://mybot314.ru/tekegram_catalog/

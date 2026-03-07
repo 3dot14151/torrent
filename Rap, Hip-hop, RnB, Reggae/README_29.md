@@ -1,3 +1,87 @@
+###  Публикация: 83256   (200328) от 03.04.2023
+
+Т9 - Вдох - Выдох (2008) [MP3|320 kbps]<Hip-Hop|R`N`B>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_200328.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. INTRO
+02. Ода Нашей Любви (Вдох-Выдох)
+03. Кто-то развел мосты
+04. Nockio(   Читать дальше...   )Жанр: Hip-Hop|R`N`BПродолжительность: 01:18:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B4ABBE43016F205B6035C87EE0225E622858F7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626931   (199754) от 16.04.2023
+
+Noize MC - Кооператив «Лебединое озеро» (2023) Single [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_199754.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Кооператив «Лебединое озеро»Жанр: Rap, Hip-HopПродолжительность: 00:03:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47BEC50BBA610630B16D92AFBB538334FBFF9CC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639127   (197259) от 11.06.2023
+
+VA - Chillhop Essentials Summer (2023) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Chillhop, Trip Hop, Jazz Fusion>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_197259.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Birocratic, Saib, ØDYSSEE – Bonaventura (2:25)
+02. cocabona, Emperose – Lost Woods (3:14)
+03. Mo Anando – In Sequence (2:39)
+04. Misha, Jussi Halme – Soul Lounge (3:29)(   Читать дальше...   )Жанр: Hip-Hop, Chillhop, Trip Hop, Jazz FusionПродолжительность: 01:13:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B7BFD808F60F8BAE8B0637A31BEDDF160EFC49C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1658760   (190509) от 10.09.2023
 
 Аким Апачев - Гори ясно (2023) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip Hop>
@@ -658,93 +742,6 @@ VA - Chillhop Essentials - Winter 2020 [FLAC|Lossless|Web-DL|tracks] <ChillHop, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3FFD960D802A743B352844523CEB0548A3E30820
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595738   (174842) от 06.12.2022
-
-Miyagi & Эндшпиль - HATTORI (2022) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_174842.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Saloon
-2. Ночь
-3. Временно
-4. Не теряя(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:20:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3D98FC2C479DCA8930E0A7AC13FF9E0AE281EE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595731   (174380) от 07.12.2022
-
-Miyagi & Andy Panda - YAMAKASI (2020) [FLAC 2.0|44; 48/24|tracks|WEB-DL] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_174380.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Атлант
-02. Utopia
-03. Мало Нам
-04. Психопатия(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:32:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92F0FC2152FE5DF059524B995725197FC9815C66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596136   (173830) от 08.12.2022
-
-Scarlxrd - DeadRising (2021) [MP3|320 Kbps] <Trap, Hardcore Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_173830.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intrx.0000
-02. My Suicide
-03. The Walking Dead
-04. Lxuder(   Читать дальше...   )Жанр: Trap, Hardcore Hip-HopПродолжительность: 00:50:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2F9FCDD58DDC485AC25A26DD95FAE14C1714187
 ```
 
 https://mybot314.ru/tekegram_catalog/

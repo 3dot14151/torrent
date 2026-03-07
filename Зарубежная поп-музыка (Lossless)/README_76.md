@@ -1,3 +1,119 @@
+###  Публикация: 1647504   (208531) от 19.07.2023
+
+VA - Hot Pop Hits 2023 [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_208531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bebe Rexha - Heart Wants What It Wants (3:02)
+02. Galantis - Fool 4 U (feat. Enisa) (2:26)
+03. Karl Wine - PASSA PASSA (2:39)
+04. illenium - Eyes Wide Shut (2:32)(   Читать дальше...   )Жанр: PopПродолжительность: 01:01:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F25C56B670B195F4406CCB07A880C7A85290F0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1648870   (208021) от 25.07.2023
+
+Minelli - Silver & Gold - Chapter II (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_208021.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silver & Gold (2:40)
+02. Maracatu (2:24)
+03. Think About U (with SICKOTOY) (2:50)
+04. Crazy (2:46)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:35:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE66417F569D9BC3E401402A30B13455A3D4C16D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649351   (207848) от 27.07.2023
+
+Joe Dassin - Les Champs-Elysees / La Fleur Aux Dents (2019) Compilation [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_207848.jpg" />
+</div>
+
+
+###  Подробнее
+
+Les Champs-Elysees (1969)
+01. Le Chemin De Papa (2:30)
+02. Le Petit Pain Au Chocolat (3:25)
+03. Les Champs-Elysees (2:40)(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20706EAE0E897990F40EE235BC69FAF20D11BBB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610948   (207846) от 09.02.2023
+
+Mylene Farmer - L'amour XXL (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_207846.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ainsi soit je...
+02. Déshabillez-moi
+03. L'autre
+04. Beyond My Control(   Читать дальше...   )Жанр: PopПродолжительность: 00:30:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:465070AE7C5EE1C7A4848E6A22BAE2A305D7D73A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1649737   (207628) от 29.07.2023
 
 In-Grid - Chansons D'Amour (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
@@ -629,122 +745,6 @@ Toto Cutugno - 3 Albums (1990 - 2005) [FLAC|Lossless|tracks + .cue]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C98830F0DD57C18B9B7E28C45E77BBDA4A0A175
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587126   (193221) от 29.10.2022
-
-PG Roxette (Per Gessle & Roxette) - Pop-Up Dynamo! (2022) 3CD [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193221.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Per Gessle Talks P-UD! - Album title (1:01)
-02. Per Gessle Talks P-UD! - Background #1 (0:50)
-03. Per Gessle Talks P-UD! - Background #2 (0:46)
-04. Per Gessle Talks P-UD! - Background #3 (0:44)(   Читать дальше...   )Жанр: Pop, Pop-Rock |Продолжительность: 00:27:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76E1DCEEFDB8D173D0B15E057FB45C1550707E71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657251   (193026) от 02.09.2023
-
-Supermax - Types Of Skin (1980) Remastered, 2005, CD-Maximum [FLAC|Lossless|tracks + .cue]<Electronic, Pop, Funk, Reggae>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193026.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hollywood
-02. Hotline
-03. Raindance
-04. In The Middle Of The Night(   Читать дальше...   )Жанр: Electronic, Pop, Funk, ReggaeПродолжительность: 01:19:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68D183ED1F81CDC6ADD651BABA86296046C89A29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657425   (192741) от 03.09.2023
-
-Fernando Express - Der schonste Tanz mit dir (2023) [FLAC|Lossless|WEB-DL|tracks] <Dance Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192741.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - La Paloma Blue
-02 - Griechischer Sommer
-03 - Von Baden-Baden bis Berlin
-04 - Sonnenanbeter(   Читать дальше...   )Жанр: Dance PopПродолжительность: 00:47:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFF3BCAC314BEF03FF688DCDB8FDCD60F0E2DDD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657609   (192247) от 05.09.2023
-
-Debbie Gibson - Body Mind Soul (1993) Deluxe Edition, 2023, Warner Music Group - X5 Music Group [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love or Money [00:04:06]
-02. Do You Have It in Your Heart? [00:04:45]
-03. Free Me [00:04:27]
-04. Shock Your Mama [00:04:07](   Читать дальше...   )Жанр: PopПродолжительность: 02:02:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18F3C429014CC3A202F78FE14F521B19ACCF1196
 ```
 
 https://mybot314.ru/tekegram_catalog/

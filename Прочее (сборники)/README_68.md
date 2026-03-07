@@ -1,3 +1,206 @@
+###  Публикация: 1404114   (684173) от 23.08.2020
+
+VA - 100 Most Relaxing Songs Ever (2020) [MP3|320 Kbps] <Pop, R&B, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684173.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lukas Graham - 7 Years
+02. Alex Hepburn - I Believe
+03. Coldplay - Everglow
+04. SYML - Where's My Love (Acoustic)(   Читать дальше...   )Жанр: Pop, R&B, OtherПродолжительность: 06:37:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95E73AB685CC951F49532A8417158FFE6E139056
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1404068   (684158) от 23.08.2020
+
+VA - Громкие новинки Августа 2 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684158.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 3-ий Январь - Фруктовый лёд (2:15)
+02. 5sta family - Rave (2:52)
+03. Agunda - Книга (2:22)
+04. Alicia Keys, Khalid - So Done (3:55)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:09:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CF202CABEF9E3E8F2ECC553C46244600D70CC27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289627   (683994) от 17.03.2019
+
+VA - NEW 2 от Виталия 72 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_683994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Альберт Комаров - Моя Любовь
+02. Игорь Кибирев - Не Грусти
+03. Сергей Пискун - Я Счастлив
+04. MiyaGi & Эндшпиль - Половина Моя(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:30:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F7EE3FDCB16B3DA361E99EA76CD706A9304A063
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029125   (683669) от 25.06.2016
+
+VA - Дискотека 2016 Dance Club Vol. 152 от NNNB (2016) [MP3|320 кб/с] <Dance, Club, Pop, Dubstep, Breaks, Trap, Twerk, Bass, D'n'B, Chill Out>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_683669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. RoelBeat & Pruchkovsky feat. Vika Grand - Ocean Drive (Radio Edit)
+02. Arash feat. Snoop Dogg - OMG (Radio Edit)
+03. Calvin Harris - This Is What You Came For (feat. Rihanna)
+04. Rich Edwards feat. Cozi Zuehlsdorff - Where I'll Be Waiting (Original Mix)(   Читать дальше...   )Жанр: Dance, Club, Pop, Dubstep, Breaks, Trap, Twerk, Bass, D'n'B, Chill OutПродолжительность: 12:17:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C56A2F3F56BBEDAF1EA4D521AE9EB1F822DE7DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135097   (682901) от 18.05.2017
+
+VA - Italo Disco Hits Vol.14 (2017) [MP3|320 Kbps] <Disco, Italo-DIsco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682901.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  NEA! - It's A Sin (Maxi Version)  7:09
+02.  Italove & TQ - I Need Your Love  4:22
+03.  Cliff Wedge - Touch Me (Radio Edit)  3:23
+04.  Digitalo - Russian Man (ZYX Extended Version)  5:19(   Читать дальше...   )Жанр: Disco, Italo-DIscoПродолжительность: 05:26:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C16AA7B16999BFFC3F896F5F85EF73C4AC85D48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135142   (682803) от 18.05.2017
+
+VA - Союз Летний (2017) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682803.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Serebro - Между нами любовь  3:11
+02.  Валерия - Микроинфаркты  3:26
+03.  Софи - Я Тебя Искала  3:32
+04.  Людмила Соколова - Люда Хочет Войти  3:37(   Читать дальше...   )Жанр: PopПродолжительность: 01:45:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FC8D7E8EA870C12440C208A8AADCFCB12B54FC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135135   (682655) от 18.05.2017
+
+VA - 90's Eurodance #2 (2017) [MP3|320 Kbps] <Eurodance, Euro House, Techno, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682655.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  2 Unlimited - No Limit  3:31
+02.  Scooter - F'ck The Millennium  4:11
+03.  Culture Beat - Mr Vain  4:17
+04.  Captain Hollywood Project - More And More  4:10(   Читать дальше...   )Жанр: Eurodance, Euro House, Techno, DanceПродолжительность: 05:39:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27BCB159F482DD76636B7533E9B96BA914729784
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1222699   (682613) от 30.04.2018
 
 VA - Shazam: World Top 100 (Апрель) (2018) [MP3|320 Kbps] <Pop, Dance>
@@ -562,216 +765,6 @@ VA - Empire Records - Retromania (2017) [MP3|320 Kbps] <Disco, Italo Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49FB4BBF623F68F22B91D665DA240984CA3338E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223136   (678717) от 02.05.2018
-
-Avril Lavigne - My Happy Ending (2018) Remix [MP3|320 Kbps] <Deep, Techno>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678717.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. My Happy Ending (Remix)Жанр: Deep, TechnoПродолжительность: 00:03:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:556BF453F6C0AEFF03130BFCD508B0D9974F94F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223029   (678709) от 02.05.2018
-
-VA - Top 100 Зайцев.Нет Апрель 2018 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678709.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ SLON & KATYA ft. Роман Василенко - LIFE IS GOOD
-02. MATRANG - Медуза
-03. Время и Стекло - ТОП
-04. Ka-Re - Polovina(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:53:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7E9AF27E472BF9D22199E4D764968DFB6FA3196
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135662   (678591) от 20.05.2017
-
-VA - Зайцев.Нет: Топ Новинки За Май (2017) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678591.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  DJ Khaled Feat. Justin Bieber, Quavo, Chance The Rapper & Lil Wayne - I'm the One 4:49
-02.  ЛСП - Конец света 5:48
-03.  Katy Perry - Bon Appetit (feat. Migos) 3:47
-04.  Afrojack & David Guetta ft. Ester Dean - Another Life 3:22(   Читать дальше...   )Жанр: PopПродолжительность: 04:00:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8AABBBC9A4804C57D2B11E498874DBE40D73110
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 506623   (678517) от 10.06.2012
-
-VA - Club Music for DJ's Summer 9CD (2012) [MP3|320 кб/с] [Обновляемый] <Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_678517.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Alex Tasty - Music For A Fashion Generation (Original Mix) (7:37)
-2. Alfonso Padilla - Happy Friday (Superskank Remix)Жанр: Dance, ClubПродолжительность: 04:53:27
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 508538   (678509) от 10.06.2012
-
-VA - MAXI. 80 Величайших Хитов Всех Времён (2012) [MP3|320 кб/с]<Pop, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gene Vincent - Be-Bop-A-Lula
-02. Carl Perkins - Blue Suede Shoes
-03. Bill Withers - Ain't No Sunshine
-04. Queen - Bohemian Rhapsody
-05. Little Richard - Tutti Frutti
-06. Roy Orbison - Only The Lonely
-07. The Beatles - Norwegian Wood (This Bird Has Flown)
-08. Gloria Gaynor - I Will Survive
-09. The Beatles - Help!
-10. Metallica - Enter Sandman(   Читать дальше...   )2012Жанр: Pop, RockПродолжительность: 04:39:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DDA515FA1C4BE4FE8087EE9E5CE633FE654CAA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 508742   (677467) от 11.06.2012
-
-VA - Горячий клубный хит 50/50 (2012) [MP3|320 кб/с]<Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677467.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. DJ Fisun - I remember syndicate
-002. Bob Sinclar ft Pitbull, Dragonfly & Fatman Scoop - Rock The Boat (Club Mix)
-003. Radio Killer - Calling You (Extended Mix)
-004. Mexx feat. Вика Гранд - White Night (Russian Vocal Version)
-005. Chris Parker - Rock'n'Roll Revolution
-006. Мальчишник - Секс без перерыва (DJ Vengerov Remix)
-007. Aura Dione - Geronimo (The Disco Boys Remix Edit)
-008. Klaas Feat. Carlprit - Do What You Do (Radio Edit)
-009. Отпетые Мошенники - Девушки бывают разные (DJ Bee Remix)
-010. Chris Brown - Yeah 3X (Johan K & Eddie Mono Exclusive Organ Mix)(   Читать дальше...   )2012Жанр: ClubПродолжительность: 06:18:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:707568D05F4AEF78ECA7C4306D4E98994B2DC0A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223149   (677389) от 03.05.2018
-
-VA - Danced Our May Day (2018) [MP3|320 Kbps] <Tropical, House, Future Bass>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677389.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Charming Horses ft. Karlyn - Freak On (Extended Mix)
-02. Sigrid - Strangers (R3hab Remix)
-03. MAUII - This Ain't Wrong (feat. Adana)
-04. Rock Stalone - Rockstar (BBop & Rocksteadi Radio Edit)(   Читать дальше...   )Жанр: Tropical, House, Future BassПродолжительность: 03:32:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E3CDA30CFE359316A7BF2CE60E9BC029721BECF
 ```
 
 https://mybot314.ru/tekegram_catalog/

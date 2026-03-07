@@ -1,3 +1,235 @@
+###  Публикация: 1003114   (845396) от 02.04.2016
+
+Larry Young's Fuel - Spaceball (1976) 2005, BMG[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz, Jazz-Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_845396.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Moonwalk [05:33]
+ 02.Startripper [04:47]
+ 03.Sticky Wicket [09:26]
+ 04.Flytime [04:55](   Читать дальше...   )Жанр: Hard Bop, Soul-Jazz, Jazz-FunkПродолжительность: 00:42:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD855E2EB983AECF9796816F02BFCF6E2599BEBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003082   (845393) от 02.04.2016
+
+Lauren Bush - All My Treasures (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_845393.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I've Got Just About Everything I Need
+02. I'm Old Fashioned
+03. Dindi
+04. Secret Love(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:52:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:268F5212743B416F3C48D43C2BD58EFE98314517
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003096   (845390) от 02.04.2016
+
+Stefano Galli - Focus (2014) [FLAC|Lossless|tracks] <Blues, Soul-Blues, Guitar Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_845390.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jealous    04:18
+02. Lonely Day    06:04
+03. If I Lived    03:04
+04. Focus    04:05(   Читать дальше...   )Жанр: Blues, Soul-Blues, Guitar BluesПродолжительность: 00:38:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52146CD11242FC8E8D77EBE50C0F7B351CF1330F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003102   (845388) от 02.04.2016
+
+Lisa Simone - My World (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_845388.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let It All Go
+02. Unconditionally
+03. Expectations
+04. I Pray(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:45:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:592D1E48FC7E2BF87D19E8FEA337E1CC07D5E192
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002983   (845283) от 02.04.2016
+
+The Dana Fuchs Band - Lonely for a Lifetime (2003) [MP3|320 кб/с] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_845283.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Strung Out (04:21)
+02. Lonely For A Lifetime (04:12)
+03. Moment Away (03:56)
+04. Songbird (Fly Me To The Top) (04:23)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:51:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47FED7986E1BEB20BC04E1006B3738A1F8964F46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112009   (845242) от 07.03.2017
+
+George Cables Trio - I Mean You (1994) SteepleChase [FLAC|Lossless|image + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_845242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Woofin' And Tweetin' [07:49]
+ 02.Who Can I Turn To? [09:03]
+ 03.I Mean You [05:21]
+ 04.For Heaven's Sake [08:12](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:05:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0D1504465ABCBAE67204617685E91427E353FE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112027   (845240) от 07.03.2017
+
+George Cables Trio - Beyond Forever (1992) SteepleChase [FLAC|Lossless|image + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_845240.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Lost Dreams [07:07]
+ 02.Round About Midnight [04:14]
+ 03.The Phantom Of The Islands [07:05]
+ 04.Beyond Forever [08:37](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:05:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9978D5470F1FA6F0AE4F9F2A9FC5640446192B78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112032   (845238) от 07.03.2017
+
+George Cables Trio - Bluesology (1998) SteepleChase [FLAC|Lossless|image + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_845238.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.In your own sweet way [06:51]
+ 02.Easy livnig [06:42]
+ 03.There is no greater love [05:42]
+ 04.Voodoo lady [05:13](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:09:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:475C41C086214F63E6F076B8C377DC4067DBAE4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1111997   (845236) от 07.03.2017
 
 Jason Moran - All Rise (2014) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop, Modern Creative>
@@ -509,237 +741,6 @@ Bobby Hutcherson - Cruisin' The 'Bird (1988) 1992, Landmark Records[FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC334EE2839921F679CF4F44DADBA4FB164D76A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003513   (843581) от 03.04.2016
-
-Joe Zawinul - Money In The Pocket (1966) Remaster, 2012, Warner[FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843581.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Money In The Pocket [04:47]
- 02.If [03:48]
- 03.My One And Only Love [03:53]
- 04.Midnight Mood [06:07](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:38:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD305B94339720FBFE288C47A774B82D4F6A1A6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112315   (843404) от 08.03.2017
-
-WYSI WYG - What You See Is What You Get (1997) SubConscious [APE|Lossless|image + .cue] <Jazz Fusion, Jazz Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843404.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Smile [06:17]
- 02.Hen [04:40]
- 03.Secret Forest [00:52]
- 04.Ice on Fire [05:09](   Читать дальше...   )Жанр: Jazz Fusion, Jazz RockПродолжительность: 01:03:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA769E7AB5A1255D413B767658BA19D19A528881
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112306   (843400) от 08.03.2017
-
-Larry Coryell - Inner Urge (2001) HighNote [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843400.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Compulsion [05:31]
- 02.Abra Cadabra [05:46]
- 03.Inner Urge [05:26]
- 04.Tonk [04:49](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:55:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FF1CFB30B9CB851EEEF322A86207630F92F019A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112314   (843396) от 08.03.2017
-
-Larry Coryell & The Eleventh House - January 1975 (2014) Promising Music [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Jazz Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843396.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Bird Fingers [02:50]
- 02.Diedra [04:27]
- 03.Gratitude ''A So Low'' [03:00]
- 04.Low Lee Tah [06:37](   Читать дальше...   )Жанр: Jazz Fusion, Jazz RockПродолжительность: 01:07:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F97CDAE97B2AFDB5E7CFDD99B18C6DFBA5F8D30D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112301   (843394) от 08.03.2017
-
-Anita O'Day - Sings The Winners (1958) 1989, Verve [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843394.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Take The ''A'' Train [02:53]
- 02.Tenderly [02:43]
- 03.Interlude (A Night In Tunisia) [02:37]
- 04.Four [02:53](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:36:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08BF768F7BDB3492298C181E22FF4B43A64901C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112164   (843301) от 08.03.2017
-
-Mick Clarke - 2 Album (2014 - 2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843301.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2014 - Crazy Blues
-2017 - Diggin' DownЖанр: Blues-RockПродолжительность: 01:39:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E230B47D35B60D52E7073278F125CEAE6115C2D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111806   (843295) от 08.03.2017
-
-Meade Lux Lewis - Cat House Piano (1954 - 1955) 1998, Verve [FLAC|Lossless|tracks + .cue] <Boogie-Woogie, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.The Pittsburgh Flyer [05:04]
- 02.Dragon Blues [04:58]
- 03.Jabouti [06:12]
- 04.Torpedo Juice [05:20](   Читать дальше...   )Жанр: Boogie-Woogie, Piano JazzПродолжительность: 01:16:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BAF1040C156B4081E4260202153094EDAB38CD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003238   (843136) от 03.04.2016
-
-VA - Voices in Lounge, Vol. 2 (20 Top Songs with Best Vocal Performances) (2016) [MP3|320 кб/с] <Vocal Jazz, Lounge>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843136.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ltj Xperience feat. Joe Bataan - Ordinary Guy (08:05)
-02. 2 Men 4 Soul - Ribbon in the Sky (04:14)
-03. Neja - Crime of Passion (03:27)
-04. Robert Passera - Yo yo boy (03:33)(   Читать дальше...   )Производство: SuonaphoneЖанр: Vocal Jazz, LoungeПродолжительность: 01:28:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF6C443DCA228ADA27C933B40D7B23A9BF4D29B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

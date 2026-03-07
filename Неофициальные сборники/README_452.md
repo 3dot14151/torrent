@@ -1,3 +1,293 @@
+###  Публикация: 712902   (403241) от 19.10.2013
+
+Duran Duran - 25 Best Songs (2012) [MP3|233 - 266 кб/с]<Synthpop>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_403241.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mars Meets Venus 2000
+02. All You Need Is Now 2010
+03. Is There Something I Should Know 1981
+04. The Reflex 1983(   Читать дальше...   )Жанр: SynthpopПродолжительность: 01:50:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92BAAC7395CE466B61D5C46B3622A158E258E111
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 712388   (403231) от 19.10.2013
+
+Sandra - 25 Best Songs (2012) [MP3|218 - 275 кб/с]<Synthpop>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_403231.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maria Magdalena (Single Version) 1985
+02. In The Heat Of The Night (Single Version) 1985
+03. Little Girl 1985
+04. Midnight Man (Single Version) 1986(   Читать дальше...   )Жанр: SynthpopПродолжительность: 01:34:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FDC62E4D3187CF4D444C4A7847844ECFA5AE11A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 712613   (403230) от 19.10.2013
+
+C.C. Catch - 25 Best Songs (2012) [MP3|256 кб/с]<Eurodisco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_403230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cause You Are Young 1986
+02. Heartbreak Hotel 1986-2
+03. Goog Guys Only Win In Movies 1987
+04. Backseat Of Your Cadillac 1988(   Читать дальше...   )Жанр: EurodiscoПродолжительность: 01:44:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6B405B225CD3DAB4204CD9CC638F845ECBF508A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 712606   (403223) от 19.10.2013
+
+Modern Talking - 25 Best Songs (2012) [MP3|228 - 267 кб/с]<Eurodisco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_403223.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You're My Heart, You're My Soul 1985-1
+02. Cheri Cheri Lady 1985-2
+03. Lady Lai 1986-1
+04. China In Her Eyes 2000(   Читать дальше...   )Жанр: EurodiscoПродолжительность: 01:36:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14F20322017E2F19599C41F9ACB1B215701289F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 712805   (403216) от 19.10.2013
+
+Sade - 25 Best Songs (2012) [MP3|209 - 248 кб/с]<Soul>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_403216.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No ordinary love 1992
+02. Smooth operator 1984
+03. Your love is king 1984
+04. Hang on to your love 1984(   Читать дальше...   )Жанр: SoulПродолжительность: 01:58:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B12C26695E2E8E8396CFD691A4E6E04E39E7BE44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 713015   (403204) от 19.10.2013
+
+A-ha - 25 Best Songs (2012) [MP3|320 кб/с]<Synthpop>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_403204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take On Me 1985
+02. The Sun Always Shines On TV 1985
+03. Hunting High And Low (7'' Remix) 1985
+04. Scoundrel Days 1986(   Читать дальше...   )Жанр: SynthpopПродолжительность: 01:46:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB9FB3374D1D229CEF5D97DF95248235EDF12FF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 712966   (403176) от 19.10.2013
+
+Chris Rea - 25 Best Songs (2012) [MP3|197 - 270 кб/с]<Blues-Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_403176.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Road To Hell (Part 2) 1989
+02. King Of The Beach 2000
+03. Auberge 1991
+04. Josephine 1985(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 01:56:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4872F3B02622077633653BDBE207E63263E14497
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 712438   (403175) от 19.10.2013
+
+Alphaville - 25 Best Songs (2012) [MP3|243 - 320 кб/с]<Synthpop>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_403175.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Big in Japan 1984
+02. Sounds Like a Melody 1984
+03. For a Million 1989
+04. Jerusalem 1986(   Читать дальше...   )Жанр: SynthpopПродолжительность: 01:54:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6927DEAD487AEB1542D5D0070875ABBC5C84F0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 712580   (403166) от 19.10.2013
+
+Michael Jackson - 25 Best Songs (2012) [MP3|235 - 272 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_403166.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Billie Jean 1982
+02. Beat It 1982
+03. Wanna Be Startin' Somethin' 1982
+04. Human Nature 1982(   Читать дальше...   )Жанр: PopПродолжительность: 01:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E54FC3C64C056711886B83104617C8B30639B95F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169477   (403150) от 27.09.2017
+
+VA - Empire Records: Classic Disco (2017) [MP3|320 Kbps] <Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_403150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aeroplane, Tawatha Agee — Love On Hold (Extended Mix)
+02. Shawn Christopher — You Can Make It (Ron Carrolls Mix)
+03. Miguel Campbell feat. Benjamin Diamond — Gold Rush
+04. Angela Puxi — Housing to Jazz (Sinan Mercenk's Radio Edit)(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:46:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:994794FC3874B27AAEA37430DB2EA4E937C4B81E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1169486   (403142) от 27.09.2017
 
 VA - Deep House Collection Vol.137 (2017) [MP3|320 Kbps] <Deep House, Club House, Tech House>
@@ -521,311 +811,6 @@ VA - Empire Records - Disco Chill Out (2017) [MP3|320 Kbps] <Dance, Club>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:773D56B3188505F9ABB52E98769F894CA525F999
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 564829   (402433) от 24.10.2012
-
-VA - Осенний Муз-Paradise (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402433.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Светлана Лобода - 40 Градусов
-02. Маша Вебер - Все для тебя
-03. Светлана Разина и Наталья Гулькина - Женщине верить нельзя!
-04. Полина Гагарина - Спектакль окончен
-05. Горячий Шоколад - За Тобой
-06. MMDance feat. Dj Smash - Суббота
-07. Дарья Ярцева - Дай Мне
-08. Artik & Asti - Облака (DFM mix)
-09. Денис Клявер - Твои руки
-10. B.K. - Просто Забудь(   Читать дальше...   )Жанр: PopПродолжительность: 06:00:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8445486D257E34338C901EEA39C9A432197BDC3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 564836   (402420) от 24.10.2012
-
-VA - Русский муз-хит (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402420.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. NikitA - Давай, Стреляй!
-02. Соня Кей - Сумасшедшая Любовь
-03. Ани Лорак - Зажигай сердце
-04. Алексей Кабанов feat. Max Hohlunov & DJ HaLF - Я Думаю О Том
-05. O`Hara feat. DJ Kirill Clash - До Рассвета
-06. Lalo Project feat. Wegmix - Живу тобой
-07. Anton Pavlovsky feat. Anisa - Без Тебя
-08. RAЯ - Всё Не Просто
-09. Reflex - Потому Что Не Было Тебя 2012
-10. Потап и Настя - Улелето(   Читать дальше...   )Жанр: PopПродолжительность: 06:02:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5E8AEE8375042D4F941DC540336BB5784096C85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 712800   (402313) от 20.10.2013
-
-Blue System - 25 Best Songs (2012) [MP3]320 кб/с]<Eurodisco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402313.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gangster Love 1987
-02. Sorry Little Sarah 1987
-03. Big Boys Don't Cry 1987
-04. Under My Skin 1988(   Читать дальше...   )Жанр: EurodiscoПродолжительность: 01:31:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A74B8824754C142327C2B64E55E80BC4186CC12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 564844   (402120) от 24.10.2012
-
-VA - Дискотека бездна Exclusive 9000 50/50 (2012) [MP3|128 кб/с]<Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402120.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Горячий Шоколад - За Тобой
-002. Madeon - The City
-003. Alyosha (Алеша) - Точка На Карте
-004. Arty & BT feat. Nadia Ali - Must Be The Love (Radio Edit)
-005. Soda - Знаки
-006. Hi-Fi - Земляничный Дождь
-007. Celia feat. Mohombi - Love 2 Party (Dream Vibers Remix)
-008. Юлия Войс - Ненавижу Любя
-009. Justice Crew ft. Bonnie Anderson - Gonna Make You Sweat
-010. Олег Винник - Па-па(   Читать дальше...   )Жанр: PopПродолжительность: 12:34:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEDC57E386867B3F6179985D3511F536B7FC3B32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 564181   (401831) от 24.10.2012
-
-3D Коллекция - Виктор Королев, Андрей Бандера, Сергей Любавин (2012) [MP3|320 кб/с]<Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401831.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ШансонПродолжительность: 01:12:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:340AD8B1D5A76E7E410FFC4D0759ACDBCAD18013
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 713292   (401713) от 21.10.2013
-
-VA - Drum & Bass, Lounge Drive (2013)(3CD) [MP3|320 кб/с]<Drum & Bass>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401713.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gio Di Leva, Christian Chaval, Nello Simioli - Gaya (Nice Journey Mix)
-02. Coleco - Sentinel
-03. Out Of Sight - Float On By (Like The Wind)
-04. Calibre - Running(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:18:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42107BA911D6BFF0BFE189DCCDD744016C780D0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 713482   (401659) от 21.10.2013
-
-Alexander Bard's projects - 25 Best Songs (2012) [MP3|234 - 279 кб/с]<Eurodance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401659.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Army of Lovers - Lit De Parade 1994
-02. Army of Lovers - Obsession 1991
-03. Army of Lovers - Crucified 1991
-04. Army of Lovers - Ride The Bullet [1991 Remix] 1990(   Читать дальше...   )Жанр: EurodanceПродолжительность: 01:32:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2122F1D99CA8F0D1EE64A7936D58B86657B2979F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169842   (401589) от 29.09.2017
-
-VA - Pacific Trance Vol.09 (2017) [MP3|320 Kbps] <Trance, Progressive Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401589.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Armin van Buuren - Sunny Days (feat. Josh Cumbee)
-002. Union Jack - Blink (Club Version)
-003. Paul Van Dyk & Pierre Pienaar - Stronger Together
-004. Soren Andrews - Pacific Coast Highway (Original Mix)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 10:50:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5608173C881AE9C2A1C449213DEBE9276CB2C9DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 713446   (401567) от 21.10.2013
-
-Camouflage - 25 Best Songs (2012) [MP3|220 - 259 кб/с]<Synthpop>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401567.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Me and You 2003
-02. Love Is A Shield (Single Version) 1989
-03. Neighbours (Single Version) 1988
-04. Passing By 2006(   Читать дальше...   )Жанр: SynthpopПродолжительность: 01:47:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:745A9515AFF64500F697CB3A0D55AE80E556CAAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 713880   (401529) от 21.10.2013
-
-Laid Back - 25 Best Songs (2012) [MP3|204 - 257 кб/с]<Synthpop>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401529.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. White Horse (U.S. Edit) 1983
-02. Bakerman 1990
-03. Sunshine Reggae 1983
-04. Universe Lovesong 2005(   Читать дальше...   )Жанр: SynthpopПродолжительность: 01:49:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D552F2A26494AA0E51045942B0C50074FF61F11C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1091120   (943026) от 09.01.2017
+
+VA - Зимний драйв. Русский сборник (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943026.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Саша Санта - Попрошу 3:25
+002. Яков Самодуров - Хочу 3:15
+003. Play - Друг 2:51
+004. Митя Фомин Feat. Fomka - Мобилка 2:52(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:133BFD904CD8E8820DC3546D8337AF8A0D7B832A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984047   (942191) от 07.02.2016
+
+VA - German Dance Hits №1 (2016) [MP3|256-320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942191.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Justin Bieber - What Do You Mean
+002. Major Lazer feat. Nyla - Light It Up
+003. Zara Larsson - Lush Life
+004. Justin Bieber - Sorry(   Читать дальше...   )Жанр: PopПродолжительность: 06:04:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F54551B589C56B39D5FB7AE4B232CC64B6C6604
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 983282   (942049) от 07.02.2016
 
 VA - Музыкальный водопад. Версия 5 (2016) [MP3|256 кб/с] <Pop, Dance>
@@ -684,64 +742,6 @@ VA - UNKNOWN 80'S (PART XII) (2020) [MP3|320 Kbps] <Electronic Pop Rock, Synthpo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E3D8EDE94912119B83725BD3B9EFCE7A5321398
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363366   (935664) от 03.03.2020
-
-VA - 100 Hits Of The 70's & 80's & 90's (2020) [MP3|320 Kbps] <Rock, Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935664.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Jacksons - Blame It On The Boogie 3:34
-002. Boney M. - Rivers Of Babylon (Single Version) 4:00
-003. Elvis Presley - Burning Love (Live) 2:57
-004. Billy Swan - I Can Help 3:58(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 19:10:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8128756D49711DD3BCAB44F58320A199711C8AE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984379   (935518) от 11.02.2016
-
-VA - Evolution of Disco - CD1 (1964-2015) [MP3|128-320 кб/с] <Funk,Disco,House>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935518.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Billy Paul - Me and Mrs. Jones  04:51
-02. Jerry Butler - One Night Affair  03:28
-03. Diana Ross - Where Did Our Love Go  02:36
-04. The O'Jays - Now That We Found Love  04:42(   Читать дальше...   )Жанр: Funk,Disco,HouseПродолжительность: 05:12:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CEEADD9CC9A37311C16AFE12125CF3DCD77EFD0
 ```
 
 https://mybot314.ru/tekegram_catalog/

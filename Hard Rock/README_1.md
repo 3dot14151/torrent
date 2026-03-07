@@ -1,3 +1,32 @@
+###  Публикация: 1452809   (1027384) от 08.03.2021
+
+Laos - We Want It (1990) [MP3|320 Kbps] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027384.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Want It (02:46)
+02. Why Is a Good Love (03:43)
+03. Now That It's Over (04:15)
+04. Straight to the Top (03:18)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:40:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8361337B6C82D3361DD99EBE095172392471AF15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1453170   (1027221) от 09.03.2021
 
 Orion the Hunter - Orion the Hunter (1984) [MP3|320 Kbps] <Hard Rock>
@@ -727,41 +756,6 @@ Airbourne - Runnin' Wild (2007) [MP3|320 кб/с]<Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B2FFB0CAD5D6E41DF5114503CF63CE442C1272B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602663   (997551) от 13.01.2013
-
-Corroded - State of Disgrace (2012) [MP3|320 кб/с]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997551.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oderint Dum Metuant
-02. Let Them Hate As Long As They Fear
-03. More Than You Can Chew
-04. I Will Not
-05. Uncommon Sense
-06. I Am the God
-07. Believe in Me
-08. Beautiful Revolution
-09. Dirt
-10. As I Am(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AA0AB971AA3B7ED09953797F511D662F149DB52
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1269268   (221575) от 14.12.2018
+
+VA - Utopia II (2018) Rebellion der Traumer [FLAC|Lossless|WEB-DL|tracks] <Melodic Techno & House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_221575.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Monolink – WY (07:36)
+02. Iorie & Coss – Hadad (07:15)
+03. Elfenberg – Kazikot (07:01)
+04. Acado – Die Verdichtung des Raums (06:28)(   Читать дальше...   )Жанр: Melodic Techno & HouseПродолжительность: 01:42:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:177BCBCFF93B7038CDF974CB064B4DF2BCE03F0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1269308   (221530) от 14.12.2018
+
+VA - Utopia (2017) Rebellion der Traumer [FLAC|Lossless|WEB-DL|tracks] <Melodic Techno & House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_221530.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bernstein (CH) – Odlicht (06:56)
+02. Schattenspiel – Tiefsicht feat. René Van Munster (07:47)
+03. Ben Bohmer – Zweisamkeit (05:11)
+04. GYRL – Tesseract (07:33)(   Читать дальше...   )Жанр: Melodic Techno & HouseПродолжительность: 01:04:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C042F38E4F41580106730E17EF6F04A5309FC751
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513816   (221318) от 01.12.2021
+
+VA - Vocal House Essentials (2021) [FLAC|Lossless|WEB-DL|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_221318.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lopi Native - Let Me Love You (Indy Lopez Remix) (06:41)
+02. KaiMack - Magic (06:02)
+03. Claire Wakeman - Addicted To You (Indy Lopez Remix) (05:29)
+04. Naked Flame - Follow You (Vocal Mix) (04:07)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:27:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45B33870327DA3B6642723766F622331F1B2B0CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425688   (220589) от 21.11.2020
+
+Marsh - Lailonie (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic House & Techno, Dancefloor>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_220589.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Florence (5:06)
+ 02. Lailonie (3:46)
+ 03. Amor (by Marsh & Wassu) (4:22)
+ 04. My Stripes (Ft. Leo Wood) (4:27)(   Читать дальше...   )Жанр: Melodic House & Techno, DancefloorПродолжительность: 00:56:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDFEDCA89310814F6D29AC42D3BFC9A77C80168E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1585496   (220524) от 23.10.2022
 
 VA - ADE Inspirations (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Melodic House & Techno>
@@ -620,122 +736,6 @@ The Exaltics - The 7th Planet (2023) [FLAC|Lossless|WEB-DL|tracks] <sci-fi elect
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB473249C5ADDFE4C69EEF47B40B1AC333F44293
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655210   (204546) от 25.08.2023
-
-VA - Extreme Street Workout Songs For Fitness & Workout 2023 (Fitness Version 128 Bpm) [FLAC|Lossless|WEB-DL|tracks] <House, Dance, Pop>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204546.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Th Express - Cuff It (Fitness Version 128 Bpm) (4:50)
-02. Lawrence - Celestial (Fitness Version 128 Bpm) (4:33)
-03. D'Mixmasters - Nothing Is Lost (you Give Me Strenght) (Fitness Version 128 Bpm) (5:07)
-04. Kyria - Black Mascara (Fitness Version 128 Bpm) (4:35)(   Читать дальше...   )Жанр: House, Dance, PopПродолжительность: 01:10:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A74DB6C9EFA7745609DC7CDF9AFA9999187A0CFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1656685   (203083) от 31.08.2023
-
-VA - Augmented 010  Dowden x Mango (2023) [FLAC|Lossless|WEB-DL|tracks] <Minimal,Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203083.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cheric - Stories [7:06]
-02. Niceshot - Temporal [7:27]
-03. Alex O'Rion - Ukko (Alternative Mix) [7:05]
-04. Fran Garay - Deductions [7:50](   Читать дальше...   )Жанр: Minimal,Tech HouseПродолжительность: 02:28:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD497A1EFF899DCC4DCB4E11AA78FF3E14C8DB6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1829246   (202108) от 25.10.2025
-
-VA - Lounge Music (Deep Strips Records) (2025) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. N.E.O.N - Feel The Fire (3:16)
-02. DeepTurco - Memory (3:33)
-03. The Fly - Rewind (2:46)
-04. Sharapov - Keep On Rising (3:19)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:40:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:844B98622569F7765826811EE76ABEA148F62558
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319445   (201955) от 02.03.2023
-
-Late Night Alumni - Silver (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Downtempo, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201955.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mine (3:19)
- 02. Float (4:06)
- 03. Virtue (3:40)
- 04. White Bear (3:04)(   Читать дальше...   )Жанр: Electronic, Downtempo, Deep HouseПродолжительность: 00:49:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44E429D7492DFB1BE5D617C6613EDB8B262C21FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

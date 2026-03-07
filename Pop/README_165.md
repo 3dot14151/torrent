@@ -1,3 +1,208 @@
+###  Публикация: 1303103   (576164) от 19.05.2019
+
+Various Artists - Eurovision Song Contest Tel Aviv 2019 - Dare To Dream (2019) Compilation [FLAC|Lossless|tracks] <Electronic, Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_576164.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Jonida Maliqi - Ktheju tokës (3:07)
+02. Srbuk - Walking Out (2:58)
+03. Paenda - Limits (3:02)(   Читать дальше...   )Жанр: Electronic, Rock, PopПродолжительность: 02:03:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADB4C6EB22B1A865057A7753AE8AF51BC6532C02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303158   (575999) от 19.05.2019
+
+VA – Мой адрес-море (2005) [FLAC|Lossless|image + .cue]<Советская эстрада, Ретро>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_575999.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Эдуард Хиль - Мой адрес-море
+02. Леонид Утёсов - Родная морская
+03. Юрий Гуляев	- Усталая подлодка
+04. Жан Татлян - Корабли(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 00:55:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F117B9F140F8A0C3F7505DE1B4A67FE64D4D01C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303273   (575996) от 19.05.2019
+
+VA - From Disco to Disco 2 (2019) [FLAC|Lossless|WEB-DL|tracks] <Disco, Nu-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_575996.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. GusGus - Add This Song (Patrick Chardronnet Mix Remix) (7:54)
+02. Gui Boratto & Nathan Berger - The Phoenix (4:00)
+03. Matt Sassari - Dope Safari (Natch & Dothen Remix) (6:15)
+04. Superpitcher - Disko ! (You Don't Care) (7:17)(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 02:31:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24D324EF886E225BAEAF419569513FA9D4E03B11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554232   (575776) от 31.05.2022
+
+Sparks - Exotic Creatures of the Deep (2008) Deluxe Edition, 2022, BMG [MP3|320 Kbps] <Pop, Rock, Synth-pop, New Wave>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_575776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Good Morning
+03. Strange Animal
+04. I Can't Believe That You Would Fall for All the Crap in This Song(   Читать дальше...   )Жанр: Pop, Rock, Synth-pop, New WaveПродолжительность: 01:00:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58BAC0F6039FF34A3154DBC023AFC2FA8A5F7890
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554239   (575756) от 31.05.2022
+
+Sparks - The Seduction of Ingmar Bergman (2009) Deluxe Edition, 2022, BMG [FLAC|Lossless|tracks] <Pop, Rock, Synth-pop, New Wave>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_575756.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 1956 Cannes Film Festival [00:01:55]
+02. "I Am Ingmar Bergman [00:03:09]
+03. Limo Driver (Welcome to Hollywood) [00:03:08]
+04. "Here He Is Now" [00:01:18](   Читать дальше...   )Жанр: Pop, Rock, Synth-pop, New WaveПродолжительность: 01:04:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC8E2F8688D7F34BEE9C7AE02F103725C519935A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 921414   (575382) от 25.07.2015
+
+Alcazar - Disco Defenders (2015) [MP3|320 кб/с]<Europop, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_575382.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Young Guns (Go For It)
+02. Feel 4 YouЖанр: Europop, DiscoПродолжительность: 00:58:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03A684172F704631D3251B013A66BACFB6E28E72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 812314   (574962) от 12.08.2014
+
+Francesco Salvi - Megasalvi (1989) [APE|Lossless]<Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_574962.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Esatto ! 3:44
+02. C'e' Da Spostare Una Macchina 3:45
+03. Il Lupo 4:33
+04. Universal Love (Speaker's Corner) 4:31
+05. Taxi 4:20
+06. Son Contento 4:26
+07. Maionese 4:09
+08. Le Solite Promesse 5:14Жанр: Italo-DiscoПродолжительность: 00:34:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8E6369DA6B1B716CBBE9B3C62D839F3BEABC6C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 812380   (574840) от 12.08.2014
 
 Luv - You're The Greatest Luver (1996) [FLAC|Lossless]<Disco>
@@ -599,220 +804,6 @@ Fear of Tigers - Zoipa (2014) EP [MP3|320 кб/с]<Electronic, Indie Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8EB7D938AD7F3559FA6FCBD068B111D54E96CE7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921900   (573752) от 26.07.2015
-
-Fear of Tigers - Christmas In Kaohsiung (2013) EP [MP3|320 кб/с]<Electronic, Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573752.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kaohsiung Christmas
-02. Hey, Can We Go Back?
-03. HidupЖанр: Electronic, Indie PopПродолжительность: 00:11:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E90B7051FD880D5FA735BC95E1F8F001D7C8FE2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921808   (573643) от 26.07.2015
-
-Inna - Body and the Sun (2015) [MP3|320 кб/с]<Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573643.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Too Sexy
- 02. Bop Bop (feat. Eric Turner)
- 03. Rendez Vous
- 04. Salina Skies(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:50:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7436CF580E6BA61A6BBE7A3B154173BAE2525E87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921818   (573267) от 26.07.2015
-
-ВИА Гра - Всё лучшее в одном (2015) [MP3|320 кб/с]<Pop, Dance>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573267.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Бриллианты
-02. Океан и три реки
-03. У Меня Появился Другой
-04. Перемирие(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:25:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A175B03872957F00D1282CE19DA470277D11480
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303531   (573085) от 21.05.2019
-
-Elohim - Elohim (2018) Deluxe Edition [Explicit] [MP3|320 Kbps] <Synthpop, Electropop, Indie-Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573085.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Why Am I Like This? (01:50)
-02. The Wave (03:10)
-03. Sleepy Eyes (With Whethan) (03:22)
-04. Skinny Legs (05:10)(   Читать дальше...   )Жанр: Synthpop, Electropop, Indie-DanceПродолжительность: 01:32:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08010C92837674A959E5F5D4C620B07EF636D5E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 812633   (573060) от 13.08.2014
-
-Babe - Hollands Glorie (2003) [MP3|320 кб/с]<Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573060.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Drunken Sailor
-02. Ooh La La I'm Falling
-03. Mister Blitzer
-04. Wanna Do (What Mamma Said)
-05. Please Me Please Do
-06. (Never Listen To A) Bouzouki Player
-07. I'm A Rocking Machine
-08. Wonderboy
-09. Billy Joe
-10. Indian Habbits(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:04:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D71006148022159E3693D791A0CEF33C7365AAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 812632   (573034) от 13.08.2014
-
-Babe - Never Listen To A Bouzouki Player (2001) [MP3|320 кб/с]<Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573034.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. (Never Listen To A) Bouzouki Player
-02. Break Away
-03. Do You Know What Love Means
-04. It's Only A Matter Of Time
-05. L.O.V.E.
-06. Only A Woman
-07. Ooh La La I'm Falling
-08. Please Me, Please Do
-09. Rain In Spain
-10. The Spanish Shuffle(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:58:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:465C69FC5E42ECB83971A7ED6D145659036177F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303549   (572887) от 21.05.2019
-
-VA - We Love Summer (2019) [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572887.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mabel - Don't Call Me Up
-02. Shawn Mendes - If I Can't Have You
-03. Mark Ronson - Nothing Breaks Like a Heart
-04. Billie Eilish - bad guy(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:27:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA71C2463BA22C9C87FFB9085BCB13D0C9242C17
 ```
 
 https://mybot314.ru/tekegram_catalog/

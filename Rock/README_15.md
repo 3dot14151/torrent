@@ -1,3 +1,32 @@
+###  Публикация: 1374585   (872981) от 10.04.2020
+
+Mungo Jerry - Touch the Sky (2020) [MP3|320 Kbps] <Blues, Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872981.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Touch the Sky
+02. You'll Be Sorry
+03. Rhythm is a Healer
+04. I'll Be a Hippy 'Til I Die(   Читать дальше...   )Жанр: Blues, Rock, Classic RockПродолжительность: 00:49:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ABA25244931865EBDBE425B0D6054603BC1E2EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1496465   (872847) от 17.09.2021
 
 VA - 100 Greatest Britpop Songs (2021) [MP3|320 Kbps] <Rock>
@@ -728,35 +757,6 @@ Tower - Titan (1982) Reissue, 2010, CNR Music [MP3|320 Kbps] <Pop Rock,  Symphon
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F98F41FD2B63F89713ACB4D99BA71F6C97F8B5D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376566   (858558) от 18.04.2020
-
-No Good Sons - Sin Reprisal (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Intro [00:00:37]
-02 - Highway Robbery [00:03:30]
-03 - Rolling Around [00:04:03]
-04 - One Last Time [00:04:30](   Читать дальше...   )Жанр: RockПродолжительность: 00:44:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9D7342A4C4A7C71AD406790196D5DC970CBCC6D
 ```
 
 https://mybot314.ru/tekegram_catalog/

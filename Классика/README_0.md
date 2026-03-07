@@ -1,3 +1,33 @@
+###  Публикация: 1413232   (1029914) от 21.02.2021
+
+Otavio de Assis Brasil - The Great Classical Music Played On Accordion (2020) Several Records [FLAC 2.0|48/24|tracks|WEB-DL] <Classical>
+
+>>Классика
+>>Классика (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029914.jpg" />
+</div>
+
+
+###  Подробнее
+
+Otavio de Assis Brasil (из Сан-Габриэль, Бразилия, г.р. - 1984) - бразильско-испанский аккордеонист. Первый южноамериканец, получивший высшую университетскую степень по классическому аккордеону в консерватории Арагона под руководством Анхеля Луиса Кастаньо, своего главного учителя, от которого до сегодняшнего дня он получает советы.
+С 2009 года он также изучал музыкальную (   Читать дальше...   )Antonio Vivaldi: Las Cuatro Estaciones. Concerto In F Minor, RV 297, Op. 25, "Invierno":
+01. I. Allegro Non Molto (03:34)
+02. II. Largo (02:14)
+03. III. Allegro (02:58)Жанр: ClassicalПродолжительность: 01:05:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59F425893A074C5E63A856DB4A52622999997C95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1449674   (1029521) от 23.02.2021
 
 Andrey Denisov - Plays Bach (2019) [FLAC|Lossless|WEB-DL|tracks] <Classical Crossover, Neoclassical>
@@ -716,35 +746,6 @@ Relaxing Classical Piano Music - The Unforgettable Piano Mix (2021) [FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B577BB2ADF75AF431274E65D0067618A3047C140
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1474082   (1013206) от 01.06.2021
-
-Le Concert des Nations - L'Orchestre du Roi Soleil Symphonies, Ouvertures & Airs a jouer (1999) [MP3|320 Kbps] <Classical, Baroque>
-
->>Классика
->>Концерты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013206.jpg" />
-</div>
-
-
-###  Подробнее
-
-Les Bourgeois Gentilhomme (1670)
-01. Ouverture [00:02:59]
-02. Gavotte [00:01:41]
-03. Canaries [00:01:16](   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 01:04:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5DC036ADDDE1B9AC2D5142830CB656516A17897
 ```
 
 https://mybot314.ru/tekegram_catalog/

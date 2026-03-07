@@ -1,3 +1,67 @@
+###  Публикация: 491314   (246335) от 03.05.2012
+
+VA - Сказочный Мир Русского Радио (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_246335.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Reflex - Первый Раз (Версия 2012)
+002 Nikita - 2012 (Video Version)
+003 Dj Fudge - My Budem Vmeste
+004 Алсу - Утро Надежд
+005 Авраам Руссо - Нелюбимая
+006 Samol Feat. A - Sen - Малиновые Сны (Dj Movskii & Dj Karasev Official Extended Rework)
+007 Алисия - Поцелуй Меня (Ночное Движение Remix)
+008 Анна Суворова - Слезы На Твоей Подушке
+009 Аника - Прятки
+010 Стас Пьеха - Старая История2012Жанр: PopПродолжительность: 06:12:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3963E74EE737EED00F26590255E349AF94370034
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1833367   (246165) от 01.11.2025
+
+Sofia Bellini - Favorites Collection Part 8 (2025) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Sunoai>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_246165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Goditi il momento 3  version
+ 02 - Nel silenzio di te 1  version
+ 03 - Ti voglio bene 1  version
+ 04 - Amaro in bocca(   Читать дальше...   )Жанр: Italodisco, Italodance, Eurodisco, Eurodance, SunoaiПродолжительность: 00:34:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7FAF470BE483A3006F43006AA29E87BD42798BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1447714   (246031) от 14.02.2021
 
 VA - Ouca Playlist (2021) [MP3|320 Kbps] <Pop, Dance>
@@ -687,64 +751,6 @@ VA - German Top 40 DBC Deutsche Black Charts 24.02.(2017) [MP3|192-320 Kbps] <Hi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4B4F41DEA9455A6AC2D7E02E8910FDED0763936
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108435   (241992) от 25.02.2017
-
-VA - Музыкальный презент хорошей музыки от Европы Плюс (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241992.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Helena Shadia Feat. Cj One-X - Давай Сейчас Помечтаем 3:38
-002. Tiana - Мне Так Жаль 3:44
-003. Kami - Бегу 3:42
-004. Fargo Feat. Arma - Танцемания 3:40(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C45C9FC9F222216556DDFC1722993379E0AC26B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108474   (241860) от 25.02.2017
-
-VA - German Top 100 Single Charts 24.02. (2017) [MP3|320 Kbps] <Pop , Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241860.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ed Sheeran - Shape of You 3:54
-002. Zayn & Taylor Swift - I Don't Wanna Live Forever (Fifty Shades Darker) 4:05
-003. Kygo & Selena Gomez - It Ain't Me 3:41
-004. The Chainsmokers - Paris 3:42(   Читать дальше...   )Жанр: Pop , DanceПродолжительность: 05:55:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F15B8484871195B767EB7510AB35928523426669
 ```
 
 https://mybot314.ru/tekegram_catalog/

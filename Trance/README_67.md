@@ -1,3 +1,90 @@
+###  Публикация: 1756588   (39573) от 22.10.2024
+
+Kyau & Albert - All in Good Time (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39573.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kyau & Albert - Morning Glimmer (04:11)
+02. Kyau & Albert & Steve Brian - Dreaming Awake (DJ Version) (05:32)
+03. Kyau & Albert - All in Good Time (DJ Version) (06:12)
+04. Kyau & Albert - Chimera (DJ Version) (05:53)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:28:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C6006842C0F5B6F8BDCA0656C13CBB06DF9F70B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757739   (38905) от 29.10.2024
+
+VA - Redux Selection Vol. 11 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_38905.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aura - Share The Tears 2024 (Vikram Prabhu's Magic Flight Extended Remix) [6:38]
+02. Bryn Whiting - Apricus (Extended Mix) [7:19]
+03. Christophe Quinlivan-Hunt - Retreads (Extended Mix) [7:26]
+04. Liam Van Hoven - Fly (Extended Mix) [7:06](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:20:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C832D65D15093B399C3EF9C695AC42D55B4FCE60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758018   (38695) от 31.10.2024
+
+VA - Nothing But... Trancetopia Vol. 20 (2024) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_38695.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forbidden Mind - Acid Strike (Original Mix) [4:21]
+02. STNX - Destruction (Original Mix) [3:33]
+03. Bryn Whiting - See The Sign (Original Mix) [3:20]
+04. Tycoos & Lightstate - Spaceliner (Original Mix) [3:33](   Читать дальше...   )Жанр: TranceПродолжительность: 02:09:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67F18D97134CD2A40ABF5FAF3353EF536B861760
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1758372   (38490) от 02.11.2024
 
 VA - Uplifting Only Top 15: November 2024 (Extended Mixes) (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -652,93 +739,6 @@ VA - The Best Releases 2024 of Your Melodies (2024) [MP3|320 Kbps] <Trance, Upli
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B06B3B4D9FCD535AE4F8CD03A140E6F5DA1FA91B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767978   (33231) от 23.12.2024
-
-VA - The Best Releases 2024 of High Emotions (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33231.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Dani - Lay Down Near Me (Original Mix) (06:49)
-02. Lost States - Echoes of the Soul (Original Mix) (06:22)
-03. Maxim Kovalskiy - Lost in Translation (Original Mix) (05:30)
-04. DeeAnork - Gladius (Original Mix) (06:34)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 03:04:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8D8872551015D62D4C6BF8F30F78491DD56E46F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770471   (32300) от 01.01.2025
-
-VA - Christmas Trance (Best for the Year 2025) (Happy New Year 2025) (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32300.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Artak & Nara AiMi - Light Shine (Ilya Fly Remix) (05:18)
-02. Max Denoise feat. Jennifer Hn - Love Song (Angelo-K Remix) (07:45)
-03. Ilya Fly - Remember This Time (Original Mix) (05:48)
-04. Max Denoise feat. Jennifer Hn - Love Song (Original Mix) (05:50)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:17:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B98CD20934AC4E94C8FB5676F2C9DA0B513AD06F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770867   (32072) от 03.01.2025
-
-VA - Trance Selected, Vol 2 (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32072.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Kazal - That One Moment (Extended Mix) [7:08]
-02. Super Luminal - Memory (Extended Mix) [7:26]
-03. D.A.R.E - Tranquility (LEZAMAboy Trance Remix) [7:53]
-04. Vibe Therapy - The Last Goodbye (Extended Mix) [8:16](   Читать дальше...   )Жанр: TranceПродолжительность: 02:44:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E8E3359BC0C6BCC54A4BEEE7722E7FD8366DCC4
 ```
 
 https://mybot314.ru/tekegram_catalog/

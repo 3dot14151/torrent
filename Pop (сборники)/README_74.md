@@ -1,3 +1,61 @@
+###  Публикация: 930193   (516303) от 22.08.2015
+
+VA - Летние super новинки. Часть 5. 50/50 (2015) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_516303.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Rufus - You Were Right (03:58)
+002. Ярослав Ромашов - Отдыхай (02:57)
+003. Hoodie Allen - Overtime (03:23)
+004. Nuteki - Дни Километры (03:51)(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AD18617DAE6BF47D8FA331D25D6E54E06A2C04E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930224   (516296) от 22.08.2015
+
+VA - Летние super новинки. Часть 4. 50/50 (2015) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_516296.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Los Locos & El 3mendo - Carnaval (03:20)
+002. Север - Давай Живи (03:30)
+003. Jessica Mauboy - Can I Get A Moment (03:25)
+004. A-Sen Feat. Dj Nejtrino & Dj Baur - Я Рисую (03:47)(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9010544002D4BA9C198B797E776D08FC8F1ABA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 930165   (516265) от 22.08.2015
 
 VA - Летние super новинки. Часть 6. 50/50 (2015) [MP3|256 кб/с]<Pop>
@@ -726,76 +784,6 @@ VA - Ночная хитовая дискотека (2012) [MP3|256 кб/с]<Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9FF4F66AA7359D1204C60AAD2B7E60636A6B1979
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541169   (502573) от 30.08.2012
-
-VA - Молодежный хит осенний. Top 100 (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502573.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Достучаться до небес feat. Анна Плетнева (Винтаж) - Отпусти меня
- 02. Серебро - Мальчик
- 03. Женя Вилль - Прячь в позвоночник
- 04. Елена Терлеева - Просто
- 05. Марсель - Иди ко мне
- 06. Milena & Murzin Denis - В эту ночь
- 07. Настя Задорожная - До дна
- 08. Dan Balan - Не любя
- 09. USB (United Sexy Boyz) feat. Сергей Жуков - Скажи зачем
- 10. Анжелика Агурбаш - Просто Так(   Читать дальше...   )Жанр: PopПродолжительность: 06:00:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B091A15C2643239F2403D0297518BFFFB23BDCCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 540792   (502362) от 30.08.2012
-
-VA - Самые Лучшие Хиты радио DFM 50+50 (2012) [MP3|256 кб/с]<Club, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chris Brown - Yeah 3X (Johan K & Eddie Mono Exclusive Organ Mix)
-02. DJ Sandro Escobar & Рэпер СЯВА - Хаваю (Extended)
-03. Martin Solveig - The Night Out (Madeon Remix)
-04. Пьер Нарцисс - Хрустальная Любовь (DJ Riga Remix)
-05. Ivan Gough, Feenixpawl feat. Georgi Kay - In My Mind (Axwell Mix)
-06. Градусы - Заметает (DJ Favorite Remixes)
-07. Pink Fluid feat. Mr. V - We Rock The World (Bastian Van Shield Remix)
-08. Пропаганда feat. DJ Generous - Я рисую мелом (D.J.G. Remix)
-09. Scooter - Fire (Stanislav Shik & Natasha Baccardi Remix)
-10. Тамерлан и Алена Омаргалиевa - Hey Yo (DJ Amor Remix)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 07:15:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73275144C7214E42B0A323357D9FF3E450EA0EB7
 ```
 
 https://mybot314.ru/tekegram_catalog/

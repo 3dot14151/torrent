@@ -1,3 +1,32 @@
+###  Публикация: 1055556   (485998) от 23.09.2016
+
+Borneo - Heart of Borneo - Spa and Relaxation (Instrumental) (2016) [MP3|320 Kbps] <New Age, Relaxation, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_485998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Heaven (4:29)
+02.  Kalimantan (3:30)
+03.  Forest In The Morning (4:54)
+04.  Lamoa (2:53)(   Читать дальше...   )Жанр: New Age, Relaxation, InstrumentalПродолжительность: 00:44:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:235307197848DB4AC6672433E85CC0AE2C4A1CCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1055717   (485992) от 23.09.2016
 
 Erik Koskinen - America Theatre (2014) [MP3|320 Kbps] <Country Blues, Americana>
@@ -750,35 +779,6 @@ Terry Oldfield - Temple Moon (2017) [MP3|320 Kbps] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C5AE3AC37FA69BD63ECD644BE7CEDDF867D9D7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938404   (481829) от 18.09.2015
-
-Brian Crain - Impressions from Paris to Prague (2015) [MP3|320 кб/с]<Piano, Instrumental, New Age, Neoclassical>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481829.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paris Lights
-02. Midnight Rain in Venice
-03. Light Hearts
-04. Reflections in the Windows(   Читать дальше...   )Жанр: Piano, Instrumental, New Age, NeoclassicalПродолжительность: 00:45:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19839CE9996199C231D30D5C897B938490A27BAB
 ```
 
 https://mybot314.ru/tekegram_catalog/

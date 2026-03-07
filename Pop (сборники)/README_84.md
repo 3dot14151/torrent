@@ -1,3 +1,61 @@
+###  Публикация: 1324675   (423097) от 10.09.2019
+
+VA - German Top 50 Party Schlager Charts 09.09.2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_423097.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fantasy - Casanova
+02. Andrea Berg - Die geheimen Träumer
+03. Beatrice Egli - Le Li La
+04. Ben Zucker - Wer sagt das(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 02:55:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:979CDDA0BD4F5C4C012F4314AEFA444895BDA927
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411625   (423073) от 27.09.2020
+
+VA - German Top 100 Single Charts 25.09.2020 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_423073.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 24kgoldn - Mood (feat. Iann Dior)
+02. Capital Bra - Einsam an der Spitze
+03. KitschKrieg & Jamule - Unterwegs
+04. Internet money, Gunna & Don Toliver - Lemonade (feat. NAV)(   Читать дальше...   )Жанр: PopПродолжительность: 05:02:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B6E83A65CED7ACC273149F582B10DDEA1F7E7FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1250851   (422644) от 29.09.2018
 
 VA - German Top 100 Single Charts 28.09.2018 (2018) [MP3|320 Kbps] <Pop, Dance>
@@ -684,64 +742,6 @@ VA - NRJ hits Exclusive №5 (2016) [MP3|192-320 Kbps] <Dance, Club>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20AF99272313E9A7343C9DC7AF40A55B7B09BE2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066306   (414177) от 25.10.2016
-
-VA - Pop Rock Disco 80s (2016) [MP3|320 Kbps] <Pop, Dance, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414177.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Emerson, Lake & Palmer - Introductory Fanfare (Live)
-002. Ottawan - Hands Up (Urban Remix)
-003. Ane Brun - Big In Japan (Uno Kaya Remix)
-004. Foreigner - I Want To Know What Love Is (Live)(   Читать дальше...   )Жанр: Pop, Dance, DiscoПродолжительность: 12:09:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:793456D36955C2CA7B5CFFC15857ADA51A4A7D3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066309   (414018) от 25.10.2016
-
-VA - Музыкальный заряд (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414018.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alisher - Демон
-002. Vaults - Overcome
-003. Lx24 - Скажи Зачем
-004. The Chainsmokers Feat. Daya - Don't Let Me Down(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47F0E126519A5F4B95F1106D8ABD6EEFF047C20F
 ```
 
 https://mybot314.ru/tekegram_catalog/

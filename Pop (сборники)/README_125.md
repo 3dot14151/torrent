@@ -1,3 +1,61 @@
+###  Публикация: 1739420   (48545) от 28.07.2024
+
+VA - Pop Summer Seasons (2024) [MP3|320 Kbps] <Pop, Dance, RnB>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_48545.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Gayle - Abcdefu
+002. Chic - Everybody Dance
+003. Panic! At The Disco - House Of Memories
+004. Oliver Tree - Life Goes On(   Читать дальше...   )Жанр: Pop, Dance, Rock, Hip-Hop, RnBПродолжительность: 10:32:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2847C35E983972A9376D031C0192071793CF3C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738670   (48495) от 29.07.2024
+
+VA - Pop-Rock Dreamers (2024) [MP3|320 Kbps] <Indie, Alternative, Pop, Rock>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_48495.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Coldplay - Fix You
+002. Zeck - Like Rain
+003. Lianne La Havas - Bittersweet
+004. Lionel Richie - Say You, Say Me(   Читать дальше...   )Жанр: Indie, Alternative, Pop, RockПродолжительность: 12:35:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14E0841E789764089A6888820B0686BF7E01B377
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1739742   (48177) от 01.08.2024
 
 VA - Arabian Miriage (2024) [MP3|320 Kbps] <Instrumental Pop, World>
@@ -687,64 +745,6 @@ VA - Pop-Rock Hits Of The New Generation (2024) [MP3|320 Kbps] <Pop, Rock, Dance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:07A1EE682DF75227518214D540AFF655383EF96D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760056   (37462) от 12.11.2024
-
-VA - Pop Dance Summer Caramel (2024) [MP3|320 Kbps] <Pop, Pop-Rock, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37462.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Taylor Swift - You Belong With Me (00:03:51)
-002. Clo - Futur (00:02:36)
-003. Angelina Mango - Fila Indiana (00:03:13)
-004. Burito - Парнас (00:03:08)(   Читать дальше...   )Жанр: Pop, Pop-Rock, DanceПродолжительность: 10:20:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F0B3DD0D1EC9A957C8611A25F7E9C62EFF0A992
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760518   (37222) от 15.11.2024
-
-VA - National Pop Dance Vol.90 (2024) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37222.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Boyz - Shout It Out - (04:31)
- 002. Omah Lay - Reason - (02:27)
- 003. Black Sherif - January 9Th - (03:43)
- 004. Gaëtan Roussel Feat. Louane - La Beauté - (04:09)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 11:50:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:555CA20DC803241719099C409A174CF3F7743BB4
 ```
 
 https://mybot314.ru/tekegram_catalog/

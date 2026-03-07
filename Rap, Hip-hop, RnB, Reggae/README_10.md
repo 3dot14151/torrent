@@ -1,3 +1,88 @@
+###  Публикация: 1379459   (839458) от 29.04.2020
+
+Злой Дух - Неизданное (2020) [MP3|320 Kbps] <Hip-Hop, Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_839458.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Настоящий хип-хоп (feat. Винт, Тonn Рavloff, Mad Max, MC Mix, Shotgun, DIME, Гек, Money Mike, Jeeep, MD & C Павлов, Maestro A-Sid, Серж, Папа Гусь, Про100Фрол, Скаля, Хром, AL Solo, Варчун, Sir-J, Мук, МС Деловой, Lenin, Карандаш, ШЕFF, DJ La) [17:25]
+02. К солнцу (feat. Каста)Жанр: Hip-Hop, RapПродолжительность: 04:06:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28699A0E1F738C1D0DE9617402874BA8F848EBFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379920   (836392) от 01.05.2020
+
+Lord - Перемены (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ни шагу назад [03:07]
+02. Перемены [03:21]
+03. Я не согласен [03:30]
+04. Только у Бога власть [03:34](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:17:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD271ABC4F4A736ABD4134A4A1EBD17BF5189FB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380129   (836096) от 01.05.2020
+
+Xzibit - Greatest Hits (2009) Compilation [FLAC|Lossless|tracks + .cue] <Hip-Hop, Gangsta Rap, Thug Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836096.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paparazzi (3:55)
+ 02. The Foundation (3:55)
+ 03. Enemies & Friends (4:01)
+ 04. What U See Is What U Get (Explicit Version) (5:11)(   Читать дальше...   )Жанр: Hip-Hop, Gangsta Rap, Thug RapПродолжительность: 00:55:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A62ADA6B15F16B94F2A0EDB0CDB73E29F7D27DD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1380048   (835900) от 01.05.2020
 
 Drake - Dark Lane Demo Tapes (2020) Mixtapes [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -661,93 +746,6 @@ VA - Pure... Urban (2013) Box Set, 4CD [FLAC|Lossless]<R&B, Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CBCA85A4E5D2C92A78BBA27E197412F1782A07F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198392   (806058) от 12.01.2018
-
-VA - Reggae (2018) [MP3|320 Kbps] <Reggae>
-
->>Rap, Hip-hop, RnB, Reggae
->>RnB, Reggae
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806058.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zanaba – Reggae 2018 3:36
-02. Kingston Kings – Hands In The Air 4:11
-03. Sam Aica – Never 3:40
-04. Steel System – Jamaica Styling 4:09(   Читать дальше...   )Жанр: ReggaeПродолжительность: 01:27:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D782C53456086BC09C3AE91A70779F02DB516BB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505490   (804246) от 27.10.2021
-
-Big Baby Tape & kizaru - BANDANA I (2021) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804246.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. «99 Problems» Big Baby Tape 2:39
-2. «So Icy Nihao» Waves B 2:33
-3. «Big Tymers» Flory 3:11
-4. «Dirrt» Big Baby Tape 2:41(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:36:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A977BC92CCD467B5543F12BF7ECE3E5F9F31DCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505856   (802497) от 28.10.2021
-
-Барбитурный - Ч/Ч (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802497.jpg" />
-</div>
-
-
-###  Подробнее
-
-[4:34] 01. Голова
-[2:48] 02. Вверх ногами
-[3:11] 03. Для пустых залов
-[3:27] 04. Муза(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:24:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB62547A80F23650848D0BAC68D7FA69B2B7E414
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1137568   (667880) от 26.05.2017
+
+Вelindа Сarlislе - The Соlleсtiоn (2002) Japanese Edition [WV|Lossless|image + .cue] <Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_667880.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heaven Is A Place On Earth (4:07)
+02. I Get Weak (4:52)
+03. World Without You (4:42)
+04. Runaway Horses (4:42)(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 01:08:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:308B4EBF2ED4C5AC40DBDF82D4D8B451D0433D81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537506   (667835) от 16.03.2022
+
+VA - Spring Hits 2022 [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_667835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tame Impala - Eventually (5:18)
+02. Glass Animals - Heat Waves (3:58)
+03. Sean Paul - No Lie (3:41)
+04. Elton John - Cold Heart (PNAU Remix) (3:22)(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39F79A18FB470249B9E8355054A4C7213105700E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137704   (666221) от 27.05.2017
+
+Shakira - El Dorado (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Latin>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_666221.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Me Enamoré
+02. Nada
+03. Chantaje (Ft. Maluma)
+04. When A Woman(   Читать дальше...   )Жанр: Pop, LatinПродолжительность: 00:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4308CC023328717E4B6658763845EF47E862E24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1224463   (666059) от 10.05.2018
+
+The Pointer Sisters - In Concert (2007) Compilation, Unofficial Release [FLAC|Lossless|image + .cue] <Funk, Soul, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_666059.jpg" />
+</div>
+
+
+###  Подробнее
+
+1	Happiness
+2	Automatic
+3	Fairytale
+4	Slow Hand(   Читать дальше...   )Жанр: Funk, Soul, PopПродолжительность: 01:14:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23354BEC31696FA2FD4CB482A13E08D47E678B61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1224676   (664868) от 11.05.2018
 
 John Travolta - John Travolta (1998) 2001 Compilation, Reissue [FLAC|Lossless|image + .cue] <Ballad, Rock & Roll, Pop Rock>
@@ -628,119 +744,6 @@ Al Bano - The Best Platinum Collection (2007) [FLAC|Lossless|tracks + .cue] <Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD426CFCA3A989B354D9FCC1CFC6357C5BC10FE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291971   (650605) от 27.03.2019
-
-VA - Die Grobe 4 Cd Party Box (1999) Box Set, 4CD, Compilation [FLAC|Lossless|image + .cue] <Rock, Funk, Soul, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650605.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Andrea True Connection	- More, More, More	3:28
-02.	The Troggs	- Wild Thing	2:38
-03.	Iron Butterfly	- In A Gadda Da Vida	3:00
-04.	Dave "Baby" Cortez	- Rinky Dink	2:52(   Читать дальше...   )Жанр: Rock, Funk, Soul, PopПродолжительность: 03:08:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E8A8FAD6BAA629723DE8EF0F991D45F87E442B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291913   (648843) от 28.03.2019
-
-B. Fleischmann - Stop Making Fans (2018) [FLAC|Lossless|tracks + .cue] <Electronic, Pop, Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648843.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Here Comes The A Train
-02. You're The Spring
-03. We've Heard The Talking Heads Talking
-04. There Is A Head(   Читать дальше...   )Жанр: Electronic, Pop, Indie PopПродолжительность: 01:07:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7A99464265331D8BFBED0B99E0BD1B9AF7BC6C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292255   (648755) от 28.03.2019
-
-VA - Les Inrockuptibles: La bande-son du printemps 2019 (2019) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648755.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Malik Djoudi - Epouser la nuit [3:37]
-02. Fontaines D.C. - Roy's tune [3:00]
-03. These new puritans - Into the fire [3:42]
-04. The psychotic monks - Closure [3:49](   Читать дальше...   )Жанр: PopПродолжительность: 01:13:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0444D29082C6E72618F887E33E789704ECFF776
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292169   (648623) от 28.03.2019
-
-The Palladium Singers - 100 Hits from the Musicals (2007) Box Set, 5CD, Compilation [FLAC|Lossless|image + .cue] <Pop, Cover, Stage & Screen>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648623.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, Cover, Stage & ScreenПродолжительность: 05:40:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50B5814B873FC469B8181553C458393A2F97C43D
 ```
 
 https://mybot314.ru/tekegram_catalog/

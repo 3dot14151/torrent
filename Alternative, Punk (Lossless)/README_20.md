@@ -1,3 +1,33 @@
+###  Публикация: 1129952   (716538) от 01.05.2017
+
+Thurston Moore - Rock N Roll Consciousness (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_716538.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тёрстон Джозеф Мур (р. 25 июля 1958) — американский музыкант; композитор, гитарист и вокалист альтернативной рок-группы Sonic Youth. В 2004 журнал Rolling Stone поместил его на 33 место в списке лучших гитаристов всех времён.
+Родился в Корал Габлс, штат Флорида, вырос в Бетеле, штат Коннектикут. Успешно сдал вступительные экзамены в Университет штата Коннектикут, (   Читать дальше...   )01. Exalted (11:54)
+02. Cusp (6:33)
+03. Turn On (10:17)
+04. Smoke Of Dreams (6:04)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:42:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1E79F46AF9E190F8D759A299B737F5817EB9380
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1286040   (715088) от 01.03.2019
 
 Pond - Tasmania (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Psychedelic Rock>
@@ -716,35 +746,6 @@ Everlast - Songs Of The Ungrateful Living (2011) [FLAC|Lossless|tracks + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E91D3B80ECACDFC14470B3AAE92D8DA7C907590
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025828   (705872) от 14.06.2016
-
-Paolo Nutini - Sunny Side Up (2009) [FLAC|Lossless|tracks] <Soft Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705872.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 10/10    02:56
-02. Coming Up Easy    04:18
-03. Growing Up Beside You    03:23
-04. Candy    04:58(   Читать дальше...   )Жанр: Soft Rock, Pop RockПродолжительность: 00:38:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:577A4004AC0FFE75A56AA7152E3BA7EF3766980D
 ```
 
 https://mybot314.ru/tekegram_catalog/

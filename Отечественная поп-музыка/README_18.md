@@ -1,3 +1,29 @@
+###  Публикация: 571108   (388899) от 06.11.2012
+
+Юлия Савичева - Сердцебиение (2012) [MP3|320 кб/с]<Pop, Dance>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_388899.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, DanceПродолжительность: 01:16:19
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1174063   (388808) от 13.10.2017
 
 Елена Темникова - TEMNIKOVA II (2017) [MP3|320 Kbps] <Pop>
@@ -727,35 +753,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:467558481C1C4C2B05F96F85B1F5D20AD0B085FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951377   (362935) от 29.10.2015
-
-Сергей Лазарев - The Best (2015) English Edition [MP3|320 кб/с]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Breaking Away
- 02. In My Lonely Life
- 03. 7 Wonders
- 04. Take It Off(   Читать дальше...   )Жанр: PopПродолжительность: 01:48:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A391C7DC68FFF2A8BC6DBDB99B5C9BD7FF9D4ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

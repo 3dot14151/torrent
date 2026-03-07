@@ -1,3 +1,235 @@
+###  Публикация: 1020721   (742512) от 28.05.2016
+
+Ron Carter / Cedar Walton Duo - Heart & Soul (1981) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_742512.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Heart And Soul [03:05]
+ 02.Django [05:35]
+ 03.Frankie And Johnie [05:00]
+ 04.Little Waltz [06:39](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:40:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:149618DF58ABA7719B0F5D6987F54EA08BF49498
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020273   (742508) от 28.05.2016
+
+John Verity - My Religion (2016) [MP3|320 кб/с] <Blues, Blues Rock, Classic Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_742508.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Religion    03:39
+02. Hope for the Best    05:57
+03. The Devils Music    05:49
+04. Going Down    02:59(   Читать дальше...   )Жанр: Blues, Blues Rock, Classic RockПродолжительность: 00:46:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C3CD5FE7FB45FCEF31A4A7E6102EB830801B1FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020287   (742506) от 28.05.2016
+
+James O'Neill and the Silver Shadows - A Little Bit More Than the Blues (2016) [MP3|320 кб/с] <Blues, R&B>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_742506.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Play the Part of a Fool (03:45)
+02. You're My Friend (04:53)
+03. Ubangi Stomp (02:05)
+04. Play to Win (03:00)(   Читать дальше...   )Жанр: Blues, R&BПродолжительность: 00:42:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72F88112E06CC010A903BF29CFF0A599431776CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020251   (742501) от 28.05.2016
+
+Albert Castiglia - Big Dog (2016) [MP3|320 кб/с] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_742501.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let The Big Dog Eat    03:29
+02. Don't Let Them Fool Ya    04:26
+03. Get Your Ass In The Van    03:51
+04. Drowning At The Bottom    04:34(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:44:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2536344579F3B91EB9572CE26AFDACF6C2DE07A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020180   (742499) от 28.05.2016
+
+JP Stingray - Mister Blues Strikes Again (2003) [FLAC|Lossless|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_742499.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Before You Accuse Me    03:50
+02. Mister Blues Strikes Again    05:03
+03. After Hours    03:11
+04. Square One    05:16(   Читать дальше...   )Жанр: BluesПродолжительность: 00:58:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:132460C802E2C7AF376BE3B8A447668A174CA513
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020290   (742497) от 28.05.2016
+
+John Verity Band - Routes (2004) [MP3|320 кб/с] <Blues Rock, Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_742497.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. She's Not There    05:25
+02. A Woman (Like You)    07:25
+03. Last Chance    05:17
+04. Boyz    03:52(   Читать дальше...   )Жанр: Blues Rock, RockПродолжительность: 00:49:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32BAF3064A560959CE008DB9C7293FE943E9D8B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217621   (742493) от 05.04.2018
+
+Azar Lawrence - Mystic Journey (2010) Furthermore [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_742493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mystic Journey [08:20]
+02. Summer Solstice [07:09]
+03. Quest [08:13]
+04. Walk Spirit, Talk Spirit [10:01](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:03:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C52C7E4A5A2D3E45ED16D5CCFE35D85722A16EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020991   (742450) от 28.05.2016
+
+Kevin Brown - Mojave Dust (2002) [FLAC|Lossless|tracks] <Blues, Acoustic Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_742450.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Gypsy Boy Mojavé Dust - 4:21
+2. Johnny Don’t Cry - 4:13
+3. Tornado Woman - 3:51
+4. Its Just A Thing - 3:04(   Читать дальше...   )Жанр: Blues, Acoustic BluesПродолжительность: 00:45:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72E1ADDBD805E6E50BEF6502BADC59215B68CAA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1021052   (742448) от 28.05.2016
 
 The Stumble - The Other Side (2016) [MP3|320 кб/с] <Blues Rock>
@@ -513,238 +745,6 @@ Carmen McRae - Black Magic "Live" (1979 - 1981) 1992, Jazz Hour [FLAC|Lossless|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08239A0AAC83C3F113579F1F18C420E5FFE67B29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282862   (741240) от 15.02.2019
-
-Benny Goodman - Stompin' At The Savoy (1935 - 1938) 1989, Jazz Hour [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741240.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. King Porter Stomp [3:11]
-02. Goodbye [3:27]
-03. If I Could Be with You (One Hour Tonight) [2:18]
-04. Down South Camp Meeting [3:20](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:01:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AF0C5079A3D8B0B2EDAB2D06C04D769C84144A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283108   (741239) от 15.02.2019
-
-John Coltrane - Jazz Classics (1959, 1960) 2006, Flashback [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Giant Steps [4:46]
-02. Naima [4:22]
-03. My Shining Hour [4:52]
-04. Central Park West [4:14](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:41:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D14F1E0EE2177A5AE2E3FDDDD81130F505F76A49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282874   (741238) от 15.02.2019
-
-Carmen McRae - You're Lookin' At Me (1983) 1986, King Record [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741238.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm an Errand Girl for Rhythm [3:33]
-02. Beautiful Moons Ago [3:11]
-03. The Frim Fram Sauce [3:59]
-04. Come in out of the Rain [3:13](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:37:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F823DDDCD4C255CF4EF58CA92AFA4BCA52E5B98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282859   (741237) от 15.02.2019
-
-Count Basie - Basie Boogie (1959) 1989, Jazz Hour [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741237.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In a Mellotone [6:01]
-02. The Midgets [9:25]
-03. Whirly-Bird [4:07]
-04. Basie Boogie [2:48](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:03:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66C0136BB8D91CB72688942A610153DEE92889FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283105   (741236) от 15.02.2019
-
-Beegie Adair - Into Somethin' (2011) Green Hill Productions [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741236.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In Walked Bud [4:43]
-02. All in Love Is Fair [4:45]
-03. Lovesick Blues [3:28]
-04. Try Again [4:44](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:49:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CF3207FC35ED1729CCC985C790DACCA9644D00C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283104   (741235) от 15.02.2019
-
-Carmen McRae - Ms. Magic (1978) 1986, Dunhill Compact Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741235.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Coming Home [4:21]
-02. Burst in with the Dawn [4:37]
-03. Come in from the Rain [4:17]
-04. I Won't Last a Day Without You [7:11](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:00:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97FFC001B63295E86070BC89895FB2AF0906E78E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283107   (741234) от 15.02.2019
-
-Jackie McLean Quartet - Dr. Jackle (1966) 1990, SteepleChase [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741234.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dr. Jackle [12:25]
-02. Melody for Melonae [10:52]
-03. Jossa Bossa [9:20]
-04. Little Melonae [14:38](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:55:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A7867BFE4A501FB163FF89AAD045EE90DE7052C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282876   (741233) от 15.02.2019
-
-Count Basie - Portrait (1930-e) 2002, Rainbowcd.com [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741233.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Basie Blues [3:08]
-02. Mutton Leg [3:22]
-03. It's Sand, Man [3:08]
-04. Wild Bill's Boogie [2:32](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:47:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BE6D57A8C553DB95B93BEEEF0122DF65624A8DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

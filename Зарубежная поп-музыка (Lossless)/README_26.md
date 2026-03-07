@@ -1,3 +1,119 @@
+###  Публикация: 1277091   (787002) от 19.01.2019
+
+Sarah Brightman - Hymn (2018) Japanese Edition [FLAC|Lossless|image + .cue] <Classical Crossover, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787002.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hymn Overture (1:03)
+02. Hymn (4:28)
+03. Sogni (feat. Vincent Niclo) (4:18)
+04. Sky and Sand (4:12)(   Читать дальше...   )Жанр: Classical Crossover, PopПродолжительность: 00:56:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10B0D265EA12397F7491312A1A01F4887788AB99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388220   (786856) от 05.06.2020
+
+Thomas Anders & Florian Silbereisen - Das Album (2020) [FLAC|Lossless|WEB-DL|tracks] <Europop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786856.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Sie sagte doch sie liebt mich (feat. Florian Silbereisen)
+2. Sie hat es wieder getan (feat. Florian Silbereisen)
+3. Sie ist wieder da
+4. Versuch's nochmal mit mir(   Читать дальше...   )Жанр: EuropopПродолжительность: 01:01:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3C11F2247338F77AF18195100D7F6B695B2D076
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388472   (786721) от 06.06.2020
+
+Lady Gaga - Chromatica (2020) Deluxe Edition, Limited Edition [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786721.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chromatica I (01:00)
+02. Alice (02:57)
+03. Stupid Love (03:13)
+04. Rain On Me (with Ariana Grande) (03:02)(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEC60B15B160B23100E5979C9BBFC6B2579A7396
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123606   (786373) от 08.04.2017
+
+Natalie Imbruglia - Counting Down The Days (2005) [FLAC|Lossless|image + .cue] <Soft Rock, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786373.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Starting Today  (02:56) 
+02. Shiver  (03:44) 
+03. Satisfied  (03:30) 
+04. Countind Down The Days  (04:09) (   Читать дальше...   )Жанр: Soft Rock, Pop RockПродолжительность: 00:43:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD11344249960762D96D9FFE22AD18F80C013013
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1123458   (786308) от 08.04.2017
 
 VA - Now That's What I Call Music! 96 (2017) Box Set, 2CD [FLAC|Lossless|tracks + .cue] <Top 40, Pop Compilation, Electronic>
@@ -629,122 +745,6 @@ DJ Piligrim - 3 Albums (2011-2014) [FLAC|Lossless|image + .cue] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7024447AE7F2EDF8E9BDF22345C4BEAFF3EDBEA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207545   (780560) от 18.02.2018
-
-Руслана - Дикі Танці (2003) [FLAC|Lossless|image + .cue]<Pop, Folk>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780560.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ой заграй ми, музиченьку
-02. Знаю я
-03. Плєс
-04. Аркан(   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 00:40:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78C588391433016AE89F9EBDBF787F9B9D26C156
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207602   (780546) от 18.02.2018
-
-Eros Ramazzotti - Duets (2017) Compilation [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780546.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eros Ramazzotti feat. Tina Turner - Cose Della Vita (Can't Stop Thinking Of You) 4:50
-02. Eros Ramazzotti feat. Nicole Scherzinger - Fino All'estasi 3:46
-03. Eros Ramazzotti feat. Giorgia - Inevitabile 3:56
-04. Eros Ramazzotti feat. Anastacia - I Belong To You (Il Ritmo Della Passione) 4:26(   Читать дальше...   )Жанр: PopПродолжительность: 01:06:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B3237C933BC43E6328A7E7ECFE07673E60CC813
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208130   (780105) от 21.02.2018
-
-Club 8 - Golden Island (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Female Vocal>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780105.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Swimming With The Tide 02:56
-02. Breathe 03:37
-03. Lost 02:35
-04. Pacific 03:20(   Читать дальше...   )Жанр: Indie Pop, Female VocalПродолжительность: 00:30:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:934695FB15525297626ED67764FCF3593DA2BBE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209084   (779666) от 24.02.2018
-
-Totally Mild - Her (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Indie Rock, Dream Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779666.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sky 04:00
-02. Pearl 03:31
-03. Working Like a Crow 04:05
-04. From One Another 02:54(   Читать дальше...   )Жанр: Indie Pop, Indie Rock, Dream PopПродолжительность: 00:34:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80DAF4CBE8EFD0BE605796B77523623AB3454DBC
 ```
 
 https://mybot314.ru/tekegram_catalog/

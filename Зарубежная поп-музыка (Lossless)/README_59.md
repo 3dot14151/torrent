@@ -1,3 +1,116 @@
+###  Публикация: 1326261   (387303) от 19.09.2019
+
+Mabel - High Expectations (2019) [FLAC|Lossless|tracks + .cue] <Pop, R&B, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_387303.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 High Expectations (Intro) 1:29
+2 Bad Behaviour 3:26
+3 Don't Call Me Up 2:58
+4 FML 3:13(   Читать дальше...   )Жанр: Pop, R&B, DanceПродолжительность: 01:01:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4EF6779B6D10FAC2BDB586BE0FF7D02CC4A8C42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067459   (387128) от 29.10.2016
+
+Empire Of The Sun - Two Vines (2016) [FLAC|Lossless|tracks] <Electropop, Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_387128.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Before
+02. High and Low
+03. Two Vines
+04. Friends(   Читать дальше...   )Жанр: Electropop, Indie PopПродолжительность: 00:51:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45497817D5451C603D6AB9CB6163D02B5907AC56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414185   (385381) от 08.10.2020
+
+Ruelle - Collection (2014-2020) [FLAC|Lossless|WEB-DL|tracks] <Electro-Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385381.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Up in Flames 3:39
+2. Take It All 2:58
+3. Deep End 5:01
+4. I Get to Love You 3:59(   Читать дальше...   )Жанр: Electro-PopПродолжительность: 03:11:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C5E7A7DFF4A13C44DE8CB3E26851ED03842D3D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414353   (385302) от 08.10.2020
+
+Billie Eilish - No Time To Die (2020) Single [FLAC|Lossless|WEB-DL|tracks]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_385302.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Time To Die (04:02)Жанр: PopПродолжительность: 00:04:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:184928427D1897E1E93424E7C7E706E595A2A285
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1067724   (384765) от 30.10.2016
 
 Sandra - Heaven Can Wait (1988) (CD, Maxi-Single) [FLAC|Lossless|image + .cue] <Pop, Electronic>
@@ -623,122 +736,6 @@ General Lafayette - King Of The Broken Hearts (1999) [FLAC|Lossless|image + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:48020EDF4B913031BE0477200569577599BBFE24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254135   (377517) от 12.10.2018
-
-General Lafayette - Love Is A Rhapsody (1992) [FLAC|Lossless|image + .cue] <Pop, Ballad, Instrumental>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377517.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	Angel In Blue
-2.	For The Girl Who Couldn't Find Love
-3.	Melody For You
-4.	Angelitos(   Читать дальше...   )Жанр: Pop, Ballad, InstrumentalПродолжительность: 00:54:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CECAF8B8748D7EED7407770DDDE7EA7A33EF4E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253934   (377386) от 12.10.2018
-
-St. Vincent - MassEducation (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Baroque Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377386.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slow Disco
-02. Savior
-03. Masseduction
-04. Sugarboy(   Читать дальше...   )Жанр: Indie Pop, Baroque PopПродолжительность: 00:45:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72F0FDF7C497159AAAF4704D8ECF939D2C21C995
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575581   (375383) от 10.09.2022
-
-Al Barton & Spirit Of Smokie - Room With A View (2011) Reissue, 2018, Big Lake [FLAC|Lossless|image + .cue] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375383.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come For Me
-02. Sacred Heart
-03. Highways And Heartaches
-04. Send Me An Angel(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:46:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43B0F47201136CD6B8D68DC2E295DEED274BFB7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949661   (374745) от 24.10.2015
-
-Selena Gomez - Revival (2015) Japanese Edition [FLAC|image+.cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374745.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Revival
-02. Kill Em With Kindness
-03. Hands to Myself
-04. Same Old Love(   Читать дальше...   )Жанр: PopПродолжительность: 00:57:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E55A00A06D371BCCFFC39FE04ECCE9123F332B98
 ```
 
 https://mybot314.ru/tekegram_catalog/

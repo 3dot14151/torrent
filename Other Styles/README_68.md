@@ -1,3 +1,32 @@
+###  Публикация: 1133471   (689244) от 15.05.2017
+
+Really Slow Motion - Battle Angel (2016) [MP3|320 Kbps] <Soundtrack, Instrumental>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_689244.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dominus [02:37]
+02. Everlasting Legacy [02:27]
+03. Reborn [02:57]
+04. I Am Yours [04:39](   Читать дальше...   )Жанр: Soundtrack, InstrumentalПродолжительность: 01:12:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD9BA818019F1611A0D9486CB171FF49E22AE6F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1134216   (689217) от 15.05.2017
 
 Danny Elfman - The Circle / Сфера (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
@@ -710,35 +739,6 @@ VSOP (Vienna Symphonic Orchestra Project) - Classic Meets Pop (1989) [FLAC|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31A72142843CFD029653773E743E02C4A076F258
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288699   (686470) от 16.03.2019
-
-VSOP - Vienna Symphonic Orchestra Project (1986) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686470.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Rock Me Amadeus / The Classic Touch
-02.	Kyrie
-03.	Brothers In Arms
-04.	St. Elmo´s Fire(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:47:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D6B40AB761E450F541AC3E363C7F8CD6574474A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,30 @@
+###  Публикация: 1808303   (10461) от 24.07.2025
+
+Шрифты - Behance - Alena Morgunova - CRAFT - 223720669 [OTF, TTF, WOFF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_10461.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный шрифт с кириллицей.
+Материал раздаётся с официальной документацией.Формат: OTF, TTF, WOFF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1CEE731025FBA35040B4D9B563F1BAC59C2DB3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1808389   (10384) от 25.07.2025
 
 Шрифты - ParaType - Кириллические Шрифты 2007-2010 [TTF, OTF]
@@ -655,32 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CAFBC5944219951B86722C44F9F1441AA1EF9D5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811844   (8280) от 12.08.2025
-
-Шрифты - isaovskaya - Inki [TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8280.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шрифт с кириллицей.Формат: TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B36D37A1FAC491BC552D26A71DFD868BDAD002E6
 ```
 
 https://mybot314.ru/tekegram_catalog/

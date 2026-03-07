@@ -1,3 +1,61 @@
+###  Публикация: 1021440   (731880) от 30.05.2016
+
+VA - MuviDance Russian Party Vol.1 (2014) (MuViTeam Compilation Promo) [MP3|320 кб/с] <Dance, Disco, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731880.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jerorr - Дискотека (04:52)
+02. Каролина - Вот и все (04:05)
+03. Лорис (ex. Восток) - Отелло (03:58)
+04. Александр Каштанов - 9-ка (хетчбэк) (03:10)(   Читать дальше...   )Жанр: Dance, Euro House, Disco, PopПродолжительность: 01:18:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D859B9E67E6DF74CDC5B4F5EADEEDFC754866C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131683   (731509) от 08.02.2022
+
+Cherry Laine - The Singles Collection (1977-1986) Vinyl 7",12" [MP3|320 Kbps] <Electronic, Funk-Soul, Disco, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731509.jpg" />
+</div>
+
+
+###  Подробнее
+
+Черри Лейн (Cherry Laine, настоящее имя Флоренс Миллз (Florence Evadne Mills) - немецкая диско-певица ямайского происхождения. Самый известный хит - Catch The Cat. В раздачу вошли все синглы исполнительницы, включая малоизвестные, но - интересные в экспериментальных одно-сезонных группах.01. Everybody Knows It (1977) (2:48)
+02. Island Guy (1977) (2:26)
+03. A Night In Chicago (1977) (3:44)
+04. You Love Me In a Special Way (1977) (2:48)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, Disco, PopПродолжительность: 02:39:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4658E567BDE89A19D9288521B561D0AD508F9ABD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1529876   (731505) от 08.02.2022
 
 VA - Свежий Русский Хит от ALEXnROCK часть 9 (2022) [MP3|320 Kbps] <Pop>
@@ -687,64 +745,6 @@ VA - Дискотека 80-90 годов по - новому (Зарубежны
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A51BBDC870B8284704B396E4F7F6EBE4E01E192
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023096   (726356) от 04.06.2016
-
-VA - SpaceSynth & ItaloDisco Hits - 1 (2016) [MP3|320 кб/с] <Italo-Disco, Synth-pop, Hi NRG>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726356.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Digimax - Fading Memories (05:28)
-02. AMATERAS - Magellanic Stream (06:52)
-03. Baltimora - Tarzan boy (SlavaMaverick Rmx) (03:38)
-04. Alan Barry - Victim Of Love (04:59)(   Читать дальше...   )Жанр: Italo-Disco, Synth-pop, Hi NRGПродолжительность: 08:54:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3021E542D3718A45B59FAC948BAE29721CC352FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023248   (726195) от 04.06.2016
-
-VA - Новая Русская Дискотека - 5 (2016) [MP3|256-320 кб/с] <Поп, Танцевальный>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 140 ударов в минуту feat. DiscoBonus - Мурашки по телу (80-s rmx)
-02. Придет весна - Андрей Шпехт
-03. Ангел и Кот - А во дворе
-04. Сергей Хижняк и гр. Шоколад-Виктория - Дальнобойщик(   Читать дальше...   )Жанр: Поп, ТанцевальныйПродолжительность: 05:10:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EEF8F846C8C5AACC80444CE730F463D73FDACA8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1410561   (429986) от 24.09.2020
+
+Portraits - At My Darkest (2020) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_429986.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mortal Frame [00:01:36]
+02. Cleansing [00:03:42]
+03. Parasite In Me [00:04:17]
+04. Hands Of Guilt [00:03:59](   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:31:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13DB238D4F06FFDCBAE1186740A0B9C74D00C914
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1410981   (429977) от 24.09.2020
 
 Resistance - Checkmate (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Hardcore>
@@ -716,35 +745,6 @@ Cold - The Things We Can't Stop (2019) [FLAC|Lossless|tracks + .cue] <Alternativ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:16BB5AC573C7E7961DD2C8B8BA6E5BB96E5BFA59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168169   (410246) от 23.09.2017
-
-Kaleo - A/B (2016) special russian edition, 2017 [FLAC|Lossless|tracks + .cue] <Indie rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410246.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Good [03:54]
-02. Way Down We Go [03:39]
-03. Broken Bones [04:06]
-04. Glass House [04:01](   Читать дальше...   )Жанр: Indie rock, Blues RockПродолжительность: 00:49:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01C4E35A2693435B44D6174A2B4F4218B54EE19F
 ```
 
 https://mybot314.ru/tekegram_catalog/

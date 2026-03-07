@@ -1,3 +1,90 @@
+###  Публикация: 1218197   (725292) от 08.04.2018
+
+VA - Good Day Music Compilation Vol.4 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_725292.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Numall Fix - Memories (Original Mix)
+02. Estatica - The Lost World (Original Mix)
+03. Baintermix - Indian Chief (Original Mix)
+04. 5Beat - Lost Story (Remaster Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:10:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:858F44B957DF637996315F635891EB3951B391D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218204   (725208) от 08.04.2018
+
+VA - Dream Trance: The Future Is Now (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_725208.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frozen Skies & Frank Laverne - Celebrate The Love (Radio version)
+02. Bernd Loorbach - Cafe Del Mar (TbO & Vega Trance mix)
+03. Chris Excess - Secret (Frozen Skies remix edit)
+04. Elaine Winter - Forever Young (Tbo & Vega remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:51:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77C90BF8208AE8B683C5529A826480F5EF1DF504
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129167   (724361) от 27.04.2017
+
+VA - Tiesto - In Search Of Sunrise 5: Los Angeles (2006) [MP3|320 Kbps] <Trance, Progressive Trance,House>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724361.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Conil - Malibu Beach (02:24)
+02. Mark Norman pres. Celine - Colour My Eyes (06:24)
+03. Late Night Alumni - Empty Streets (Haji & Emanuel Remix) (05:40)
+04. Electro-Prompt - Beside Me (Gothek D.C. Remix) (05:16)(   Читать дальше...   )Жанр: Trance, Progressive Trance,HouseПродолжительность: 02:35:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:258DF30BDA46BB3CF35BA02708298B0BC7E4EA04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1284974   (724066) от 24.02.2019
 
 DJ Skydreamer - Наш Ответ!!! ATB (2005) [MP3|320 Kbps] <House, Trance>
@@ -658,93 +745,6 @@ VA - Nothing But... The Future of Trance Vol. 06 (2018) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B67109D5EFDF9BB5E9B10FD20BF8BD8831AD0EE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131303   (705419) от 07.05.2017
-
-VA - Trancespotting Vol.5 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705419.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Rene Ablaze & Jam Da Bass - Fly (Radio Edit)  3:13
-02.  Amitacek - Causeway (Radio Cut)  3:46
-03.  Bvibes - Vertigo (Radio Cut)  3:48
-04.  Damian Wasse - Rise Of Nation (Radio Cut)  3:50(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:29:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26038A7241AEA40778992A5034A65EC68A18DCF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220362   (704511) от 19.04.2018
-
-VA - Recoverworld Radio 019 (Mixed by Para X) (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704511.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ T.H. feat. Elyse G. Rogers – Strong Enough (Para X Remix)
-02. KoRay – I Feel Love (Original Mix)
-03. Sly One vs. Jurrane – Everything to Me (Opt-In Remix)
-04. The Avains – Infestation (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:14:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC3415A19A36125444E6A8C860BE611DB12B44B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220541   (704509) от 19.04.2018
-
-VA - Spring Sampler Vol.01 (2018) [MP3|320 Kbps] <Trance,Progressive House>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Proluction - Back To You (Original Mix)
-02. Kucki - Dream On (Original Mix)
-03. myni8hte - Paths We Walked (Original Mix)
-04. HyperPhysics - Moonrise (Original Mix)(   Читать дальше...   )Жанр: Trance,Progressive HouseПродолжительность: 01:50:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17F6B88DFAE289C48BCCC69D04F8E13A89C58C9B
 ```
 
 https://mybot314.ru/tekegram_catalog/

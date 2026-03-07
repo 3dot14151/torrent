@@ -1,3 +1,32 @@
+###  Публикация: 1306498   (555570) от 05.06.2019
+
+The Hawkmen - The Hawkmen (2019) [MP3|320 Kbps] <Rhythm & Blues, Rockabilly>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555570.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love is blind (02:53)
+02. Soulful dress (02:59)
+03. Acai (02:44)
+04. Chemistry of love (03:07)(   Читать дальше...   )Жанр: Rhythm & Blues, RockabillyПродолжительность: 00:33:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D732793FF3E283EACE467C2656FB682EC64F827
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1306795   (555450) от 06.06.2019
 
 Santana - Africa Speaks (2019) [MP3|320 Kbps] <Classic Rock>
@@ -713,35 +742,6 @@ Slade - Slade In Showplace (Dover, NJ) Jul 30, 1976 (bootleg) (1976) [MP3|320 Kb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3C9001F2C31F81D852C61B42BF7F728170BFFCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557088   (542813) от 14.06.2022
-
-The 69 Eyes - 3 Relise (1997-2013) [MP3|320 Kbps] <Gothic Industrial Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542813.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Never Say Die [00:03:29]
-02. Gothic Girl [00:04:31]
-03. Betty Blue [00:03:38]
-04. Sister of Charity [00:05:06](   Читать дальше...   )Жанр: Gothic Industrial RockПродолжительность: 4 CD, 03:31:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11EEDF2921570F6AF471AF589A2E64CD8FCC9123
 ```
 
 https://mybot314.ru/tekegram_catalog/

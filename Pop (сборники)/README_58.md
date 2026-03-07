@@ -1,3 +1,61 @@
+###  Публикация: 1229463   (626460) от 06.06.2018
+
+VA - Caramel Masquerade (2018) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626460.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Walk The Moon - One Foot
+002. Dua Lipa - IDGAF
+003. MAX - Lights Down Low
+004. Matami - Get Lost(   Читать дальше...   )Жанр: PopПродолжительность: 08:41:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD469876AAB6400272065ACA42785D0C51B964BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294623   (626116) от 09.04.2019
+
+VA - German Top 50 Party Schlager Charts 08.04.2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626116.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andrea Berg - Mosaik
+02. Kerstin Ott - Regenbogenfarben
+03. Maite Kelly - Heute Nacht für immer
+04. Thomas Anders - Sie sagte doch sie liebt mich (feat. Florian Silbereisen)(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 03:00:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E457BB8EF5F53C54ED8735D3F8454B0B86675A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1294755   (625966) от 09.04.2019
 
 VA - This Merry Planet: Super Rare Disco Vol.2 (2019) [MP3|320 Kbps] <Disco, Funk>
@@ -717,76 +775,6 @@ VA - Italo & Dance: Summer Sale (2018) [MP3|320 Kbps] <Italo-Disco, SpaceSynth>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80B70BFCB257E4B0CC079064E9EAAA4A4A21D978
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523338   (617208) от 16.07.2012
-
-VA - Знойный летний хит (2012) [MP3|256-320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617208.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Pandora feat. Stacy - Why magistral (3:28)
-2. Вирус - За Тобой (3:11)
-3. Женя Вилль - Странная Любовь (4:06)
-4. Светлана Лобода - Облака (DJ Ozeroff & DJ Sky feat. Lebedev Radio Mix) (3:41)
-5. Alexey Romeo & Euegene Noiz Feat. Alateya - Лето (Bimbo Song) (3:27)
-6. Vilana - Море (3:34)
-7. Dj Cosmo - The Lovesong (3:07)
-8. НеАнгелы - Твоя (DJ Jedy Club Remix) (4:33)
-9. DJ Mikis feat. Нина Богданова - С Обратной Стороны Луны (Radio Edit) (3:11)
-10. Alexandra Stan - Lemonade (3:30)Жанр: PopПродолжительность: 06:01:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC64C79F849B0E749D82D48DFC1B2DFD5468C3D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523469   (616900) от 16.07.2012
-
-VA - Музыка.ру 19 (2012) [MP3|320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616900.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Dan Balan - Не любя (3:15)
-2. Бьянка - Весна-Лето 3 (Про Зою) (3:16)
-3. Bobina feat. Винтаж - Нa-нa-нa (3:39)
-4. Инфинити - Другая (3:21)
-5. Стая - Сердце (3:08)
-6. Kristina Si - Начинаю забывать (UnorthodoxX Remix) (3:32)
-7. МакSим - Небо-самолеты (2:51)
-8. Доминик Джокер - Если ты со мной (Paul Vine Remix) (3:09)
-9. Митя Фомин - Хорошая песня (3:03)
-10. Ирина Билык - Мы будем вместе (3:38)Жанр: PopПродолжительность: 01:06:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D0A149BA31018E0CCE7098B211B134D3BF05F4B
 ```
 
 https://mybot314.ru/tekegram_catalog/

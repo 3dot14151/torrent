@@ -1,3 +1,32 @@
+###  Публикация: 1255253   (365888) от 17.10.2018
+
+VA - Shy Of Shameless: October Blues Collection (2018) [MP3|320 Kbps] <Blues, Rock Blues, Rock and Roll>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_365888.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Billy Lee Riley - Goin' Jukin'
+002. Ray Bonneville - Waiting on the Night
+003. Chuck Berry - My Mustang Ford
+004. Ray Bonneville - Riverside Drive(   Читать дальше...   )Жанр: Blues, Rock Blues, Rock and RollПродолжительность: 09:02:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CCB8D9C2C2D419575EC22DC452C7FAA6F875FAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 459570   (365485) от 28.10.2015
 
 VA - Metal Attack (2012) [MP3|192-320 кб/с]<Alternative, Thrash, Industrial, Power, Nu-Metal, Modern Rock, Punk Rock>
@@ -715,35 +744,6 @@ VA - Rock Classic Ballad: Special Performance (2020) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7024DF2F0AAE09E4774126EB59971849BD98EE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179019   (350666) от 30.10.2017
-
-Сектор Газа - Незабываемые песни 3CD 1989-2000 (2017) DON Music [MP3|320 Kbps] <Punk Rock, Fusion>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350666.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Колхозный панк (1989)
-02. Плуги-вуги (1989)
-03. Наркоман (1989)
-04. Местные (1989)(   Читать дальше...   )Жанр: Punk Rock, FusionПродолжительность: 03:01:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7782A431B4D348121A39C032B85BBF9696F9086
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1142847   (639464) от 16.06.2017
+
+Gary Stewart - Boy Cries Wolf (2010) [MP3|128 Kbps] <Folk, Country>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Travelling Song 4:16
+02. Jekyll And Hyde 2:56
+03. Take Me Down 3:06
+04. Behind The Door (feat. Ellen Smith) 3:11(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:37:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0957B31213ED2BCDB724052CFCC31AC3EB7434D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1142974   (639346) от 16.06.2017
 
 The Honeycutters - On the Ropes (2016) [FLAC|Lossless|tracks] <Country,Folk>
@@ -754,41 +783,6 @@ Oliver Scheffner - Sunny Chillout Lounge (2018) [MP3|320 Kbps] <New age, Relax>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB76D2E3D2C9694214111F099CA6180AB4DE8E77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 519651   (635631) от 07.07.2012
-
-VA - Yak pushu strelu / As I let an arrow fly / Як пущу стрелу песни русско-украинско-белорусского пограничья (2007) [MP3|320 кб/с]<Ethnic>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635631.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Vesna, Vesnyanochka (0:36)
- 2. Na Gryanoy Nedele (1:04)
- 3. Seraya Iy Zeziulechka (0:42)
- 4. Katis, katis, zharkoie solntse (2:00)
- 5. Oy, ty, lastochka (1:14)
- 6. Gdje zhiviot moya milaya (2:12)
- 7. Da khodila Tanechka po gorodu (1:33)
- 8. Sidel Vanya na divane (2:39)
- 9. Oy, ya v boru vodu beru (1:12)
- 10. Sama idu po kameniu (2:32)(   Читать дальше...   )Жанр: EthnicПродолжительность: 01:09:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EFD1874518F9D358DA724F0F1B1F6DAF33AA907
 ```
 
 https://mybot314.ru/tekegram_catalog/

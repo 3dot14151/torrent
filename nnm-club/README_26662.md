@@ -1,22 +1,25 @@
-###  Публикация: 1807352   (11089) от 18.07.2025
+###  Публикация: 1805633   (12136) от 08.07.2025
 
-Громовержцы* / Thunderbolts* (2025) WEB-DL [H.265/2160p] [4K, SDR, 10-bit]
+Дилижанс - 11 Albums (1998-2024) [MP3|320 Kbps] <Pop, Chanson, Folk>
 
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
+>>Pop
+>>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11089.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12136.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Команда злодеев отправляется на задание по приказу правительства.Производство: США, Австралия, Канада / Marvel StudiosЖанр: фантастика, боевикРежиссер: Джейк ШрейерАктеры: Флоренс Пью, Себастиан Стэн, Уайатт Рассел, Ольга Куриленко, Льюис Пуллман, Джеральдин Висванатан, Ханна Джон-Кэймен, Дэвид Харбор, Джулия Луи-Дрейфус, Кристофер БауэрПеревод: Дублированный (Jaskier), Профессиональный многоголосый (Jaskier)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (Forced, Full, SDH)Продолжительность: 02:06:42
+Список альбомов:
+Все хиты, часть 1 (1998)
+Все хиты, часть 2 (1999)
+Все хиты, часть 3 (2000)(   Читать дальше...   )Жанр: Pop, Chanson, Folk /Продолжительность: 11 CD, 12:06:49 /
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A449C9DDBD2DA575C6882E23117AC7412DE998DC
+magnet:?xt=urn:btih:150544DCEEAB39DC20FA9E1DE019212068C80CA6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,27 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807373   (11088) от 18.07.2025
+###  Публикация: 1805529   (12135) от 08.07.2025
 
-Пол Андерсон | День причастия (2025) [MP3, Ольга Владимирова]
+Elton John - Greatest Hits 1974 (1992) CD, Compilation, Reissue [FLAC|Lossless|tracks + .cue] <Pop, Rock>
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11088.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12135.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Вспышка Сверхновой способна уничтожить жизнь в расположенной неподалеку обитаемой звездной системе. Один из разведкораблей Лиги срочно направляется туда для оказания помощи в спасении местного населения. Кроме того, на планетах земного типа можно разместить научную экспедицию для изучения этого редкого и опасного явления.
-
-Достаточно развитая в техническом отношении (   Читать дальше...   )Жанр: ФантастикаИздательство: Аудиокнига своими руками / неофициальное издание профессиональной актрисыПродолжительность: 02:08:00
+01. Your Song    [0:04:01.35]
+02. Daniel    [0:03:53.07]
+03. Honky Cat    [0:05:13.18]
+04. Goodbye Yellow Brick Road    [0:03:14.52](   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:47:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AE7B7E30AC469326EBECCA6C5AB54D0758BA8847
+magnet:?xt=urn:btih:61DE005C53ABAFFB98E9C1FAAF5D1A61CE8D6FC4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -52,28 +56,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807339   (11087) от 18.07.2025
+###  Публикация: 1805606   (12134) от 08.07.2025
 
-VA - A State of Trance - Classics Top 10, Vol. 5 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+Журнал | Смена №6 (июнь 2025) [PDF]
 
->>Electronic
->>Trance
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11087.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12134.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Armin van Buuren feat. Sharon Den Adel - In And Out Of Love (Extended Mix) [6:05]
-02. BBE - Desire (Three N' One Extended Remix) [8:58]
-03. Lost Witness - Happiness Happening (Lange Extended Remix) [9:17]
-04. Mauro Picotto - Komodo (Save A Soul)Жанр: Trance, Progressive, ElectronicПродолжительность: 01:18:55
+Журнал «СМЕНА» издается с января 1924 года. На протяжении своей почти 100-летней истории всегда публиковал журналистские материалы аналитического, полемического и разъясняющего характера, а также востребованные широкой публикой литературные произведения. В литературном разделе представлены классические зарубежные и отечественные детективы, малоизвестная проза классиков (   Читать дальше...   )Жанр: Публицистика, проза, поэзияИздательство: ООО Издательский дом журнала "Смена"Формат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E426086E1510EAF7791B5A1A5D3BBDDBAC003C19
+magnet:?xt=urn:btih:C9F3795EBB54D87812142DFD3B3D64393FFA99DA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -81,28 +82,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807320   (11086) от 18.07.2025
+###  Публикация: 1805744   (12133) от 08.07.2025
 
-VA - Nothing But... Late Night Deep House, Vol. 03 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+Журнал | 5 Колесо №7 (381) (июль 2025) [PDF]
 
->>Electronic
->>House
+>>Автомобили
+>>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11086.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12133.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Gabriel Slick - Forever Free (Radio Mix) [03:44]
-02. Frank Garcia - Humanity Found (Extended mix) [07:44]
-03. Sin Plomo, SuperRaton & BalearicFreaks - Kutura feat. Samira (SúperRatón Remix) [02:49]
-04. Father Deep - The Movement of House [06:31](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:06:05
+«5 колесо» - один из самых популярных автомобильных журналов в России, имеющий многолетнюю успешную историю развития. Одной из главных особенностей журнала являются непосредственное участие читателей в испытаниях автомобилей, представленных на российском рынке, а также самый полный каталог автомобилей, официально продаваемых на российском рынке с актуальными, действительными (   Читать дальше...   )Жанр: Автомобильный журналИздательство: ООО «5К»Формат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E1382482A113ECDC0EB670EB5B5F7D5EA3967DDA
+magnet:?xt=urn:btih:E50BEE8D3DFD63A9D1D64A138B7DE28919350774
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -110,25 +108,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807298   (11085) от 18.07.2025
+###  Публикация: 1805795   (12132) от 08.07.2025
 
-Эффи Брист Фонтане / Fontane Effi Briest (1974) BDRip [H.264] [MVO]
+VA - Music News For Forum vol.110 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
+>>Неофициальные сборники
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11085.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12132.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Адаптация сценария по мотивам романа немецкого писателя Теодора Фонтане 1894 «Под ивой»... Действие происходит в Германии в конце XIX столетия. Юная Эффи Брист против своей воли выходит замуж за барона фон Инстеттена, который в два раза старше её. Во время длительного отсутствия мужа скучающая Эффи знакомится с майором Кремпасом. Инстеттен получает министерский портфель (   Читать дальше...   )Производство: Германия / Tango FilmЖанр: драмаРежиссер: Райнер Вернер ФассбиндерАктеры: Ханна Шигулла, Вольфган Шенк, Улли Ломмель, Лило Пемпайт, Херберт Штайнмец, Урзула Штрэц, Ирм Херманн, Карлхайнц Бём, Карл Шейдт, Барбара ЛассПеревод: профессиональный многоголосыйЯзык озвучки: русский, немецкийСубтитры: английскиеПродолжительность: 02:20:32
+001. Silence The Echo - Don't Give Up (03:59)
+ 002. Adept - Heaven (04:21)
+ 003. Adept - YOU (04:24)
+ 004. Adina Butar - Escape You (03:36)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:19:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:79C79CA9111CE6503F62E15D0D1C5AA2EDE2C8CD
+magnet:?xt=urn:btih:473F140B6379D7E8E46ABB5313456D84395B8CD5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -136,28 +137,55 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807335   (11084) от 18.07.2025
+###  Публикация: 1805773   (12131) от 08.07.2025
 
-VA - FSOE Summer Compilation 2025 (2025) [FLAC|Lossless|tracks] <Trance>
+Skip House - Big Daddy Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12131.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Big Daddy Blues (3:48)
+02.  Paradoxical Lady (5:57)
+03.  Simple Stupid Groove (4:40)
+04.  Furlough Two Step (Live) (3:55)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:30:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F33F19FFF55CF432442CC604E4A81082607F9C98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805797   (12130) от 08.07.2025
+
+Jon O'Bir - Ascendancy (2006) [FLAC|Lossless|WEB-DL|tracks] <Trance>
 
 >>Electronic
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11084.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12130.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Aly & Fila - It's All About The Melody (Original Mix) [4:35]
-02. The Thrillseekers - Halcyon (Ferry Tayle Extended Remix) [8:18]
-03. Craig Connelly - The Great Hall (Extended Mix) [6:52]
-04. Giuseppe Ottaviani - Till The Sunrise (Extended Mix) [6:57](   Читать дальше...   )Жанр: TranceПродолжительность: 02:13:41
+01 Ascendancy (Original Mix) 7:54
+02 Ascendancy (Alex M.O.R.P.H. & Woody van Eyden Remix) 8:14Жанр: TranceПродолжительность: 16:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:67455374DC3953E71FA29C05F652B7DB3FC6BE01
+magnet:?xt=urn:btih:3E9C6089EA26F51712E29EE3DE18DA15A895C058
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -165,25 +193,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807384   (11083) от 18.07.2025
+###  Публикация: 1805787   (12129) от 08.07.2025
 
-Виктор Молотов, Сергей Харченко | Младший Приручитель (Книга 8). В поход за монстрами! (2025) [MP3, Руслан Дё]
+Tomas Lindqvist featuring Per Lindvall and Lars Larry Danielsson - Can´t wait (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Contemporary Jazz>
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11083.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12129.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В этот раз аннотацию съел дракон. Он был очень голоден, поскольку такого монстра невозможно накормить досыта. Просим понять его и простить.Жанр: Фэнтези, боевик, юмор, попаданцыИздательство: ЛитРесПродолжительность: 07:17:58
+01.  Can’t wait (4:32)
+02.  Take my hand (3:53)
+03.  On the Other Side (4:48)
+04.  Almost There (4:54)(   Читать дальше...   )Жанр: Smooth Jazz, Contemporary JazzПродолжительность: 00:48:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:30AC34678BB30AAF1D2C6C5AFE23A68D6FF9F41B
+magnet:?xt=urn:btih:AB16A20BD8A982BECAC9801401499A1561B30ABB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -191,25 +222,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807393   (11082) от 18.07.2025
+###  Публикация: 1805778   (12128) от 08.07.2025
 
-Пол Андерсон | Этап (2020) [MP3, Puffin Сafe]
+The Muthas - They Come (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock, Americana>
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11082.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12128.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Если вы отправляете преступника отбывать наказание в далекое прошлое, то нужно убедиться, что выбранное время отнесется к нему достаточно сурово, иначе какое же это наказание.Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:27:00
+01.  The Muthas Intro (1:19)
+02.  Just Need Your Time (3:24)
+03.  Human Touch (3:07)
+04.  Circles (4:54)(   Читать дальше...   )Жанр: Blues Rock, AmericanaПродолжительность: 00:41:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2FCE133D174EBE228652C4F6656BDF5DABCA22F9
+magnet:?xt=urn:btih:067B0D2EC23838A3FE80E66E9C3C0A3783171288
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -217,25 +251,199 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807340   (11081) от 18.07.2025
+###  Публикация: 1805775   (12127) от 08.07.2025
 
-Шейн / Shane (1953) BDRip [H.264] [AVO]
+The Gravel Project - Find What You Need (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues, Rock, Funk>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12127.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Love the Life (4:47)
+02.  Stay with Me (6:06)
+03.  Worse for Wear (4:13)
+04.  How Long (4:59)(   Читать дальше...   )Жанр: Blues, Rock, FunkПродолжительность: 00:50:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F0158E9439C8262A7FDAD4DEB33A1BE75716A3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805742   (12126) от 08.07.2025
+
+Anger Machine - Human Error (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12126.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (00:47)
+ 02. Parasite (04:02)
+ 03. Deadline Flatline (02:44)
+ 04. Earthquaker (05:38)(   Читать дальше...   )Жанр: Thrash, Groove MetalПродолжительность: 00:38:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:460AACFC4996956967F653EBCFD8A788E4EE8DEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805780   (12125) от 08.07.2025
+
+The New Old School - Mississippi Black Police Chief Sykes (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12125.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Chief Sykes (2:32)
+02.  Mississippi Black (4:55)
+03.  One Man (3:24)
+04.  I-57 (3:08)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:55:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:621A639190071A48741230E0F8213819159291B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805750   (12124) от 08.07.2025
+
+VA - Jazz Bello Fresco (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12124.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Hot Latin Spirits - In The Old City (3:54)
+02.  Giulio Campagnolo & The Jazz Funkers - Revli's Mood (5:38)
+03.  Franca Barone - Miss Apleton (2:52)
+04.  Massimo Guerra Xtet - Morgan Beat (6:19)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:31:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0A33B6A2A9D1D1F373186B8E6282B4971627DC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805783   (12123) от 08.07.2025
+
+The Voodoohounds - The Voodoohounds (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Lucy Fixingdiamond - E.T. Woman (4:53)
+02.  Mata Hari (3:35)
+03.  I'm Hooked (4:24)
+04.  Cromwell (3:01)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5B365C56B86D9EDF8F49843419C250E8B4E57CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805793   (12122) от 08.07.2025
+
+Main-De-Gloire - Ravecore (2025) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post-Hardcore, Modern Rock, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12122.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wake Up [00:03:42]
+02. Vampir [00:03:33]
+03. Can You Feel My Heart [00:03:48]
+04. Lonely [00:03:14](   Читать дальше...   )Жанр: Metalcore, Post-Hardcore, Modern Rock, ElectronicПродолжительность: 00:44:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAE95FC06BAC57B152CA1A758D0115D144735545
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805827   (12121) от 08.07.2025
+
+Маленькая Мери Саншайн / Little Mary Sunshine (1916) WEBRip
 
 >>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11081.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12121.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сценарий основан на одноимённом романе Джека Шефера (1949)... Джо и Мэрион Старретт вместе с сыном борются за выживание на своём ранчо в суровом приграничном городке. Однажды к ним приезжает всадник Шейн и просит воды для себя и своей лошади. Через некоторое время он уже помогает семье защищать ранчо от злодея Райкера, захватывающего земли под пастбища для скота... (   Читать дальше...   )Производство: США / Paramount PicturesЖанр: драма, вестернРежиссер: Джордж Стивенс ст.Актеры: Алан Лэдд, Джин Артур, Ван Хефлин, Брендон Де Уайлд, Джек Пэланс, Бен Джонсон, Эдгар Бьюкенен, Эмиль Мейер, Элиша Кук мл., Дуглас Спенсер, Джон Диркес, Эллен Корби, Пол МакВей, Джон Миллер, Эдит ЭвансонПеревод: авторский (Сергей Кузнецов)Язык озвучки: русский, английскийСубтитры: английские SDHПродолжительность: 01:58:02
+Судьба свела двух людей - маленькую девочку из трущоб и молодого человека из благополучной семью. У них обоих случилась беда. Конечно, можно подискутировать о сравнимости их неприятностей, о масштабах их горя. Но, тем не менее, они оба были несчастны. Может для этого они и встретились, чтобы утешить друг друга? Насколько правдоподобна эта история, решайте сами, но (   Читать дальше...   )Производство: США / Balboa Amusement Producing CompanyЖанр: драма, немое киноРежиссер: Генри КингАктеры: Мари Осборн, Генри Кинг, Маргарит Николс, Эндрю Арбакль, Молли МакКоннеллПеревод: немой с интертитрами (В. Сачков)Субтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:44:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7354FA70A36236379CC24075D5C93F84AE6A530B
+magnet:?xt=urn:btih:BD190BC06FD2EB9BD44BFE44051563B8C3F2A646
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -243,25 +451,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807385   (11080) от 18.07.2025
+###  Публикация: 1805796   (12120) от 08.07.2025
 
-Виктор Молотов, Сергей Харченко | Младший Приручитель (Книга 9). В астрал за монстрами! (2025) [MP3, Руслан Дё]
+Das Ich - Staub (1994) Vinyl Edition, Remastered, 2024, Danse Macabre Records[MP3|320 Kbps] <Darkwave, EBM, Industrial>
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Electronic
+>>Industrial, EBM, Dark Electro
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11080.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12120.jpg" />
 </div>
 
 
 ###  Подробнее
 
-На этот раз аннотация испугалась слишком большого количества питомцев, которые на неё жадно смотрели и сбежала в Астрал… Сергей с друзьями отправились её искать. Как только она найдется, мы обязательно вам сообщим.Жанр: Фэнтези, боевик, юмор, попаданцыИздательство: ЛитРесПродолжительность: 07:13:03
+01. Sagenlicht [00:05:19]
+02. Unschuld Erde [00:06:06]
+03. Von der Armut [00:04:55]
+04. Im Ich [00:02:09](   Читать дальше...   )Жанр: Darkwave, EBM, IndustrialПродолжительность: 00:38:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6D21F734B4C156E6877AB9416339A4CA9EC724D3
+magnet:?xt=urn:btih:FEC4C279DA26275ED0846F77650A1C06F6D32015
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -269,25 +480,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807369   (11079) от 18.07.2025
+###  Публикация: 1805802   (12119) от 08.07.2025
 
-Алекс Бредвик | Легионы Греции (Книга 1). Новобранец. Том 1 (2025) [MP3, Андрей Брежнев]
+Dance Gavin Dance - Pantheon (2025) [MP3|320 Kbps] <Post-Hardcore, Progressive, Experimental>
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11079.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12119.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мой мир разрушился за мгновения. Казалось, что словно сам Арес разгневался на нас, семью Советника, уничтожив мой дом и всех моих родных. И это все, что я помнил. Кто я? Почему я выжил? И какого Аида вокруг стали появляться создания из древних легенд?! Но даже если так – копье в руки и вперед! Настоящий спартанец имеет право умереть только в бою!Жанр: Фэнтези, боевик, LitRPG, попаданцыИздательство: ЛитРесПродолжительность: 08:40:23
+01. Animal Surgery [00:05:10]
+02. Midnight at McGuffy's [00:04:10]
+03. The Robot with Human Hair Rebirth [00:05:41]
+04. The Conqueror Worm [00:03:37](   Читать дальше...   )Жанр: Post-Hardcore, Progressive, ExperimentalПродолжительность: 00:55:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:31B7CD04033A3477D22C08A663979DD4EDD58F10
+magnet:?xt=urn:btih:DEC529E001E3DC9F9AF86C74704C6F363B2AA61E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -295,107 +509,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807144   (11078) от 18.07.2025
+###  Публикация: 1805632   (12118) от 08.07.2025
 
-RAR Extractor - Unarchiver (vip) 6.5.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11078.jpg" />
-</div>
-
-
-###  Подробнее
-
-RAR Extractor, распаковать и открыть любой файл. RAR Extractor - Unarchiver - это специализированная прикладная утилита, предназначенная для Rar, Zip, Tar, 7-zip, Gzip, Bzip2, XZ, Tar.gz, bz2, iso, pkg, swf, exe, jar, xip, dms… и десятки других сжатых файлов, вы можете использовать ее для удобного извлечения архивных файлов. Дважды щелкните, чтобы распаковать, быстро (   Читать дальше...   )Тип издания: macOS SoftwareРазработчик: © 2024 qing qing yuПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B6C1C6E604F65C130F7C03F33A50F1647FD0D12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807286   (11077) от 18.07.2025
-
-Василий Орехов | S.T.A.L.K.E.R. Хемуль (Книга 2). Похищение по-чернобыльски (2023) [MP3, Михаил Золкин]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11077.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цикл «Золотая коллекция» продолжается вторым романом Василия Орехова о сталкере Хемуле – «Похищение по-чернобыльски».
-Когда любимая женщина в опасности, очень быстро забываешь и о мутантах, и об аномалиях, и о своих обещаниях никогда не возвращаться в Зону отчуждения. Зараженные земли по-прежнему несут угрозу каждому, кто посмеет пересечь Периметр, но у Хемуля нет (   Читать дальше...   )Жанр: Боевая фантастикаИздательство: АСТПродолжительность: 10:55:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C43C5E595CC7E41956D1EF7FE4BDEC0EA6670B02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807334   (11076) от 18.07.2025
-
-Дмитрий Шимохин | Проснувшийся (Книга 4). Восхождение язычника (2024) [MP3, Алексей Исиевский]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11076.jpg" />
-</div>
-
-
-###  Подробнее
-
-Смерть настигла меня в тайге – от рук бандитов. Но путь за грань не был концом, и мое сознание перенеслось в далекое прошлое, в тело мальчишки язычника. И теперь я должен пройти испытания и доказать, что достоин называться мужчиной. Только определился с планами на новую жизнь, как бог-покровитель своим поручением меняет все, ведь у него есть свой интерес. Будет тяжело, (   Читать дальше...   )Жанр: Фантастика, фэнтези, попаданцыИздательство: ЛитРесПродолжительность: 07:47:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D2D831F7454E4192927543A41EFD42331AA8CEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807378   (11075) от 18.07.2025
-
-Jean Mare - A Sunset Chill Lounge Voyage (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Downtempo, Lounge, Chill Out>
+Dropkick Murphys - For The People (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Celtic Punk, Rock, Oi! Punk band from Boston>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11075.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12118.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dancing Sunset
-02. Miles Away
-03. Tequila Dub Chill
-04. Melodic House(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 00:53:39
+01. Who'll Stand With Us? [00:03:51]
+02. Longshot (feat. The Scratch) [00:03:27]
+03. The Big Man [00:02:53]
+04. Chesterfields and Aftershave [00:04:30](   Читать дальше...   )Жанр: Celtic Punk, Rock, Oi! Punk band from BostonПродолжительность: 00:43:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6DA52168DD6427E2C86B1FC300C376E669221D56
+magnet:?xt=urn:btih:96393E0E2F38B087FCCBD3307620B412D7C46F5D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -403,25 +538,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807389   (11074) от 18.07.2025
+###  Публикация: 1805657   (12117) от 08.07.2025
 
-Жил певчий дрозд / Iko shashvi mgalobeli (1970) WEBRip [H.264/1080p]
+Александр Заборский и Ко - Блатная любовь (2012) [MP3|320 Kbps] <Chanson>
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (HD, FHD, UHD)
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11074.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12117.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Молодой человек носится по городу, всем пытается услужить, со всеми пытается быть любезным и не находит ни одной минуты для того, чтобы заняться работой. Гия – композитор, но работает в оперном оркестре и играет на инструменте, который не требует постоянного его присутствия. Надо ударить один раз, потом длинная пауза, иногда до последнего акта, и потом надо прийти (   Читать дальше...   )Производство: СССР, Грузия-фильмЖанр: драма, комедияРежиссер: Отар ИоселианиАктеры: Гела Канделаки, Гоги Чхеидзе, Джансуг Кахидзе, Иринэ Джандиери, Елена Ландия, Ия Мдивани, Марина Карцивадзе, Нугзар Эркомаишвили, Ираклий Кокрашвили, Н. Анджапаридзе, Роберт Стуруа, Медея ДжапаридзеПродолжительность: 01:21:16
+01 - Кто я [00:05:15]
+02 - Вечный стук [00:02:29]
+03 - Рыдающим о России [00:02:54]
+04 - Побег [00:03:38](   Читать дальше...   )Жанр: ChansonПродолжительность: 00:56:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DB5A38C960B512C994406C3060C60CD012024B87
+magnet:?xt=urn:btih:322C62D9B03732C1EC57372C4359005468A56AC4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -429,28 +567,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807235   (11073) от 18.07.2025
+###  Публикация: 1805841   (12116) от 08.07.2025
 
-Joe Bonamassa - Breakthrough (2025) [MP3|320 Kbps] <Blues-Rock>
+Steve Aoki - HiROQUEST 3: Paragon (2025) [MP3|320 Kbps] <Electro House, Progressive House, Hardstyle, Jumpstyle, Dance-pop, Reggaeton, Moombahton, Pop Rock>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12116.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Maximus [00:03:13]
+02 - My Life [00:02:48]
+03 - Radio [00:02:29]
+04 - Thanks To You [00:02:48](   Читать дальше...   )Жанр: Electro House, Progressive House, Hardstyle, Jumpstyle, Dance-pop, Reggaeton, Moombahton, Pop RockПродолжительность: 01:57:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F735A0990950801F83B5F4096FC73ECAE85D5E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805774   (12115) от 08.07.2025
+
+Paul Brown - So Much To Say (2025) [FLAC|Lossless|image + .cue] <Smooth Jazz>
 
 >>Jazz, Blues, Soul
->>Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11073.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12115.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01  Breakthrough [00:04:10]
-02  Trigger Finger [00:04:04]
-03  I'll Take The Blame [00:03:34]
-04  Drive By The Exit Sign [00:04:19](   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:45:39
+Предлагаю обратить ваше внимание на релиз артиста, чье одно только имя вызывает тепло, утонченность и мелодичность. С So Much to Say гитарный виртуоз и светило smooth джаза Paul Brown предлагает нам больше, чем просто летний саундтрек, он представляет звуковой гобелен, тщательно сотканный десятилетиями мастерства, вкуса и сердца. Стремление музыканта к чистоте и (   Читать дальше...   )01. So Much To Say (3:57)
+02. Summertime (4:16)
+03. Vice Versa (4:12)
+04. My Sweet Baby (3:46)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:49:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7BC50BF71C77CB6B1C9BC11EF64BEE3C69A6DF94
+magnet:?xt=urn:btih:9652204112AD076622CE06E63992EF0EBD1177DC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -458,25 +625,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807398   (11072) от 18.07.2025
+###  Публикация: 1805756   (12114) от 08.07.2025
 
-Фёдор Достоевский | Бедные люди (2021) [MP3, Ефим Шифрин, Анна Каменкова]
+VA - Evolving Horizons: Progressive Trance Chronicles, Vol. 11 (2025) [MP3|320 Kbps] <Trance, Progressive>
 
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11072.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12114.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фёдор Михайлович Достоевский взорвал жанр психологического романа, задав непревзойдённо высокую планку мастерства и повлияв на массу известных писателей и философов XX века, от Оруэлла и Сартра до Ницше и Фрейда. И сегодня его романы помогают людям по всему миру познать себя и служат воротами в бесконечную сложность человеческой души. «Бедные люди» — первый роман (   Читать дальше...   )Жанр: классическая проза, психологическая проза, русская классика, социальная прозаИздательство: ВимбоПродолжительность: 06:03:08
+01. Issam Boufhigua - Psychic Drain 07:00
+02. Ltn - All I Need (Extended Mix) 06:34
+03. Michael Alan - Made In The Sky (Extended Mix) 06:15
+04. Miguel Angel Castellini - Lightway 03:55(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 02:16:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1419868760181254DDD064229035FB67AD83AA79
+magnet:?xt=urn:btih:5D7C6769B8A1E6CE8731F661B3412F0EDA41233A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -484,25 +654,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807330   (11071) от 18.07.2025
+###  Публикация: 1805754   (12113) от 08.07.2025
 
-Дмитрий Шимохин | Проснувшийся (Книга 2). Восхождение язычника (2024) [MP3, Алексей Исиевский]
+VA - Jazzy Date Night (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11071.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12113.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Смерть настигла меня в тайге – от рук бандитов. Но путь за грань не был концом, и мое сознание перенеслось в далекое прошлое, в тело мальчишки язычника. И теперь я должен пройти испытания и доказать, что достоин называться мужчиной. Только определился с планами на новую жизнь, как бог-покровитель своим поручением меняет все, ведь у него есть свой интерес. Будет тяжело, (   Читать дальше...   )Жанр: Фантастика, фэнтези, попаданцыИздательство: ЛитРесПродолжительность: 08:21:19
+01.  SLAP CALL - Welcome to Paradise (4:22)
+02.  Marína Ósk - Measuring the Marigolds (2:55)
+03.  Vilhjálmur Guðjónsson - Pago Pra Ver (3:19)
+04.  Stratify - Should I Go, Should I Stay (5:09)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:57:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B59E2E4B6DE49B01B35933B3B59ADDC7E09DCBA6
+magnet:?xt=urn:btih:D87F5E048B82AC15AA9BCC38E315C60113D9B855
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -510,25 +683,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807388   (11070) от 18.07.2025
+###  Публикация: 1805852   (12112) от 08.07.2025
 
-Банды Лондона / Bermondsey Tales: Fall of the Roman Empire (2024) BDRip [H.264/720p]
+Type O Negative - Dead Again (2007) Reissue, 2022, Nuclear Blast [FLAC|Lossless|image + .cue] <Goth Rock>
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11070.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12112.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Семья бандитов оказывается в эпицентре разборок, все усложняет полиция и конкуренты, жаждущие отжать все активы преступного клана. «Римляне» рискуют потерять все, что так долго и упорно строили не один десяток лет.Производство: Великобритания / Harish IyerЖанр: драма, комедия, криминалРежиссер: Майкл ХэдАктеры: Джон Ханна, Фрэнк Харпер, Мэйси Смит, Алан Форд, Дэниэл О'Рейли, Чарли Клэпэм, Адам Дикон, Вэс Блэквуд, Дэвид Шааль, Гари УэбстерПеревод: Дублированный (Leff Sound)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced), АнглийскиеПродолжительность: 01:38:49
+CD1 - Dead Again:
+1-1 Dead Again 4:16
+1-2 Tripping A Blind Man 7:05
+1-3 The Profit Of Doom 10:47(   Читать дальше...   )Жанр: Goth RockПродолжительность: 02:29:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6568A3ED770494E99BAEC8197BC1D11A0CB5D179
+magnet:?xt=urn:btih:F288E3199A686B69D0E83CFB6A1B917ADB484672
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -536,155 +712,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807336   (11069) от 18.07.2025
+###  Публикация: 1805804   (12111) от 08.07.2025
 
-Дмитрий Шимохин | Проснувшийся (Книга 5). Восхождение язычника (2024) [MP3, Алексей Исиевский]
+Station Echo - What Should Have Been but Never Will (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthpop>
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11069.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12111.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Смерть настигла меня в тайге – от рук бандитов. Но путь за грань не был концом, и мое сознание перенеслось в далекое прошлое, в тело мальчишки язычника. И теперь я должен пройти испытания и доказать, что достоин называться мужчиной. Только определился с планами на новую жизнь, как бог-покровитель своим поручением меняет все, ведь у него есть свой интерес. Будет тяжело, (   Читать дальше...   )Жанр: Фантастика, фэнтези, попаданцыИздательство: ЛитРесПродолжительность: 07:39:15
+• 01. Blown Away (6:58)
+• 02. Mess Around (4:14)
+• 03. Mysterious (2025 Remastered Version) (4:41)
+• 04. Alone (4:57)(   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:59:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:56E1B9F7DEDBC4DA3DF9CB87B3A48A381CADB6AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807319   (11068) от 18.07.2025
-
-Артемий Скабер | Двойник Короля (Книга 18) (2025) [MP3, Константин Романенко]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11068.jpg" />
-</div>
-
-
-###  Подробнее
-
-Я был двойником короля. Участвовал в войнах, сражался с целыми странами, захватил почти весь мир и пережил 665 покушений. Но последнее… Не ожидал, что нападёт демон. Битва вышла жаркой, и мы оба погибли. Но это не конец! Каким-то образом моя душа и магический источник оказались в теле безземельного барона. Еще один шанс, где жизнь принадлежит только мне? Согласен! (   Читать дальше...   )Жанр: Фэнтези, боевик, попаданцыИздательство: Аудиокнига своими рукамиПродолжительность: 10:11:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E97ED282D06E5F90404EB4C27105BBD6E467681
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807283   (11067) от 18.07.2025
-
-Что скрывает Ирен? / Клятва Ирены / Irena's Vow (2023) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11067.jpg" />
-</div>
-
-
-###  Подробнее
-
-По одноименной пьесе Дэна Гордона. 19-летняя Ирен Гут становится домработницей в доме нацистского офицера, живущего в Польше, где узнает, что еврейское гетто скоро будет уничтожено. Юная героиня решает помочь 12 еврейским рабочим и прячет их в самом безопасном месте – в подвале дома немецкого майора. В течение следующих восьми месяцев Ирен использует проницательность (   Читать дальше...   )Производство: Польша, Канада / K &K Selekt, Entract Studios, Telefilm Canada, Darius FilmsЖанр: драма, военный, историяРежиссер: Луиз АршамбоАктеры: Софи Нелисс, Дугрей Скотт, Анджей Северин, Мацей Навроцки, Шарон Азриели, Александр Миличевич, Элиза Рыцембель, Агата Туркот, Филип Косёр, Кшиштоф ЩепанякПеревод: Многоголосый профессиональный (Paragraph Media)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (Full, SDH)Продолжительность: 02:00:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2F5CDAB3D0CD395F3EFE2490BF60B0312DD908F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807277   (11066) от 18.07.2025
-
-И. Т. Фролов (отв. ред.) | Введение в философию. Учебник для высших учебных заведений. Часть I  (2010) [MP3, Игорь Мурашко]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11066.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебник, подготовленный коллективом известных советских философов,— первый опыт изложения философии по новой структуре. Он вводит читателя в одну из наиболее богатых областей духовной культуры человечества, освещая опыт мировой философской мысли в исследовании всеобщих проблем бытия природы, человека и общества; обосновывая диалектико-материалистические идеи и принципы (   Читать дальше...   )Жанр: ФилософияИздательство: Нигде не купишьПродолжительность: 21:50:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E255090085D5A7DBD55D504922DD0332C0220E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807178   (11065) от 18.07.2025
-
-Hazure Skill "Kinomi Master": Skill no Mi (Tabetara Shinu) o Mugen ni Taberareru You ni Natta Ken ni Tsuite | Bogus Skill «Fruitmaster» | Парадоксальный навык «Мастер фруктов» [2025, TV,  ...
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11065.jpg" />
-</div>
-
-
-###  Подробнее
-
-В мире, где фрукты даруют навыки, Лайту, который мечтает стать авантюристом, достаётся самый бесполезный - навык Мастера фруктов. Второй попытки не будет, за жизнь можно съесть только один плод, иначе тебя ждёт смерть. Тем временем его подруга детства Лена быстро достигает S-ранга. Лайт случайно съедает второй фрукт, выживает и узнаёт, что истинная суть Мастера фруктов (   Читать дальше...   )Производство: Asahi ProductionЖанр: приключeния, фэнтeзи, экшенРежиссер: Кимура РюитиПеревод: CrunchyRollЯзык озвучки: Японский и РусскийСубтитры: Английские ASS(int) (Полные и Надписи) и Русские ASS(int) (Полные и Надписи)Продолжительность: 12 эп. по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB85FE4A4FAD69059C49E284CCD6CA6666C4E117
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807270   (11064) от 18.07.2025
-
-Dragon Ball Z: Kakarot (2020) [Ru/Multi] (1.30/dlc) Repack FitGirl [Legendary Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11064.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dragon Ball Z: Kakarot – долгожданное продолжение серии игр Dragon Ball Z. Игра сделана по мотивам манги и аниме сериала «Драконий Жемчуг». Главный герой Сон Гоку – протагонист вселенной; нам предстоит отправиться с ним в приключение и узнать его историю. События разворачиваются во вселенной «Dragon Ball Z»; развитие происходящего дополнено сайд-квестами и различными (   Читать дальше...   )Тип издания: RepackРазработчик: CyberConnect2 Co. Ltd.Жанр: Экшены, Ролевые игрыЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24E9B21513BA3E8FCBAD9AA36DDD99F8E1869659
+magnet:?xt=urn:btih:AFD58FB1EF15E7F2E9ED354807D5F0016DD92D23
 ```
 
 https://mybot314.ru/tekegram_catalog/

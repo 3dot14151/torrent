@@ -1,3 +1,32 @@
+###  Публикация: 1404382   (483545) от 30.08.2020
+
+Podval Capella - Resonance (2017) [FLAC|Lossless|WEB-DL|tracks] <Trip-Hop>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_483545.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Instinct
+02. Sirius
+03. Reason
+04. Nova(   Читать дальше...   )Жанр: Trip-HopПродолжительность: 00:53:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7003BEBEEAB632662C1DAC33B400CD7253D3500F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1404387   (483543) от 30.08.2020
 
 Podval Capella - Shaman (2018) [FLAC|Lossless|WEB-DL|tracks] <Trip-Hop>
@@ -716,35 +745,6 @@ Kim & Buran - петербургский музыкальный коллекти
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A657E8F762A802707EEE810814CCE01D263CF994
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410580   (433869) от 22.09.2020
-
-VA - Morning Coffee Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433869.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Martin Liege - Morning Coffee (Original Mix)
-02. Marga Sol - French Kiss (Original Mix)
-03. Evandro Reis - Sunny Beach
-04. Michael E - One Love Bossa Nova (Original Mix)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:57:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBCCEC986544B3059335A415A7EA5B437BD17C58
 ```
 
 https://mybot314.ru/tekegram_catalog/

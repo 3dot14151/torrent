@@ -1,3 +1,119 @@
+###  Публикация: 1507598   (798243) от 05.11.2021
+
+ABBA - Voyage (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798243.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Still Have Faith In You (5:09)
+02. When You Danced With Me (2:50)
+03. Little Things (3:08)
+04. Don't Shut Me Down (3:56)(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A954D8FCA97188C542DEFEBF21AF8C315A4F4704
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507667   (798220) от 05.11.2021
+
+ABBA - Voyage (2021) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798220.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Still Have Faith In You (05:09)
+ 02. When You Danced With Me (02:50)
+ 03. Little Things (03:08)
+ 04. Don't Shut Me Down (03:56)(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF0C460E3FF37E2D1F9E306F5C17893EE7E19BE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507966   (798123) от 06.11.2021
+
+Diana Ross - Thank You (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thank You
+02. If The World Just Danced
+03. All Is Well
+04. In Your Heart(   Читать дальше...   )Жанр: Pop, SoulПродолжительность: 00:49:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6CFFC1DF2E3630793B37A332B9A292CF94E57EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508055   (798120) от 06.11.2021
+
+MARUV - No Name (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798120.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Money
+2. Ne zabudu
+3. Put your hands up
+4. You and I(   Читать дальше...   )Жанр: PopПродолжительность: 00:34:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:865691CA74C096316782AD38FD14A38126A9E20E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1200101   (796972) от 19.01.2018
 
 Yumi Zouma - Willowbank (2017) [FLAC|Lossless|tracks] <Alternative Pop, Dream Pop, Indie Pop>
@@ -629,122 +745,6 @@ VA - 2018 Grammy Nominees (2018) [FLAC|Lossless|tracks] <Pop, Hip Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA517C035B706A6FBDBCE67F6A1E8DABBB8D1FED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387010   (792640) от 31.05.2020
-
-Пара Нормальных - Скандал во время рекламы (2010) [FLAC|Lossless|tracks + .cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792640.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:37:03Трэклист: 01. Не улетай
-02. Поломана
-03. Ты не шаришь
-04. Скандал(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E68FCBD07CCCD1E3189CBFEC8A64437D8C8E731
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509298   (791929) от 15.11.2021
-
-ABBA - Voyage (2021) [FLAC 2.0|96/24|tracks|WEB-DL] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791929.jpg" />
-</div>
-
-
-###  Подробнее
-
-ABBA ушла тихо, без официальных объявлений о распаде, в 1982 году. За несколько десятилетий в Швеции появилось немало звезд мирового уровня, но едва ли кто-то из них смог бы потягаться с легендарной группой в популярности. В сентябре 2021 года коллектив объявил о скором выходе нового, девятого альбома, получившего название Voyage - с десятью ранее неиздававшимися (   Читать дальше...   )01. I Still Have Faith in You (5:09)
-02. When You Danced With Me (2:50)
-03. Little Things (3:08)
-04. Don’t Shut Me Down (3:56)(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD2005842F8DAD83FF6713A7CFCDCC8265F2F499
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510122   (791923) от 15.11.2021
-
-ABBA - Voyage (2021) 2xCD, Japanese Edition [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791923.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1 - Voyage:
-01. I Still Have Faith In You
-02. When You Danced With Me
-03. Little Things(   Читать дальше...   )Жанр: PopПродолжительность: 01:55:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E71C310776BD6FEDD2D51BACEE3836AD1FB70C39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510450   (791455) от 16.11.2021
-
-Shakira - Laundry Service꞉ Washed and Dried (2021) Expanded Edition [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791455.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Objection (Tango) (3:44)
-02. Underneath Your Clothes (3:45)
-03. Whenever, Wherever (3:16)
-04. Rules (3:40)(   Читать дальше...   )Жанр: PopПродолжительность: 01:03:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7C60ED09AAB0BB71A435569370711384F9E227C
 ```
 
 https://mybot314.ru/tekegram_catalog/

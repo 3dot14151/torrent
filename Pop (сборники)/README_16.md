@@ -1,3 +1,61 @@
+###  Публикация: 1099859   (903436) от 02.02.2017
+
+VA - Зимняя 100-ка хитовая. Сборник 4 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903436.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Сергей Вольный - Воспрещен Вход 3:52
+002. Лайк.А - Долгие Ночи 3:08
+003. Велинская - Кома 2:45
+004. Галамартовна - Ермакова 3:12(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5719F847FE417E87C7EEA6D212E9D0D2866C4DA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369376   (903122) от 23.03.2020
+
+VA - Kiss FM: Top 40 [22.03] (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903122.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin Van Buuren feat. Candace Sosa - Runaway 3:58
+02. Yves V & Ilkay Sencan feat. Emie - Not So Bad 2:34
+03. Monolink - Return To Oz (ARTBAT Remix) 3:25
+04. SAINt JHN - Roses (Imanbek Remix) 3:58(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:20:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97B83BB1780A7E1151CD41BDF9F91E269821A315
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1099872   (903112) от 02.02.2017
 
 VA - Клубные хиты в тачку на прокачку (2017) [MP3|320 Kbps] <dance, club, pop>
@@ -692,64 +750,6 @@ VA - The Official UK Top 40 Singles Chart (31-03-2013) [MP3|320 кб/с]<Pop, Da
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7CF2937DE54B7586D15A783842F184BE9C0AA817
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101312   (896398) от 06.02.2017
-
-VA - The Essential #LOVE (2017) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896398.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whitney Houston - Greatest Love of All (04:59)
-02. Savage Garden - Truly Madly Deeply (04:36)
-03. Backstreet Boys - As Long as You Love Me (03:32)
-04. NSYNC - This I Promise You (04:45)(   Читать дальше...   )Жанр: PopПродолжительность: 02:25:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5E5FD64C313A37D17C89653DDC43FEDF27168D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101127   (896217) от 06.02.2017
-
-VA - Дискотека зимних дорог. Индустрия поп музыки. Выпуск №5 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896217.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ivan Grom - Осколками Льда 3:16
-002. Shami - Пой Вместе Со Мной 3:21
-003. Miela - Города 4:18
-004. Evidelle - Ну Почему 3:40(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D7D9FAA0DFA11CA3DB691A888F7B04406E4348E
 ```
 
 https://mybot314.ru/tekegram_catalog/

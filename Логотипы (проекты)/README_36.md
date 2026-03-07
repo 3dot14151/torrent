@@ -1,3 +1,56 @@
+###  Публикация: 1167103   (418719) от 19.09.2017
+
+Проекты - VideoHive - Logo Reveal - 18936541 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_418719.jpg" />
+</div>
+
+
+###  Подробнее
+
+Logo Reveal - это шаблон After Effects, который можно использовать для показа логотипов и вступительного ролика.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C630601D6D6E56A121E93111E60E3066B381DC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 947692   (417742) от 17.10.2015
+
+Проекты - VideoHive - Clean Elegant Logo [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_417742.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для эффектного представления логотипа.
+Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9691F33DC0111F01DAE904954269C32D5D6F12BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 947462   (417726) от 17.10.2015
 
 Проекты - VideoHive - Flame Logo Reveal [AEP]
@@ -637,58 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1CA0F78AB8319D27A72D1024BC9F422AF856668F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252383   (408908) от 05.10.2018
-
-Проекты - VideoHive - Power Logo - 22026268 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408908.jpg" />
-</div>
-
-
-###  Подробнее
-
-Power Logo - продемонстрируйте свой логотип или бренд в неоновом свечении с разрядом молнии.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3991B87E660E12F8032704CD5578A977AB55F80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325880   (408311) от 17.09.2019
-
-VideoHive - 3D Particles Logo - 21839649 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408311.jpg" />
-</div>
-
-
-###  Подробнее
-
-Визуализация Вашего логотипа ("particular effects")... Дерзайте!Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F71B22734B32762642FDA0A04BBBFCE9FD748256
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1780505   (27195) от 18.02.2025
+
+VA - Music For You vol.30 (2025) [MP3|320 Kbps] <Metal, Rock, Other>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_27195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yngwie Malmsteen - Black Star (04:51)
+ 02. Genesis - Dancing With The Moonlit Knight (08:03)
+ 03. Dream Theater - Octavarium (24:00)
+ 04. Pink Floyd - Sheep  (10:29)(   Читать дальше...   )Жанр: Metal, Rock, OtherПродолжительность: 04:07:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07162D7BE0C1F068EEE364AA1D6139AB76BFB5D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1780731   (27015) от 20.02.2025
 
 Leo Moracchioli - Metal Covers Compilation (2014-2024) [MP3|320 Kbps] <Metal, Alternative, Covers>
@@ -716,35 +745,6 @@ Smokie - Compilation (2025) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10B8439F05EA61416FBB5778399A27DCF4BA101D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795601   (19028) от 07.05.2025
-
-Voodoo Circle (Alex Beyrodt's) - Compilation (2008-2024) [MP3|320 Kbps] <Hard rock, Heavy metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19028.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kingdom Of The Blind (Alex Beyrodt's Voodoo Circle | 2008)
-02. Locked & Loaded (Locked & Loaded | 2021)
-03. Walk On The Line (Raised On Rock | 2018)
-04. Devil's Daughter (Broken Heart Syndrome | 2011)(   Читать дальше...   )Жанр: Hard rock, Heavy metalПродолжительность: 03:30:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCBEC90ADCEDE1E20C114A8A4EB270BBD208AB53
 ```
 
 https://mybot314.ru/tekegram_catalog/

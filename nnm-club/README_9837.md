@@ -1,329 +1,25 @@
-###  Публикация: 679421   (646069) от 15.07.2013
+###  Публикация: 1032153   (647901) от 06.07.2016
 
-Ее возмездие / The Vengeance of She (1968) DVDRip [H.264]
-
->>Архив торрентов
->>Архив Классики кино и Старых фильмов до 90-х
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646069.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: Великобритания/Hammer Film Productions Limited, Seven Arts ProductionsЖанр: Фэнтези, ПриключенияРежиссер: Клифф ОуэнАктеры: Джон Ричардсон, Ольга Шоберова, Эдвард Джадд, Колин Блейкли, Джил Мелфорд, Джордж Сьюэлл, Андре Морелл, Ноэл Уиллмен, Дерек Годфри, Даниель НоэльПеревод: Одноголосый закадровыйПродолжительность: 01:41:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28F2E669875E2E4552E80AC88CE6DD78921F2A74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141892   (646068) от 12.06.2017
-
-Джон Уик 2 / John Wick: Chapter Two (2017) BDRip [H.264/1080p-LQ]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646068.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда бывший коллега Джона решает взять под свой контроль таинственную гильдию убийц, Уик вынужден выйти из отставки. Ведомый кровавой клятвой Джон отправляется в Рим, где ему придется сразиться с одними из самых опасных киллеров в мире.Производство: США, 87Eleven, Lionsgate, Summit Entertainment, Thunder RoadЖанр: Боевик, Триллер, КриминалРежиссер: Чад СтахелскиАктеры: Киану Ривз, Риккардо Скамарчио, Иэн МакШейн, Руби Роуз, Коммон, Клаудия Джерини, Лэнс Реддик, Лоренс Фишбёрн, Тобиаш Сигал, Джон ЛегуизамоПеревод: Дублированный  (iTunes)Субтитры: Русский, АнглийскийПродолжительность: 02:02:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0512470509F391F1FDD0142C0B0F627B420058A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128180   (646066) от 12.06.2017
-
-Halo Wars (2017) [Ru/En] (20170605) Repack R.G. Механики [Definitive Edition]
-
->>След.
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646066.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Halo Wars: расширенное издание» - дополненная версия классической стратегии в реальном времени Halo Wars, в которую можно играть и на PC. Действие игры разворачивается в начале войны между Ковенантом и ККОН, о которой мы узнали из известных шутеров Halo. В «Halo Wars: расширенное издание» вы взглянете на это противостояние несколько иначе, а на поле боя появятся (   Читать дальше...   )Тип издания: RepackРазработчик: Ensemble Studios, Behaviour Interactive, 343 IndustriesЖанр: Strategy, Real-time, 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9A6449FF9BCC4268F58B00CD9D40753D7A0C39F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128095   (646065) от 12.06.2017
-
-Navitel / Навител Навигатор v9.8.19 Full и другие для карт релиза Q1-2017 [Ru/Multi]
-
->>3
->>9
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646065.jpg" />
-</div>
-
-
-###  Подробнее
-
-Навигационная программа Навител отображает текущее местоположение пользователя на карте и способна с помощью отображения маневра на экране навигатора и голосом подсказать водителю, когда и куда необходимо повернуть на автоматически проложенном маршруте для скорейшего прибытия в необходимое место. Также Навител может предсказать время прибытия в точку назначения, (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 12.06.2017Разработчик: NAVITELПоддерживаемая ОС: Android 2.3 +Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:171A051CB370926470370DD12CE065089108376C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 343475   (646064) от 12.06.2017
-
-Маша и Медведь (2009-2017) BDRip [H.264] (1-64 серии) [Обновляемая]
-
->>3
->>11
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646064.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мультсериал про девочку Машу, которая никому не дает покоя, и в первую очередь — своему другу Медведю.
-Сериал рассчитан в первую очередь на детскую аудиторию от 3 до 9 лет.
-Тем не менее мультфильм семейный, интересный для всех возрастов, взрослые тоже могут посмеяться над приключениями Маши и Медведя.
-Несмотря на то, что персонажи для зрителя являются знакомыми с (   Читать дальше...   )Жанр: Детский, Компьютерная анимацияРежиссер: Олег Ужинов, Денис Червяцов, Марина Нефедова, Олег КузовковПерсонажи: Маша (Алина Кукушкина), Медведь (Борис Кутневич)Продолжительность: 07:35:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:227661F5A812B933A7C4A40C54A08682ABDDFCBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032258   (646063) от 07.07.2016
-
-VA - Studio Ibiza (2016) [MP3|320 Kbps] <Pop, Eurodance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646063.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - NOW
-Пpодолжительность: 01:19:38
-
-01. Satin Jackets feat. Scavenger Hunt - Feel Good (2:44)(   Читать дальше...   )Жанр: Pop, EurodanceПродолжительность: 03:49:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1DB7FDA672D477FAD5925181BBE2B66E04CECB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032473   (646062) от 07.07.2016
-
-VA - Levitated Vol. 1 (Mixed by Manuel Rocca) (2016) [FLAC|Lossless|WEB-DL|tracks|image] <Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646062.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Allen Belg - Hammamet (Original Mix) (6:31)
-02. Alex Wright - Galactica (Original Mix) (7:06)
-03. Cyre & DJ T.H. - Ibiza Calling (Mhammed El Alami & Manuel Rocca Remix) (6:17)
-04. Blue5even - Island Paradise (Original Mix) (6:22)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:22:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61BCF50F2C22967F266027ECE728EBF29F4577FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032477   (646061) от 07.07.2016
-
-Pamela Williams - Eight Days of Ecstasy (1988) [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646061.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scarlet (5:49)
-02. Still in Love (4:34)
-03. Love in the Afternoon (4:27)
-04. I've Got Love on My Mind (3:32)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:48:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7ECDB92DC5554B2AE088637E40DB1C8A23FCDA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032219   (646060) от 07.07.2016
-
-VA - Зарубежная Дискотека ХХ Века - 75 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646060.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kelly Brown - Only You Can ( You Make Me Feel ) ( 1985 )
-02. Alan Cook - Do You Want To Stay ( 1986 )
-03. Mouzon's Electric Band - All My Loving ( 1979 )
-04. 49ers - Touch Me ( Sexual Version 1989 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:14:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2DAD6AE33C6103281E23A042744ED748189A6FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032446   (646059) от 07.07.2016
-
-Оксана Даровская | Браво Берте (2015) [FB2]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646059.jpg" />
-</div>
-
-
-###  Подробнее
-
-Яркая и очень талантливая актриса Берта Ульрих из семьи поволжских немцев доживает свой век в доме престарелых где-то на окраине Москвы. В ее прошлом - любовь и слава, страстные романы и громкие премьеры, а в настоящем она не нужна никому, кроме фарфоровых кукол, которых собирает на прикроватном столике. Но в жизни Берты появляется пара влюбленных студентов, которым (   Читать дальше...   )Жанр: Современная отечественная прозаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:656EFA4A28FF090EC5D68245767062082D7161B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032212   (646058) от 07.07.2016
-
-VA - Зарубежная Дискотека ХХ Века - 73 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646058.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vanilla - Bamboleo ( 1988 )
-02. Lala - Johny Johny ( 1987 )
-03. Lena - Run To Me ( 1987 )
-04. Joe Maran - Give Me A Break ( 1983 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:18:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3FA10FE537A23B2D0D8B1DEC970F8F0219B9669
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032465   (646057) от 07.07.2016
-
-VA - Dreaming In Orange (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+VA - Sexy Chillout Cafe (2016) [MP3|320 Kbps] <Lounge>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646057.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647901.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Robasebeat - Through the Night
-002. Weathertunes - Wait
-003. Rhythmphoria - Reverse Sights
-004. The Diventa Project - Come Together - Vocal Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 08:45:27
+01. Counting Clouds - Footprints (Beach Mix)
+02. Lady Tut - Nothing Is for Certain - Ibiza Mix
+03. Heni Lasut - Miracle
+04. Lamar Ensemble - Tonal Colors(   Читать дальше...   )Жанр: LoungeПродолжительность: 11:09:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:385EBF226D1037860E59719FE36F83BE3C5C5859
+magnet:?xt=urn:btih:C16230835669CD62F1FE2624410FC7F0AEC7C19E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -331,28 +27,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032231   (646056) от 07.07.2016
+###  Публикация: 1032195   (647900) от 06.07.2016
 
-VA - Зарубежная Дискотека ХХ Века - 77 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
+VA - Outline Deep House (2016) [MP3|320 Kbps] <Club, Deep House, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647900.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Amirali - Chromatic Dreams
+002. Damon Paul - Rhythm Is a Dancer (Patricio Amc Luna Mix)
+003. Sante - Awake Feat. J.U.D.G.E (Agoria Remix)
+004. Danky & Brain - Chasing Cars (R.I.C.K. Remix)(   Читать дальше...   )Жанр: Club, Deep House, Electro HouseПродолжительность: 09:51:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A4302D05F45E6FD7BD6FDF28EB7756F8F564503
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032181   (647899) от 06.07.2016
+
+VA - Зарубежная Дискотека ХХ Века - 67 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646056.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647899.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Modern Talking - Atlantis Is Calling ( S.O.S. For Love ) ( Extended Version 1986 )
-02. Giorgio Moroder Feat. Donna Summer - Carry On ( Extended Mix 1992 )
-03. Boney M - Sunny ( 1976 )
-04. Dead Or Alive - That's The Way ( I Like It ) ( 1984 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:11:54
+01. Fake - Frogs In Spain ( 1984 )
+02. Scala - Macchina Nera ( 12'' Version 1989 )
+03. Cherry ( Lian Ross ) - If You Believe ( Cherry Mix 1999 )
+18. Dr. Alban - It's My Life ( 1992 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D6F14B35652BCD3675E697A95B603D97C94BCB3B
+magnet:?xt=urn:btih:C34B06630E52BEA727121214001067DDE09B4D17
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -360,26 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032016   (646055) от 07.07.2016
+###  Публикация: 1032154   (647898) от 06.07.2016
 
-Григорий Данилевский | Царь Алексей с соколом. Семнадцатый век (2016) [MP3]
+Stonerider - Hologram (2016) [MP3|320 Kbps] <Classic Rock, Psychedelic Rock, Timeless Rock>
 
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
+>>Rock, Alternative, Punk, Metal
+>>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646055.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647898.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В своей миниатюре «Царь Алексей с соколом» он описывает царскую охоту. Сокол с руки царя сорвался в погоне за цаплей и вместе с добычей упал в какой-тo огород, в неизвестном месте, куда, разгоряченные азартом, забрели охотники. Конь царя забрался на гору и уперся, фыркая, в обрыв.
-«Прямо против обрыва, над которым он стал, между безлистых еще деревьев сада возносились (   Читать дальше...   )Жанр: Историческая прозаПродолжительность: 01:36:10
+01. Sleepwalking Awake
+02. Hologram
+03. Dayrunner
+04. War, Traffic, and Blind Faith(   Читать дальше...   )Жанр: Classic Rock, Psychedelic Rock, Timeless RockПродолжительность: 00:51:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:67D076E13570636F0E0B4F952977BF1A30CD72F9
+magnet:?xt=urn:btih:F769438B73CDD6876394FA139A77F839A8E09CAD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -387,50 +114,21 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032539   (646054) от 07.07.2016
+###  Публикация: 1031511   (647897) от 06.07.2016
 
-VA - Trance Sensations (The Hottest Trance Hits for the Dancefloor) (2016) [MP3|320 Kbps] <Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646054.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mike Meade - Sacred Spaces (7:26)
-02. Rex Brandtner & French Skies - Exorkismos (8:48)
-03. I5land - Paradise Lost (Andy Woldman & DJ T.H. Remix) (8:02)
-04. Vechigen & Lisaya - Do Not (Trance Mix) (7:39)(   Читать дальше...   )Производство: RexxBeatzЖанр: TranceПродолжительность: 01:20:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0236C0ACE7A37BDF1CF10EA595CBD4A627EFC0F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032074   (646053) от 07.07.2016
-
-Миссия Rosetta завершится 30 сентября 2016 года столкновением космического аппарата с поверхностью кометы 67P
+CERN начинает испытания технологии, которая имеет шансы стать будущим физики элементарных частиц
 
 >>Поговорим
 >>DailyTechInfo
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_646053.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_647897.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Миссия Европейского космического агентства (ЕКА) под названием Rosetta, которая заключалась в исследованиях кометы 67P, которая также известна под названием кометы Чурюмова-Герасименко, приближается к моменту ее завершения, который случится спустя 12 лет после ее начала. Руководство ЕКА назначило 30 сентября 2016 года датой, когда орбитальный космический аппарат (   Читать дальше...   )
+Одна из вещей, которые вы наверняка можете знать относительно экспериментов из области физики элементарных частиц, это то, что во всех подобных экспериментах используются поистине огромные научные установки. Длина туннеля Большого Адронного Коллайдера (БАК), самого мощного ускорителя частиц в мире, составляет 27 километров, а длина самого большого линейного ускорителя (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
@@ -442,28 +140,454 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032424   (646052) от 07.07.2016
+###  Публикация: 1031873   (647896) от 06.07.2016
 
-The Amorettes - White Hot Heat (2016) [MP3|320 Kbps] <Hard Rock, Female Vocal>
+VA - Cascades Of Life (2016) [MP3|320 Kbps] <Downtempo, Goa, Twilight>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647896.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Imba - 604 Revolution  -  [11:24]
+02 - Profetia - Rage Against The Crashing  -  [8:17]
+03 - Colin OOOD & Goa Travellers - 100 Billion Neurons  -  [8:47]
+04 - BlackStarrFinale - Siege Of Phobos  -  [8:24](   Читать дальше...   )Жанр: Downtempo, Goa, TwilightПродолжительность: 01:35:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9419CD70FF187BF279C71729204FF87CF2432356
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032187   (647895) от 06.07.2016
+
+VA - Electrodance Latino (2016) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kike Puentes - Shake That (Original Mix)
+02. Clase-A - Pa Que Bailes (Original Mix)
+03. Fran Garzziak - El Que Te Daba Era Yo (feat Sergio Requena - Radio Edit)
+04. Charly Rodriguez & Tarek Dollar-T - Ella Es (Original Mix)(   Читать дальше...   )Жанр: PopПродолжительность: 02:16:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F480981038710B6C8290E6040A1773FE5F21E8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031629   (647894) от 06.07.2016
+
+Таня Славянская - Любовь и разлука (2006) [FLAC|Lossless|image + .cue] <Chanson>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647894.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. С днем рождения, любимый 03:53
+02. Бригада (дуэт с Сергеем Паради) 04:20
+03. Любовь и разлука 03:40
+04. БабанькиЖанр: ChansonПродолжительность: 00:47:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80DA6805D37C2FB6F1A0B404B2C05C13631C4D50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031648   (647893) от 06.07.2016
+
+Александр Сегень | Поп (2013) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647893.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роман посвящен тяжелой, но светлой судьбе русского священника Псковской православной миссии в годы фашистской оккупации. Едва ли не впервые в нашей литературе так подробно раскрывается образ священнослужителя, оказавшегося между атеистических жерновов большевистской и гитлеровской власти. Эту книгу Александр Сегень написал по особому и весьма почетному заказу, поступившему (   Читать дальше...   )Жанр: РоманПродолжительность: 09:24:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2DA41F128D7BB75B3CDF8D75C991A2873F2354F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031810   (647892) от 06.07.2016
+
+Автономные автобусы-роботы выходят на дороги городов в Швейцарии
+
+>>Поговорим
+>>DailyTechInfo
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_647892.jpg" />
+</div>
+
+
+###  Подробнее
+
+Совсем недавно Швейцария присоединилась к группе стран, в которых проводятся испытания электрических автобусов-роботов. Первым швейцарским городом, на улицы которого вышли опытные электрические автобусы-роботы, стал небольшой город Сьон (Sion), население которого составляет порядка 33 тысяч человек. Пара автобусов-роботов будет постоянно курсировать по одному из маршрутов в рамках программы испытаний, которая продлится два года.(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032183   (647891) от 06.07.2016
+
+VA - Зарубежная Дискотека ХХ Века - 68 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647891.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fancy - Bolero ( Hold Me In Your Arms Again 1986 )
+02. Scooter - Let Me Be Your Valentine ( 1996 )
+03. Eurythmics - The First Cut ( 1984 )
+04. Baby's Gang - Happy Song ( 1983 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:20:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B733B3B16BF899D5E851680682E58B159D4C162
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 679487   (647888) от 14.07.2013
+
+Faith No More - Greatest Hits (2001) [FLAC|Lossless]<Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_647888.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Care a Lot (Original Version) [4:05]
+02. Introduce Yourself [1:35]
+03. From Out of Nowhere [3:23]
+04. Epic [4:54](   Читать дальше...   )Жанр: AlternativeПродолжительность: 01:18:12
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905859   (647836) от 07.06.2015
+
+Neuschwander - Neuschwander (2015) [MP3|320 кб/с]<Progressive Rock, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647836.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Introduction 02:31
+2.The Thin Air 05:40
+3.Blame It On 04:26
+4.Righteous Universe 06:01(   Читать дальше...   )Жанр: Progressive Rock, Psychedelic RockПродолжительность: 00:51:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61460A1B676478D1FAE4478069053970CAE6F482
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905807   (647835) от 07.06.2015
+
+Monsteras Bluesband - 40 Years: Live (2015) [MP3|320 кб/с]<Modern Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Baten (Feat. Calle Engstrom) (5:43)
+02. Darfor Star Jag Har Och Glor (Feat. Calle Engstrom) (4:30)
+03. You Ought To Be Ashamed (Feat. Eric Engstrom) (5:55)
+04. The Crawl (Feat. Eric Engstrom) (4:40)(   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 01:18:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9801123FDEFA941C823755EC7108D6878232A25E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905801   (647834) от 07.06.2015
+
+Kinski - 7 (or 8) (2015) [MP3|320 кб/с]<Psychedelic Rock, Experimental, Post-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647834.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Detroit Trickle Down
+2.Flight Risk
+3.I Fell Like A Fucking Flower
+4.The Needle's Fine(   Читать дальше...   )Жанр: Psychedelic Rock, Experimental, Post-RockПродолжительность: 00:43:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DD78F0A382E1CD14D418DC130F18867AB7A76CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906004   (647833) от 07.06.2015
+
+Чрезвычайное происшествие. Обзор за неделю (07.06.2015) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647833.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр передачи можно назвать "журналистикой инцидента". Его особенности в том, что программа, по сути, представляет собой не просто криминальную сводку или уголовную хронику, а показывает реальную жизнь без прикрас. Когда на НТВ возникла идея итоговой программы о происшествиях, работать пришлось в авральном режиме. Окончательное решение созрело за две недели (   Читать дальше...   )В выпуске: Милосердное надувательство: шарики, шоколадки, браслеты.… Как мошенники грабят сердобольных прохожих, прикрываясь тяжелобольными детьми?Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4981E4B73D08DB4308B42197E33409A035E6CDAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905865   (647832) от 07.06.2015
+
+Vitor Bacalhau - Brand New Dawn (2015) [MP3|320 кб/с]<Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mean Woman (4:05)
+02. Gone Too Soon (4:06)
+03. Too Much Of A Good Thing (3:06)
+04. Nicotine (4:24)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B12D77108D373C6B0A8CD9C861413A13BF6CDBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905817   (647831) от 07.06.2015
+
+Reanimator - Horns Up (2015) [MP3|320 кб/с]<Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647831.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Electric Circle Pit
+02. Rush for the Mosh
+03. Tempted By Deviance
+04. Thieves of Society(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:35:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A364A83065F2186413427AE81FE06840EA30C3F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905809   (647830) от 07.06.2015
+
+The Lachy Doley Group - Conviction (2015) [MP3|320 кб/с]<Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Betcha I'll Getcha (02:42)
+02. Conviction (05:31)
+03. Make It Up (04:38)
+04. Back In Black (04:48)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24D6F8776C4DAA407ED01562AD04D72A773007DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905960   (647829) от 07.06.2015
+
+VA - Lounge Underground Paris Edition (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647829.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Wave - Diving Delights [05:50]
+02. Chiffre 100 - All I Need - Vocal Mix [05:22]
+03. El Nicoya - Andando [05:42]
+04. Retrosynco - Catch the Beat [05:32](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:58:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:908097078660FDBAE167D6B790A92171B0FF3CED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905856   (647828) от 07.06.2015
+
+Sintonia Distorta - Frammenti D'incanto (2015) [MP3|320 кб/с]<Progressive  / Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646052.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647828.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Batter Up
-02. Let The Neighbours Call The Cops
-03. Come 'n' Get It
-04. Roll(   Читать дальше...   )Жанр: Hard Rock, Female VocalПродолжительность: 00:37:52
+01. Anthemyiees 9.04
+02. Il cantastorie 5.34
+03. Menta e Fragole 5.22
+04. Il suono dei falsi dei 6.07(   Читать дальше...   )Жанр: Progressive  / Hard RockПродолжительность: 01:07:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7B60DA78EEDCB443EE581DA5FD12C185C5DB37C7
+magnet:?xt=urn:btih:D9104F96A2C63EBCBFFCBE5756734DCA7F9FBC8D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -471,28 +595,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032532   (646051) от 07.07.2016
+###  Публикация: 905940   (647827) от 07.06.2015
 
-Human Error - Intersection (2016) [MP3|320 Kbps] <Drum & Bass>
+Crimson Stone - Crimson Stone (2015) [MP3|320 кб/с]<Hard Rock, Stoner>
 
->>Архив торрентов
->>Архив Музыки
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646051.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647827.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Fearless (feat MC Shot)
- 02. Anger
- 03. My Nation
- 04. Lose My Soul (feat Sisley)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:54:38
+01. Revelations of Cain
+02. Stoner Knight
+03. Chango Loco
+04. Pessimist Boogie(   Читать дальше...   )Жанр: Hard Rock, StonerПродолжительность: 01:08:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DA075F12F817F084F358F818B8E321A4091023C6
+magnet:?xt=urn:btih:65DE807E3C8019CA7098996F9A3463E2850FFEDD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -500,28 +624,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032269   (646050) от 07.07.2016
+###  Публикация: 906007   (647826) от 07.06.2015
 
-VA - The Best - In Music We Trust (2016) [MP3|320 Kbps] <House, Electro House, Progressive>
+Jaga Jazzist - Starfire (2015) [FLAC|tracks + .cue] <Electronic, Jazz, Rock, Future Jazz, Experimental>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646050.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647826.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Blazetools -  Delta (Original Mix) 5:37
-02. Captain Jack -  Say Captain Say Wot 2015 (Blaikz & Dhsb remix) 5:15
-03. Beth -  Don't You Worry Child (Charming Horses Remix) 4:59
-04. Finger & Kadel -  Paxi Fixi (Original Mix) 5:07(   Читать дальше...   )Жанр: House, Electro House, ProgressiveПродолжительность: 08:23:24
+01. Starfire (8:47)
+02. Big City Music (14:07)
+03. Shinkansen (7:43)
+04. Oban (12:41)(   Читать дальше...   )Производство: Ninja Tune – ZEN223CDЖанр: Electronic, Jazz, Rock, Future Jazz, ExperimentalПродолжительность: 00:49:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8273ED27180924DEE78BDF8A7E6633FD22FA6BB2
+magnet:?xt=urn:btih:09781602C9126C0DC40BF9E0432A3A1DEEBD8E27
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -529,28 +653,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032523   (646049) от 07.07.2016
+###  Публикация: 906086   (647825) от 07.06.2015
 
-Dr Meaker - Dirt & Soul (2016) [MP3|320 Kbps] <Drum & Bass>
+Е. Яхонтов | Маленький носильщик (1926) [PDF]
 
->>Архив торрентов
->>Архив Музыки
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646049.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647825.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Deep in My Heart (feat. Lorna King)
- 02. Right Back (feat. Sian Evans)
- 03. Wanna Feel Love (feat. Yolanda)
- 04. Remedy (feat. Romaine Smith)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:55:56
+Издавалось также под названием "Хабарда". Для детей среднего возраста, 9-14 лет.Жанр: Детская прозаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DAD0FF2F9FA60A98F958D9FE3C2BD7B17DF79B80
+magnet:?xt=urn:btih:15DA6A21A505672A1F08F6FCA1F91397E89B10D7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -558,28 +679,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032178   (646048) от 07.07.2016
+###  Публикация: 905851   (647824) от 07.06.2015
 
-Alina (Wegel) - 3 альбома (2003-2005) [FLAC|Lossless|image + .cue] <Pop>
+Gandalf's Fist - Uprooted (2015) [MP3|320 кб/с]<Progressive Rock, Neo-Prog>
 
->>Архив торрентов
->>Архив Музыки
+>>Rock, Alternative, Punk, Metal
+>>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646048.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647824.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Увела чужого парня я
-02. Холодно
-03. Не таи, скажи
-04. Волшебная страна(   Читать дальше...   )Жанр: PopПродолжительность: 02:42:10
+1. The Ballad of Treebeard Transport King (2015 Version) (4:03)
+2. The Siren's Kiss (2015 Remix) (5:25)
+3. The Council of Anderson (2015 Remix) (6:23)
+4. She Dwelt Among the Untrodden Ways (2:44)(   Читать дальше...   )Жанр: Progressive Rock, Neo-ProgПродолжительность: 00:38:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BDC43E5E3F4889726D824A9DFB31329BD51D6092
+magnet:?xt=urn:btih:C011BA278AF09512308F9C395029FB980E58378A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -587,138 +708,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032432   (646047) от 07.07.2016
+###  Публикация: 906089   (647823) от 07.06.2015
 
-Ежи Пильх | Безвозвратно утраченная леворукость (2008) [FB2, RTF]
+Добров в эфире (07.06.2015) SATRip
 
->>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646047.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647823.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ежи Пильх является безусловным лидером издательских продаж в категории немассовой литературы. Его истинное амплуа - фельетонист, хотя пишет он и "традиционную" прозу. Жанры под пером Пильха переплетаются, так что бывает довольно трудно отличить фельетон от прозы и прозу от фельетона. "Безвозвратно утраченная леворукость" - сборник рассказов-фельетонов. (   Читать дальше...   )Жанр: Современная художественная проза, Современная зарубежная прозаПеревод: Татьяна ИзотоваФормат: FB2, RTF
+В последний час уходящей недели известный российский журналист и политолог Андрей Добров расскажет о самом интересном в стране и в мире. Самые обсуждаемые события недели. Все, о чем говорили, спорили и писали. О том, что осталось за кадром. Как все было на самом деле. Неожиданные факты. Эксклюзивные съемки. Авторские репортажи. Главные ньюсмейкеры страны. Динамично. (   Читать дальше...   )Телекомпания: РЕН-TVЖанр: ТелепередачаПродолжительность: 00:52:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:52D76ED622BC0E4CC03A60078C48C34338B22FB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032540   (646046) от 07.07.2016
-
-Freqax - Meant To Believe (2016) LP [MP3|320 Kbps] <Drum & Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646046.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meant to Believe (Intro)
- 02. Dark Times
- 03. Life (with Instinkt)
- 04. We, The World(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:02:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EADC35098B1EC3C68A0C643603383C7BEE3886A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032507   (646045) от 07.07.2016
-
-TC - Unleash The Wolves (2016) LP [MP3|320 Kbps] <Drum & Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646045.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Start A Riot
- 02. Have You
- 03. Next Hype (ft. Jakes)
- 04. Storm Brew (ft. Stylo G)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:52:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59D16263CE7F70E562DC24B58FA88FDB190A3A0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032085   (646044) от 07.07.2016
-
-VA - Psychedelic Gatherin (2016) [MP3|320 Kbps] <Trance, Psychedelic, Psy Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646044.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yner -  Contradictory Nightmare (Original Mix) 7:26
-02. Sensitive Seeds -  Inside A Simulation (Original Mix) 6:33
-03. Principles of Flight -  Peintre Sonore (Original Mix) 8:32
-04. Abstract Layers -  Permafrost (Original Mix) 9:09(   Читать дальше...   )Жанр: Trance, Psychedelic, Psy TranceПродолжительность: 01:44:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2903DA3E690AA24E10DB1DB378C38C77D37EBB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 799688   (646021) от 26.06.2014
-
-Голгофа / Calvary (2014) Blu-ray [1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646021.jpg" />
-</div>
-
-
-###  Подробнее
-
-Давно не было такой недельки у отца Джеймса: исповедь, начинающая со слов «я собираюсь вас убить», поджог церкви и драка в пабе. Быть священником и направлять свою паству непросто. Без чувства юмора, иронии и прощения не обойтись.Производство: Ирландия, Великобритания / Irish Film BoardЖанр: Драма, комедияРежиссер: Джон Майкл МакДона / John Michael McDonaghАктеры: Брендан Глисон, Крис О’Дауд, Келли Райлли, Эйден Гиллен, Дилан Моран, Исаак Де Банколе, М. Эммет Уолш, Мари-Жозе Кроз, Донал Глисон, Дэвид УилмотПеревод: Многоголосый закадровый (профессиональный)Язык субтитров: РусскийПродолжительность: 01:41:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCF2C2B985907D23FC7B40E19EE5FAFC0B994194
+magnet:?xt=urn:btih:2F84E3D504929B74D3B94869CAE483A6D3DA0182
 ```
 
 https://mybot314.ru/tekegram_catalog/

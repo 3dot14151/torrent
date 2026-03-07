@@ -1,148 +1,3 @@
-###  Публикация: 1610612   (244124) от 09.02.2023
-
-Территория Отчуждения - 5 Albums (2017-2023) [MP3|320 Kbps] <Alternative Rock, Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244124.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2017 - Брать живьём!
-2019 - Противостояние
-2021 - Задолбали(   Читать дальше...   )Жанр: Alternative Rock, Punk RockПродолжительность: 5 CD, 02:29:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06D2DF7C299A7955B2CE84D4B2D7D84C0223BD48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626148   (243952) от 13.04.2023
-
-Комната - Правда или действие (2023) [MP3|320 Kbps] <Indie, Pop-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243952.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Несколько часов
-02 - Три в одном
-03 - Отпусти
-04 - Истории из жизни (feat. ENIQUE)(   Читать дальше...   )Жанр: Indie, Pop-RockПродолжительность: 00:47:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3228D08F745F640873B100ACA82A81BB05E4211D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623023   (243803) от 31.03.2023
-
-Мураками - В песнях навсегда (2023) Deluxe Edition [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243803.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Интро
-2. Везувий (интро)
-3. Везувий
-4. За стеной (интро)(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84CC5F9EF18ED5B0F37581F24E1DDA30BB00796B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632818   (243722) от 12.05.2023
-
-Женя Любич - Будь что будет (2023) [MP3|320 Kbps] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_243722.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Будь что будет
-2. Дорога
-3. 149 лайков
-4. Белая ночь(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:33:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BCD848C5CF7BD157CBB739E59A4263917426CBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455761   (243568) от 20.03.2021
-
-SVO - Дежавю (2020) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Открой глаза (04:50)
- 02. Сновидение (04:20)
- 03. Блюз (05:52)
- 04. Я открою двери (04:23)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:42:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B37E4328158C3B344F00281E7FAA7B476FDE0194
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1626750   (243352) от 17.04.2023
 
 АстАртА - Город потерянных душ (2023) [MP3|320 Kbps] <epic metal>
@@ -165,37 +20,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:41DE80359104F33C2E630CBF8D3935F8CCF0B66F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613553   (243320) от 18.02.2023
-
-Абвиотура - ТРИДУГИ (2023) [MP3|320 Kbps] <Ethno core>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243320.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этот раз не было какой-то магистральной линии для альбома, как это, например, было со СТРАШНОВЕСЕЛО и звуком 70-х. Все песни делались без оглядки на то, что уже получилось в предыдущих. Поэтому альбом вышел довольно пёстрым. Здесь есть и забойные боевички, и вполне себе лирические номера, и пара потенциальных радиохитов тоже имеется.
-
-От фольклора в своих аранжировках (   Читать дальше...   )1. Intro
-2. Хорошая
-3. Дуги
-4. Тает лёд(   Читать дальше...   )Жанр: Ethno coreПродолжительность: 00:46:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F31255DD343AF829915A87263C370B24382BDF18
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -312,35 +136,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23C705D6FD334777EEEB8E6D84874529F0DD6901
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634094   (242974) от 18.05.2023
-
-Гнилой Район - В деревне у дедушки (2022) [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242974.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Забойная
-02. Никому не отдам
-03. В деревне у дедушки
-04. Юра Хой (Live Studio)(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:34:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9EB2820CE383CBC1978AC18DD8F1B1E6FA441B7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -522,35 +317,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624514   (242575) от 06.04.2023
-
-скоты - тройничок (2023) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242575.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. татуировка
-2. цитаты пацана
-3. папиллома
-4. Остынь(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A55AFA0C68C08CBA2B816B1ADC0A9CD7B52BC947
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1616919   (242118) от 06.03.2023
 
 Feodoq - Смесь (Live) (2023) [MP3|320 Kbps] <techno-post-punk, jam>
@@ -725,28 +491,260 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624957   (241603) от 08.04.2023
+###  Публикация: 1546545   (241436) от 25.04.2022
 
-Би-2 - Mashup (2023) Live [MP3|320 Kbps] <Rock>
+K.S.V. - Цикл (2021) [MP3|320 Kbps] <Hardcore Punk>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241603.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241436.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Лётчик (Live)
-2. Пекло (Live)
-3. Чёрное солнце (Live)
-4. Я никому не верю (Live)(   Читать дальше...   )Жанр: RockПродолжительность: 00:51:17
+01 - Нет вам веры [00:03:10]
+02 - Крысиные бега [00:02:11]
+03 - Пахнет ладаном [00:02:37]
+04 - Я живой [00:03:31](   Читать дальше...   )Жанр: Hardcore PunkПродолжительность: 00:25:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0CCBAE0259EEE86F7AD437987C3F20C19C0AA28B
+magnet:?xt=urn:btih:E73FA782A3E75BFBE032A981D1E86FC4B9D7424E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625942   (241291) от 12.04.2023
+
+Garage Dayz - Take One (2023) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241291.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fast to Madness
+02. The Stage
+03. Stand Alone
+04. Lost(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:31:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0F910DD35219159B6FB85C1162387F57AB7A655
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625944   (241252) от 12.04.2023
+
+Жаль - Хэллоу фэллоу кидс (2023) [MP3|320 Kbps] <Pop punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241252.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Крик в пустоту
+02 - Песочные часы
+03 - Сколько миль до счастья
+04 - Старые друзья(   Читать дальше...   )Жанр: Pop punkПродолжительность: 00:30:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5DEE19A06D1D647908DBF8EB3B9047868FAF9E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619978   (240924) от 18.03.2023
+
+Neverlove - Добро пожаловать на бал (2023) [MP3|320 Kbps] <Alt.Metal, Rapcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_240924.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Добро пожаловать на бал
+02. Фак ю эттитюд (feat. Гарри Топор & Тони Раут)
+03. Никотин (feat. 20TOKENS)
+04. Т-666(   Читать дальше...   )Жанр: Alt.Metal, RapcoreПродолжительность: 00:28:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46291E74FA0A67AC1B8CBC80040C6E782A0A55F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548618   (240891) от 03.05.2022
+
+Alexey Amusin - The Rocker (2020) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_240891.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Rocker [00:04:35]
+02 - Dance on Fire [00:05:09]
+03 - Young & Free [00:03:36]
+04 - Goodbye [00:04:05](   Читать дальше...   )Жанр: Russian Hard RockПродолжительность: 00:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:198F50A3EB73C306CD332816C1E9AFFFD5624937
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548715   (240825) от 03.05.2022
+
+G-Hard - μ-sick (2022) [MP3|320 Kbps] <Nu-Metal, Oriental Metal, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_240825.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Sleep Paralysis [00:02:05]
+02 - Disorder [00:04:15]
+03 - Lost in a Sea [00:04:50]
+04 - Good Night Anxiety [00:00:41](   Читать дальше...   )Жанр: Nu-Metal, Oriental Metal, Progressive MetalПродолжительность: 00:38:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AE2FD4B4E95B3E1F195DD01E946BEF78FC57FE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548417   (240817) от 03.05.2022
+
+Личные Убеждения - Контроль (2022) [MP3|320 Kbps] <Punk Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_240817.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Личные убеждения [00:01:51]
+02 - Животные [00:02:27]
+03 - Действуй [00:02:49]
+04 - Война [00:02:01](   Читать дальше...   )Жанр: Punk HardcoreПродолжительность: 00:21:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C7AC192F4115AC142CDA6B46563DC7A87DB4D3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548621   (240809) от 03.05.2022
+
+Antagonist - Spawn Of Evil (2022) [MP3|320 Kbps] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_240809.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Reverse Murder Chronology [00:04:59]
+02 Blindfold [00:05:52]
+03 Creation [00:05:01]
+04 Infernal Machine [00:04:13](   Читать дальше...   )Жанр: Russian Death MetalПродолжительность: 00:58:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:575D5686BFE14A3D95DC7DFD2402C1F982A4D166
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548602   (240778) от 03.05.2022
+
+Смотрители - Холм Лунной Радуги (2021) [MP3|320 Kbps] <Alternative rock, Indie rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_240778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - На Другой Стороне [00:02:53]
+02 - НЛО [00:05:32]
+03 - Вой [00:05:07]
+04 - Лунная Радуга [00:04:58](   Читать дальше...   )Жанр: Alternative rock, Indie rockПродолжительность: 00:40:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61C48AF144F6BC948331F9E768EFE093538B0849
 ```
 
 https://mybot314.ru/tekegram_catalog/

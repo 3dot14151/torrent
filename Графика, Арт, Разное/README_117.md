@@ -1,3 +1,29 @@
+###  Публикация: 584733   (307856) от 04.12.2012
+
+[Wallpapers] Обои НОВЫЙ ГОД(часть 2)
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_307856.jpg" />
+</div>
+
+
+###  Подробнее
+
+
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FE762854A2CB2F98E1809B91CABA1C17F832154
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 584727   (307759) от 04.12.2012
 
 [Wallpapers] Обои НОВЫЙ ГОД
@@ -641,32 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8ECE66B59CC4C8FE222D59FC9A2F386D87E053DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261080   (307443) от 09.11.2018
-
-Обои - Desktop Wallpapers Full HD. Part (317) [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307443.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF303B8E85F2ED0B5D69D395D243E99B86D4F6E6
 ```
 
 https://mybot314.ru/tekegram_catalog/

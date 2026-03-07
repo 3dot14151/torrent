@@ -1,3 +1,32 @@
+###  Публикация: 1513197   (225258) от 28.11.2021
+
+ATL - Радио Апокалипсис (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_225258.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 66.6 FM [02:01]
+02. RESET [02:35]
+03. Ящик [03:28]
+04. Behemoth [02:35](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:57:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7851187BAFED7D613BE6FF9FB633B69AA407C89C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 587412   (223453) от 10.12.2012
 
 2rbina 2rista - HONDURAS (2012) [MP3|320 кб/с]<Hip-Hop, Reggae,>
@@ -719,35 +748,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19615BD2F467BD89C36C76E406D3036EA8DDE574
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427057   (184362) от 27.11.2020
-
-STED.D - МЫ ДАВНО В АДУ (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_184362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. БИОМУСОР СУПРИМАСИ [02:38]
-02. МЫ ДАВНО В АДУ [02:50]
-03. С ДВУХ НОГ [02:49]
-04. МЕНЯ НЕТ [03:01](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:42:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA6FCC8C3951C2FF89DB37FF4E9F50F6879B61E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

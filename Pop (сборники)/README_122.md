@@ -1,3 +1,73 @@
+###  Публикация: 483503   (88776) от 16.04.2012
+
+VA - NeРусский Шторм 57 (2012) [MP3|320 kbps]<Pop | Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_88776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Al Mike feat. Gazi Demirel - Leila
+02. Anna Lesko Ft Gilberto - Go Crazy (Official Radio Edit)
+03. Attilson & Bossanova feat. Diana - Dancing Tonight (Video Edit)
+04. Brighi feat. Snoop Dogg - Play Me Like A Violin (Radio Killer Extended Mix)
+05. Calvin Harris feat. Ne-Yo - Let& Go (Radio Edit)
+06. Christopher S feat Max Urban - Star (Dj Nejtrino & Dj Stranger 2012 Remix)
+07. Crocodealer - Coffee From Columbia
+08. Deepcentral - So Divine (Radio Edit)
+09. Dj Gala feat. Kate - Don'T Need (Dj Force Club Mix)
+10. Dj Layla feat. Sianna - Your Angel(   Читать дальше...   )2012Жанр: Pop | DanceПродолжительность: 02:51:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD9A9FDC0A3CC25E484718FA28C180687EC80E95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 483818   (88772) от 16.04.2012
+
+VA - XXXL Союз 70: Парад хитов Русский (2012) [MP3|256 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_88772.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Ради славы & Katty - Целуй меня
+002 Тамерлан и Алена Омаргалиева - Hey yo
+003 Чи-Ли - Облака
+004 Банд'Эрос - Эти сумасшедшие ночи
+005 Потап и Настя Каменских - Если вдруг (Aleksey Kraft mix)
+006 Алисия - Улетаю (DJ Fisun remix)
+007 Митя Фомин & Кристина Орса - Не манекен (URAL DJS dance remix )
+008 Нюша - Выше (dance remix)
+009 Вера Брежнева - Реальная жизнь (DJ Vengerov remix)
+010 5sta Family - Тук-тук(   Читать дальше...   )2012Жанр: PopПродолжительность: 05:51:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:457A12B47AC94EE851E75BE58343B16A6E506ADA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 483470   (88751) от 16.04.2012
 
 VA - MAXI. Все хиты весны на Русском Радио (2012) [MP3|154-199 kbps]<Pop>
@@ -831,76 +901,6 @@ VA - Top 200 Радио DFM Весна 50/50 (2012) [MP3|128 kbps]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A8C6461DABDAEEC0839EF08D0BAF1232495BFBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476462   (85525) от 31.03.2012
-
-VA - Популярная поп музыка (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85525.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Время и Стекло - Гармошка
-02. Анна Седокова - Такси
-03. Анастасия Приходько - Романс
-04. Simon From Deep Divas feat. Goody - Disco dancer
-05. Вика Гранд - Я Не Боюсь (Emotive Tunes Original Mix)
-06. Pitbull feat. Eila - Slow
-07. Валерий Меладзе - Потерян И Не Найден
-08. Лера Туманова (Электра) - Здравствуй
-09. Катя Чехова - Сердце Тебе В Ответ
-10. Анита Цой - Молитва2012Жанр: PopПродолжительность: 05:54:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09A03725F3A259191860DFADEB30B49B117C7DED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475724   (85516) от 31.03.2012
-
-VA - Вечеринка В Стиле Руки Вверх! 8 (2012) [MP3|192-320 kbps]<Pop | Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85516.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Сергей Жуков & Opium Project - Я буду с тобою
-002 Саша Зверева & Sasha Dith & Steve Modana - Супербой
-003 Фактор-2 - Кареглазая
-004 DJ Niki feat. Soda - Я Без Тебя (Radio Mix)
-005 Проект 23 - Молекулы Любви
-006 Света - Не новая игра
-007 Турбомода - Отпусти
-008 Вирус - За тобой
-009 Три желания - Знаешь, мама
-010 RevoльveRS - Девочка (Рома Лейтенант Remix)(   Читать дальше...   )2012Жанр: Pop | DanceПродолжительность: 06:07:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F2B2A4EDE32CF70F0E17D9A6843AE4AE554DAC1
 ```
 
 https://mybot314.ru/tekegram_catalog/

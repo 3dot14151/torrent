@@ -1,3 +1,206 @@
+###  Публикация: 1334935   (291511) от 31.10.2019
+
+Norma Jordan - Feel Me (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_291511.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Disco Beat (3:23)
+02. Keep That Motor Alive (4:03)
+03. Stay Change Your Mind (4:31)
+04. Space Boogie Woogie (3:22)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:36:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1BCECD1627F68B14690646699CCE9F57C3459EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185635   (291415) от 22.11.2017
+
+VA - The Hit Factory: Ultimate Collection (2017) 3CD [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_291415.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.  Kylie Minogue  - Better The Devil You Know  3:53
+02.  Rick Astley  - Never Gonna Give You Up  3:33
+03.  Bananarama  - Venus  3:37(   Читать дальше...   )Жанр: PopПродолжительность: 03:39:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BA62730644570C831CFC7AD1E9AF0C0B3DA47C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262982   (291413) от 17.11.2018
+
+France Joli - France Joli (1979) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_291413.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Come To Me (9:48)
+02. Don't Let Go (9:21)
+03. Don't Stop Dancing (7:48)
+04. Playboy (7:59)Жанр: Electronic, DiscoПродолжительность: 00:34:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA780474F76AAC88760A9EDC1E800049FE22AF3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262913   (291412) от 17.11.2018
+
+Giorgia - Pop Heart (2018) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_291412.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Le tasche piene di sassi
+02. Una storia importante (feat. Eros Ramazzotti)
+03. Lei verra
+04. Gli ostacoli del cuore (feat. Elisa)(   Читать дальше...   )Жанр: PopПродолжительность: 00:59:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C448BA5A16A67C8613D65DED20B7E776BB2EE355
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263018   (291398) от 17.11.2018
+
+Hooverphonic - Looking For Stars (2018) [FLAC|Lossless|WEB-DL|tracks] <Dream Pop, Trip-Hop, Lounge>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_291398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lethal Skies (3:56)
+02. Paranoid Affair (3:05)
+03. Romantic (3:15)
+04. Uptight (3:25)(   Читать дальше...   )Жанр: Dream Pop, Trip-Hop, LoungeПродолжительность: 00:37:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41134BA4F8FE2D65E4013A98606FC3E3DE9B1F93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334940   (291323) от 31.10.2019
+
+Каролина - Вернись ко мне (1995) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_291323.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вот и все [04:09]
+02. Я помолюсь [03:49]
+03. Я свободна [03:52]
+04. Ангел [03:40](   Читать дальше...   )Жанр: PopПродолжительность: 00:38:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3243CDFE2A25DE6D4DCEC71EE34DF2E41383A732
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185775   (291226) от 22.11.2017
+
+VA - Давид Тухманов: Сердце любить должно (2005) [FLAC|Lossless|image + .cue] <Retro, Pop>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_291226.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я.Бразайтене - Сердце любить должно (И.Шаферан) (1974)
+02. Анс. "Лейся, песня" - Объяснить невозможно (И.Кохановский) (1975)
+03. М.Боярский и О.Зарубина - Так не должно быть (Л.Дербенёв) (1979)
+04. Я.Йоала - Прощальный день (А.Саед-Шах) (1985)(   Читать дальше...   )Жанр: Retro, PopПродолжительность: 00:54:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00E5851A8D13D2C901876FDE70727BCABCE66883
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 846963   (291072) от 17.11.2018
 
 Евгений Осин - Новое и лучшее. Star Hit Звездная коллекция (2010) [FLAC|Lossless]<Pop>
@@ -539,209 +742,6 @@ Burito - Samskara (2019) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CDA8E1B7FEBFDDD36B855D0A3354A5DED5164C7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335174   (289401) от 01.11.2019
-
-#2Маши - Всем нашим (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289401.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Всем нашим
-2. Лава
-3. О нас
-4. Красное белое(   Читать дальше...   )Жанр: PopПродолжительность: 00:29:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4B84895DAA3753BFD1B4DBB1AEFF0CDB43B03A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186028   (289322) от 23.11.2017
-
-VA - Танго Оскара Строка (1997) [FLAC|Lossless|image + .cue] <Retro, Tango>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Инструментальный ансамбль Мелодия п/у Г.Гараняна - Мое последнее танго (3:07)
-02. Инструментальный ансамбль Мелодия п/у Г.Гараняна - Голубые глаза (2:50)
-03. Владимир Трошин - Скажите почему? (4:17)
-04. Инструментальный ансамбль Мелодия п/у Г.Гараняна - Марианна (3:04)(   Читать дальше...   )Жанр: Retro, TangoПродолжительность: 01:00:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B41BB5584BD1D6BFC1FDCEE6F550DD6A36824B89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185979   (289316) от 23.11.2017
-
-VA - ВИА 1970-х: О тебе, наверное (2007) [APE|Lossless|image + .cue] <Pop, Retro>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289316.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Лина Прохорова - Вечно юный мир [2:40]
-02. ВИА «Коробейники» - Здравствуй, песенка [3:34]
-03. ВИА «Коробейники» - Дай ответ [3:23]
-04. ВИА «Коробейники» - Ну, погоди! [2:59](   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:49:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:474B7F9DF3DEEE01C8F392D9F975820372002278
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963415   (288960) от 07.12.2015
-
-RutiCelli - Nocturnal Miniatures (2015) [OGG|496-551 кб/с]<Alternative Pop, Ambient, Lounge, Cello, Female Vocal>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288960.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Really Do
-02. Take Your Time
-03. The Sky the Heaven
-04. Anti City(   Читать дальше...   )Жанр: Alternative Pop, Ambient, Lounge, Cello, Female VocalПродолжительность: 00:37:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEC8543DA53BDA78D1F540F7AEDE23FC0306825D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963284   (288949) от 07.12.2015
-
-Kim Wilde - Wilde Winter Songbook (2015) Deluxe Edition [FLAC|tracks] <Pop, Holiday>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288949.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Winter Wonderland (Feat.Rick Astley) (2:47)
-02. Hope (3:56)
-03. One (3:30)
-04. Have Yourself a Merry Little Christmas (3:14)(   Читать дальше...   )Жанр: Pop, HolidayПродолжительность: 01:03:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F1EBD79D85380CBA2947B9D295510D7DD4CB854
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963319   (288852) от 07.12.2015
-
-Trans-X - Anthology (2014) [OGG|480-585 кб/с]<Synthpop, Hi-NRG, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288852.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Living On Video 2012
-02. Transmission
-03. How Long Last Love
-04. Into The Light(   Читать дальше...   )Жанр: Synthpop, Hi-NRG, Italo-DiscoПродолжительность: 01:05:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:312BABA069E4AFAAAC9D82E0B3BCA3A0D7A01517
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 733029   (288766) от 11.12.2013
-
-Mylene Farmer - Timeless 2013 (2013) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288766.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Timeless Genesis (04:30)
- 02. A force de... (04:24)
- 03. Comme j'ai mal (03:52)
- 04. C’est une belle journee (06:17)(   Читать дальше...   )Жанр: PopПродолжительность: 00:32:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D867853A4ACE4BDC1FFDD7E896BD24E0C0F0B2B9
 ```
 
 https://mybot314.ru/tekegram_catalog/

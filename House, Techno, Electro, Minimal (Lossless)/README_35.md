@@ -1,3 +1,114 @@
+###  Публикация: 1298005   (602660) от 25.04.2019
+
+Aura Minimum - Dual Aura (2019) Space Of Variants [FLAC|Lossless|tracks+.cue] <Dub Techno, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602660.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Structural Lines (07:30)
+ 02. Structural LinesЖанр: Dub Techno, AmbientПродолжительность: 01:02:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87B78B4C0EE83495323BC26986DE85B244DF3C45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298038   (602646) от 25.04.2019
+
+Satin Jackets - Diamonds Are Forever (2018) Eskimo Recordings [FLAC|Lossless|WEB-DL|tracks] <House, Nu Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602646.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Latin Jackets (6:27)
+ 02. Got To Be Love (4:42)
+ 03. Hollywood (7:14)
+ 04. Olivia (Sirius XM Chill Edit) (5:00)(   Читать дальше...   )Жанр: House, Nu DiscoПродолжительность: 00:46:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9B045FCF2D7D718114DD5839D9FB573D4CC73F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1232284   (602331) от 23.06.2018
+
+Modd - Mesmerize Me (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Deep House, Chill House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602331.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mesmerize Me (4:30)
+ 02. Flight Flow (4:34)
+ 03. Velotrip (4:30)
+ 04. Abenaki (4:42)(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 01:03:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E6F733D073012D6A1E187D17651BB92BD8BFF6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 914287   (600280) от 01.07.2015
+
+Robin Schulz - Headlights (The Remixes) (2015) [FLAC|Lossless|WEB-DL]<House, Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_600280.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Headlights (feat. Ilsey)Жанр: House, Progressive HouseПродолжительность: 00:28:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6E9EBFE8EB8B6349C3A5976D954750DDC4BA96F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 914272   (600186) от 01.07.2015
 
 VA - Fabric 82 (Mixed by Art Department) (2015) [FLAC|Lossless|WEB-DL]<House,Deep House, Tech House>
@@ -629,122 +740,6 @@ DJ Mixx - Check It Out (Euphoria Of Sound Guest Mix) (2012) [FLAC+cue|Lossless] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D39A51B7B27EB815BFE8BA0EA3B678AE5A0D4572
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040580   (586492) от 05.08.2016
-
-VA - Mixmag Germany presents Einmusik (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pete Grace & Thomas Gandey - Carried On (Betoko remix) [07:32]
-02. Darlyn Vlys - Colours (feat Forrest - Tim Engelhardt remix) [07:48]
-03. Third Son - Atonal Impression (original mix) [06:11]
-04. Fat Sushi - Hana (original mix) [06:17](   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 02:55:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:291297818A0A6116C242727FBB22E77BB17E7850
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552901   (584751) от 23.05.2022
-
-VA - Anjunabeats Worldwide 10 (Mixed By Fatum) (2022) DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584751.jpg" />
-</div>
-
-
-###  Подробнее
-
-[5:56] 01. Tinlicker - You Take My Hand
-[5:25] 02. Luccio - Try
-[3:29] 03. Rodg - Sola
-[4:05] 04. Genix - I'm Awake (Anden Remix)(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 01:35:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53AEF700ABBA3E8C81B4806FA3D371BE221389C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919580   (583009) от 19.07.2015
-
-VA - Sirup House Anthems Las Vegas 2015 (2015) [FLAC|Lossless|WEB-DL]<Progressive House, House, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583009.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lika Morgan - Relax (Don't Do It) (Short Edit) [2:44]
-02. Shanahan - Hold On (Radio Mix) [3:32]
-03. Esquire - Over Now (Darone Radio Mix) [3:39]
-04. EDX - Empathy (Radio Edit) [3:10](   Читать дальше...   )Жанр: Progressive House, House, Deep HouseПродолжительность: 01:01:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AC50C53502F0E9FD539F9A5E568626936263773
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919457   (582863) от 19.07.2015
-
-VA - Ministry Of Sound: Sessions Twelve (Mixed By Tenzin & Generik) (2015) [FLAC|tracks + .cue]<Club House,House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582863.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alison Wonderland - Run (Radio Edit) [3:35]
-02. What So Not - Gemini [3:32]
-03. Kygo feat. Conrad Sewell - Firestone [3:15]
-04. Duke Dumont - The Giver (Reprise) (Reprise) [3:17](   Читать дальше...   )Жанр: Club House,HouseПродолжительность: 01:15:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42F80ED3B8A7ED984D419CBB4522B8A07520841A
 ```
 
 https://mybot314.ru/tekegram_catalog/

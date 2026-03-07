@@ -1,3 +1,32 @@
+###  Публикация: 1382231   (821030) от 10.05.2020
+
+VA - Galaxia: Indie Rock Collection (2020) [MP3|320 Kbps] <Rock Indie, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_821030.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kit Sebastian - Durma
+002. Amy Studt - Different Coloured Pills
+003. Jaakko Eino Kalevi - The Source
+004. Huey Blue - White Flag(   Читать дальше...   )Жанр: Rock Indie, AlternativeПродолжительность: 08:18:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B678FFA8D2FD25C2CEEEF2E95E9736F7B24930F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1503118   (820962) от 18.10.2021
 
 VA - The Top 100 Most Played: Rock (2021) [MP3|320 Kbps] <Rock>
@@ -716,35 +745,6 @@ Jeff Beck - 100% Jeff Beck (2020) [MP3|320 Kbps] <Rock, Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78443305B1A1453D54BCE645D99D035B9064DB5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011376   (796603) от 27.04.2016
-
-Scorpions - 25 Best Songs (2016) [MP3|~245 кб/с (V0)] <Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796603.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad Boys Running Wild (03:57)
-02. Rhythm Of Love (03:48)
-03. Wind Of Change (05:14)
-04. Love Will Keep Us Alive (04:33)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:58:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0CFDBC2D390BFE9FD14BC281AA798633C433491
 ```
 
 https://mybot314.ru/tekegram_catalog/

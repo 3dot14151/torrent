@@ -1,3 +1,90 @@
+###  Публикация: 1620722   (1031904) от 21.03.2023
+
+VA - Spirit of Trance, Vol. 2 (2023) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031904.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreamlife & SounEmot - Aun Recuerdo Ese Dia (Extended Mix) [9:41]
+02. Ivan G.M - Arp 299 (Original Mix) [7:45]
+03. D-J. Santos - Dancing In Love (Original Mix) [8:44]
+04. Catchfire - Aaria (Original Mix) [6:07](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:19:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:469C9A113F98CA87598EA869C62509212316312D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447352   (1031853) от 13.02.2021
+
+Victor Special & Elev8 - Cosmic Generation (2021) Singles [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031853.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Victor Special & Elev8 - Cosmic Generation (Original Mix)
+02. Victor Special & Elev8 - Cosmic Generation (Iberian Remix)
+03. Victor Special & Elev8 - Cosmic Generation (Masaru Hinaiji Intro Mix)
+04. Victor Special & Elev8 - Cosmic Generation (Masaru Hinaiji Remix)Жанр: TranceПродолжительность: 00:26:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ACFAE3F2E0A3FA4D2C770C3E611A3D55EB41DC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447348   (1031850) от 13.02.2021
+
+VA - Markus Schulz - Global DJ Broadcast - Top 20 February (2021) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031850.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daxson - While We Wait (Extended Mix)
+02. DJ T.H., Jan Johnston - Stealing Time (Markus Schulz In Search Of Sunrise Extended Rework)
+03. Markus Schulz & HALIENE - Tidal Wave (KhoMha Extended Remix)
+04. Klur - Odysee (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:16:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03A5471FDE6F7D9CED7C5079BBF0AA509AD7BB7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1447581   (1031657) от 14.02.2021
 
 VA - Magic Of Trance Vol 12 (Mixed by Vito Von Gert) (2021) [MP3|320 Kbps] <Trance, UpliftingTrance>
@@ -664,93 +751,6 @@ DJ Иван Ионов - Soundcheck - Summer Non Stop (2005) [MP3|320 Kbps] <Tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:606AC6F4FBBDB264309850F31EAD9B285E2BEC6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359432   (963213) от 13.02.2020
-
-VA - Dreaming - Mixed by Dj Anna Lee (2007) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963213.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Airwave Meets Rising Star - When Things Go Wrong (8:52)
-02. DP6 - Evolution (7:21)
-03. Lolo - Take My Hand (8:17)
-04. Antidote - Come Alive (Original Mix) (5:08)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:13:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0643EF30FAA47E560764D3593289B3BB3DB377D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359429   (963210) от 13.02.2020
-
-Dj Donatas VZ - Nobody Harder - Volume Zero (2004) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963210.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Untitled (5:42)
-02. Untitled (7:08)
-03. Untitled (5:33)
-04. Untitled (5:31)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:16:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6D43D3ACEDF877C007ED37A5DB52E161BB076AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360284   (960738) от 15.02.2020
-
-DJ Aligator Project - The Sound Of Scandinavia (2002) [MP3|320 Kbps] <Trance, Euro House>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960738.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Aligator Project - Intro (1:31)
-02. DJ Aligator Project - Stomp! (4:05)
-03. DJ Aligator Project - Mosquito (3:50)
-04. DJ Aligator Project - Secrets Of The Space (3:39)(   Читать дальше...   )Жанр: Trance, Euro HouseПродолжительность: 00:37:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:741E56E46C4E871D8DCEC517C638A3147A959992
 ```
 
 https://mybot314.ru/tekegram_catalog/

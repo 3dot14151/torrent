@@ -1,3 +1,32 @@
+###  Публикация: 1168169   (410246) от 23.09.2017
+
+Kaleo - A/B (2016) special russian edition, 2017 [FLAC|Lossless|tracks + .cue] <Indie rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410246.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Good [03:54]
+02. Way Down We Go [03:39]
+03. Broken Bones [04:06]
+04. Glass House [04:01](   Читать дальше...   )Жанр: Indie rock, Blues RockПродолжительность: 00:49:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01C4E35A2693435B44D6174A2B4F4218B54EE19F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1413222   (410004) от 03.10.2020
 
 Soeckers - Kopfkarussell (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Alternative Rock>
@@ -715,35 +744,6 @@ Starsailor - Love is Here (2001) [FLAC|Lossless|tracks + .cue] <Indie Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47556A07BD76BA7483F16A3B53BC3A9EF0FF5A13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574591   (383855) от 06.09.2022
-
-Ends With A Bullet - I´m Still Standing (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Metal, Metalcore, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383855.jpg" />
-</div>
-
-
-###  Подробнее
-
-00. I_m Still Standing [00:04:10]
-00. No Matter What [00:03:49]
-00. Save Me From Myself [00:04:42]
-00. Fright Night [00:04:14](   Читать дальше...   )Жанр: Modern Metal, Metalcore, ElectronicПродолжительность: 00:45:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:082CCD78A5BA77D0EAB3C11EBC83A719B5E6C5B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

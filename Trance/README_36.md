@@ -1,3 +1,90 @@
+###  Публикация: 1076589   (309493) от 27.11.2016
+
+VA - Trance Hits Top 20 2016-11 (2016) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_309493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. James Dymond - It Ain't Over 3:44
+02. Sun Decade - I'm Alone (Adam Ellis Remix) 3:23
+03. A.R.D.I. - Invictus 4:11
+04. Tempo Giusto - Time To Tango 3:29(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:12:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2874EFA4B3898C46D924702AC697542B8D31B692
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1076682   (309072) от 27.11.2016
+
+VA - Amsterdam Trance Sessions Vol.7 (2016) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_309072.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dave Pearce - The Trip (Original Mix) 5:48
+02. Sean Tyas - Relentless (Radio Edit) 3:40
+03. Lange - Hacktivist (Radio Edit) 3:17
+04. UDM - Ignite (F.G. Noise Remix) 6:45(   Читать дальше...   )Жанр: TranceПродолжительность: 02:26:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6900406F406B11CEC6CF4ECCAEEDAC9BFA9E7943
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422939   (306156) от 10.11.2020
+
+Shakti - Psychedelic Experience (2016) [MP3|320 Kbps] <Psychedelic Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_306156.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brightlight - What Are You Looking For (8:15)
+02. Dr Hoffman - My Problem Child (6:01)
+03. Ganesha - Waiting For The Sun (6:20)
+04. Ganesha - Space love (5:22)(   Читать дальше...   )Жанр: Psychedelic TranceПродолжительность: 01:05:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18104D4889F6AC938112BF6449BD57BD8FCCBD84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1261236   (305570) от 10.11.2018
 
 VA - A State Of Trance Classics Vol.13 (The Full Unmixed Versions)(2018) [MP3|320 Kbps] <Trance>
@@ -657,93 +744,6 @@ VA - Adedition: Trance Collection Of Amsterdam (2017) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7473E948702AD7167C1CA41220FAF92C3DE70C81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185833   (291738) от 22.11.2017
-
-VA - Trance Cloud (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291738.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. IF - Classic Universe (original mix)
-02. IF - Classic Universe (radio edit)
-03. Parad Planet - Black Uplifter (original mix)
-04. Nickella & Destlours - Words (original mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:24:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D42F5961EDC657716274078512258A7327ED9C27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335007   (291664) от 31.10.2019
-
-Solarstone - One (Limited Edition) (2019) Box Set [MP3|320 Kbps] <Trance, Progressive Trance, Progressive House>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291664.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Solarstone - Leap Of Faith (7:01)
-02. Solarstone - Eclipse (6:02)
-03. Solarstone & RABBII - Untitled Love (5:20)
-04. Solarstone & Alex Karweit - Choosing His Angels (4:41)(   Читать дальше...   )Жанр: Trance, Progressive Trance, Progressive HouseПродолжительность: 01:03:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ADC623332860EAA155608A32043A200F4C761D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262875   (291558) от 17.11.2018
-
-Stoneface & Terminal - Altered Floors (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stoneface & Terminal – Dawn Of Life (Original Mix)
-02. Stoneface & Terminal – Glimpse (Original Mix)
-03. Stoneface & Terminal & Andy Ruddy – Dreamscape (Original Mix)
-04. Stoneface & Terminal – Airflow (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:27:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A961471146B6EB580C794C895B5AB04BD3EE5195
 ```
 
 https://mybot314.ru/tekegram_catalog/

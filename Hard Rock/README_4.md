@@ -1,3 +1,32 @@
+###  Публикация: 1366644   (922036) от 12.03.2020
+
+Gotthard - #13 (2020) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922036.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Bad News
+2. Every Time I Die
+3. Missteria
+4. 10.000 Faces(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:00:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33E6724066E96A462DD910BF7966B1465ECFF114
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366813   (920584) от 13.03.2020
 
 Jerry-Kelly - Somebody Else's Dream (1978) [MP3|320 Kbps] <Westcoast, AOR>
@@ -711,35 +740,6 @@ Goddo - In Goddo We Trust (1991) [MP3|320 Kbps] <Hard Rock, Prog Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E49B2A7DB77ED7B3D66D3887B18E9EE0F51BF7BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103137   (887626) от 11.02.2017
-
-Budgie - The Best of Budgie (1997) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887626.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Breadfan
-2. In The Grip Of A Tyrefitter's Hand
-3. I Ain't No Mountain
-4. In For The Kill(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:09:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E55FF0CCCDA21390E9C807D95912DA8E57AE2369
 ```
 
 https://mybot314.ru/tekegram_catalog/

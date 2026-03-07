@@ -1,21 +1,44 @@
-###  Публикация: 1263460   (288273) от 19.11.2018
+###  Публикация: 962469   (290437) от 06.12.2015
 
-Kazuo Yashiro - Love Is Here To Stay (1968) 2014, Nippon Columbia [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+Агенты А.Н.К.Л. / The Man from U.N.C.L.E. (2015) BDRip [H.264/1080p]
 
->>
->>
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_288273.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_290437.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. What Is This Thing Called Love [3:58]
-02. Being a Good Magician [3:23]
-03. How Insensitive [3:27]
-04. Spring Is Here [3:54](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 00:40:18
+Наполеон Соло — агент ЦРУ, на счету которого огромное количество успешно проведенных операций. Он считается одним из лучших секретных агентов во всем мире, и с ним может сравниться только один человек — самый молодой и перспективный агент КГБ, Илья Курякин. Их противостояние переросло в настоящую войну, в которой никто не собирается уступать. Однако обстоятельства (   Читать дальше...   )Производство: США, Великобритания / Warner Bros., RatPac-Dune Entertainment, Wigram ProductionsЖанр: боевик, комедия, приключенияРежиссер: Гай РичиАктеры: Генри Кавилл, Арми Хаммер, Алисия Викандер, Элизабет Дебики, Хью Грант, Лука Кальвани, Сильвестр Грот, Джаред Харрис, Кристиан Берке, Миша КузнецовПеревод: профессиональный (полное дублирование), авторский (одноголосый закадровый)Язык субтитров: русский, украинский, английскийПродолжительность: 01:56:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3A169B70AEB191922C7D36704A00CFA4DD647F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962641   (290435) от 06.12.2015
+
+Шпионский мост / Bridge of Spies (2015) CamRip
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_290435.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие фильма происходит на фоне серии реальных исторических событий и рассказывает о бруклинском адвокате Джеймсе Доноване, который оказывается в эпицентре холодной войны, когда ЦРУ отправляет его на практически невозможное задание — договориться об освобождении захваченного в СССР американского пилота самолета-разведчика U2.Производство: США, Индия, ГерманияЖанр: Триллер, ДрамаРежиссер: Стивен СпилбергАктеры: Том Хэнкс, Билли Магнуссен, Алан Алда, Эми Райан, Марк Райлэнс, Доменик Ломбардоззи, Остин Стоуэлл, Ив Хьюсон, Майкл Гэстон, Себастьян КохПеревод: ДублированныйПродолжительность: 02:14:09
 
 ## Скачать торент
 ```bash
@@ -27,25 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080456   (288272) от 07.12.2016
+###  Публикация: 962955   (290434) от 06.12.2015
 
-Каталог | BADER Wasche&Mehr (Осень 2016) [PDF] [De]
+Тюремный эксперимент в Стэнфорде / The Stanford Prison Experiment  (2015) HDRip
 
->>Журналы
->>Женские журналы
+>>След.
+>>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288272.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_290434.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Каталог Bader Wasche&Mehr осень 2016 представляет красивое нижнее белье для женщин и мужчин, а также домашнюю одежду. Очаровательные изделия имеют как декоративную, так и корректирующую функцию. Онлайн каталог Бадер рассчитан на женщин среднего возраста, которые ценят комфорт и качество.Жанр: МодаФормат: PDF
+В основу фильма положен эксперимент американского психолога. Он выбрал добровольцев, которые сыграли роль надзирателей и заключенных, и устроил им в одном корпусе настоящую тюрьму. Люди быстро освоились и, к огромному удивлению психолога, стали вести себя непредсказуемо. К чему приведет вышедший из-под контроля эксперимент?Производство: СШАЖанр: Триллер, драмаРежиссер: Кайл Патрик АльварезАктеры: Билли Крудап, Майкл Ангарано, Мойзес Ариас, Николас Браун, Гай Чарльз, Кейр Гилкрист, Ки Хонг Ли, Томас Манн, Эзра Миллер, Логан Миллер, Тай Шеридан, Джонни СиммонсПеревод: Многоголосый закадровый, профессиональный (Paradox & OMSKBIRD records)Продолжительность: 02:02:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FDE974A67D87B95D4ABCAA66C7216E92DD8430AA
+magnet:?xt=urn:btih:36C7C9039C4C68ACA56C84BFAADFED0C236A3246
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,28 +76,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263464   (288271) от 19.11.2018
+###  Публикация: 963176   (290433) от 06.12.2015
 
-Kazuo Yashiro - Black Nag (1969) 2014, Nippon Columbia [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
+Проекты - VideoHive - Photo Projector (v.1) - 13503218 [AEP]
 
->>
->>
+>>3
+>>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_288271.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_290433.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Love for Sale [4:01]
-02. Carolina [5:26]
-03. Marionette Blues [4:25]
-04. Black Coffee [5:42](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 00:36:57
+Проект для создания из обычного фото 3D анимационных эффектов. Перед запуском проекта следует установить скрипт Main Controller.Формат: AEP
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:60CB0748CB114C70B5D21E159C5769CC07E2EAF3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -82,25 +102,51 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080639   (288270) от 07.12.2016
+###  Публикация: 962936   (290432) от 06.12.2015
 
-Stellarium 0.90.0.8917 TEST [Multi/Ru]
+Ужастики / Goosebumps (2015) WEBRip [VO]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_290432.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зак переезжает с родителями в провинциальный городок, где знакомится с очаровательной соседкой Ханной. Он узнает, что ее отец — Роберт Стайн, знаменитый писатель, автор популярной серии триллеров для подростков «Ужастики», у которого есть мрачная тайна. Стайн — пленник собственных историй: монстры из его произведений вполне реальны, и он пишет свои книги для того, (   Читать дальше...   )Производство: США, АвстралияЖанр: Фэнтези, комедия, приключенияРежиссер: Роб ЛеттерманАктеры: Дилан Миннетт, Одейя Раш, Эми Райан, Райан Ли, Джиллиан Белл, Джек Блэк, Кен Марино, Холстон Сейдж, Стивен Крюгер, Кит А. Болден, Аманда Ланд, Тимоти С. Саймонс, Каран Сони, Р.Л. Стайн, Калеб Эмери, Габриэла Фрайле, Нэйт Андраде, Шелдон Браун, Мелисса Брюэр, Маршалл ЧокаПеревод: Любительский (одноголосый, закадровый)Озвучка / Автор перевода: VANOСубтитры: отсутствуютПродолжительность: 01:43:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E3BA4D73BEFF2209DA149E6FB88500BF06C9FD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 963002   (290431) от 06.12.2015
+
+Adobe InDesign CC 2015.2 (11.2.0.100) RePack by D!akov [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288270.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_290431.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Stellarium — это свободный планетарий для Вашего компьютера с открытым исходным кодом. Он отображает реалистичное небо в 3D таким, каким Вы видите его невооружённым глазом, в бинокль или телескоп. Просто введите свои координаты и исследуйте небо!Язык интерфейса: Русский, Английский и др.
+Adobe InDesign CC — профессиональный продукт для проектирования дизайна любых печатных или Интернет изданий. Adobe InDesign CC обладает всеми прогрессивными возможностями и инструментами машинной верстки, с помощью которых можно быстро и эффективно разрабатывать дизайн страниц любой сложности. Программа поддерживает импорт рисунков и текста из самых разнообразных (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:47832E6C0075315D2D9CAF6794AD53BE8F6B674E
+magnet:?xt=urn:btih:A38670E2301AA14006BD2BD1E192BBDEBB8BA9A0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -108,28 +154,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263603   (288269) от 19.11.2018
+###  Публикация: 962709   (290430) от 06.12.2015
 
-GSEP - Through The Clouds (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
+Вымирание / Extinction (2015) BDRip [H.264/1080p]
 
->>
->>
+>>След.
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_288269.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_290430.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Through The Clouds (Original Mix)                               [07:26]
-02. Through The Clouds (Andy Zee Remix)                             [06:36]
-03. Through The Clouds (Pedro Capelossi Remix)                      [07:17]
-04. Through The Clouds (Ingo Vogelmann Remix)                       [08:47](   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:36:24
+После нескольких сотен тысяч лет эволюции и превосходства, люди были почти уничтожены с лица Земли. В течение всего лишь нескольких дней инфекция превратила их в диких существ без интеллекта, они стали злыми и безжалостными. Через семь лет после этого, мы находим небольшой городок — Harmony, покрытый многолетними снегами. Двое мужчин, давние друзья Патрик и Джек, (   Читать дальше...   )Производство: Испания, США, Венгрия, Франция / La Ferme! Productions, Laokoon Filmgroup, Ombra FilmsЖанр: Ужасы, Фантастика, ДрамаРежиссер: Мигель Анхель ВивасАктеры: Мэттью Фокс, Джеффри Донован, Куинн Маккоулган, Валерия Веро, Клара Лаго, Мэтт Девере, Алекс Хафнер, Джереми ВилерПеревод: Многоголосый закадровый, профессиональный (iTunes)Продолжительность: 01:52:45
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:20BD1A55444873E2B75BB2D8670ABB39E8206A7F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -137,28 +180,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080428   (288268) от 07.12.2016
+###  Публикация: 963024   (290429) от 06.12.2015
 
-Divna Ljubojeviс / Дивна Любоевич - Divna - In Concert - Théâtre Des Abbesses, Paris (2004) 2006 JADE [FLAC|Lossless|image + .cue] <Religious, Choral>
+Очень Мюрреевское Рождество / A Very Murray Christmas (2015) WEBRip [H.264/720p-LQ]
 
->>Классика
->>Вокал (Lossless)
+>>След.
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288268.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_290429.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Exapostilaire of the Dormition of the Mother of God (1:13)
-02. All of you who have been baptised in Christ (3:15)
-03. The Three Kings. Kings of Persia (2:38)
-04. God is with us! (2:26)(   Читать дальше...   )Жанр: Religious, ChoralПродолжительность: 00:51:05
+Билл Мюррей затевает праздничную вечеринку на своем телешоу, однако как раз в этот период в Нью-Йорке случается снежная буря, ставящая под сомнение приход гостей. Но, как часто бывает в канун Рождества, мечты сбываются...Производство: СШАЖанр: Комедия, мюзиклРежиссер: София КопполаАктеры: Билл Мюррэй, Пол Шаффер, Майкл Сера, Джордж Клуни, Майли Сайрус, Дмитрий Дмитров, Дэвид Джохансен, Рашида Джонс, Дженни Льюис, Эми ПолерПеревод: Профессиональный (двухголосый, закадровый) OzzОзвучка: Елена Каламурза и Алексей СерегинЯзык субтитров: РусскийПродолжительность: 00:56:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A90D661613945BA7146D939AC0E24E9FA816D044
+magnet:?xt=urn:btih:4B43404BB619758F8DB4EA546076C102EB7BA823
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -166,25 +206,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080745   (288267) от 07.12.2016
+###  Публикация: 963069   (290428) от 06.12.2015
 
-Сестры / Sisters (1973) BDRip [720p/H.264]
+Алексей Пахомов | Autoscope от А до Я (2015) PCRec [H.264/720p]
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+>>След.
+>>Автомобильные обуч.видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288267.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_290428.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сюжет завязан вокруг сестер — сиамских близнецов, которых разделили уже в зрелом возрасте. Они очень-очень разные, эти сестры…Производство: США / AIP & Pressman-WilliamsЖанр: Триллер, УжасыРежиссер: Брайан Де ПальмаАктеры: Марго Киддер, Дженнифер Солт, Чарльз Дёрнинг, Уильям Финли, Лайл Уилсон, Барнард Хьюз, Мэри Девенпорт, Дольф Свит, Кэти Берри, Олимпия ДукакисПеревод: Многоголосый закадровый, профессиональныйЯзык субтитров: Русский, АнглийскийПродолжительность: 01:32:21
+Видеокурс "Autoscope от А до Я" от школы автодиагностики Алексея Пахомова - это полное пошаговое руководство к замечательному мотортестеру Autoscope IVЖанр: AutoscopeПродолжительность: 9:53:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:48263BF8B4149C3EBC77EFE3641113BC5B496686
+magnet:?xt=urn:btih:A027CEF9D161F77C1F6D4207083967066F324471
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -192,28 +232,238 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263610   (288266) от 19.11.2018
+###  Публикация: 963043   (290427) от 06.12.2015
 
-Martin Tolosa - Emphasis (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
+CSoft Project StudioCS R6.0.028 [Ru]
+
+>>След.
+>>САПР/ГИС
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_290427.jpg" />
+</div>
+
+
+###  Подробнее
+
+Project StudioCS — специализированное приложение к 32 и 64 битным графическим системам AutoCAD, Autodesk Architectural Desktop, AutoCAD Architecture, Autodesk Building Systems, AutoCAD MEP, предназначенное для выполнения комплектов рабочих чертежей марок АС, АР, КЖ и КЖИ в соответствии с требованиями отечественных норм и стандартов. Все модули комплекса разработаны (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA16429D1F6310B5E2C5A6620F0A0FE33576C4BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962908   (290426) от 06.12.2015
+
+Любовь / Love  (2015) BDRip 3D [H.264/1080p] [Вертикальная анаморфная стереопара]
+
+>>След.
+>>Зарубежные Фильмы (3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_290426.jpg" />
+</div>
+
+
+###  Подробнее
+
+Любовь вне добра и зла. Любовь - это генетическая потребность. Это дар и проклятие. Любовь - это болезнь, наркотик. Это потеря и обретение себя. Любовь - это самое прекрасное и самое ужасное в нашей жизни. Любовь - это переплетение душ и соединение тел. «Любовь» - это возбуждающая сексуальная мелодрама о парне, девушке и еще одной девушке.Производство: Франция, Бельгия, Wild Bunch, Les Cinémas de la Zone, Rectangle Productions, Scope Pictures, RT FeaturesЖанр: Драма, МелодрамаРежиссер: Гаспар НоэАктеры: Аоми Муйок, Карл Глусман, Клара Кристин,  Хуан Сааведра, Бенуа Деби, Венсан Мараваль, Дебора Реви,  Стелла РочаПеревод: Многоголосый закадровый, проффессиональныйСубтитры: ОтсутствуютПродолжительность: 02:15:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32B7542A9CAD258B65B2FBA92D0A08495D38B709
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962884   (290425) от 06.12.2015
+
+Microsoft Visual Studio 2015  14.0.24720.00 Update 1 [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_290425.jpg" />
+</div>
+
+
+###  Подробнее
+
+Visual Studio – это среда разработки программного обеспечения от компании Microsoft. С помощью Visual Studio можно создавать приложения для Windows, iOS, Android и других платформ. В Visual Studio включены инструменты не только для создания desktop приложений, но и web, мобильные и облачные инструменты разработки. Имеется возможность написания кода на  языках программирования: (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47577BA159CE16BAB43386EF9FB1370454076A4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962944   (290424) от 06.12.2015
+
+VA - In the Club 2016.1 (2015) [MP3|256 кб/с]<Dance, Club, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_290424.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robin Schulz - Sugar (feat. Francesco Yates) 03:40
+02. Deorro & Chris Brown - Five More Hours (Radio Edit) 03:33
+03. Tiesto & KSHMR - Secrets (feat. Vassy)Жанр: Dance, Club, HouseПродолжительность: 05:36:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E942FBDD50BE00AA22F9F7EDF5F4E4839704538B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 922820   (290423) от 06.12.2015
+
+Grim Dawn (2013) [Ru/En] (0.3.6.5 b28) Repack R.G. Games [Early Access]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_290423.jpg" />
+</div>
+
+
+###  Подробнее
+
+Grim Dawn - мрачный рассвет нового века, где железо заменило золото в качестве валюты и обыкновенная соль приобрела такую цену, что ее перестали использовать в еде. Небольшие разрозненные анклавы оставшихся в живых существуют по всему миру, скрываясь в убежищах.Тип издания: RepackРазработчик: Crate EntertainmentЖанр: RPG (Rogue/Action), 3D, 3rd PersonЯзык озвучки: Музыкальное сопровождениеЯзык субтитров: Английский, РусскийЯзык интерфейса: Английский, Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF18048E6330D99188280785CFF0D81F3C12B50C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 963021   (290422) от 06.12.2015
+
+Ужастики / Goosebumps (2015) WEBRip [H.264/720p-LQ] [VO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_290422.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зак переезжает с родителями в провинциальный городок, где знакомится с очаровательной соседкой Ханной. Он узнает, что ее отец — Роберт Стайн, знаменитый писатель, автор популярной серии триллеров для подростков «Ужастики», у которого есть мрачная тайна. Стайн — пленник собственных историй: монстры из его произведений вполне реальны, и он пишет свои книги для того, (   Читать дальше...   )Производство: США, Австралия,  Columbia Pictures, LStar Capital, Original Film, Scholastic Entertainment, Sony Pictures Animation, Sony Pictures Entertainment (SPE), Village Roadshow PicturesЖанр: Фэнтези, Комедия, ПриключенияРежиссер: Роб ЛеттерманАктеры: Дилан Миннетт, Одейя Раш, Эми Райан, Райан Ли, Джиллиан Белл, Джек Блэк, Кен Марино, Холстон Сейдж, Стивен Крюгер, Кит А. Болден, Аманда Ланд, Тимоти С. Саймонс, Каран Сони, Р.Л. Стайн, Калеб Эмери, Габриэла Фрайле, Нэйт Андраде, Шелдон Браун, Мелисса Брюэр, Маршалл ЧокаПеревод: Одноголосый закадровый, любительский (VANO)Язык субтитров: Английский (Full)Продолжительность: 01:43:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20DC559424C62948521417DECA0820FB9C640644
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 963092   (290421) от 06.12.2015
+
+Adobe Premiere Pro CC 2015.1 (9.1.0 (174)) RePack by D!akov [Multi/Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_290421.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Premiere Pro CC 2015 - это мощный, настраиваемый редактор для нелинейного монтажа, с помощью которого можно монтировать видео именно так, как вам этого хочется. Импорт и свободное объединение любых видеозаписей, от клипа, снятого на телефон, до необработанного 5K, с последующим монтажом, для которого не требуется выполнять перекодирование.Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D95D52647EFF801AC596F27BC9747C4F4BFC85A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 963158   (290420) от 06.12.2015
+
+CSoft GeoniCS 2015 15.0.0.14 [Ru]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_290420.jpg" />
+</div>
+
+
+###  Подробнее
+
+GeoniCS - отечественная технологическая линия на платформах AutoCAD и nanoCAD для обработки данных геодезических и инженерно-геологических изысканий, создания и ведения геоинформационного ресурса территории и промобъектов, геоинженерного проектирования в области гражданского, промышленного и транспортного строительства. На основе модели объекта GeoniCS ТОПОПЛАН-ГЕНПЛАН-СЕТИ-ТРАССЫ-СЕЧЕНИЯ-ГЕОМОДЕЛЬ (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23CF6A0551AC3C5BEF3B3A9072E9F5E1C955C250
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1080345   (290419) от 06.12.2016
+
+VA - Chillout December 2016 Top 10 December Relaxing Chill Out and Lounge Music (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
 >>Electronic
->>House, Techno, Electro, Minimal (Lossless)
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288266.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_290419.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Emphasis (Original Mix)                                         [08:43]
-02. Emphasis (Torby Jay Remix)                                      [06:27]
-03. Sunbright (Original Mix)                                        [08:03]
-04. Sunbright (Julian Nates Remix)                                  [07:19](   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:38:34
+01. Alexander Gorshkov - Good Morning
+02. Leonid Bannikov - Black Princess
+03. Doors In The Sand - True Story
+04. Seven24 - Vision(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:52:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:616C43EFB23F5535AB360FBC4649D1510587DA5E
+magnet:?xt=urn:btih:B244991DC3AA92E64AE9AE4FBEA014573EBA9AC1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -221,26 +471,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080238   (288265) от 07.12.2016
+###  Публикация: 1080107   (290418) от 06.12.2016
 
-Г.М. Симаков, Ю.В. Панкрац | Цифровые устройства и микропроцессоры в автоматизированном электроприводе (2013) [PDF]
+VA - Ultimate Songs Pop Essentials (2016) [MP3|195-320 Kbps] <Hip-Hop, Ethnic, Soul, R&B, Folk, Indie>
 
->>Научная и техническая литература
->>Учебники
+>>Неофициальные сборники
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288265.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_290418.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В учебном пособии рассматриваются типовые цифровые устройства. применяемые в автоматизированном электроприводе. Излагается общий подход к синтезу дискретных элементов автоматизированного электропривода с помощью аппарата алгебры логики. Изучаются стандартные блоки цифровой автоматики: регистры, счетчики, шифраторы, дешифраторы, распределители импульсов.
-   Приводятся (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
+01. Robert Carl Blank - Fate 03:46
+02. Oj Da Juiceman - Kyle Kover 03:52
+03. Sync Diversity - Let's Dance 03:22
+04. Paper Route - Pretend 03:40(   Читать дальше...   )Жанр: Hip-Hop, Ethnic, Soul, R&B, Folk, IndieПродолжительность: 03:29:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A01BF9F2E90E2A62E9AB002F5DF29D5882528441
+magnet:?xt=urn:btih:14C597F283E7E4AF27C01E675A6839003952395A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -248,144 +500,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263579   (288264) от 19.11.2018
+###  Публикация: 1080019   (290417) от 06.12.2016
 
-Agustin Vitale - S.O.S. (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288264.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. S.O.S. (Original Mix)[08:10]
-02. S.O.S. (GSEP Remix)[09:00]
-03. S.O.S. (Gabriel Amato Remix)[07:25]
-04. Wasnt Waiting For This (Original Mix)[07:59](   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:40:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7960FCD7050B1493CBD9922EF1C777A4D0535000
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263589   (288263) от 19.11.2018
-
-Alec Araujo and Cryptic Realms - Katharsys (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288263.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Katharsys (Original Mix)                                        [08:40]
-02. Katharsys (Jackie Mayden Remix)                                 [07:40]
-03. Katharsys (NikoChristo and Synas Remix)                         [09:06]
-04. Katharsys (Ricardo Piedra Remix)                                [07:52]Жанр: Progressive HouseПродолжительность: 00:33:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB695770FB1BFE1628DCA26C7AA6602B9D42F204
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263599   (288262) от 19.11.2018
-
-Gabriel Amato - Parodi (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288262.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Parodi (Original Mix)                                           [08:41]
-02. Parodi (Spacebeat Remix)                                        [08:31]
-03. Simbal (Original Mix)                                           [08:00]
-04. Simbal (Paul Sawyer Remix)                                      [08:06](   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:40:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1264ECA5B86EDD5E9EB95BCF995F7EA7302123E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263614   (288261) от 19.11.2018
-
-Lacunae - 2 Albums (2004-2006) [FLAC|Lossless|tracks+.cue] <Trip Hop, Experimental, Illbient, Glitch, Ambient>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288261.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Your Surface (01:22)
- 02. Lifetime (03:17)
- 03. Rebuild In Black (04:25)
- 04. Follow Me Down (04:00)(   Читать дальше...   )Тип издания: CDЖанр: Trip Hop/Illbient/Experimental/GlitchПродолжительность: 00:43:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F74A3AB5010A93633FC8372298503B948E68949C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263491   (288260) от 19.11.2018
-
-Hiroshi Matsumoto & Hideo Ichikawa Quartet - Megalopolis (1969) 2006, Think! Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+John Coltrane - A Love Supreme. In Concert (1961, 1965) 1991, Suisa[APE|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288260.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_290417.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. A Sketch of City Life [15:31]
-02. Nostalgia [4:37]
-03. Megalopolis [5:56]
-04. Serenade to a Dimly Lit Street [5:10](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:39:01
+01.Part I: Acknowledgement [06:07]
+ 02.Part II: Resolution [11:54]
+ 03.Part III: Pursuance [13:05]
+ 04.Part IV: Psalm [08:15](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:51:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3967BF2EE05ECABA1BEB355E2952950403951016
+magnet:?xt=urn:btih:AE362EE8F92728EE1DA6935B4291CD5335C1B673
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -393,28 +529,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263391   (288259) от 19.11.2018
+###  Публикация: 1080402   (290416) от 06.12.2016
 
-Футбол. Лига Наций УЕФА 2018-2019. Лига B. Группа 4. 5-й тур. Уэльс — Дания (16.11.2018) HDTV [H.264/1080i-LQ]
+Thelonious Monk - Criss-Cross (1963) 1993, Columbia[FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_290416.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Hackensack [04:18]
+ 02.Tea For Two [03:53]
+ 03.Criss-Cross [04:46]
+ 04.Eronel [04:37](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 00:43:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D0A535F11B9ED5B4E8A7A71D0C96C9B9636C177
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1080331   (290415) от 06.12.2016
+
+Letter Templates for Pages 4.1 [Multi/Ru]
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288259.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_290415.jpg" />
 </div>
 
 
 ###  Подробнее
 
-16 ноября 2018 года, пятница. 22:45 МСК
-Лига Наций УЕФА 2018-2019. Групповой турнир
-Лига B. Группа 4. 5-й тур.
-Уэльс — Дания(   Читать дальше...   )Телекомпания: Матч! Футбол 3 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:45:40
+Letter Templates – это новый вид ваших документов, созданных в Pages.
+Новый взгляд ваших писем! Современный Letter Templates включает в себя 213 узнаваемых проектов, которые были адаптированы из различных шаблонов Jumsoft для Apple Mail.
+
+Как и его эквиваленты Mail, Letter Templates for Pages представляет исключительную коллекцию писем для бизнеса и личного пользования, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05 декабря 2016Разработчик: JumsoftПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Русский, Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0AC911A0F98E441459180174F2B8ACB705573F8D
+magnet:?xt=urn:btih:0749BC69BC08ABE91A3CAEDB7C5205AA6A2C8B3C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -422,27 +587,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263594   (288258) от 19.11.2018
+###  Публикация: 1080226   (290414) от 06.12.2016
 
-Eli Spiral - Sol One (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
+VA - I Know Your Love Chillout (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
 >>Electronic
->>House, Techno, Electro, Minimal (Lossless)
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288258.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_290414.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sol One (Original Mix)                                          [08:35]
-02. Sol One (Magnovis Remix)                                        [07:46]
-03. Sol One (Willscape Remix)                                       [07:44]Жанр: Progressive HouseПродолжительность: 00:24:05
+01. Aguas Pura - Massage Sleep 3:40
+02. Jay Jay & The Snakes - Walking In The Sunshine 6:08
+03. Thesan Project - Tears From Heaven 7:57
+04. Aqua Mundi - Balletic 5:34(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:09:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7B021CBD29E21C813F117358A74AAF7FED9D2BCD
+magnet:?xt=urn:btih:03882B6E21FD661DEE98446BB295C405E3046858
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -450,28 +616,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186357   (288257) от 24.11.2017
+###  Публикация: 1080246   (290413) от 06.12.2016
 
-VA - Sexy Funky House Grooves Vol. 2 (2017) [MP3|320 Kbps] <Funky, Club House>
+VA - Absolute Uplifter (Euphoric Trance) Vol. 2 (2016) [MP3|320 Kbps] <Uplifting Trance>
 
 >>Electronic
->>House
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288257.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_290413.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Crazibiza - Everybody Dance (Original Mix) 06:43
-02. Dj CrEdo - I Want, Pump! (Club Mix) 06:36
-03. Charles Feelgood - Aerobic Martini (Original Mix) 06:45
-04. Mike Newman & Antoine Cortez - All Out (Original Mix) 05:54(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 04:40:52
+01. Christian Peter Stier - Last Summer (Original Mix) 08:35
+02. Yakoff - Suspense (Advent's Rising Remix) 07:29
+03. Carpathian Paths - Burkut (Original Mix) 08:00
+04. Mark Found - Cutting The Clouds (One Million Toys Remix) 07:32(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:01:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:45C9D1E355119999C83A4AA497C8B99760C33F59
+magnet:?xt=urn:btih:96323873DC3EADAF120E3C03D0D1395BE39E20CA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -479,25 +645,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186388   (288256) от 24.11.2017
+###  Публикация: 1080255   (290412) от 06.12.2016
 
-Н. Ф. Чернышев | Капиталистическая монополия и милитаризм: истоки зловещего альянса (1987) [DJVU]
+VA - Panorama Progressive Trance (2016) [MP3|320 Kbps] <Trance, Tech Trance, Melodic, Emotional, Uplifting, Vocal, Progressive>
 
->>Разное (категория книг)
->>Публицистика
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288256.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_290412.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В книге анализируется международная деятельность крупнейших промышленных корпораций и банков, направленная на усиление военных приготовлений и политической нестабильности, милитаризацию экономики, политики и идеологии ведущих капиталистических стран. Приводятся документы, иллюстративные материалы, свидетельствующие о широком участии финансовой олигархии в выработке (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
+001. Thruggar - Silent Oneirographer (Original Mix) 6:44
+002. Spencer Tarring - Come On Now (Original Mix) 5:44
+003. Timewave - Against The Wall (Original Mix) 8:58
+004. TSE - Freedom Wings 5:52(   Читать дальше...   )Жанр: Trance, Tech Trance, Melodic, Emotional, Uplifting, Vocal, ProgressiveПродолжительность: 13:59:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E7D3E425C4787810B54C8EE27CED24F865614D7A
+magnet:?xt=urn:btih:E442495C121AC7E7ED2B0C3104CA07967ACF82DE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -505,210 +674,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186134   (288255) от 24.11.2017
+###  Публикация: 1080216   (290411) от 06.12.2016
 
-Вечерний Ургант (2017.11.23) SATRip
+VA - Flight Times Worlds Music (2016) [MP3|218~320 Kbps] <House, Electro, Hands Up, Bigroom, Funky, Club, Dance>
 
->>Документалистика и Телепередачи
->>Телешоу
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288255.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_290411.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергТелекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 00:29:56Реклама: Присутствуют вставки текстовой рекламы
+001. Richard Durand & Fisher - In Your Hands (Bastian Salbart Remix) 6:24
+002. Andrew Lias & Crew 7 feat. Paloma - Club Bizarre (feat. Paloma) (Crew 7 Mix) 4:42
+003. Orjan Nilsen - Dirty Philthy Beautiful (Original Mix) 5:50
+004. Tiesto & Matthew Koma - Wasted (Extended Mix) 4:23(   Читать дальше...   )Жанр: House, Electro, Hands Up, Bigroom, Funky, Club, DanceПродолжительность: 09:01:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:42A11F737240EC6F5F897AB0D1C8B5BA3C7A4D27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186360   (288254) от 24.11.2017
-
-Вечерний Ургант (2017.11.24) SATRip
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288254.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергТелекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 00:44:51Реклама: Присутствуют вставки текстовой рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A487E63D6852AC6528B59F49AA5E92E8CEEF975C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186087   (288253) от 24.11.2017
-
-Almanac - Kingslayer (2017) [MP3|320 Kbps] <Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Regicide
-02. Children of the Sacred Path
-03. Guilty as Charged
-04. Hail to the King(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:51:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2C1D472152F8313890D1DB6CA54BB88075F1F3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186214   (288252) от 24.11.2017
-
-Импровизация / Камеди Клаб / Комеди Клаб / Comedy Club (2017.11.21) HDTV [H.264/1080i] (сезон 3, выпуск 21)
-
->>Архив торрентов
->>Архив Юмора
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288252.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Импровизация» — это новое непредсказуемое комедийное шоу от Comedy Club Production. В нём нет сценария и всё, происходящее на сцене, придумывается участниками на ходу. Под управлением ведущего Павла Воли четыре комика и один звездный гость оказываются в самых странных ситуациях — и выбираются из них с юмором. Прежде, чем попасть на экран, четыре участника «Импровизации» (   Читать дальше...   )Телекомпания: ТНТ HDЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: ~ 00:47:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5743F6A02CBEA66412969A2F3093575760143498
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186216   (288251) от 24.11.2017
-
-Студия Союз (2017.11.23) WEB-DL [H.264/720p-LQ] (выпуск 16: Дайджест)
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288251.jpg" />
-</div>
-
-
-###  Подробнее
-
-Участники шоу «Студия СОЮЗ» будут меряться музыкальностью, чтобы сделать зрителю очень смешно. По задумке сценаристов, на шоу работают постоянные ведущие, а также регулярно приглашаются другие звезды ТНТ. Их задача: обсудить и максимально удачно высмеять популярную в данный момент песню. На обсуждение выносится все до мелочей: текст, музыка, манера исполнения и другие (   Читать дальше...   )Телекомпания: ТНТЖанр: ТВ-шоу, юмор, импровизацияСубтитры: ОтсутствуютПродолжительность: ~ 00:46:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCC4656B4BC5388048630E79BCBB938659B09AAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186130   (288250) от 24.11.2017
-
-Однажды в России (2017.11.22) WEB-DL [H.264/720p-LQ] (сезон 6, выпуск 13: Дайджест)
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288250.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шоу «Однажды в России», как и многие проекты ТНТ, имеет оригинальный формат. Это будет «реальный театр». То есть заранее написанный сценарий герой шоу «Однажды в России» постарается воплотить в повседневной жизни. А это совсем не так просто, как может показаться сначала, но зато очень смешно. Передача построена на чередовании скетчей. Создатели «Однажды в России» (   Читать дальше...   )Производство: РоссияТелекомпания: ТНТЖанр: Юмористическое тв-шоуСубтитры: ОтсутствуютПродолжительность: 00:43:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9DB4CBA66423E36ADB3647016BD1C77411306D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186100   (288249) от 24.11.2017
-
-Компаньон / El acompanante (2015) WEB-DLRip [MVO] [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288249.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1987 году в Гаване боксер-тяжеловес Горацио Ромеро подвергается принудительной госпитализации со стороны анти-допингового комитета, ведь его анализ оказался положительным. Он отправляется в военный госпиталь, где знакомится с парнем Даниелем, который болен ВИЧ. Вместе они пытаются достичь поставленных целей: Даниель хочет прожить последние дни на свободе, а Горацио (   Читать дальше...   )Производство: Панама, Франция, Колумбия, Венесуэла, Куба / Areté Audiovisual, Igolai ProduccionesЖанр: ДрамаРежиссер: Павел ЖироАктеры: Camila Arteche, Армандо Мигель Гомес, Broselianda Hernández, Ётуэль Ромеро, Джазз ВилаПеревод: Многоголосый закадровый (Синема УС)Субтитры: Английские (неотключаемые)Продолжительность: 01:45:03Реклама: присутствуют аудио и видео вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD2699EA606809DDDDDC178411319F7EB56EB287
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186434   (288248) от 24.11.2017
-
-Норман Дж. Липперт | Руины Камелота (2017) [FB2, EPUB]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288248.jpg" />
-</div>
-
-
-###  Подробнее
-
-В то время как королевство Камелот купается в самодовольстве, амбициозный безумный садист известный как Меродах продвигается со своей армией отъявленных негодяев, набирая новых людей под страхом смерти и угрожая восстанием. Восемнадцатилетняя принцесса Габриэлла является единственной, кто понимает всю серьезность приближающейся опасности, но она не в силах убедить (   Читать дальше...   )Жанр: ФэнтезиФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:917EF8BE690AB541344C30A29BB86693469C92D2
+magnet:?xt=urn:btih:3AA4BB24708463AE7C3BE07047821CF6932A1F96
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1763842   (35325) от 03.12.2024
+
+VA - Workout, Beast Mode, Aggressive 2 (2024) [MP3|320 Kbps] <Rock, Hard Rock, Other>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_35325.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Sabbath - Paranoid (2:47)
+02. Foo Fighters - Monkey Wrench (3:51)
+03. Linkin Park - One Step Closer (2:37)
+04. Mötley Crüe - Kickstart My Heart (4:44)(   Читать дальше...   )Жанр: Rock, Hard Rock, OtherПродолжительность: 05:33:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E89FE96F766E5F469FEB7D853C93DD7773F6D1B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1763939   (35219) от 04.12.2024
 
 Avril Lavigne - Compilation (2002-2023) [MP3|320 Kbps] <Pop punk, Alternative, Pop rock, Post grunge>
@@ -716,35 +745,6 @@ VA - Music For You vol.29 (2025) [MP3|320 Kbps] <Metal, Rock, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0063E560117F43BE025674A86B303EF7DA4A0F0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780505   (27195) от 18.02.2025
-
-VA - Music For You vol.30 (2025) [MP3|320 Kbps] <Metal, Rock, Other>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yngwie Malmsteen - Black Star (04:51)
- 02. Genesis - Dancing With The Moonlit Knight (08:03)
- 03. Dream Theater - Octavarium (24:00)
- 04. Pink Floyd - Sheep  (10:29)(   Читать дальше...   )Жанр: Metal, Rock, OtherПродолжительность: 04:07:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07162D7BE0C1F068EEE364AA1D6139AB76BFB5D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,116 @@
+###  Публикация: 1008894   (811788) от 20.04.2016
+
+Oliver Schories - Fields Without Fences (2015) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House,>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811788.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Undisguised (6:21)
+02. Copilot (6:49)
+03. Brizzle (8:09)
+04. Fields Without Fences (6:40)(   Читать дальше...   )Жанр: Tech House, Deep House,Продолжительность: 01:18:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DCCFD1F5B5DD7D156632F8B0090C3D1004CB62A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1383694   (809969) от 16.05.2020
+
+Tiesto - The London Sessions (2020) [FLAC|Lossless|WEB-DL|tracks] <Future House, House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_809969.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. God Is A Dancer (feat. Mabel) (2:48)
+02. Nothing Really Matters (feat. Becky Hill) (2:37)
+03. Ride (feat. The Kid Daytona & Roe) (3:23)
+04. Ritual (feat. Jonas Blue & RITA ORA) (3:19)(   Читать дальше...   )Жанр: Future House, House, DanceПродолжительность: 00:42:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9F0AD56CBAE755982F8FAEC07E77AF0EB180495
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009503   (807576) от 22.04.2016
+
+Boris Brejcha - 22 (2016) [FLAC|Lossless|WEB-DL|tracks] <Techno, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_807576.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It Start's (07:59)
+ 02. Moondancer (08:29)
+ 03. Schattenmonch (06:57)
+ 04. White Rainbow (08:14)(   Читать дальше...   )Жанр: Techno, MinimalПродолжительность: 02:56:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D37EEBB41C4B909CB2DA31CBE27016DBEAAC053C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 658290   (807279) от 19.05.2013
+
+Scooter - Age Of Love (20 Years Of Hardcore Expanded Edition) (2013) [3CD|FLAC|Lossless] <Techno, Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_807279.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Techno, TranceПродолжительность: 02:33:42
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1198582   (806378) от 12.01.2018
 
 Floog - Ambele EP (2018) [FLAC|Lossless|Vinyl|tracks] <Techno, Tech House, Minimal>
@@ -626,122 +739,6 @@ Lisa Shaw - Cherry (2005) [FLAC|Lossless|tracks + .cue] <Deep House, Broken Beat
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D0362843C2D2B21DC138960F4FD96943D77AE20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385448   (797801) от 24.05.2020
-
-VA - Miguel Migs – Nude Tempo One (2002) [FLAC|Lossless|tracks + .cue] <Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797801.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Hajime Yoshizawa - Endless Bow (Jimpster Remix).flac
-02.Onda - Happiness Is Free.flac
-03.Blue Six - Love Yourself (Vincenzo & Basti Remix).flac
-04.Fusion Groove Orchestra - The Dream (Deep Dreamer Dub).flac(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:11:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D471CFDA7C5E52E8CD4A9E5AA44308BCC1E1CFD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199372   (797530) от 18.01.2018
-
-VA - Vip Room Saint-Tropez Famous Club - 20th Anniversary (2009)( mixed by Jean-Roch) [FLAC|Lossless|tracks] <House, Dance-pop, Electro House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797530.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Run-DMC Vs Jason Nevins - It'S Like That
-02.Black Legend - You See The Trouble With Me
-03.Joe Smooth - Promised Land
-04.Moloko - Sing It Back(   Читать дальше...   )Жанр: House, Dance-pop, Electro HouseПродолжительность: 02:25:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92263B7392E28218E602A86F09BC32BCC74916D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199773   (797499) от 18.01.2018
-
-VA - Back To The Future, Vol. 6 (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797499.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sasse - On My Mind (Metrica Remix) (05:32)
-02. Benny Grauer - Falling (Markus Homm Remix) (07:18)
-03. Frankey, Sandrino - Cephei (Locked Groove Remix) (09:13)
-04. Ben La Desh - 2912 (Original Mix) (07:28)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 02:28:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4EC2D2E634A739539FF1BB439CE73E9956A781C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385731   (797277) от 25.05.2020
-
-VA - SPECTRO-017 (2020) Specimen Records [FLAC|Lossless|WEB-DL|tracks] <Electro>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arsonist Recorder - React (06:22)
- 02. Sound Synthesis - 60 Minute Bleeps (05:36)
- 03. Francois Dillinger - Humans Among Us (05:30)
- 04. Datawave - Genotype 1 (04:04)Жанр: ElectroПродолжительность: 00:21:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A0E7803E3E4BD4F8B126DEA52807F83F9CAAFB9
 ```
 
 https://mybot314.ru/tekegram_catalog/

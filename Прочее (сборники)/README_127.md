@@ -1,3 +1,209 @@
+###  Публикация: 578400   (350595) от 22.11.2012
+
+VA - Русские новинки Ноябрь  (2012) [MP3|320 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_350595.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Катя Чехова - Wings
+02. DJ Цветкоff & Mayo - Пусть Будет Так (Amen) (Club Mix)
+03. Лион feat. Юлия Nelson - Этот Путь
+04. Баста - Мама
+05. Guf - Письмо Домой
+06. Достучаться До Небес - Все Это Временно
+07. Бумбокс feat. Рianoбой & ТНМ Конго - Для Тебя
+08. Найк Борзов и Линда - Далеко
+09. Нервы - Нарушим
+10. Мачете - Пока Всё ТакЖанр: PopПродолжительность: 03:25:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9EBFDFD98530C7A973F0E860D97DE1790C2F617
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179055   (350516) от 30.10.2017
+
+VA - Kiss FM Top 40: Октябрь (2017) [MP3|320 Kbps] <House, Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_350516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Netsky & Lost Frequencies - Here With You 3:39
+02.  Probass & Hardi - Indy 3:30
+03.  ZHU & Nero - Dreams 4:28
+04.  CamelPhat & Elderbrook - Cola 6:53(   Читать дальше...   )Жанр: House, Pop, DanceПродолжительность: 02:26:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C1D42E8566E87D4F35CBA5BFA2D2563A834D9C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1417970   (350496) от 23.10.2020
+
+VA - Music News vol.42 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_350496.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Angelita - Karma (02:51)
+ 002. 5sta Family - Эгоистка (03:04)
+ 003. 36 Crazyfists - Installing the Catheter (03:51)
+ 004. A.T feat. OKIAN - По Губам Дождь (02:50)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 12:29:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96FA48F5D5F416F35936BC5F7F2291C72303946C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329760   (350152) от 06.10.2019
+
+VA - не Громкие новинки недели 37 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_350152.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.5sta Family - Завязала (3:41)
+2.Adeli - Пока (3:09)
+3.AquaBlue feat. MARO - Манерная (3:15)
+4.Bahh Tee - Моей Последней Бывшей (3:14)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:50:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3B84F835D36208213302673FFBBC7B826AAF26F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256829   (349752) от 24.10.2018
+
+VA - Top 50 Зайцев FM: Октябрь 2018 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_349752.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. AJR - Burn The House Down 3:32
+02. Alan Walker feat. Tomine Harket & Au/Ra - Darkside 3:31
+03. Alvaro Soler - La Cintura 3:25
+04. Anivar - Лето 2:29(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:44:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D140AAAFEE7DC62219A84D35C4CC4933D31E9E31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256942   (349392) от 24.10.2018
+
+Ice Mc - Think About The Way (2018) Remix [MP3|320 Kbps] <Club, Dance, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_349392.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ice Mc - Think About The Way ★ DJ SAVIN Remix ★ Radio VersionЖанр: Club, Dance, HouseПродолжительность: 00:03:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E90EBCCF850927CD8653D0144A33C12669237710
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953458   (349316) от 04.11.2015
+
+VA - The Best Of Techno [Compiled by Zebyte] (2015) [MP3|320 кб/с]<Techno>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_349316.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gene Farris - Dreams [06:58]
+02. Madvim - Six Minutes (Dousk's 7 Minute Mix) [07:23]
+03. Rod B Vs Simple Jack & Erick S. - Wanted [07:10]
+04. Citizen Kain & Phuture Traxx - Fuck Friends [06:30](   Читать дальше...   )Жанр: TechnoПродолжительность: 04:41:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7723CF6B4F04A2940A095C2FC29393D8F7CFB1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 953363   (349310) от 04.11.2015
 
 VA - Jazz Longe And Relax Piano (2015) [MP3|320 кб/с]<Jazz Longe, Relax, Instrumental>
@@ -551,227 +757,6 @@ VA - Зайцев.нет Лучшие новинки Октября (2020) [MP3|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA1C36F84642368A70E18162DB37D04488AC46F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179921   (343994) от 02.11.2017
-
-VA - Новинки С Разных Популярных MP3 Сайтов Vol.66 (2017) [MP3|320 Kbps] <Pop, House, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343994.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Bahh Tee & Зомб - Ядовитая 3:52
-002.  ВИА Гра - Моё сердце занято 3:17
-003.  Alan Walker & Noah Cyrus vs. James Arthur feat. Digital Farm Animals - All Falls Down 3:19
-004.  CamelPhat & Elderbrook - Coca Cola (Sasha Semenov Remix) 3:24(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 07:00:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42BF28043CEC18872EE51226C0112D5FDA16E181
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 580787   (343759) от 25.11.2012
-
-VA - Afro Beat The Trilogy Vol.1-3 (2012) [MP3|320 кб/с]<Downtempo, Chillout, Broken Beat>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343759.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Diasu Kivu - Cassava Republique (4:10)
-2. Chyulus - Many (3:45)
-3. Baako Chipo - Nairobi Banquet (4:13)
-4. Stilt Walker - Tick Tock (4:05)
-5. Emeka - King Vulture (3:23)
-6. DJ Kisonko - Selenkay (4:08)
-7. Jackson Mereesi - Village People (4:36)
-8. Ime Kato - Free Hands (3:00)
-9. Bohos - Dominator (3:18)
-10. Titus Saruni - Amboseli Porini (4:23)(   Читать дальше...   )1. Eugene Blues All Time Heroes - Funkin Groove (3:39)
-2. Kalu Brothers - Gazelle (3:48)
-3. Dynamic Sound - Honey Sweet (4:22)
-4. Captain Agu - Sunset Rumble (4:32)
-5. Afro Generation - Rolling Time (4:36)
-6. Emeka Cisse - Mystery (4:39)
-7. DJ Bayo - Voices Of The Past (4:49)
-8. Kalu Brothers - Feelin Free (5:00)
-9. Timescales - Rhythm Flow (5:15)
-10. New Ondo Sound System - Stormy Weather (5:18)(   Читать дальше...   )Жанр: Downtempo, Chillout, Broken BeatПродолжительность: 03:01:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0762572ACF1A736DEAB58A97234BB7239181C0D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 580386   (343631) от 25.11.2012
-
-VA - East By Ping. Restaurant Lounge & Deep Bar (2012) [MP3|320 кб/с]<Lounge, Chillout, Deep House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343631.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Lounge, Chillout, Deep HouseПродолжительность: 04:44:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B18D44B40243DDDFE83ABCD0D6FAEF73C7CAD47F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 580122   (343510) от 25.11.2012
-
-VA - Guitar Chill Ibiza (2012) [MP3|320 кб/с]<Chillout, Lounge, Guitar>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343510.jpg" />
-</div>
-
-
-###  Подробнее
-
-(5:26) 01. Almadrava - Two Friends
-(4:29) 02. Alma Chillout - Mediterranean Sun Dance
-(3:43) 03. Lavelvet - Le dernier Paris
-(3:32) 04. Pedro Javier Gonzalez - Casas de la Juderia
-(3:30) 05. Copy & Paste - Cafe Dali
-(5:13) 06. Carlos Gallardo & Duende - Aire y Olas
-(3:50) 07. Dali's Eyes - Eu Penso en Voce
-(5:58) 08. Gabi Newman - Try to Remember (feat. Nikol)
-(4:26) 09. Juan Belmonte - Ibiza Sunset
-(4:01) 10. Kisskat- Country Waltz(   Читать дальше...   )Жанр: Chillout, Lounge, GuitarПродолжительность: 02:04:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:830DFA029B8D935819BD96614887259708181E64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257668   (343129) от 27.10.2018
-
-VA - ЕвроХит Топ 40 Europa Plus 26.10.2018 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Imagine Dragons - Natural 3:09
-02. Dynoro & Gigi D'Agostino - In My Mind 3:05
-03. The Chainsmokers feat. Emily Warren - Side Effects 2:57
-04. Clean Bandit feat. Demi Lovato - Solo 3:41(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:13:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CE27B3E26151386904A147675113F5349D7A282
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578693   (342994) от 24.09.2022
-
-VA - ЕвроХит Топ 40 Europa Plus 23.09.2022 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Klangkarussell - Home (3:45)
-02. Cassette - Tell me why (3:07)
-03. Sofia Reyes feat. Jason Derulo & De La Ghetto - 1, 2, 3 (3:21)
-04. Maneskin - Supermodel (3:05)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:05:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EC0BE4EDA9ABF642D80DE1AACF7835CC265FE20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330131   (342841) от 09.10.2019
-
-VA - Качай и слушай Vol 3 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342841.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Alessia Cara - What's On Your Mind? (3:13)
-2.Camila Cabello - Liar (3:27)
-3.Camila Cabello - Shameless (3:39)
-4.Charli XCX - White Mercedes (3:23)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:44:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C34E6E408D859988AD4B0865A9141A09A3C156E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

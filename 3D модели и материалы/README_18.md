@@ -1,3 +1,85 @@
+###  Публикация: 1048810   (545275) от 03.09.2016
+
+3D модели - Evermotion - Archmodels Vol. 155 [V-Ray|*.max]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_545275.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередной сборник 3d моделей от Evermotion!
+
+В данный сборник вошли 40 комплектов декораций.Формат: V-Ray|*.max
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E40EE117F3C31A1900F2FC74007C239982A55D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1310921   (543336) от 28.06.2019
+
+3D модели - Daz 3D - Elios 8 Pro Bundle - 61465 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_543336.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплект Elios 8 для DAZ 3D из категории People.
+Для Genesis 8Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C3F81BD993264EEFAB20CABCFD68F598DEBAE8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1311050   (543263) от 28.06.2019
+
+3D модели - Daz 3D - Ellithia 8 Pro Bundle - 61753 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_543263.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплект Ellithia 8 для DAZ 3D из категории People.
+Для Genesis 8Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5E882A588EC67077E559E6CD244E2159B5E762B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1239601   (536553) от 06.08.2018
 
 3D модели - Daz 3D - Сборник 3D моделей #18 [DUF]
@@ -601,87 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5645F4E05C07AA859069CFF183E072E5DD068FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241450   (520041) от 17.08.2018
-
-3D модели - Cubebrush - Audi A8 2019 [MAX, 3DS, FBX, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520041.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки AudiФормат: MAX, 3DS, FBX, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D7ABB542C85E62EBC24BF4840AD8F5A41E38627
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314384   (518956) от 14.07.2019
-
-3D модели - Daz 3D - Teen Jane 8 Pro Bundle - 62093 [DUF]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518956.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комплект Teen Jane 8 для DAZ 3D из категории People.
-Для Genesis 8Формат: DUF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:555B8344A9A15B49856C939B722237E1101EE96B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237898   (518903) от 18.08.2018
-
-3D модели - 3ddd - Free models pack 2018 (Update) [Corona|V-Ray|*.max, FBX, OBJ]
-
->>След.
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518903.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник моделей с сайта 3ddd/3dsky
-Данный же сборник содержит большое количество самых разнообразных моделей со статусом FREE.
-Количество моделей: 1006Формат: Corona|V-Ray|*.max, FBX, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:649E5EC84AD8FB291C104197EDD25C2A4A0FE95B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,206 @@
+###  Публикация: 1333278   (298850) от 27.10.2019
+
+СашаЧ - СашаЧ (1999) MDM Studio [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_298850.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ты Сегодня Не Придешь
+02. Танцует Лето
+03. Белый Кораблик
+04. Музыка Дождя(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC65A93A281C49D1E4064D87C79EB070D5889BB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262024   (298757) от 13.11.2018
+
+Pia Mora - ... Perchè no?... (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Jazz>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_298757.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Perchè no
+02. Insieme
+03. Anche per te
+04. Io e te da soli(   Читать дальше...   )Жанр: Pop, JazzПродолжительность: 01:01:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90B08D938AC93360EB60C51CF4270BE193C5E4F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261892   (298753) от 13.11.2018
+
+VA - Disco Heaven (2018) [MP3|320 Kbps] <Disco, Nu Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_298753.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Discotron - Disco Gettin' Jacked (Original Mix) (6:14)
+02. Audio Jacker - You Say (Original Mix) (6:17)
+03. Disko Junkie - Destiny (Original Mix) (5:26)
+04. Discotron - Disco Power (Original Mix) (4:49)(   Читать дальше...   )Жанр: Disco, Nu DiscoПродолжительность: 01:13:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31401E6E10B4B83CEF4F2445E3E93024CB9573DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261900   (298749) от 13.11.2018
+
+People's Choice - We Got The Rhythm (1976) LP [MP3|320 Kbps] <Disco, Funk>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_298749.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Here We Go Again (4:56)
+02. Jam, Jam, Jam (All Night Long) (3:38)
+03. We Got The Rhythm (3:31)
+04. Cold Blooded & Down-Right-Funky (4:19)(   Читать дальше...   )Жанр: Disco, FunkПродолжительность: 00:33:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C14EBCB8AF0E800C29DE73EF3203707780E5CE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334109   (298744) от 27.10.2019
+
+Горячие Головы - Джентльмены удачи (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_298744.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Далеко ли до Таллинна! (3:00)
+02. А я люблю тебя (3:16)
+03. Тоска (3:49)
+04. Горячие головы (3:19)(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C16654DB449AAF862D3D6AAAC06872ABB7422308
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334008   (298738) от 27.10.2019
+
+Надежда Бабкина - 7 Альбомов (1994 - 2007) [FLAC|Lossless|tracks + .cue]<Pop, Folk>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_298738.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Старый клён ( Н. Бабкина и Е. Шифрин )
+02. На горе колхоз ( Н. Бабкина и С. Павлиашвили )
+03. Ах вы, кони мои вороные ( Н. Бабкина и Н. Басков )
+04. По диким степям Забайкалья ( Н. Бабкина и А. Буйнов )(   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 07:05:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:488A3E9A1F2B7C70FC1F19902FB4C694AA338B39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262100   (298591) от 13.11.2018
+
+Tanita Tikaram - Tanita Tikaram (Acoustic) (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop. Acoustic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_298591.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – My Love (Acoustic)
+02 – Valentine Heart (Acoustic)
+03 – Wonderful Shadow (Acoustic)
+04 – Only the Ones We Love (Acoustic)(   Читать дальше...   )Жанр: Pop. AcousticПродолжительность: 00:31:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D5C48BCC71F83DE8868B69AEEB456FA7480E905
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1262036   (298589) от 13.11.2018
 
 VA - Disco 80's Rare & Special Versions Vol. 1-2 (2016) 2CD, Compilation [MP3|320 Kbps] <Euro-Disco, Italo-Disco, Eurodance>
@@ -539,209 +742,6 @@ Kim Wilde - Discography (14 Albums) (1981 - 2006) [APE | FLAC|lossless]<Pop, New
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079413   (295980) от 03.12.2016
-
-VA - New Italo Disco Top 25 Compilation Vol.3 (2016) [MP3|320 Kbps] <Hi-NRG, Italo Disco, Post-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295980.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roby - It's My Life (Short Bacardi Mix) 7:08
-02. Limelight - Falling in Love (Radio Beach Club Remix) 4:38
-03. Brad Lake - Run in the Night (Radio Mix) 4:19
-04. Momento - Hold Me in the Night (Radio Blast) 4:47(   Читать дальше...   )Жанр: Hi-NRG, Italo Disco, Post-DiscoПродолжительность: 01:55:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0EAAD1D5B65267C8575F1E1CB92587D41D67030
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423993   (295917) от 15.11.2020
-
-Salsa Orchestra - Dazzlin Disco (1979) LP [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295917.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nice 'N' Naasty  (4:31)
-02. Tangerine  (4:32)
-03. Quiet Village  (2:59)
-04. Salsal Rainbow  (3:41)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:35:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63EE6C5CE7B5163C16D51FBFC9CE7470ECD0BFE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423380   (295798) от 15.11.2020
-
-VA - Hotel Lobby Instrumental Greatest Hits (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Instrumental>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Countdown Singers - My Heart Will Go On (4:37)
-02. Graham BLVD - No Scrubs (3:24)
-03. Stockholm Honey - Mamma mia (3:07)
-04. Blue Suede Daddys - Be-Bop-a-Lula (2:39)(   Читать дальше...   )Жанр: Pop, InstrumentalПродолжительность: 02:58:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BF46BC3F34D639227710F97D153B27A472FF9D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423479   (295795) от 15.11.2020
-
-VA - Elevator Music: Greatest Hits Instrumental (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Instrumental>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Countdown Singers - La Isla Bonita (4:01)
-02. Sweet Soul Express - When a Man Loves a Woman (2:28)
-03. Graham BLVD - The Sound of Silence (2:31)
-04. The Honey Sweets - Da Doo Ron Ron (2:20)(   Читать дальше...   )Жанр: Pop, InstrumentalПродолжительность: 02:30:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:753097C613E9A5BF32289E133E0782F7CDCA9F38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424022   (295794) от 15.11.2020
-
-Надежда Крыгина - Москва златоглавая (2007) [FLAC|Lossless|tracks + .cue]<Эстрада, Фолк, Ретро>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Москва златоглавая
-02. Ах, Самара - городок
-03. На горе колхоз
-04. Называют меня некрасивою(   Читать дальше...   )Жанр: Эстрада, Фолк, РетроПродолжительность: 01:14:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E7CD3768E99F795BC1D29FB20AB5DB49C6F676A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423271   (295791) от 15.11.2020
-
-VA - Coffee Shop Instrumental Greatest Hits (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Instrumental>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295791.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Countdown Singers - Piu bella cosa (4:22)
-02. Stockholm Honey - Fernando (3:47)
-03. CDM Project - Mambo Italiano (2:48)
-04. Stockholm Honey - S.O.S (3:18)(   Читать дальше...   )Жанр: Pop, InstrumentalПродолжительность: 02:38:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D196111CE9FB557FEF667FE60A1A46A02067301
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424021   (295687) от 15.11.2020
-
-Supermax  - World Of Today (1977) Reissue, 1987, Atlantic [FLAC|Lossless|tracks + .cue]<Electronic, Pop, Funk, Reggae>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295687.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. World Of Today 4:21
-2. Lovemachine 8:37
-3. Reality 5:12
-4. Musicexpress 3:42(   Читать дальше...   )Жанр: Electronic, Pop, Funk, ReggaeПродолжительность: 00:35:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7058093D7C87BCF119F673AA253B433D6E157D5E
 ```
 
 https://mybot314.ru/tekegram_catalog/

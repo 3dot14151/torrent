@@ -1,3 +1,32 @@
+###  Публикация: 1413828   (407266) от 05.10.2020
+
+Trilogy - Here It Is (1980) Reissue CD, 2009, MALS [MP3|320 Kbps] <Electronic, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_407266.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Venice  (4:34)
+02. Breakthrough  (6:07)
+03. Changing Scene  (9:22)
+04. Andy  (6:12)(   Читать дальше...   )Жанр: Electronic, Progressive RockПродолжительность: 00:45:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8723FF8AD72AEBCD7D833DBEA9CB5D1FEC3ED161
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 563337   (404447) от 21.10.2012
 
 VA - 100 Hits. Driving Rock 5 СD (2012) [MP3|320 кб/с]<Rock>
@@ -753,37 +782,6 @@ VA - Wish You Were Here (2017) [MP3|320 Kbps] <Rock, Progressive & Art-Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E47A514F492EDF1A91588BAAA37B4F81B5687D6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 571886   (388187) от 07.11.2012
-
-Larry And His Flask  - Hobo's Lament(EP)(2012) [MP3|320 kbps] <Folk Rock, Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388187.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.closed doors (02:34)
-02.big ride (03:38)
-03.my name is cancer (02:14)
-04.hobo's lament (04:20)
-05.swing (03:01)
-06.so long(03:30)Жанр: Folk Rock, AlternativeПродолжительность: 00:19:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7C4D0CA87C929694AEC8247E01C65C27806CC7A
 ```
 
 https://mybot314.ru/tekegram_catalog/

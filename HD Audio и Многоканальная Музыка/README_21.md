@@ -1,3 +1,183 @@
+###  Публикация: 1290013   (678339) от 20.03.2019
+
+Randy Travis - Storms Of Life (1986) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Folk, Country>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678339.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side 1:
+01. On The Other Hand
+02. The Storms Of Life
+03. My Heart Cracked (But It Did Not Break)(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:32:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8457D54F402AB5069967B61CB5491C65CA0B88C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290535   (678337) от 20.03.2019
+
+Boots Randolph - The Greatest Hits Of Boots Randolph (1974) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Jazz, Big Band, Funk>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678337.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Yakety Sax
+A2 Smoke Gets In Your Eyes
+A3 Gentle On My Mind
+A4 Stardust(   Читать дальше...   )Жанр: Jazz, Big Band, FunkПродолжительность: 00:37:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D35B1332D75F523105AD336B92C50E85600B9C76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289309   (678233) от 20.03.2019
+
+N'Sync - Star Collection (2000) [FLAC 2.0|48/24|image+.cue|MC-Rip] <RnB, Synth-pop, Hip Hop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678233.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. Bye Bye Bye
+02. Here We Go
+03. Crazy For You(   Читать дальше...   )Жанр: RnB, Synth-pop, Hip HopПродолжительность: 01:11:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:057AA7BA1444A9D075D2CE7CA0B8301ED5C5D489
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 797168   (677622) от 18.06.2014
+
+Stevie Wonder - Солнце моей жизни (1988) [FLAC 2.0 24/192|traks(Vinil-Rip)]<Jazz-Funk, Soul, Funk>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_677622.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. Место под солнцем (A Place In The Sun)  2:50
+2. Я не понимаю (I'm Wondering)  2:54
+3. Я был создан, чтобы любить её (I Was Made To Love Her)  2:36
+4. Моя дорогая возлюбленная (My Cherie Amour)  2:52
+5. Не знаю, почему я тебя люблю (Don't Know Why I Love You)  2:46
+6. Мои сны никогда не сбываются (Never Had A Dream Come True)  3:12
+Сторона 2
+1. Я - твой (Signed, Sealed, Delivered I'm Yours)  2:40
+2. Я никогда не думал, что ты уйдешь летом (Never Dreamed You'd Leave In Summer)  2:54(   Читать дальше...   )Жанр: Jazz-Funk, Soul, FunkПродолжительность: 00:35:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E2E6334FBB479D2081A94AE7C7ACCE071F762F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 797480   (677546) от 18.06.2014
+
+Electric Light Orchestra - A New World Record (1976)  [FLAC 2.0 24/192|image (Vinyl-Rip)]<Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_677546.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Tightrope (5:05)
+A2. Telephone Line (4:39)
+A3. Rockaria! (3:12)
+A4. Mission(A World Record) (4:26)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:36:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA838D758940C33A349AA194B3023C52A9E5973E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136158   (676600) от 21.05.2017
+
+Михаил Круг - Жиган-лимон (1995) 2014 (remastered) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Шансон>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_676600.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Электричка
+A2. Девочка-пай
+A3. Кольщик
+A4. Фраер(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:48:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C354E53981B27B79F50C89DC76B467A7461E3FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1536181   (676576) от 11.03.2022
 
 Paul McCartney - Pipes Of Peace (1983) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Soft Rock, Pop Rock>
@@ -575,177 +755,6 @@ KISS - I Was Made For Lovin' You (1979) Single [FLAC 2.0|96/24|tracks|Vinyl-Rip]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4262D28043174089C8BAF420107D31F23E73D08D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 341585   (661155) от 25.05.2011
-
-ForSenses II - Timber Lounge... (2011) [DTS-ES  6.1 44.1/24|*.bin+*.cue (Blu-ray)] <Lounge, Relax>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_661155.jpg" />
-</div>
-
-
-###  Подробнее
-
-1  OpeningЖанр: RelaxПродолжительность: 01:01:49
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139527   (659994) от 02.06.2017
-
-Genesis - We Can't Dance (1991) 2LP [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659994.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. No Son Of Mine (6:40)
-A2. Jesus He Knows Me (4:16)
-A3. Driving The Last Spike (10:10)
-B1. I Can't Dance (4:01)(   Читать дальше...   )Производство: Virgin Records - GEN LP3Жанр: Progressive RockПродолжительность: 01:11:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15B139C8604B69CE3CE80DEBDEFD65D86DC6BE4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 342078   (659069) от 27.05.2011
-
-BluScenes: Gallery Moderna (2010) [DTS-ES 6.1 44.1/24|image+.cue (Blu-ray)] <Lounge, Relax>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_659069.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Scene 01  17:30
-02.  Scene 02  14:59
-03.  Scene 03  15:01
-04.  Scene 04  15:00(   Читать дальше...   )Жанр: RelaxПродолжительность: 01:02:32
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903609   (657863) от 31.05.2015
-
-Зоопарк - Белая Полоса (1984) /1988, Мелодия/ [FLAC 2.0 24/96|image (Vinyl-Rip)]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657863.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Буги-Вуги Каждый День (2:21)
-A2. Белая Полоса (2:52)
-A3. Песня Простого Человека (2:45)
-A4. Когда Я Знал Тебя Совсем Другой (2:36)(   Читать дальше...   )Производство: МелодияЖанр: RockПродолжительность: 00:36:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:725EDD029D27E6E94E374D7E78A1D94FA65E9932
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139948   (657803) от 04.06.2017
-
-Opus - Live Is Life (1984) [WavPack 2.0|192/24|image + .cue|Vinyl-Rip] <Pop, Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657803.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Opuspocus (03:45)
-02. Positive (04:28)
-03. No Job (03:19)
-04. The Opusition (03:53)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:50:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0720118287D941012CCD4F6C930099B66F4C1C33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140078   (657799) от 04.06.2017
-
-Aphex Twin - London 03.06.17 (2017) Warp Records [FLAC|48/24|Lossless|tracks] <IDM, Techno, Experimental>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Untitled (04:41)
- 02. Untitled (03:47)
- 03. Untitled (03:44)
- 04. Untitled (04:01)(   Читать дальше...   )Жанр: IDM, Techno, ExperimentalПродолжительность: 00:32:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13CC4366AA3FAE3DEDC2495DB02AAB0255467659
 ```
 
 https://mybot314.ru/tekegram_catalog/

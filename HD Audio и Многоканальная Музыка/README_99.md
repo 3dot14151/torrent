@@ -1,3 +1,177 @@
+###  Публикация: 1702950   (115309) от 27.02.2024
+
+Wojtek Stanisz Quartet - Szuflandia (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115309.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Szuflandia (7:09)
+02. Matthew (9:36)
+03. Intro to Requiem (3:44)
+04. Requiem for Unknown (9:12)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 01:04:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3208D82CC320051C9F3AE24E0DA3174F0D9AF60F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702952   (115302) от 27.02.2024
+
+Kevin & JD - Blues Train (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115302.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cold Steel Rail (4:23)
+02. Rather Have The Blues (4:01)
+03. What's Mine Is Mine (3:51)
+04. Days Months Years (5:48)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:30:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F67E6024782A812F2ABD72C238330B15CB17B2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702946   (115300) от 27.02.2024
+
+Relaxing Instrumental Jazz Ensemble - Beautiful Jazz Instrumental Collection (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115300.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Smooth Moves (3:18)
+02. Background Jazz (3:18)
+03. Only Jazz (3:18)
+04. Sensual Ambience (3:30)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:52:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9732DA8A11639082EB90B891DE5A0A6190D173C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702947   (115298) от 27.02.2024
+
+Restaurant Music, Calming Jazz Relax Academy - Jazz for Dinner and Wine (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115298.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nice on Top (3:39)
+02. Smooth Jazz Relaxation (3:28)
+03. Wine and Roses (3:38)
+04. Sexy Jazzy Evening (3:38)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:04:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:839326F8DE59AC8B5C336CAD07C987436520D918
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703278   (115217) от 28.02.2024
+
+Viktoria Mullova, Tchaikovsky / Sibelius, Boston Symphony Orchestra, Seiji Ozawa - Violin Concertos • Violinkonzerte (1985) SACD, 2022, Decca Classics [DSD64 2.0|1bit/2822,4kHz|SACD-R] <Classica ...
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115217.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tchaikovsky - Violin Concerto in D Major, Op. 35, TH 59
+01. I. Allegro moderato (18:13)
+02. II. Canzonetta. Andante (6:03)
+03. II. Finale. Allegro vivacissimo (9:54)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:06:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEE03D34F0F60C29B49CC3136D1D0F6D55D3AEC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703178   (115170) от 28.02.2024
+
+Puddle of Mudd - Studio Albums (8 releases) (1994-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Post-grunge, Hard Rock, Nu Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115170.jpg" />
+</div>
+
+
+###  Подробнее
+
+Puddle of Mudd — американская рок-группа, сформированная в Канзас-Сити, штат Миссури в 1992 году.1994 - Stuck (EP)
+2002 - Come Clean
+2003 - Life On Display
+2007 - FamousЖанр: Post-grunge, Hard Rock, Nu MetalПродолжительность: 06:43:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E656F305261954EE47E70024E8270AEC3DC6048
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1703111   (115160) от 28.02.2024
 
 Benny Andersson - Piano (2017) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classical>
@@ -571,180 +745,6 @@ Firehouse - Firehouse (1990) Remaster, 2024, Epic; Sony Music Entertainment [FLA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:023E61C696EE4E03AC94FE2B94AF31B850114D90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703643   (114821) от 01.03.2024
-
-AC/DC - High Voltage (1976) Released, 1981, Albert Productions [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Baby, Please Don't Go
-02. She's Got Balls
-03. Little Lover
-04. Stick Around(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DCDA12DE92B4F5CACDA3A02105382AA30DC6532
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703794   (114816) от 01.03.2024
-
-AC/DC - Let There Be Rock (1977) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Go Down
-02. Dog Eat Dog
-03. Let There Be Rock
-04. Bad Boy Boogie(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE34ABBA70E1C841DD8D119D9370AE48E0560634
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703685   (114809) от 01.03.2024
-
-Александр Барыкин - Эй, смотри! (1990) [FLAC 24/192|Lossless|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114809.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-01. В стиле Рок (М. Пушкина) — 4.46
-02. С нами любовь (М. Пушкина) — 4.05
-03. Гала (А. Барыкин) — 4.36(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7D30C1D61B7442CE880E26751D6EBC5BEBE8AFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703679   (114808) от 01.03.2024
-
-Bananarama - Pop Life (1992 (1991)) [FLAC 24/192|Lossless|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114808.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side One.
-01 - Preacher Man.
-02 - Long Train Running.
-03 - Only Your Love.(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4ED4D581A5C263E8B86E37D92F8FEFEFFD39D99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703799   (114803) от 01.03.2024
-
-Blind Channel - Exit Emotions (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Nu Metal, Alternative Rock, Rap Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114803.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Where'S The Exit [2:38]
-02 - Deadzone [2:51]
-03 - Wolves In California [2:42]
-04 - Xoxo [2:54](   Читать дальше...   )Жанр: Nu Metal, Alternative Rock, Rap MetalПродолжительность: 00:35:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DB484FB4F9F2A40DFE24100F6CF4FFF459EA09C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703767   (114799) от 01.03.2024
-
-Asher Monroe - Songs of the Century (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pure Imagination [00:01:56]
-02. Over the Rainbow [00:04:36]
-03. Nature Boy [00:04:58]
-04. Unchained Melody [00:03:44](   Читать дальше...   )Жанр: PopПродолжительность: 00:45:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DD106D39D278275E74BF9ED1556FA1403B55EC6
 ```
 
 https://mybot314.ru/tekegram_catalog/

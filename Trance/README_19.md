@@ -1,3 +1,90 @@
+###  Публикация: 1540984   (648645) от 01.04.2022
+
+VA - Trance Music For You Trip (2022) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648645.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 7ROSES & Camille - Trying Not To Cry (Radio Mix) (3:22)
+02. Craig B - Hold The Light (Radio Mix) (3:41)
+03. Moonmelo - Imagination (Radio Mix) (2:40)
+04. A.L.Y.S. - Weekend (Radio Mix) (3:00)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:47:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B851BE2491B30B0757034CC0CFD57F61B4538D83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292363   (646907) от 29.03.2019
+
+VA - Trancespotting Vol.8 (2019) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646907.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mindsoundscapes - Grasping Life (Radio Cut) 3:19
+02. Con Phillips - Varanasi (Radio Cut) 3:51
+03. Unit Of Trance - Reserve (Radio Edit) 3:28
+04. Brent Rix - Desert Sun (Original Mix) 3:41(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:18:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF2A5583C0393F55B6DDE969147656B615E5A66B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292371   (646817) от 29.03.2019
+
+VA - Suanda Miami 2019 (2019) [MP3|320 Kbps] <Trance, Uplifting Trance, Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646817.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roman Messer feat. Roxanne Emery - Lullaby (Extended Full Fire Mix) 5:38
+02. Adip Kiyoi feat. Christina Novelli - Carousel (Extended Club Mix) 6:01
+03. Photographer & Abstract Vision - Zero Gravity (Roman Messer Extended Remix) 6:00
+04. Michael Milov feat. Claire Willis - Anywhere With You (Tom Exo Extended Remix) 5:41(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Progressive Trance, Vocal TranceПродолжительность: 02:23:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3997BE5DFC972842C9838AC6313C4418C118334
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1141815   (644859) от 13.06.2017
 
 VA - Trance Hits Top 20: 2017-06 (2017) [MP3|320 Kbps] <Trance>
@@ -658,93 +745,6 @@ VA - Vocal Trance 2022 Vol 2 (2022) [MP3|320 Kbps] <Uplifting Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E44EBDA386EC43B0D6FCB9BB7DF7892A51BC0D0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229776   (622709) от 08.06.2018
-
-VA - Summer Hits (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622709.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roman Messer feat. Roxanne Emery - Lullaby (Extended Mix)
-02. LTN - Wind and Cloud (Extended Mix)
-03. Bogdan Vix - I Am Now (Original Mix)
-04. Ruslan Radriges - Revival (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:55:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5BA7053181507C20DE11B89D9956C54CD5BB150
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229930   (620969) от 09.06.2018
-
-VA - Trance Runner - Episode Seven (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620969.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nick Off - Sunset (Radio Cut)
-02. Steve Bengaln - Broken Heart Phase 2 (Radio Cut)
-03. Inglide - Let Me Love You (Radio Cut)
-04. George Harrold - Ayuhuasca (Radio Cut)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:13:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E71CE6C50A3EE7D627B81C526D5BFB802D5D6561
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036690   (618900) от 21.07.2016
-
-VA - Amsterdam Trance Sessions Vol. 5 (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, Progressive>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618900.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Allen & Envy -  The Cry Within (Para X Remix) 8:02
-02. Dave Pearce -  Trance Sanctuary (Original Mix) 5:45
-03. Sean Truby -  Coyote (Ultimate And Moonsouls Remix) 6:47
-04. Merc -  Obsession (Original Mix) 7:41(   Читать дальше...   )Жанр: Trance, Uplifting Trance, ProgressiveПродолжительность: 02:39:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F247EF78257DC98337DC4CE00A009E2EC528727B
 ```
 
 https://mybot314.ru/tekegram_catalog/

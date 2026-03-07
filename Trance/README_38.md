@@ -1,3 +1,90 @@
+###  Публикация: 1081239   (284632) от 09.12.2016
+
+VA - Vocal Trance Top 100 (2016) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_284632.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alan Morris Ft. Jess Morgan - Made Of Light (Radio Edit) 4:09
+002. Maarten De Jong & Katty Heath - All That Matters (Radio Edit) 3:22
+003. Armin Van Buuren Pres. Perpetuous Dreamer - The Sound Of Goodbye (Above & Beyond Us Edit) 3:50
+004. Dart Rayne & Yura Moonlight & Sarah Lynn - Silhouette (Allen & Envy Edit) 3:39(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 06:16:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F3E353FC2FE1D4B202E0A64E48105A7E8513FDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335916   (284556) от 04.11.2019
+
+VA - Uplifting Trance 2020 (2019) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_284556.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steve Allen - Vorny (F.G. Noise Remix)
+02. Kaimo K & Trance Classics feat. Maria Nayler - Closest Thing To Heaven (Original Mix)
+03. Nikolauss - Ares (Kiyoi & Eky Remix)
+04. Lost Witness - Crashing Into Love (Original Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 05:18:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87E6B38FB8DB2491689E956CFB782C87F2DBD68A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 964225   (283270) от 10.12.2015
+
+VA - Uplifting Only - Fan Favorites 2014 - 2015 (Mixed by Ori Uplift) (2015) [MP3|320 кб/с]<Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_283270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mhammed El Alami & illitheas & Johannes Fischer - New Rise (Intro Mix) (8:41)
+02. illitheas - Sapphire Sky (Radio Edit) (3:44)
+03. New World - Giver of Life (Radio Edit) (5:44)
+04. Ahmed Romel - Saudade (Original Mix) (7:43)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 09:34:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:420BCB8C2E8F387438583C0B637F9321A9F8CD58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1264198   (283051) от 22.11.2018
 
 VA - 3 Years Suanda True (2018) [MP3|320 Kbps] <Trance>
@@ -655,93 +742,6 @@ VA - Vocal Dance Vol.3 (2017) [MP3|320 Kbps] <Vocal Trance, Uplifting Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69B83B048ECFFB5FE255E145F9291579CC81AC4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188595   (275019) от 02.12.2017
-
-VA - Euro Trance Classics (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vechigen - Magic Frost (Paul Farrin Remix)
-02. Matt Pincer - Reckless (Original Mix)
-03. Snoww - Sparks (Original Mix)
-04. Hivanova - Past, Present, Future (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:13:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF2323F3946247DB80B61A9DA9BC989720FC073A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188054   (275002) от 02.12.2017
-
-VA - Rielism - Best Of (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275002.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Rene Ablaze & Universal Sense  -  Island Of Dreams (Original Mix) 7:04
-02.  8 Wonders & Arnej  -  Together We Will Rise (Jak Aggas Remix) 6:22
-03.  Eryon Stocker  -  Skyscrapers (Perrelli & Mankoff Remix) 7:02
-04.  Amy Kirkpatrick & Dark Fusion  -  Be There For You (Original Mix) 4:33(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:21:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BE05AD35671792A3C6409AB5C9F6D5EE0733878
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188644   (274999) от 02.12.2017
-
-VA - Trance Favorites EPisode #010 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274999.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ER7E - Revelation (Original Mix)
-02. Airosource - Rising Love (Original Mix)
-03. Dave Deen - Forgotten Promise (Original Mix)
-04. Hartrone - Crossroad (Original Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:02:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEEF18B8FBDB08FFF3A96CD11295D3D8E58402D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

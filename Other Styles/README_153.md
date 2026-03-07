@@ -1,3 +1,32 @@
+###  Публикация: 1829839   (201837) от 25.10.2025
+
+Paul Mauriat - Le grand orchestre de Paul Mauriat, Vol. 1-2 (1965) [FLAC 24/96|Lossless|WEB-DL|tracks] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_201837.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. La nuit
+02. Vous les femmes
+03. N'avoue jamais(   Читать дальше...   )Жанр: Instrumental |Продолжительность: 00:55:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09FA73874B1BDCFCEFC86DBB7C81A1B591DEBB9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1618213   (201364) от 14.03.2023
 
 VA - Enigma-Forest-Transit 8 (1998) [OGG Vorbis|480 Kbps] <Electronic, Ambient, New Wave>
@@ -716,35 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B94D03F56256AC7BCA8BEE0A06926FE8CD62D18A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587095   (192680) от 31.10.2022
-
-Vevaki (Vévaki) - Fórnspeki (2022) [FLAC|Lossless|WEB-DL|tracks] <Neo Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_192680.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brynhildarljóð [00:03:37]
-02. Heimdalagaldr [00:03:56]
-03. Hreingálknir [00:02:38]
-04. Jötnablót [00:08:37](   Читать дальше...   )Жанр: Neo FolkПродолжительность: 00:44:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5968EC2AA145B589BF407FE0C37E75F50BB45071
 ```
 
 https://mybot314.ru/tekegram_catalog/

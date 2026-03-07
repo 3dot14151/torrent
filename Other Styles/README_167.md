@@ -1,3 +1,32 @@
+###  Публикация: 1763450   (102824) от 01.12.2024
+
+VA - The Orient Collective: Shadow Seeker (2024) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_102824.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Mauro Masi - Mana Le (4:09)
+2. Tibetania - Lockdown (5:46)
+3. F-Theme - Hold Your Mouth (6:35)
+4. Noam Garcia - Amanda (7:06)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 00:58:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A8670DE0F62645115BE45B39C2DEA58BE5A49F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1763498   (102819) от 01.12.2024
 
 VA - The Orient Collective: The East (2024) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
@@ -765,41 +794,6 @@ VA - Mystic India (Vol.4) (2004) [MP3|320 кб/с]<New Age, Meditative, Relax>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04822FF0AE94C86D9C27DA9469208A05D77023EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 457630   (94708) от 26.02.2012
-
-Theodor Bastard - Oikuomene (2012) [MP3|320 кб/с]<Rock, Folk, Darkwave>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94708.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Takaya Mija (05:36)
-02. Farias (05:26)
-03. Gerda (05:59)
-04. Benga (04:44)
-05. Sagrabat (Diumgo) feat. Julien Jacob (03:34)
-06. Oikoumene (07:41)
-07. Tapachula (07:09)
-08. Intifadah (05:13)
-09. Clean Kron (03:25)
-10. Sol De Morte (03:44)(   Читать дальше...   )2012Жанр: Rock, Folk, DarkwaveПродолжительность: 01:04:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A66B199848D1339B4B472134E2F224F0B41A098
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1835957   (251755) от 08.11.2025
+
+Проекты - VideoHive - Vertical Photo Slideshow - 60145346 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_251755.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неплохое слайд-шоу для вертикальных экранов.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF4AB4BCCBCDCF2F8635C63C58DD404C6FF2E14E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1834722   (250497) от 04.11.2025
 
 Проекты - VideoHive - History Documentary 4K - 59567245 [AEP]
@@ -657,33 +683,6 @@ Gold Autumn - это вдохновляющий шаблон After Effects. Он
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1517F13EC87B864A45890E919EAB19D88644D1DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966134   (222023) от 16.12.2015
-
-Проекты - VideoHive - POWER [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222023.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания слайд шоу.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:879010482448424515A118E4D7368595C5AE96D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

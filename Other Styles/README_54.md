@@ -1,3 +1,32 @@
+###  Публикация: 1215268   (759607) от 25.03.2018
+
+Leo Rojas - Leo Rojas (2017) [FLAC|Lossless|image + .cue] <Panflute, Native american, Ethnic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_759607.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nature Spirits
+02. Dusk
+03. Wolf's Heart (feat. Chantelle Barry)
+04. Indian Fire(   Читать дальше...   )Жанр: Panflute, Native american, EthnicПродолжительность: 00:50:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B2518CA9DE889F67888B709BA6E66F41FD19CE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1215293   (759531) от 25.03.2018
 
 Paul Mauriat & His Orchestra - Greatest Hits, 2CD (2007) [FLAC|Lossless|tracks + .cue] <Instrumental, Easy Listening>
@@ -716,35 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE356F1E90F8A3587FBEA96A3A1D942446EA724B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216419   (750831) от 30.03.2018
-
-Omnia - Reflexions (2018) [FLAC|Lossless|WEB-DL|tracks] <Folk, Celtic, Medieval>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750831.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shaman of Chaos 04:11
-02. Niivs Cauldron 06:13
-03. JabberMoon 05:20
-04. Alive Until We Die 04:44(   Читать дальше...   )Жанр: Folk, Celtic, MedievalПродолжительность: 01:01:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D31CD3E7A714456CA623FDD70D6AE1951268960
 ```
 
 https://mybot314.ru/tekegram_catalog/

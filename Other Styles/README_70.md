@@ -1,3 +1,32 @@
+###  Публикация: 1289569   (681977) от 18.03.2019
+
+James Last - Jahrhundert Melodien (1982) [FLAC|Lossless|image + .cue] <Pop, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_681977.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La vie en rose
+02. Spanish Eyes
+03. Lili Marleen
+04. Überall blühen Rosen (L'important C'est La Rose)(   Читать дальше...   )Жанр: Pop, Easy ListeningПродолжительность: 00:47:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1165663E6D27AEA2DD574138A609AB9962CAD25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1289576   (681974) от 18.03.2019
 
 VSOP Vienna Symphonic Orchestra Project - The 5th (Die Wiener Symphoniker Spielen Meisterwerke Aus Klassik Und Pop) (1990) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
@@ -742,35 +771,6 @@ J Stallworth - Unleashed (2016) [MP3|320 Kbps] <Instrumental>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6251934FABCF92BDD462EAD168B18D965DB6655B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290765   (674334) от 22.03.2019
-
-Tom Russell - October in the Railroad Earth (2019) [FLAC|Lossless|tracks + .cue] <Folk, Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. October in the Railroad Earth (04:58)
-02. Small Engine Repair (03:50)
-03. T-Bone Steak and Spanish Wine (05:16)
-04. Isadore Gonzalez (03:19)(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:45:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:241C5EE253344BB563B0B0ADBB5DBA216A79792C
 ```
 
 https://mybot314.ru/tekegram_catalog/

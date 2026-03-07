@@ -1,4 +1,352 @@
 https://t.me/izofen
+###  Публикация: 1857521   (1059669) от 
+
+А.В. Постолит | Компьютерное зрение и искусственный интеллект в приложениях на Python и Django (интерактивная цифровая книга) (2025) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1059669.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интерактивная цифровая книга предназначена для практикующих программ-истов, имеющих опыт работы с Python и Django. В книге раскрываются возможности использования методов компьютерного зрения и нейронных сетей для обработки медиа контента, для распознавания объектов в изображениях и видео потоке. Книга знакомит с методами синтеза и распознавания речи, перевода текстовой (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: СамиздатФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A45A27D99532CA1BDA4E37C6802FFDC97A96F895
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857515   (1059668) от 
+
+Дмитрий Зверев | Создание видео через нейросети. 3.0 версия (2026) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1059668.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ваш реалистичный видео-аватар, ролики из текста или аудио с выбранным ведущим, видео из ваших фото или нейросетевых картинок, генерация видео по текстовому описанию, в том числе с речью на русском языке, перевод на другие языки в несколько кликов, автоматические субтитры и нарезка на reels, выжимки видео, транскрибация...
+Создавайте интересный и привлекательный контент (   Читать дальше...   )Жанр: Компьютерная литература, НейросетиИздательство: СамиздатФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3FDC63051175DB9E5ED6FF2DA0937064EC2788C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857511   (1059667) от 
+
+Бренден Мэтьюз | Паттерны проектирования Rust. Пишем идиоматический код как профи (2026) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1059667.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как только вы освоитесь с синтаксисом Rust, с его уникальным и мощным компилятором и начнете использовать его в реальных проектах, перед вами откроется совершенно новое измерение. Как правильно применять стандартные паттерны проектирования в приложениях на Rust? Как и когда следует использовать IntoIterator? Почему Rust-разработчики любят тип PhantomData? Ответы (   Читать дальше...   )Жанр: Программирование, Разработка приложений, Разработка программного обеспечения, Язык RustИздательство: ПитерФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57C5101C474EAA64E077441649202EC069A7D385
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857507   (1059666) от 
+
+А.В. Постолит | Самоучитель Python с интерактивными примерами (2025) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1059666.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интерактивный самоучитель по основам языка программирования Python предназначен для начинающих программистов, которые решили ознакомиться с основами Python с нуля. Эта книга написана простым языком, сопровождается большим количеством примеров и заданий для самоконтроля. Кроме того, для луч шего закрепления теории к пособию прилагаются еще и тесты для контроля знаний. (   Читать дальше...   )Жанр: Компьютерная литература, PythonИздательство: СамиздатФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4752C32BFB4FA0669960A0CDF3074DDAADF12FD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857505   (1059665) от 
+
+Ganeshkumar Patil | Django REST APIs Demystified. Simplifying API Development with Django. First Edition (2025) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1059665.jpg" />
+</div>
+
+
+###  Подробнее
+
+This book is designed to help you master API development using the Django REST Framework (DRF). Written for seasoned developers, this book offers practical, hands-on guidance to becoming an expert in using DRF, providing in-depth coverage of the framework's features and best practices and their application in API development.
+
+The book will introduce you to and enable (   Читать дальше...   )Жанр: Computer Performance Optimization, Python Programming, Software DevelopmentЯзык: АнглийскийИздательство: ApressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CE923B409F6094D7AEE066496DFD29A59CDDA56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857501   (1059664) от 
+
+Jason W. Eckert, triOS College | CompTIA Linux+ and LPIC-1 Guide to Linux Certification. 7th Edition (2026) [PDF] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1059664.jpg" />
+</div>
+
+
+###  Подробнее
+
+Eckert's CompTIA LINUX+ and LPIC-1 GUIDE TO LINUX CERTIFICATION, 7th EDITION, equips learners for success on CompTIA's Linux®+ (XKO-006) and the Linux Professional Institute LPIC-1 (101-500 and 102-500) certification exams, as well as in their IT careers. Content includes the latest Linux® distributions, as well as virtualization, containerization, cloud orchestration, (   Читать дальше...   )Жанр: Компьютерная литература, LinuxЯзык: АнглийскийИздательство: Cengage LearningФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9EDFEEFFD740A824334AF895B3897F7B7657735
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857497   (1059663) от 
+
+John Schwartzman | Assembly Language Reimagined. Programming the Intel x64 Microprocessor in Linux. First Edition (2025) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1059663.jpg" />
+</div>
+
+
+###  Подробнее
+
+Learning assembly language won’t make you a faster programmer. It won’t enable you to create portable, write-once, run-anywhere programs. So why learn it? The answer is that it will make you a better programmer.
+
+Author John Schwartzman takes a fresh look at low-level programming and explores how to write programs using the BIOS and glibc. This laboratory-based book (   Читать дальше...   )Жанр: Linux Programming, Computer Programming Languages, Software DevelopmentЯзык: АнглийскийИздательство: ApressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:152BF5C55D97B415F5BE4E19C55D42623B644CA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857495   (1059662) от 
+
+Bert Gollnick | PyTorch. The Practical Guide to Building, Training, and Deploying Deep Learning Models (2026) [PDF] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1059662.jpg" />
+</div>
+
+
+###  Подробнее
+
+PyTorch is the framework for deep learning—so dive on in! Learn how to train, optimize, and deploy AI models with PyTorch by following practical exercises and example code. You’ll walk through using PyTorch for linear regression, classification, image processing, recommendation systems, autoencoders, graph neural networks, time series predictions, and language models—all (   Читать дальше...   )Жанр: Programming Algorithms, Computer ScienceЯзык: АнглийскийИздательство: Rheinwerk PublishingФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5F6AE294953209F424EF0B8D5897F416699D4A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857493   (1059661) от 
+
+Jason Hodson | Applied Machine Learning. A Practical Guide to Preparing Data, Selecting Algorithms, and Implementing Machine Learning Models in the Real World (Rheinwerk Computing) (2026) [PDF] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1059661.jpg" />
+</div>
+
+
+###  Подробнее
+
+Put machine learning theory into practice with this hands-on guide! Learn about the real-world application of machine learning models by following three use cases, each with its own dataset. Get started with tools like GitHub and Anaconda, and then follow detailed instructions to prepare your data, pick your model, evaluate its results, and measure its impact over (   Читать дальше...   )Жанр: Computer Information Theory, Data Modeling & Design, Data Modeling & DesignЯзык: АнглийскийИздательство: Rheinwerk ComputingФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC4AEBC4C9B8F0BFD960F37D91D281B7EA90F75D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857489   (1059660) от 
+
+Дэвид Мерц | Функциональное программирование на Python в примерах сообщества StackOverflow (2026) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1059660.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами практическое руководство, посвященное функциональному программированию на Python – подходу, который помогает писать более предсказуемый, модульный и устойчивый к ошибкам код. Книга шаг за шагом знакомит читателя с основными концепциями функционального стиля, от базовых принципов и встроенных средств языка до продвинутых приемов, применяемых в современных (   Читать дальше...   )Жанр: Компьютерная литература, PythonИздательство: АСТФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E0E8C60A2645AC6871D6B8EB30E2C8DBFEB2A44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857244   (1059564) от 05.03.2026
+
+Shantanu Baruah, N. Baruah | Generative AI for Full-Stack Development. AI Empowered Accelerated Coding. First Edition (2025) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1059564.jpg" />
+</div>
+
+
+###  Подробнее
+
+Gain cutting-edge skills in building a full-stack web application with AI assistance. This book will guide you in creating your own travel application using React and Node.js, with MongoDB as the database, while emphasizing the use of Gen AI platforms like Perplexity.ai and Claude for quicker development and more accurate debugging.
+
+The book’s step-by-step approach (   Читать дальше...   )Жанр: Software Development, Artificial Intelligence, Web Development & Design ProgrammingЯзык: АнглийскийИздательство: ApressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:940810EEE3AE1B25AD1F95A82094361A4B3077D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857254   (1059562) от 05.03.2026
+
+Fottiniya | Промпт-инженер текстовых моделей ИИ. Говори с ИИ. От новичка до эксперта (2024) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1059562.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот курс — не просто набор инструкций по составлению промптов. Промпт-инженерия — это больше, чем просто техническое умение. Это путешествие в мир, где грань между человеческим и искусственным интеллектом становится все более размытой.
+Что вы получите, пройдя курс?
+- Вы научитесь виртуозно жонглировать промптами, создавая идеальные команды для языковых моделей. (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: СамиздатФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:816480ACEE43803BD4B72CB1A64F49ED69BEA947
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857252   (1059551) от 05.03.2026
+
+Анастасия Невзорова | Будущее Chat GPT. Тенденции и прогнозы (2025) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1059551.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данном издании использованы изображения, сгенерированные системой DALL-E.
+В этой электронной книге вы найдете эксклюзивную информацию о будущем ChatGPT и его развитии. Узнайте о ключевых тенденциях и прогнозах, которые будут определять путь искусственного интеллекта в ближайшие годы. Эта книга предназначена для всех, кто интересуется новыми технологиями и стремится (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: СамиздатФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:308780AA0A50544E00A8AA7A5A38638BEC804A9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1856333   (1059090) от 28.02.2026
 
 Андрей Столяров | Программирование введение в профессию. В 3-х томах + задачи и этюды. 2,91 издание [4 книги] (2025) [PDF]
@@ -350,348 +698,6 @@ Inside Starting (   Читать дальше...   )Жанр: Software Design T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B52F3D04F66FE582AEE0F51E9EC36D76A1AA826
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1855065   (1058060) от 23.02.2026
-
-Мариан Сивяк, Артур Гуджа, Марлена Сивяк | Анализ данных с помощью GenAI и Python (2026) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058060.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга — практическое руководство для тех, кто превращает данные в решения. Шаг за шагом вы разберетесь, как современные методы искусственного интеллекта помогают не просто интерпретировать массивы информации, но и находить скрытые закономерности, прогнозировать будущее и создавать конкурентные преимущества для бизнеса. Вы получите системное понимание инструментов (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: ПитерФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E6909F761846B57ED03ACCF1F4B8D9357B9A9E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1855070   (1058031) от 21.02.2026
-
-Дэнис Ротман | RAG и генеративный ИИ. Создаем собственные RAG-пайплайны с помощью LlamaIndex, Deep Lake и Pinecon (2025) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058031.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге описываются приемы создания эффективных больших языковых моделей, систем компьютерного зрения и генеративного ИИ, показывающих высокую производительность при относительно невысоких затратах. В ней приводится подробное исследование технологии RAG, а также подходов к проектированию мультимодальных пайплайнов ИИ и управлению ими. Связывая вывод с исходными документами, (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: Спринт БукФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA988727DE603816AC683AD3343FD3E2107D50D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1855067   (1058030) от 21.02.2026
-
-Benjamin Bennett Alexander | 50 Days of Data Analysis with Python: The Ultimate Challenges Book for Beginners. Hands-on Challenges with pandas, NumPy, Matplotlib, Sklearn and Seaborn (2023) [PDF] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058030.jpg" />
-</div>
-
-
-###  Подробнее
-
-Are you a self-taught data analyst who is looking to apply your newfound skills to practical data analysis tasks?
-Are you looking for a structured, practical, and hands-on approach to learning data analysis with Python?
-Want to become proficient in the Python libraries used by data analysts and scientists so you can build your portfolio of projects?
-If you answer (   Читать дальше...   )Жанр: Business Intelligence Tools, Artificial Intelligence, AI & Machine LearningЯзык: АнглийскийИздательство: СамиздатФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34B68B9BBCE258470554B8E0EE23423336ED5C2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1855064   (1058024) от 21.02.2026
-
-Владимир Дронов | Python. Уроки для начинающих (2026) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058024.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге 22 урока, более 40 практических упражнений и заданий для самостоятельной работы.
-Описан язык Python: его основы, типы данных, управляющие выражения, функции объекты, классы, исключения, модули и пакеты. Рассмотрены более развитые инструменты языка: установка и применение дополнительных библиотек, многопоточное, многопроцессное и конкурентное программирование, (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: БХВ-ПетербургФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67F21C1BA054CF15FA5B085F2EA2510005A7B3D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1855061   (1058023) от 21.02.2026
-
-Юрий Другач | Контролируемый взлом. Библия социальной инженерии. 3 изд (2026) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058023.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга рассматривает используемые современными киберпреступниками методы социальной инженерии и способы защиты от нее - как организационные, так и технические. Приведено 130 практических примеров атак, даны примеры фишинговых писем, раскрыты применяемые мошенниками психологические приемы и трюки, позволяющие вводить пользователей в заблуждение, подробно разобран используемый (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: БХВ-ПетербургФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6292D15AB47C0C6B72F2BE6EC65BEC2CDE06A4C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1855060   (1058022) от 21.02.2026
-
-Юрген Эбнер | Этичный хакинг. Инструменты тестирования на взлом и обеспечение ИТ-безопасности (2025) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058022.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хотите стать специалистом по этичному хакингу и научиться эффективно защищать компьютерные системы? Изучайте основы белого взлома с этой книгой, осваивайте мощнейшие инструменты Kali Linux и создавайте собственную лабораторию для тестов. Узнайте секреты автоматизации процессов с помощью BASH-скриптов и Python-программирования. Шаг за шагом пройдите путь от начальной (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: ЭксмоФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90ABCDC77DF166A2813163ADB065882BF9110362
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1855059   (1058021) от 21.02.2026
-
-Юлия Попова | Go: разработка приложений в микросервисной архитектуре с нуля (2026) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058021.jpg" />
-</div>
-
-
-###  Подробнее
-
-Базовая книга по построению микросервисной архитектуры с практическими примерами на языке Go. Также рассмотрена работа с оркестратором Kubernetes и контейнерами Docker в среде Docker Compose. Разобраны основные принципы и техники разработки распределенных систем, в частности показано, как написать и развернуть четыре микросервиса, управлять СУБД, настроить брокер (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: БХВ-ПетербургФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81DE0192893C3B14AF9B3E4E7AAE861527C18C0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852983   (1056894) от 13.02.2026
-
-Виктор Шитов | Автоматизация рутины в Excel VBA. Лайфхаки для облегчения скучных рабочих задач (2023) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056894.jpg" />
-</div>
-
-
-###  Подробнее
-
-Часто работаете с большим количеством данных? Знаете основные приемы в Excel, но еще не пробовали использовать язык Visual Basic? Тогда самое время разобраться в нем и перестать тратить время на операции, которые можно выполнить одним кликом. С помощью этого руководства вы научитесь правильно использовать синтаксис VBA, сделать тривиальные действия в Excel автоматическими, (   Читать дальше...   )Жанр: Компьютерная литература, ExcelИздательство: ЭксмоФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD4644F93FD7EB73705F2A165CE09D547E151BB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852868   (1056564) от 12.02.2026
-
-Deepshikha Bhati, Fnu Neha, Angela Guercio и др. | A Beginner’s Guide to Generative AI. An Introductory Path to Diffusion Models, ChatGPT, and LLMs (Synthesis Lectures on Computer Science) (2025) [ ...
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056564.jpg" />
-</div>
-
-
-###  Подробнее
-
-This book is the essential guide for anyone curious about AI’s creative power. In the rapidly evolving landscape of artificial intelligence, generative AI stands out as one of the most transformative technologies of our time. Designed for beginners and requiring no prior knowledge of AI, this book breaks down the fundamentals of generative AI, from text and image (   Читать дальше...   )Жанр: Speech & Audio Processing, Database Storage & Design, Artificial IntelligenceЯзык: АнглийскийИздательство: SpringerФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F67DD246704934EA59A6B3604AE37FEB837FF8C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852864   (1056563) от 12.02.2026
-
-В.М. Фомичев | Элементы теории информации в защите информации. Учебное пособие (2021) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056563.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебном пособии систематически изложены основы математической теории информации, для ее разделов, относящихся к математическим моделям источников сообщений и к методам кодирования, подчеркивается связь с вопросами криптографической защиты информации. Для закрепления знаний в каждой главе даны задачи, упражнения и контрольные вопросы.Жанр: Компьютерная литература, КриптографияИздательство: ПрометейФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E361F3EB857BE7F43E0A16096E15D881B519761
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852863   (1056562) от 12.02.2026
-
-В.М. Фомичев | Сборник задач по криптологии (2019) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056562.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник содержит типовые задачи по криптологии, опирающиеся на базовые знания из дискретной математики, теории сложности алгоритмов и теории вероятностей. Выборочно даны ответы на вопросы, поставленные в задачах, в некоторых случаях - с комментариями, указывающими на способ решения задачи. Материалы сборника предназначены для использования при проведении семинарских (   Читать дальше...   )Жанр: Компьютерная литература, КриптографияИздательство: ПрометейФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C55D1D2381B3D1D88D1D2D94749BB583A42CFD5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852862   (1056561) от 12.02.2026
-
-А.В. Помазанов | Защита информации от утечки по техническим каналам. Учебное пособие (2024) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056561.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изложены принципы построения устройств и методы защиты информации от утечки по техническим каналам. Приводятся классификация технических каналов утечки информации и современные технические средства защиты информации. Рассматривается место и роль современных комплексов радиомониторинга в системах технической защиты информации.Жанр: Компьютерная литература, КриптографияИздательство: Издательство Южного федерального университетаФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E25ED0B38B6491749EE8C220AC75B0A7CD2A425E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852861   (1056560) от 12.02.2026
-
-Г.А. Емельянов | Цифровая безопасность личности (2025) [PDF]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056560.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данное издание представляет сборник практических советов по цифровой (кибер), финансовой и, частично, информационной безопасности физического лица (личности), персональных электронных устройств (как мобильных, так и стационарных), обеспечения безопасности, приватности, конфиденциальности и анонимности пользователя, а также сохранности данных в целостности и доступности.Жанр: Компьютерная литератураИздательство: Издательские решенияФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D32A203EC168BF9CB4E5752923A83121356A51AF
 ```
 
 https://mybot314.ru/tekegram_catalog/

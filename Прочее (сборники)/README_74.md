@@ -1,3 +1,206 @@
+###  Публикация: 1140928   (653851) от 08.06.2017
+
+VA - Beatport Top 100 Dance May (2017) [MP3|320 Kbps] <Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_653851.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Tujamo, Sorana - One On One 02:58
+002. Gorillaz Ft. D.R.A.M. - Andromeda (Purple Disco Machine Remix) 06:03
+003. Axwell Ingrosso - More Than You Know (Original Mix) 03:23
+004. Alok, Bruno Martini, Zeeba - Never Let Me Go (Extended Mix) 04:15(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 07:19:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A182783CB55A01C9B3EC7BF2E3594F8E1F9B173
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226805   (653483) от 22.05.2018
+
+VA - Дискотека 2018 Dance Club Vol.179 от NNNB (2018) [MP3|320 Kbps] <Club, Deep House, Synth Pop, Dance и другие>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_653483.jpg" />
+</div>
+
+
+###  Подробнее
+
+Part 1
+01. DJ Vartan & DJ Shevtsov - Side By Side (3:29)
+02. Soroush Yarahmadi - Big Elephant (Original Mix) (3:54)
+03. ItaloBrothers - Looking Back Someday (3:28)(   Читать дальше...   )Жанр: Club, Deep House, Synth Pop, Dance и другиеПродолжительность: 18:41:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92033BEEE7A22E5E61C9006BCD98426FD159D3AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140924   (653443) от 08.06.2017
+
+VA - Суперхиты (2017) [MP3|320 Kbps] <Downtempo, Ambient, Vocal, Chillout, Trip Hop, Industrial, Balearic, Big Beat>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_653443.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Everything But The Girl - Missing (Todd Terry Remix)  4:08
+02.  The Beloved - Sweet Harmony  3:29
+03.  Robert Miles - Children  4:02
+04.  Enigma - Sadeness  4:14(   Читать дальше...   )Жанр: Downtempo, Ambient, Vocal, Chillout, Trip Hop, Industrial, Balearic, Big BeatПродолжительность: 03:53:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9F25CB6942AEAAAEADC973DED0E1F6CAACED28E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140939   (653441) от 08.06.2017
+
+VA - DEEP'КАЧ 90-х от NNNB (2017) [MP3|256-320 Kbps] <Deep House, Nu Disco, Tropical>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_653441.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ace of Base - All She Wants (SNBRN & KLATCH Remix)  6:04
+02.  Bob Marley - No Woman No Cry (SLAPFISK Remix)  4:26
+03.  Corona - Rhythm Of The Night (Hotel Garuda Remix ft. AObeats)  4:06
+04.  Metallica - Nothing Else Matters (YASTREB Remix) (Radio Version)  3:50(   Читать дальше...   )Жанр: Deep House, Nu Disco, TropicalПродолжительность: 07:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC16C309832BF7698A28D66F2ECE8606BCEE376D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291800   (652651) от 26.03.2019
+
+VA - New Music Releases Week 12 (2019) [MP3|320 Kbps] <Pop, Hip Hop, RnB, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652651.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Logic - Confessions Of A Dangerous Mind
+002. Ferry Corsten, Nevve - Freefall
+003. Wolfpack, Tony Junior - Unleash The Beast
+004. Mat Zo - Heat Wave(   Читать дальше...   )Жанр: Pop, Hip Hop, RnB, DanceПродолжительность: 10:55:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CC0CC8FC25B66FD9738C39E982E6D23F108C878
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1540278   (652545) от 30.03.2022
+
+VA - Music News vol.175 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652545.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. SANSII - Таю (02:06)
+ 002. 7Б - По Дорогам Ветра (03:43)
+ 003. 24kGoldn feat. Travis Barker - In My Head (02:10)
+ 004. A7S feat. S1mba - On & On (02:44)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 08:33:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:752CBFABCC391BB36ECB364133AC0F75CFFDD291
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141133   (652459) от 09.06.2017
+
+VA - Electro House Candy Beach (2017) [MP3|256-320 Kbps] <House Electro, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652459.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. David Guetta ft. Nicki Minaj & Lil Wayne - Light My Body Up
+002. Debroka, FelMax - Bandz (Original Mix)
+003. EDDIE - No Time
+004. FelMax - Robin (Original Mix)(   Читать дальше...   )Жанр: House Electro, DanceПродолжительность: 09:25:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1CD2C37F178A105EBAD54369A1C4A2B2E2E0D11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 516539   (652424) от 29.06.2012
 
 VA - Зарубежный Dance Кураж (2012) [MP3|256 кб/с]<Pop, Dance>
@@ -590,209 +793,6 @@ VA - Hyper Cool: Sport Dance Music (2019) [MP3|320 Kbps] <Hard Dance, Hardcore, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C99D20758609A6E7CBF0FABA3351CB9252097F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031838   (649676) от 05.07.2016
-
-VA - German Top 100 Single Charts (11.07.2016) [MP3|320 Kbps] <Pop, Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649676.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mark Forster -  Wir sind gros 3:27
-002. Justin Timberlake -  Can't Stop The Feeling 3:56
-003. Sia -  Cheap Thrills 3:45
-004. Calvin Harris Feat. Rihanna -  This is What You Came for 3:42(   Читать дальше...   )Жанр: Pop, Club, DanceПродолжительность: 05:53:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5C9D4FDAF706FEDD6BE233619E1CF48FF845576
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905770   (649484) от 06.06.2015
-
-VA - Club of fans Dance. Vol.3 (2015) [MP3|320 кб/с]<Сlub, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649484.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ciara - I Bet (R3hab Remix)
-02. Ciara - Give Me Love (Original mix)
-03. Ellie Goulding - Love Me Like You Do (Alexx Slam & Leo Burn Remix)
-04. Fake Forward feat. Erika - What I Am (Original Mix)(   Читать дальше...   )Жанр: Сlub, DanceПродолжительность: 05:17:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00906C5F37AF1D7D5FCF924AB2F329795E567C22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905755   (649472) от 06.06.2015
-
-VA - 50 Top Charts Spring (2015) [MP3|320 кб/с]<Club, Euro, Dance, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649472.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sarah – Love Me Like You Do (R.P. Mix)
-02. DJ Space’C, Angelica – FourFiveSeconds (B Remix)
-03. Plaza People – Uptown Funk (Workout Remix)
-04. Boyz Boyz Boyz – Sugar (A.R. Mix)(   Читать дальше...   )Жанр: Club, Euro, Dance, HouseПродолжительность: 04:01:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E322B934E758245BBC2F54D73AC71BE0A7CFB16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031926   (649199) от 05.07.2016
-
-VA - Зайцев нет. Нашествие. Главное приключение лета! (2016) [MP3|170-320 Kbps] <Rock, Rap, Jazz, Metall, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649199.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. АнимациЯ - Родина
-02. БИ-2 - Мать
-03. Браво - Московский Бит
-04. Вячеслав Бутусов и Ю-Питер - Девушка по городу(   Читать дальше...   )Жанр: Rock, Rap, Jazz, Metall, PopПродолжительность: 03:17:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:167797F7BDE85B4292BC48B9F3136AC4FA9C7F1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905599   (649158) от 06.06.2015
-
-VA - Car Audio - Music Road (2015) [MP3|320 кб/с]<Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649158.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scooter & Vassy - Radiate (SPY Version)
-02. Alessandra - Eres Mi Vida (Radio Edit)
-03. Solid & Sound vs. NICCO & Gemeni - Summertime (Farewell) (Extended Mix)
-04. Dromhus - Vill Ha Dig (In Stereo Radio Edit)(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 06:04:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5FA6A88422A5649A80691604B23888CF7922D9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905660   (649059) от 06.06.2015
-
-VA - Только хиты. Русский попсовый сборник (2015) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649059.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Andre Tay - Зацелую
-002. Подиум - Любовь Зла
-003. Bahroma - Пока Пора
-004. Алена Винницкая - Небо(   Читать дальше...   )Жанр: PopПродолжительность: 06:11:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6062C75A1418BB6206A8B43C00E91525A62D0A67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905550   (648941) от 06.06.2015
-
-VA - Top 100 Зайцев.Нет Июнь  (2015) [MP3|320 кб/с]<Pop, Dance, Rock, R&B, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648941.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Полина Гагарина - A Million Voices
-02. Natan Feat. Тимати - Дерзкая
-03. Полина Соя - Бомба
-04. Ost Up (Остап) - Ты Моё Всё (2015)(   Читать дальше...   )Жанр: Pop, Dance, Rock, R&B, RapПродолжительность: 06:00:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E025BF6C7F3F09009C372D75DAB748562A1E04C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

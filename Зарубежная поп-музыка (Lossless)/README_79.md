@@ -1,3 +1,119 @@
+###  Публикация: 1430478   (173651) от 10.12.2020
+
+VA - Hello 2021 (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_173651.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luis Fonsi, Daddy Yankee - Despacito (3:48)
+02. Jonas Brothers - What A Man Gotta Do (3:00)
+03. NEIKED, Dyo - Sexual (3:08)
+04. Topic, A7S - Breaking Me (2:46)(   Читать дальше...   )Жанр: PopПродолжительность: 01:32:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05409338D2A4EB13926B61B86BF281C078F71564
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669042   (173200) от 14.10.2023
+
+Meduza - Meduza (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_173200.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everything You Have Done [00:02:36]
+02. Upside Down [00:02:54]
+03. Friends [00:02:37]
+04. Ecstasy [00:02:19](   Читать дальше...   )Жанр: Pop DanceПродолжительность: 00:16:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:831F2BCA2BF031430A6EE50C5DC27976C4B9C26D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669175   (172998) от 15.10.2023
+
+Rick Astley - Are We There Yet? (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_172998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dippin My Feet
+02. Letting Go
+03. Golden Hour
+04. Never Gonna Stop(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B319D32A9B627BB7DE5D69B2BAECFA700633734
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669186   (172973) от 15.10.2023
+
+Agnetha Faltskog - A+ (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_172973.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Where Do We Go From Here?
+02. Back On Your Radio
+03. I Should've Followed You Home (feat. Gary Barlow)
+04. Dance Your Pain Away(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D2445F2BE8D494AF77C3AF4336ABC0DE74C7B25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1671635   (171165) от 25.10.2023
 
 Sandra - Fading Shades (1995) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -629,122 +745,6 @@ Jennifer Lopez - This Is Me...Then (2022) 20th Anniversary Edition [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C6524F0A4DEC8D77A6E4FDAA3C57AE32B8F1B50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345552   (165107) от 17.12.2019
-
-VA - MNM Big Hits - Best Of 2019 (2019) 3CD Box Set [FLAC|Lossless|tracks + .cue] <Pop, House, Other>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165107.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Ava Max - Sweet But Psycho
-02. Tones and I - Dance Monkey
-03. Marco Borsato, Armin van Buuren & Davina Michelle - Hoe Het Danst(   Читать дальше...   )Жанр: Pop, House, OtherПродолжительность: 03:34:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71D55E916F08F6EA2DB5A7A1CB31D90D1670C146
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432427   (164448) от 17.12.2020
-
-Riccardo Cocciante - - ... Je Chante (1999) [FLAC|Lossless|image + .cue] <Pop, Chanson>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164448.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Les Mains Dans Les Poches (1:56)
-02. Je Chante (4:46)
-03. C'était... (2:49)
-04. Au Fond De Mon Coeur (4:31)(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 00:30:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE099C261E7A3BDFEB7A485AF0F1A468DFBED55B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346252   (164447) от 18.12.2019
-
-VA - Apres Ski Party Hits 2020 (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164447.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rainer Seidl - Skispringerlied (Fliegen mit dem Ski)
-002. DJ Pascy - In den Bergen
-003. Jorg & Dragan (Die Autohandler) - Richtig einen geballert
-004. Willi Herren - Mary Jane(   Читать дальше...   )Жанр: PopПродолжительность: 05:45:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EABB725081140C5237F0972BBEADF8BC3790B692
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516901   (164288) от 13.12.2021
-
-Elton John - The Lockdown Sessions (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Pop, Pop Rock, Soft Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164288.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elton John & Dua Lipa - Cold Heart (PNAU Remix)
-02. Elton John, Young Thug & Nicki Minaj - Always Love You
-03. Surfaces feat. Elton John - Learn To Fly
-04. Elton John & Charlie Puth - After All(   Читать дальше...   )Жанр: Pop, Pop Rock, Soft RockПродолжительность: 01:08:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A699347B7458D0A76647CBCBCB3611932849FD94
 ```
 
 https://mybot314.ru/tekegram_catalog/

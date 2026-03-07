@@ -1,3 +1,73 @@
+###  Публикация: 592062   (136243) от 20.12.2012
+
+VA - Радио Шторм - Русский Шторм - 83 (2012) [MP3|128-320 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_136243.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex Grand And Glazunov feat.Ирина Кулькова - Убегаю (Radio Mix)
+02. Dj Nikita Noskow feat Marlena - Время Настало (Radio Edit)
+03. Dj Onegin feat. Олеся Астапова - Тайна
+04. Dj Smash feat. Достучаться До Небес - Мерси Баку
+05. Gypsy - Джинсы
+06. Larson - Прости Меня Если Сможешь
+07. Lissa Wassabi - Громче
+08. MC Zali feat. Кира Лондон - Далеко
+09. MC Zali feat. Кира Лондон - Мальчик Мой
+10. Misty - Я Верю В Твою ЛюбовьЖанр: Pop, DanceПродолжительность: 02:24:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63AEBAADD5A67CC0B88D24B655FAFA26857A5F79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593612   (134899) от 24.12.2012
+
+VA - Модная VIP тусовка Зимний выпуск 4 (2012) [MP3|128 кб/с]<Рор>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134899.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Катя Баженова - Все О Чем Мечтаю
+002. Анжелика Агурбаш - Для Тебя
+003. Джиган - Нас Больше Нет (Michael Yousher Remix)
+004. Перестрелки - Глаза
+005. Леонид Агутин И Thomas N'evergreen - Ай-Яй-Яй
+006. Snookers - Ready 2 Party (Stefy De Cicco Radio Mix)
+007. Жасмин, Николай Басков, Сергей Лазарев, Зара И Слава - Как В Детстве
+008. Brandy - Wildest Dreams
+009. Fly Project feat. MC Zali & Trinity - Певица Из Села
+010. Паулина Анис - Ангел Хранитель(   Читать дальше...   )Жанр: РорПродолжительность: 12:56:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ED025013388037E1B3F122B2D845AC913F8BA7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 593609   (134880) от 24.12.2012
 
 VA - Танцевальный МегаХит (2012) [MP3|256 кб/с]<Рор>
@@ -796,70 +866,6 @@ VA - Лучший Top-чарт (2012) [MP3|256 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8923AD2F0B746E79CB97C62BBD6B942A89087B98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 490368   (129747) от 01.05.2012
-
-VA - Офигенное Радио (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129747.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Martin Silence Feat. Kika - Me And You
-002 Авраам Руссо - Нелюбимая
-003 Freaky Boys - Take Me Away (Extended Mix)
-004 Dan Balan - Люби
-005 Professor Green Feat. Emeli Sande - Read All About It (Cahill Dub Mix)
-006 Дилайс - Нежно-Нежно
-007 Grooves Featflip Da Scrip - Make Noize (Club Mix)
-008 Бурановские Бабушки - Party
-009 Silent Circle - 1 More Night
-010 Nity feat. DJ Vestero - Улыбнись2012Жанр: PopПродолжительность: 06:31:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:895CDA71D4DCCA649394CA92CDC7624D4949F515
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525468   (129291) от 21.01.2022
-
-VA - Fresh & Chill (2022) [MP3|320 Kbps] <Pop, Chillout>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129291.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ber, Charlie Oriain - Meant To Be (2:46)
-02. Jenna Raine - see you later (ten years) (3:08)
-03. Alec Benjamin - Older (3:12)
-04. Will Linley - miss me (when you're gone) (3:06)(   Читать дальше...   )Жанр: Pop, ChilloutПродолжительность: 04:45:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3EB8DFB4E417C328FE501F0AD88BF8DDEFCFFDD
 ```
 
 https://mybot314.ru/tekegram_catalog/

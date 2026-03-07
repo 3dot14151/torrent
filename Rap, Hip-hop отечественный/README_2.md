@@ -1,3 +1,32 @@
+###  Публикация: 1370829   (893681) от 29.03.2020
+
+Артем Татищевский - Живым 2 (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Начало [00:51]
+02. Уличный движ [03:28]
+03. Андромеда [03:19]
+04. Психотип [03:09](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:52:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A027AFE5BA8374C44FCB0BCD32CFB836077B821C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1370818   (893646) от 29.03.2020
 
 Саша Скул & Murda Killa - Навьи тропы (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -714,35 +743,6 @@ Czar - Pig Drum (Side B) (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DCCB0FF05BCCEFF438C48CC15D721B26CF7270E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378255   (848266) от 24.04.2020
-
-Mnogoznaal - Круг Ветров (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848266.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. План "Перехват" (feat. ЯАVЬ) [01:33]
-02. Антигерой [02:12]
-03. Дуга [02:28]
-04. Ветра [03:11](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:28:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9B1D1549105E960072E035F878CBCCAC34C3E19
 ```
 
 https://mybot314.ru/tekegram_catalog/

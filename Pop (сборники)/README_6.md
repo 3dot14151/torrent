@@ -1,3 +1,67 @@
+###  Публикация: 432220   (990633) от 06.01.2012
+
+VA - Дискотека Зеленоглазое Такси Золотой выпуск (2012) [MP3|224 kbps]<Dance, Club>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_990633.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reflex - Я Небо Разбила (Ural DJs Remix)
+02. Ottawan vs. Peppermint - Hands Up 2011 (DJ Tank New Year Mash-Up Mix)
+03. Hi-Fi - Седьмой Лепесток (DJ Siluyanova Radio Edit)
+04. DJ Joyint & Yaroslav Stakhovskiy - Secret Land (Radio Edit)(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 07:20:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:656281419882126BED621EF14D8E786DF6A6741D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 610621   (990497) от 29.01.2013
+
+VA - Клубная Zона №3 (2013) [MP3|256 кб/с]<Pop,Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_990497.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Никита - Танец В Темноте (Andrey Keyton Official Remix) (Radio Edit)
+02. Слава - Люди Любят (Dj Vengerov Remix)
+03. Нюша - Ты Слишком Сильный (Ural Djs Dance Mix)
+04. Женя Вилль - Ты Для Меня (Alexey Frolof Remix)
+05. Martin Solveig - The Night Out (Madeon Remix)
+06. Rico Bernasconi - Hit The Dust '12 (Official Video Version)
+07. Амина - Дни-Недели (Dj Nariman Mix)
+08. Global Deejays - Hardcore Vibes (Club Edit)
+09. Karmin - Hello (Laidback Luke Radio Edit)
+10. Voodoo & Serano feat. Ceresia & Ron Carroll - Louder (Club Mix)(   Читать дальше...   )Жанр: Pop,DanceПродолжительность: 06:12:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9607608857BB6CF0394E2059AC292A361E165133
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 610730   (990303) от 29.01.2013
 
 VA-Двигай Попой! Часть 6 (2013) [MP3|256 кб/с]<Pop>
@@ -753,64 +817,6 @@ Reverend and The Makers - Collection (2007-2012) [OGG|459-548 кб/с] <Dance Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:465D5373969A3A7BD5C986BC48EFB5CB495F3A79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357011   (975614) от 02.02.2020
-
-VA - German Top 100 Single Charts 31.01.2020 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975614.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Juju x Loredana - Kein Wort (feat. Miksu & Macloud)
-02. The Weeknd - Blinding Lights
-03. Gzuz - Donuts
-04. Samra & Elif - Zu Ende(   Читать дальше...   )Жанр: PopПродолжительность: 05:13:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BA949361155F6C12B61E341A959CDAA862632BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974251   (975565) от 12.01.2016
-
-VA - Акварели (Super DISCOTEKA 70s|80s) (2016) [MP3|320 кб/с] <Disco, Pop, Dance, Ballad>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975565.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Boney M. - Rasputin (7:32)
-002. Sabrina - Boys (Sommertime Love) (3:52)
-003. Toni Esposito - Kalimba De Luna (4:59)
-004. Pupo - Burattino Telecomandato (3:01)(   Читать дальше...   )Жанр: Pop, Disco, Dance, BalladПродолжительность: 11:01:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E131BEE5E130D59927A883343615D63A7DCA90B
 ```
 
 https://mybot314.ru/tekegram_catalog/

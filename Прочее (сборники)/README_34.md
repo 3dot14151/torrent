@@ -1,3 +1,207 @@
+###  Публикация: 1110321   (853759) от 02.03.2017
+
+VA - Ultimate Hits Hottest Moves (2017) [MP3|320 Kbps] <Dancehall, Latin, Reggae, R&B, Hip Hop, Electro, Future Bass, Trap, Indie Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. R3hab Ft Verite - Trouble (Dirty-Short Edit) - 8A 02:22
+02. Ariana Grande Feat Future - Everyday (Transition 90-66 / Clean) 03:47
+03. Jolivi - Love Who You Wanna Love (Flrivn & Nikki X Remix) 04:42
+04. Kungs Ft Ephemerals - I Feel So Bad (Hem Remix) 04:00(   Читать дальше...   )Жанр: Dancehall, Latin, Reggae, R&B, Hip Hop, Electro, Future Bass, Trap, Indie DanceПродолжительность: 07:41:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A23FE200220648BDB4B0CFF12B1E6B781074487
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001335   (853698) от 28.03.2016
+
+VA - Рок в Качалку - Мотивация (vol. 4) (2016) [MP3|320 кб/с] <Heavy Metal, Alternative Metal, Industrial Metal, Metalcore, Electonic>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853698.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abandon All Ships - Take One Last Breath
+02. Five Finger Death Punch - Can't Heal You
+03. The Exies - A Fear Of Being Alone
+04. Theory Of A Deadman - By the Way(   Читать дальше...   )Жанр: Heavy Metal, Alternative Metal, Industrial Metal, Metalcore, ElectonicПродолжительность: 02:12:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CB021C3EC6CB20577D376E13A5A6D826E6510A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110212   (853678) от 02.03.2017
+
+VA - Music for your Car (2017) [MP3|320 Kbps] <Dance , House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853678.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Florian Picasso - This Is Our Time (Original mix) 3:34
+002. 2K Feat Adina - Be the 1 (Radio Edit) 3:13
+003. Milana May - Relationship (Original Mix) 4:05
+004. Chassio - Let the Monkeys Out (Radio Edit) 2:55(   Читать дальше...   )Жанр: Dance , HouseПродолжительность: 05:56:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0E77309932F4FB5532745038013BB46226597A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110312   (853475) от 02.03.2017
+
+VA - Зайцев.Нет: Музыка весны (2017) [MP3|192-320 Kbps] <Поп, Рок, Рэп, Шансон>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853475.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данный плейлист включены самые весенние композиции - от классических произведений Шопена и Микаэла Таривердиева до современной R&B-музыки Rihanna и хип-хопа Kendrick Lamar. Широкий спектр жанров объединяет одно желание: поскорее избавиться от зимних оков и настроиться на ритм самого безумного и яркого времени года.01.  Рок-Острова - Весна  4:11
+02.  Frank Sinatra - It Might As Well Be Spring  3:17
+03.  5'nizza - Весна  4:20
+04.  Гарик Сукачев и Неприкасаемые - За окошком месяц май  4:08(   Читать дальше...   )Жанр: Поп, Рок, Рэп, ШансонПродолжительность: 03:05:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADBB87AD7A91509976325D107539DA46C43D5136
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 770029   (853190) от 24.03.2014
+
+VA - The Official UK Top 40 Singles Chart (23-03-2014) [MP3|320 кб/с]<Pop, Dance, Rock, R&B, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853190.jpg" />
+</div>
+
+
+###  Подробнее
+
+Публикую традиционный UK Singles Chart  - официальный хит-парад синглов Великобритании, отсортированных по результатам продаж за неделю.
+Все изменения по сравнению с прошлым чатом Вы можете посмотреть здесь. А новинки под спойлером NEW.01. Duke Dumont Feat Jax Jones - I Got U  (4:46)
+02. Route 94 Feat Jess Glynne - My Love  (4:22)
+03. John Legend - All Of Me  (4:30)
+04. Pharrell Williams - Happy  (3:53)(   Читать дальше...   )Жанр: Pop, Dance, Rock, R&B, OtherПродолжительность: 02:28:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD1419A73E1E48F1F8631ECF7CB7D916877DFAD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 648542   (852961) от 25.04.2013
+
+VA - Рок в Авто (vol. 11) (2013) [MP3|320 кб/с]<Power Metal, Alternative Metal, Heavy Metal>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_852961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sons Of Seasons - Bubonic Waltz
+ 02. Visions Of Atlantis - Machinage
+ 03. Casus Belli - Mirror Out Of Time
+ 04. Sonata Arctica - Victoria's Secret(   Читать дальше...   )Жанр: Power Metal, Alternative Metal, Heavy MetalПродолжительность: 05:05:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDF6AFBA484256CF36DA2D4F99D0BE38DDEA8F92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110603   (852267) от 03.03.2017
+
+VA - In Love (2017) [MP3|320 Kbps] <Pop, Lounge, Soul, Easy Listening>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_852267.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Justin Bieber - Love Yourself (03:54)
+02. Ellie Goulding - Still Falling For You (04:01)
+03. Shawn Mendes - Mercy (03:29)
+04. Ariana Grande, The Weeknd - Love Me Harder (03:56)(   Читать дальше...   )Жанр: Pop, Lounge, Soul, Easy ListeningПродолжительность: 02:33:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6F302DD9BBEF5A688075AE4449D31116BA28AEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1110662   (852169) от 03.03.2017
 
 VA - St. Moritz: Make Me Disco (2017) [MP3|320 Kbps] <Dance, nu-disco, deep-house, electronic>
@@ -543,209 +747,6 @@ VA - Peace Acapella: Grand Hit Collection (2017) [MP3|224-320 Kbps] <RnB, Rap, H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C40D5A3713891191A8DC556C3874F916DC5A3313
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111638   (846565) от 06.03.2017
-
-VA - Рок впрок выпуск № 8 (2017) [MP3|320 Kbps] <Рок, Поп-Рок>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846565.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. МодеМ - Шанель №6 4:27
-002. Fire Stream - Кто мы? 6:05
-003. Label - Нам не все равно (feat. Дмитрий Спирин) 3:12
-004. РЕЙС - Родная 3:33(   Читать дальше...   )Жанр: Рок, Поп-РокПродолжительность: 03:09:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6FB5E5CA4B1F5BFC0BA6934447F49A1AE74D8DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378136   (846526) от 25.04.2020
-
-VA - Настроение жесть (2020) [MP3|256 Kbps] <Pop, Shanson, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846526.jpg" />
-</div>
-
-
-###  Подробнее
-
-001	Салехард — Настроение жесть
-002	Ковтун  Андрей — Черная полоса
-003	Коновалов Евгений — В жизни бывает всякое
-004	Южный Ильдар — Откровение странника(   Читать дальше...   )Жанр: Pop, Shanson, OtherПродолжительность: 06:30:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FF6FE93AACB43689E983AA9D227038442AEAE72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 877583   (845717) от 13.03.2015
-
-VA - Звезды Дискотек! (39 - 42) (2015) (4CD) [MP3|192 - 320 кб/с]<Pop, Dance, Eurodance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845717.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. E-Type - Angels Сrying (03:50)
-002. Milk Inc. - Livin' A Lie (03:20)
-003. E-Type - Princess Of Egypt (03:39)
-004. Alice Deejay - Back In My Life (03:29)(   Читать дальше...   )Жанр: Pop, Dance, EurodanceПродолжительность: 01:51:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD643786E89743DE496972A95CDAE9DD9671EE59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112033   (845162) от 07.03.2017
-
-VA - Empire Records - Dancenudisco 11 (2017) [MP3|320 Kbps] <Disco, Dance, Nu-Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845162.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. LP Feat. Swanky Tunes & Going Deeper - Lost On You (Kolya Funk & Eddie G Remix)
-02. Nio March - Contagious Nights (Monoteq Remix)
-03. Laurent T - I Get What I Want
-04. Will Fast - You & I (Original Mix)(   Читать дальше...   )Жанр: Disco, Dance, Nu-DiscoПродолжительность: 01:54:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A95EE6B97184CBC74F18539FEA791F10AF359DD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112028   (845156) от 07.03.2017
-
-VA - Empire Records - Dancenudisco 10 (2017) [MP3|256-320 Kbps] <Disco, Dance, Nu-Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845156.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cerrone Feat. Yasmin - Kiss It Better
-02. Billie - Caught By The Tide (Bobby Ewing Remix)
-03. Manuel Riva - Mhm MhmDemoMstr
-04. Piero Ipazio - Il Mio Cuore , Il Tuo Cuorei (Dj Ikonnikov E.x.c Version)(   Читать дальше...   )Жанр: Disco, Dance, Nu-DiscoПродолжительность: 01:40:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:903EA95704C7D2EBFF8CF46C36BAD80DDDE408C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112036   (845154) от 07.03.2017
-
-VA - Empire Records - Club Hit 11 (2017) [MP3|320 Kbps] <Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Indaqo - Hey
-02. Destinys Child - Say My Name (Mathieu Koss Remix) (Rockabeat Short Edit)
-03. Matoma F. Gia - Heart Won't Forget (Virtue Club Mix)
-04. Aura Dione - Can't Steal The Music(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 01:27:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4694B9089A676E3C928577C6AC645AF1171043B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002825   (845117) от 02.04.2016
-
-VA - Aprils Popular Top 100 (2016) [MP3|128-320 кб/с] <Pop, Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845117.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Selena Gomez - Hands To Myself
-002. The Weeknd - Can't Feel My Face
-003. WSTRN - In2
-004. Taylor Swift - Bad Blood (feat. Kendrick Lamar)(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 05:55:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD058EFC20A318A2FBA5D99485CA2BF1AEB5BC92
 ```
 
 https://mybot314.ru/tekegram_catalog/

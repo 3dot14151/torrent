@@ -1,3 +1,32 @@
+###  Публикация: 1106399   (873528) от 19.02.2017
+
+VA - The Da Vinci Mysteries (2006) [MP3|320 Kbps] <Gregorian, New Age, Enigmatic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873528.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kelly O'Neill – Mystic Dream
+02. Emerald Singers – Adiemus
+03. Massini – Mystera
+04. Tranceparence – Sadeness Part I(   Читать дальше...   )Жанр: Gregorian, New Age, EnigmaticПродолжительность: 00:56:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBB555B577F6B06ADCA9F1C2E6BF07BA448AE93E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1106359   (873516) от 19.02.2017
 
 VA - Притяжение (Официальный Саундтрек) (2017) [MP3|320 кб/с]<Soundtrack>
@@ -714,35 +743,6 @@ Roc Chen, Rob King, Paul Romero - Might & Magic Heroes VII (2015) [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0DD2F87CB3EC23F390717EF035AB2DDB1ED85CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107114   (868003) от 22.02.2017
-
-Cyndi Lauper - At Last (2003) [FLAC|Lossless|image + .cue] <Pop, Pop Rock, New Wave>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868003.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. At Last
-02. Walk On By
-03. Stay
-04. La Vie En Rose(   Читать дальше...   )Жанр: Pop, Pop Rock, New WaveПродолжительность: 00:50:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:466B0A73BF4AE7527A6573317AB19D84E2E77735
 ```
 
 https://mybot314.ru/tekegram_catalog/

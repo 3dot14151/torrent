@@ -1,3 +1,119 @@
+###  Публикация: 1749884   (43339) от 16.09.2024
+
+VA - Buddha Luxury Bar - Arabian Chillout Deluxe 2024 [FLAC|Lossless|WEB-DL|tracks] <House, Folk>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_43339.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Saad Leela Bhansali - Alo Aleky (4:45)
+02. Yusuf Bhatt - Wami Wami (6:22)
+03. Rachid El Esseily - Arbabi (5:11)
+04. Burak Abulso'oud - Mawjouaa Galbi (6:11)(   Читать дальше...   )Жанр: House, FolkПродолжительность: 01:41:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BC6460DDAE26EBD3FBA4C428E85B2B6D67B36F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750116   (43160) от 18.09.2024
+
+VA - Sahara Beats (The Hottest Arab Music from the Hottest Desert) (2023) [FLAC|Lossless|WEB-DL|tracks] <House, Folk>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_43160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rachid El Esseily - Camel Shoes (4:38)
+02. Davide Angiuli - Desert of Love (Extended Mix) (6:06)
+03. Ajram Al Jawad - Arab Toy (4:38)
+04. Nouri Fateh - Aah-W-Noss (6:30)(   Читать дальше...   )Жанр: House, FolkПродолжительность: 01:39:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:391E3CA496D50BD1AC9B95A87134DF391DBD0088
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751237   (42605) от 23.09.2024
+
+VA - Arabic Ethnic Deep House Mix 2023 [FLAC|Lossless|WEB-DL|tracks] <House, Folk>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_42605.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rachid El Esseily - Camel Shoes (4:38)
+02. Khaled Youssef - Twilight Silhouette (5:02)
+03. Ajram Al Jawad - Arab Toy (4:38)
+04. Azula - Bedouin (5:40)(   Читать дальше...   )Жанр: House, FolkПродолжительность: 01:13:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3459F9FDBE9AA4D8BC9DF7E791CA9CA3E731C05A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751277   (42536) от 24.09.2024
+
+VA - Arabic Ethnic Deep House Mix 2024 [FLAC|Lossless|WEB-DL|tracks] <House, Folk>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_42536.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sanjay Lamjarred - Min Awel Dekika (5:45)
+02. Rachid Fairuz - Habiby Da (4:30)
+03. Burak Abulso'oud - Guli Mata (5:18)
+04. Mohammed Haifawi - Mal Hbibi (6:30)(   Читать дальше...   )Жанр: House, FolkПродолжительность: 01:11:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05101C358C57D4442556132A1636FADB6F4CEEB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1751386   (42499) от 24.09.2024
 
 VA - Arabic Ethnic Deep House Mix 2022 [FLAC|Lossless|WEB-DL|tracks] <House, Folk>
@@ -624,122 +740,6 @@ VA - Sun Sand & Spirit, Vol. 1 (Tibetania Records) (2024) [FLAC|Lossless|WEB-DL|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E4117BC7C04BD05653540D111AB69B3E6ADA3B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760212   (37486) от 12.11.2024
-
-VA - Deep House Chill 2024 (Cherokee Recordings) [FLAC|Lossless|WEB-DL|tracks] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37486.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep Emotion - One More Night (2:36)
-02. Audioboy - Ocean (3:10)
-03. Whisk - Never Enough (2:29)
-04. Sasha Katana - I Want You To Know (3:22)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:11:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4D40A2CC727415B2B5AF73C8A1918F53923604F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760230   (37482) от 12.11.2024
-
-VA - Deep House Hits 2024 (Cherokee Recordings) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep Emotion - One More Night (Original Mix) (2:36)
-02. Audioboy - Secret Enemy (Original Mix) (3:03)
-03. The Tschopp - More Than One Night (Original Mix) (2:23)
-04. Dani Corbalan - Addicted To You (Original Mix) (2:24)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:07:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6995178C03DFF561358D44C15BC50549CD41B6E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760365   (37397) от 13.11.2024
-
-VA - Chillout Lounge 2024 (Cherokee Recordings) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37397.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep Emotion - Relax, Take It Easy (2:37)
-02. Audioboy - Shining Star (3:10)
-03. Silk Department - All Of My Love (2:47)
-04. Dani Corbalan - Out Of My Mind (2:55)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:10:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84BE63B8D9811F042E1120B5196FCC9B0C3A05DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760533   (37201) от 15.11.2024
-
-VA - Deep House 2024 (Cherokee Recordings) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37201.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep Emotion - Listen To Your Heart (2:35)
-02. Dani Corbalan - Addicted To You (2:24)
-03. Dropix DJ - Far in Love (2:34)
-04. Audioboy - Oh La La La (3:10)(   Читать дальше...   )Продолжительность: 01:20:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5DEF8C7E57003CF024A1C2982C25FCFD1D81474
 ```
 
 https://mybot314.ru/tekegram_catalog/

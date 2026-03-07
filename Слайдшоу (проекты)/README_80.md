@@ -1,3 +1,29 @@
+###  Публикация: 1070557   (366293) от 07.11.2016
+
+Проекты - VideoHive - Inspired Slideshow [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366293.jpg" />
+</div>
+
+
+###  Подробнее
+
+Inspired - Проект для создания вдохновляющего фото-видео слайдшоу.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D8BA9CAC4CB194B8F6B8CF9048E350ED87844C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1070331   (366289) от 07.11.2016
 
 Проекты - Проект ProShow Producer - Flower Frames & Corners [PSH]
@@ -659,32 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9C24F34DD7EABDC579E49E05D4109D733FE2D85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952653   (355338) от 01.11.2015
-
-Проекты - VideoHive - Lines Slide Show [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355338.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания слайд шоу. Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1DFFD3A98C0660EB4CBAFD6D5C1B682247D1D0B
 ```
 
 https://mybot314.ru/tekegram_catalog/

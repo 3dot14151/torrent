@@ -1,3 +1,119 @@
+###  Публикация: 906976   (641476) от 10.06.2015
+
+Rick Astley - The Best Of (2014) [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641476.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Never Gonna Give You Up
+02. Whenever You Need Somebody (Radio Edit)
+03. When I Fall In Love
+04. My Arms Keep Missing You(   Читать дальше...   )Жанр: PopПродолжительность: 01:04:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44F17E5BFE9E8F2A58FB70424974BB96AB8956A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228082   (640932) от 29.05.2018
+
+Charles Aznavour - Mélodies inoubliables (2018) [FLAC|Lossless|WEB-DL|tracks] <French Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_640932.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Je m'voyais deja
+02. Jezebel
+03. Heureux avec des riens
+04. Il faut savoir(   Читать дальше...   )Жанр: French PopПродолжительность: 00:57:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB5F16B730FA2C862D873A7CF408072206F31E95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541936   (640872) от 05.04.2022
+
+Bananarama - Discomania (2005) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_640872.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Venus
+02. I Heard A Rumour
+03. Love Is The First Degree
+04. I Can't Help It(   Читать дальше...   )Жанр: PopПродолжительность: 00:59:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8D29A9980B7B693111C8ACF831AE3F7D77CBF1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907705   (637869) от 12.06.2015
+
+Mika - No Place in Heaven (2015) Deluxe Edition [FLAC|tracks]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_637869.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Talk About You (3:22)
+02. All She Wants (3:39)
+03. Last Party (3:39)
+04. Good Guys (3:23)(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6E5E568A80C013BC82FE708850975CF511CDC79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 907487   (637744) от 12.06.2015
 
 Adam Lambert - The Original High (2015) Deluxe Edition [FLAC|tracks+.cue]<Pop>
@@ -632,122 +748,6 @@ Katy Perry - Witness (Japanese Deluxe Edition) (2017) [FLAC|Lossless|tracks + .c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:210857D1A52F8811311A78CD4D768B9360958440
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035236   (626710) от 17.07.2016
-
-Dicte - Perfume (2016) [FLAC|Lossless|tracks + .cue] <Pop, Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626710.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Don't Wanna Lie
-2. All I Want Is You
-3. Mama Said
-4. Stronger(   Читать дальше...   )Жанр: Pop, SoulПродолжительность: 0:38:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92A3A5547956D83C1026C658679AF509141919D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035580   (626505) от 17.07.2016
-
-Arabesque - Greatest Hits Volume 1 (1993) Unofficial Release [APE|Lossless|image + .cue] <Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626505.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hello Mr. Monkey
-02. Fly High Little Butterfly
-03. Buggy Boy
-04. Friday Night(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:06:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4F2E5E8C05BC74F307B5E666A10DDE023DB8FCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294843   (626115) от 09.04.2019
-
-Christopher Cross - Doctor Faith (2011) [FLAC|Lossless|image + .cue] <Pop Rock, Soft Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626115.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hey kid 3:34
-02. I'm too old for this 4:17
-03. When you come home 4:28
-04. Dreamers 4:03(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 00:53:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:410FA9AA8298946BBE6C0D7AB57D0887EEB7872F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909741   (626003) от 18.06.2015
-
-Lenka - The Bright Side (2015) [FLAC|Lossless|WEB-DL]<Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626003.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Long Way Home
-02. Blue Skies
-03. Free
-04. Unique(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:35:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14E2D3437DD824E10AA070292D857FDD7F75C35A
 ```
 
 https://mybot314.ru/tekegram_catalog/

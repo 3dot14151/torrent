@@ -1,3 +1,61 @@
+###  Публикация: 1410760   (431920) от 23.09.2020
+
+VA - Yellow Day: Pop Folk Music (2020) [MP3|320 Kbps] <Pop, Folk, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431920.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Vroni - Ohne Spa Kein Fun
+002. Miane - Fo Nou Lé Soudé
+003. Panagiotis Labouras - Peplo
+004. T.T. Purontaka - Mun(   Читать дальше...   )Жанр: Pop, Folk, DanceПродолжительность: 10:52:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A773A14DF735A2C36A2582E9A76D6C8E86917F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1571584   (431690) от 22.08.2022
+
+Avalanche - Compilation (2022) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431690.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Always
+02. Once Upon a Time
+03. If You Ever Want to Love Again
+04. All Blame on Love(   Читать дальше...   )Жанр: PopПродолжительность: 00:35:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB7BBEAEA9D96CB006E97DF27C7B698634CCEA41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1571615   (431687) от 22.08.2022
 
 Lynsey De Paul - Compilation (2022) [MP3|320 Kbps] <Pop>
@@ -715,64 +773,6 @@ VA - Живи стильно! Наслаждайся музыкой с Hit FM (2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9246932D70C8F5F23722F7DFB78302A098875DFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1324675   (423097) от 10.09.2019
-
-VA - German Top 50 Party Schlager Charts 09.09.2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423097.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fantasy - Casanova
-02. Andrea Berg - Die geheimen Träumer
-03. Beatrice Egli - Le Li La
-04. Ben Zucker - Wer sagt das(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 02:55:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:979CDDA0BD4F5C4C012F4314AEFA444895BDA927
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411625   (423073) от 27.09.2020
-
-VA - German Top 100 Single Charts 25.09.2020 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423073.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 24kgoldn - Mood (feat. Iann Dior)
-02. Capital Bra - Einsam an der Spitze
-03. KitschKrieg & Jamule - Unterwegs
-04. Internet money, Gunna & Don Toliver - Lemonade (feat. NAV)(   Читать дальше...   )Жанр: PopПродолжительность: 05:02:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B6E83A65CED7ACC273149F582B10DDEA1F7E7FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

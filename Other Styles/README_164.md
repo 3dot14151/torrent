@@ -1,3 +1,32 @@
+###  Публикация: 1695551   (119780) от 01.02.2024
+
+Ashley Ryan - Too Far Gone (2024) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_119780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hush Little Baby [00:02:54]
+02. Too Far Gone [00:02:55]
+03. Just a House [00:03:12]
+04. One Tractor Mind [00:03:30](   Читать дальше...   )Жанр: Contemporary CountryПродолжительность: 00:26:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7B3B1A10A604486CA06AB9C2DA560DB79255DCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1695618   (119639) от 02.02.2024
 
 Paul Mauriat - Windy (1986) [OGG Vorbis|480 Kbps] <Classical>
@@ -716,35 +745,6 @@ VA - The Orient Collective: The Caravan (2023) [FLAC|Lossless|WEB-DL|tracks] <Wo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B8BAC9B36BD1963844A7820922EB504E79AEAE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704225   (114180) от 05.03.2024
-
-Syntheticsax - Silhouettes (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114180.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Silhouettes
-2.Silhouettes (Romantic Version)
-3.Silhouettes (Extended Mix No Sax)
-4.Silhouettes (Backing Track No Sax)(   Читать дальше...   )Жанр: Alternative, IndieПродолжительность: 00:31:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90888D30DB669067EA4A6D59073B1DFAECBD9A80
 ```
 
 https://mybot314.ru/tekegram_catalog/

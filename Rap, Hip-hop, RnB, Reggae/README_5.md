@@ -1,3 +1,90 @@
+###  Публикация: 1366056   (925744) от 10.03.2020
+
+$uicideBoy$ - STOP STARING AT THE SHADOWS (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_925744.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Dogs Go To Heaven [02:34]
+02. I Wanna Be Romanticized [02:14]
+03. One Last Look At The Damage [01:38]
+04.Жанр: Rap, Hip-HopПродолжительность: 00:26:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C6CB76D039962DC25B730E963F31D9FA9493335
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987817   (924183) от 18.02.2016
+
+Usher - Confessions (2004) [FLAC|Lossless|tracks + .cue] <RnB, Swing>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>RnB, Reggae (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_924183.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (0:46)
+02. Usher feat. Lil Jon & Ludacris - Yeah! (4:10)
+03. Usher feat. Jadakiss - Throwback (4:46)
+04. Confessions (4:20)(   Читать дальше...   )Жанр: RnB, SwingПродолжительность: 01:18:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:873EA64DBF4503F00392EF07D5FC2CAA3346087C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096181   (920380) от 23.01.2017
+
+Noize MC - Царь Горы (2016) [FLAC|Lossless|image + .cue] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920380.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Make Some Noize
+02. Стэнли запишет хит
+03. Царь Горы
+04. Эмпайр Стэйт(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:50:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AF3B42852CCCE5B36E0856C136506E6549D4FB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366997   (919142) от 14.03.2020
 
 King Iso - World War Me (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -658,93 +745,6 @@ Sagath - Вынос тела (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7011F2544193EFCD0071A92ED560EA0FA13E4782
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368592   (909206) от 20.03.2020
-
-Pop Smoke - Meet The Woo (2019) [MP3|320 Kbps] <Rap, Hip-Hop, Drill>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909206.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meet the Woo [02:01]
-02. Welcome To The Party [03:35]
-03. Hawk Em [01:59]
-04. Better Have Your Gun [03:20](   Читать дальше...   )Жанр: Rap, Hip-Hop, DrillПродолжительность: 00:27:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8E8985653FDCB4FEEE88FF511B2E0A63434C653
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368596   (909190) от 20.03.2020
-
-Pop Smoke - Meet The Woo 2 (2020) [MP3|320 Kbps] <Rap, Hip-Hop, Drill>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909190.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Invincible [02:08]
-02. Shake The Room (feat. Quavo) [02:46]
-03. Get Back [01:48]
-04. Christopher Walking [03:11](   Читать дальше...   )Жанр: Rap, Hip-Hop, DrillПродолжительность: 00:34:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC01567B3805E720ABECE551979DE9B6F55B6094
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368652   (908945) от 20.03.2020
-
-Drummatix - На горизонте (2020) [MP3|320 Kbps] <Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908945.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. В Долгий Путь (2:45)
-02. На Горизонте (4:15)
-03. Проснись (feat. Типси Тип) (3:12)
-04. Летать (3:26)(   Читать дальше...   )Жанр: Hip-HopПродолжительность: 00:28:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACA5AFA3FA12E6B8DB05454FEC2D083F724A3381
 ```
 
 https://mybot314.ru/tekegram_catalog/

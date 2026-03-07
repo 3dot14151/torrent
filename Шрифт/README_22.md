@@ -1,3 +1,31 @@
+###  Публикация: 1785315   (69330) от 15.03.2025
+
+Шрифты - Creative Market - Maniefa || Elegant Serif Font - 290802538 [OTF, TTF, WOFF, WOFF2]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69330.jpg" />
+</div>
+
+
+###  Подробнее
+
+Maniefa — это шрифт с засечками, который излучает роскошь и элегантность. Он привлекает внимание и улучшает любой дизайн.
+
+Кириллица не поддерживается.Формат: OTF, TTF, WOFF, WOFF2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F05DE1FD9D4A9CFEB3B8A700A41913C9E2A27256
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1785277   (69301) от 15.03.2025
 
 Шрифты - Creative Market - Galory Display Retro - 280692923 [OTF, TTF]
@@ -684,34 +712,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6F19F503ACC95F386F87A4E79343E38A8235221
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785696   (69170) от 17.03.2025
-
-Шрифты - Creative Market - Rodiks Collor - Display Font - 290887832 [OTF, TTF, WOFF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69170.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представляем Rodiks Collor, классный и элегантный дисплейный шрифт.
-
-Кириллица не поддерживается.Формат: OTF, TTF, WOFF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D427535C0BA581C60740B124E31D75D65E4FF11C
 ```
 
 https://mybot314.ru/tekegram_catalog/

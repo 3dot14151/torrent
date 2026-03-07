@@ -1,3 +1,61 @@
+###  Публикация: 1066306   (414177) от 25.10.2016
+
+VA - Pop Rock Disco 80s (2016) [MP3|320 Kbps] <Pop, Dance, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_414177.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Emerson, Lake & Palmer - Introductory Fanfare (Live)
+002. Ottawan - Hands Up (Urban Remix)
+003. Ane Brun - Big In Japan (Uno Kaya Remix)
+004. Foreigner - I Want To Know What Love Is (Live)(   Читать дальше...   )Жанр: Pop, Dance, DiscoПродолжительность: 12:09:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:793456D36955C2CA7B5CFFC15857ADA51A4A7D3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066309   (414018) от 25.10.2016
+
+VA - Музыкальный заряд (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_414018.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alisher - Демон
+002. Vaults - Overcome
+003. Lx24 - Скажи Зачем
+004. The Chainsmokers Feat. Daya - Don't Let Me Down(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47F0E126519A5F4B95F1106D8ABD6EEFF047C20F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 948022   (413630) от 19.10.2015
 
 The Kelly Family - Good Songs (2015) [MP3|128-320 кб/с]<Pop, Rock, Ballads, Rock-n-Roll, Pop-Folk>
@@ -693,64 +751,6 @@ VA - German Top 100 Single Charts 02.10.2020 [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05EFBC528CE69FCBA3D4E70FBBE39D2EDF34216B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252558   (409082) от 05.10.2018
-
-Eros Ramazzotti - Next Steps (2018) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409082.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Canzone Per Lei (3:40)
-02. Ci Parliamo Da Grandi (4:34)
-03. Controvento (3:46)
-04. Cose Che Ho Visto (4:11)(   Читать дальше...   )Жанр: PopПродолжительность: 01:42:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A7B7F7FD831D1FEBCC04655C1E7918E10ABEC47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252390   (408989) от 05.10.2018
-
-VA - 200 Hits Of The Pops (2018) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408989.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ini Kamoze - Here Comes The Hotstepper
-002. Vozquez Sounds - Eco
-003. Samantha Jade - Never Can Say Goodbye
-004. Chris De Burgh - The Lady In Red(   Читать дальше...   )Жанр: PopПродолжительность: 12:04:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6AB8272696B2F170B01190262AB43E092EB2803
 ```
 
 https://mybot314.ru/tekegram_catalog/

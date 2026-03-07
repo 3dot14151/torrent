@@ -1,3 +1,206 @@
+###  Публикация: 1626338   (255191) от 14.04.2023
+
+VLNY - Меня здесь нет (2023) [MP3|320 Kbps] <Indie Pop, Synth Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_255191.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Выдыхай
+2. Слова наизнанку
+3. Моя любовь
+4. Луна на ладони(   Читать дальше...   )Жанр: Indie Pop, Synth PopПродолжительность: 00:56:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC95B5E75D46418DFC7F2655BA897053B5C387F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626599   (255094) от 17.04.2023
+
+VA - Electric Dreams (1993) [OGG Vorbis|480 Kbps] <Electronic, Rock, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_255094.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yazoo - Don't Go
+02. Heaven 17 - Temptation ( 93 Remix )
+03. Erasure - Sometimes
+04. Nik Kershaw - Wouldn't It Be Good(   Читать дальше...   )Жанр: Electronic, Rock, Synth-popПродолжительность: 01:16:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:494FCC4E60063386D9AF2896952ECAF9E6E757EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626531   (255087) от 17.04.2023
+
+VA - It's Hits (2023) [OGG Vorbis|480 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_255087.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lizzo - 2 Be Loved (Am I Ready)
+02. Bailey Zimmerman - Rock and a Hard Place
+03. Charlie Puth - Left and Right (feat. Jung Kook)
+04. David Guetta - I'm Good (Blue)(   Читать дальше...   )Жанр: PopПродолжительность: 03:52:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCFB180C8FB712203408724A9F253922ED477488
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626621   (255060) от 18.04.2023
+
+VA - ZYX Italo Disco New Generation Vol. 1 (2012) [OGG Vorbis|480 Kbps] <Italo-Disco, Euro-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_255060.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ryan Paris - Parisienne Girl (Eddy Remix)
+02. Tiziana Rivale - Ash (Vocal Version)
+03. Squash Gang - Hey You (What's Coming On Along The Way)
+04. Ken Laszlo - Dancing Together (Vocal Version)(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, Synth-popПродолжительность: 02:33:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C86FD34029BCF6965E5F861ACD3C94EFD1227DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1627398   (255015) от 19.04.2023
+
+VA - Bravo Hits Vol. 121 (2023) 2CD, Compilation [MP3|320 Kbps] <Synthpop, Dance, Hip Hop, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_255015.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+01. Metro Boomin, The Weeknd & 21 Savage - Creepin'
+02. Raye & 070 Shake - Escapism.
+03. Coi Leray - Players(   Читать дальше...   )Жанр: Synthpop, Dance, Hip Hop, BalladПродолжительность: 01:13:19 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53A76F90E7DFE898CC38B63D7D17C480BEC32180
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1629807   (254746) от 27.04.2023
+
+Harari - 3 Albums (1979-1981) LP [MP3|320 Kbps] <Afrobeat, Funk, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_254746.jpg" />
+</div>
+
+
+###  Подробнее
+
+Название группы взято из названия городка за пределами Солсбери (который в настоящее время является столицей, Хараре). Благодаря своему стилю афро-рок / фанк / фьюжн они добились огромных успехов на родине и в соседних штатах, стали первой местной чернокожей поп-рок-группой, появившейся на южноафриканском телевидении.Список альбомов:
+1979 - Kala Hariri Rock
+1980 - Heatwave
+1981 - Flying Out(   Читать дальше...   )Жанр: Afrobeat, Funk, DiscoПродолжительность: 01:43:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCBC771144280970661DFD1F8B2BF41ADC91EDF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1836726   (254093) от 12.11.2025
+
+VA - 70s - 111 Original Hits (2009) 6 CD [OGG Vorbis|480 Kbps] <Rock, Pop, Folk, World, & Country>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_254093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blondie - Sunday Girl     03:12
+ 02. Roxy Music - Love Is the Drug     04:08
+ 03. Tom Robinson Band - 2-4-6-8 Motorway     03:17
+ 04. Chris Spedding - Motor Bikin’     02:37(   Читать дальше...   )Жанр: Rock, Pop, Folk, World, & CountryПродолжительность: 06:30:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41D5BABA8831A6A38A32FC10C5D972F2A0035C55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 496629   (252967) от 14.05.2012
 
 VA - 80 Golden Hits ( BoxSet 5CD ) (1993) [MP3|320kbps]<Pop>
@@ -559,209 +762,6 @@ Lily Allen - West End Girl (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop-Rock,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F55FF2074A3026E439175669B4DA5B32FC7D430
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1834389   (250399) от 03.11.2025
-
-Винтаж - Недетский мир (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Pop (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250399.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Дура [00:02:31]
-02. Недетский Мир [00:03:00]
-03. Рисунок [00:02:52]
-04. Единороги [00:02:48](   Читать дальше...   )Жанр: PopПродолжительность: 00:35:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9C450AAF3265F3E4EDBEF47ACE1084FD8656BAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618141   (250069) от 10.03.2023
-
-VA - EFFECTIVE COVERS, Vol. 4 (2023) [MP3|320 Kbps] <Eurodance, Technopop>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250069.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Flying Decibels - Bad Habits
-2. Swanky Tunes/Jeddak - Angels (Love Is the Answer)
-3. FILV/Muffin/DALEN - The Motto
-4. KILLTEQ/D.HASH/Vallhee - I Like It(   Читать дальше...   )Жанр: Eurodance, TechnopopПродолжительность: 00:51:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC94B9575DC7DDAD7198376B7A1C8BF289F82CEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618573   (249915) от 12.03.2023
-
-ВИА "Акварели" - 3 Albums (1975-1979) LP [MP3|320 Kbps] <Pop, Pop Rock>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249915.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Акварели" - советский вокально-инструментальный ансамбль. По праву можно считать одним из самых популярных и ярких представителей жанра. В коллективе принимали участие: Виталий Попов (бас-гитара), Александр Сидельников (гитара), Алексей Игумнов (гитара, вокал), Николай Румянцев (гитара, вокал), Игорь Кузьмин (саксофон), Александр Мухатаев (флейта, вокал) (   Читать дальше...   )Список альбомов:
-1975 - Акварели
-1978 - Акварели ''В этот день''
-1979 - Солнечный луч в моем сердце(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 01:45:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F9AD0A7B30B4E3728124A0E5BCCDAA3A18F6751
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619047   (249770) от 14.03.2023
-
-VA - Best Of Disco Balls Records 2022, Vol. 3 (2023) [MP3|320 Kbps] <Disco, Nu-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249770.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Molly & Tacos feat. Leigh Sinclair - Lonely People (Extended Mix)
-02. TheDJLawyer - Morning (Disco Mix)
-03. Lup Ino - Party Right Away (Original Mix)
-04. Cesar C - Lady 70's (Extended Mix)(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 01:47:53 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:785008F861F3F548D547417EAA349B489454DE68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619253   (249757) от 15.03.2023
-
-VA - 20s Finest Pop (2023) [OGG Vorbis|480 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249757.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ed Sheeran - Celestial
-02. Bryce Vine - Help (feat. Pheelz)
-03. Ava Max - Weapons
-04. Charlie Puth - Smells Like Me(   Читать дальше...   )Жанр: PopПродолжительность: 01:26:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EC5570129D37181F25D2761F39E243735757E56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619266   (249731) от 15.03.2023
-
-VA - All Day Throwback 100 Hits (2023) [OGG Vorbis|480 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249731.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bruno Mars - That's What I Like
-002. Fleetwood Mac - Everywhere (2018 Remaster)
-003. Tina Turner - The Best
-004. Red Hot Chili Peppers - Under the Bridge(   Читать дальше...   )Жанр: PopПродолжительность: 06:30:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42E560C70145901F4D7CA3CE1D8295F2E59CCE70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619494   (249679) от 16.03.2023
-
-гр.Восток, гр.Запад, гр.Экс-Восток - 9 Альбомов (1996 - 2005) [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249679.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро
-02. Фонарик
-03. Миражи
-04. Синьорина(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 07:12:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F640D6A4F1D7E9389ADE3A5A88EC346DED6E4DE7
 ```
 
 https://mybot314.ru/tekegram_catalog/

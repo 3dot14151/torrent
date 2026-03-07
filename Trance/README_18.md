@@ -1,3 +1,90 @@
+###  Публикация: 1137509   (665564) от 28.05.2017
+
+VA - Summer Hits (2017) [MP3|320 Kbps] <Trance, Progressive Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_665564.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Mivase - I Can't Give Up (Original Mix) 3:12
+02.  Russian Dolls & Nathia Kate - Always (feat. Robin Vane) (Original Mix) 4:24
+03.  WeareD - Assertive (Original Mix) 2:49
+04.  Frainbreeze - Signs Of Time (feat. Natune & Angel Falls) (Vadim Bonkrashkov Remix) 4:26(   Читать дальше...   )Жанр: Trance, Progressive Trance, Vocal TranceПродолжительность: 01:18:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61CB60E09896311C8768A80A4838CF1D12860F19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537962   (665442) от 18.03.2022
+
+VA - Black Hole Trance Music 03-22 (2022) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_665442.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Richard Durand & Christian Burns - Almost Home (Extended Mix) [06:30]
+02. Siskin - Never Alone (Extended Mix) [07:45]
+03. Ciaran Mcauley & Clara Yates - Light A Rainbow (Extended Mix) [05:25]
+04. Cosmic Gate & Olivia Sebastianelli - We Got The Fire (Extended Mix) [07:04](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:43:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0436AC52B44599AEA45E7D87C61689337F8ABD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137604   (665314) от 28.05.2017
+
+Robert Miles - Remember Robert Miles (2017) [MP3|320 Kbps] <Trance, Dream House>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_665314.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Children (Dream Version) 7:06
+02.  Fable (Message Version) 6:25
+03.  Children (Message Version) 6:51
+04.  One And One (Radio Version) (feat. Maria Nayler) 4:01(   Читать дальше...   )Жанр: Trance, Dream HouseПродолжительность: 01:44:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC1CCBDD702EDDBFEAA7023047E455D6A2C70F04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1225035   (662921) от 13.05.2018
 
 VA - Total Trance Selections Vol. 11 (2018) [MP3|320 Kbps] <Trance>
@@ -658,93 +745,6 @@ VA - Ibiza Vocal Trance (2016) [MP3|320 Kbps] <Trance, Vocal Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F8728A38E882DF77A48D66B3A03A48B0A6C1674
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540984   (648645) от 01.04.2022
-
-VA - Trance Music For You Trip (2022) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648645.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 7ROSES & Camille - Trying Not To Cry (Radio Mix) (3:22)
-02. Craig B - Hold The Light (Radio Mix) (3:41)
-03. Moonmelo - Imagination (Radio Mix) (2:40)
-04. A.L.Y.S. - Weekend (Radio Mix) (3:00)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:47:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B851BE2491B30B0757034CC0CFD57F61B4538D83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292363   (646907) от 29.03.2019
-
-VA - Trancespotting Vol.8 (2019) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646907.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mindsoundscapes - Grasping Life (Radio Cut) 3:19
-02. Con Phillips - Varanasi (Radio Cut) 3:51
-03. Unit Of Trance - Reserve (Radio Edit) 3:28
-04. Brent Rix - Desert Sun (Original Mix) 3:41(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:18:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF2A5583C0393F55B6DDE969147656B615E5A66B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292371   (646817) от 29.03.2019
-
-VA - Suanda Miami 2019 (2019) [MP3|320 Kbps] <Trance, Uplifting Trance, Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roman Messer feat. Roxanne Emery - Lullaby (Extended Full Fire Mix) 5:38
-02. Adip Kiyoi feat. Christina Novelli - Carousel (Extended Club Mix) 6:01
-03. Photographer & Abstract Vision - Zero Gravity (Roman Messer Extended Remix) 6:00
-04. Michael Milov feat. Claire Willis - Anywhere With You (Tom Exo Extended Remix) 5:41(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Progressive Trance, Vocal TranceПродолжительность: 02:23:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3997BE5DFC972842C9838AC6313C4418C118334
 ```
 
 https://mybot314.ru/tekegram_catalog/

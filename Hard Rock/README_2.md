@@ -1,3 +1,38 @@
+###  Публикация: 602663   (997551) от 13.01.2013
+
+Corroded - State of Disgrace (2012) [MP3|320 кб/с]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_997551.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oderint Dum Metuant
+02. Let Them Hate As Long As They Fear
+03. More Than You Can Chew
+04. I Will Not
+05. Uncommon Sense
+06. I Am the God
+07. Believe in Me
+08. Beautiful Revolution
+09. Dirt
+10. As I Am(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AA0AB971AA3B7ED09953797F511D662F149DB52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 603582   (996698) от 16.01.2013
 
 Shakra - Powerplay (2013) [MP3|320 кб/с]<Hard Rock>
@@ -731,35 +766,6 @@ Black Swan - Shake the World (2020) [MP3|320 kbps] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC70689999DB6239752F38374124E07BB10483DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361937   (952238) от 21.02.2020
-
-H.e.a.t - H.e.a.t II (2020) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_952238.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Rock Your Body [4:04]
- 02 - Dangerous Ground [4:07]
- 03 - Come Clean [3:44]
- 04 - Victory [4:28](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1ECE661C4F1E373F9B5D18C0B7CD3145CB5ABDD1
 ```
 
 https://mybot314.ru/tekegram_catalog/

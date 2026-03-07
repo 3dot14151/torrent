@@ -1,3 +1,61 @@
+###  Публикация: 1020453   (743693) от 27.05.2016
+
+VA - Hot hits Car international (2016) [MP3|256 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743693.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ellie Goulding - Don't Need Nobody
+002. Troye Sivan - The Quiet
+003. Fais Feat. Afrojack - Hey
+004. Bliss & Klymvx Feat. Snoop Dogg & Cozy - California(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C01BC64B5094EA46B6E3009B14D5F895FAA2AFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020743   (743585) от 27.05.2016
+
+VA - Отдыхай на любимой волне (2016) [MP3|256-320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Анна Седокова - О Тебе
+02. Dj Roshka Feat. Farid Aqa - Onun O
+03. Juan Magan Feat. Paulina Rubio & Dcs - Vuelve
+04. Андрей Орельский - Вованчик(   Читать дальше...   )Жанр: PopПродолжительность: 06:09:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A6390ACDDE7405FAC5D227370D3282392049849
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1020575   (743570) от 27.05.2016
 
 VA - Зарубежная Дискотека ХХ Века - 16 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
@@ -687,64 +745,6 @@ VA - Зарубежная Дискотека ХХ Века - 24 (2016) [MP3|320 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7468E85A4D55787A92CE9A64D6361F45F1DF4C03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021440   (731880) от 30.05.2016
-
-VA - MuviDance Russian Party Vol.1 (2014) (MuViTeam Compilation Promo) [MP3|320 кб/с] <Dance, Disco, Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731880.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jerorr - Дискотека (04:52)
-02. Каролина - Вот и все (04:05)
-03. Лорис (ex. Восток) - Отелло (03:58)
-04. Александр Каштанов - 9-ка (хетчбэк) (03:10)(   Читать дальше...   )Жанр: Dance, Euro House, Disco, PopПродолжительность: 01:18:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D859B9E67E6DF74CDC5B4F5EADEEDFC754866C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131683   (731509) от 08.02.2022
-
-Cherry Laine - The Singles Collection (1977-1986) Vinyl 7",12" [MP3|320 Kbps] <Electronic, Funk-Soul, Disco, Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731509.jpg" />
-</div>
-
-
-###  Подробнее
-
-Черри Лейн (Cherry Laine, настоящее имя Флоренс Миллз (Florence Evadne Mills) - немецкая диско-певица ямайского происхождения. Самый известный хит - Catch The Cat. В раздачу вошли все синглы исполнительницы, включая малоизвестные, но - интересные в экспериментальных одно-сезонных группах.01. Everybody Knows It (1977) (2:48)
-02. Island Guy (1977) (2:26)
-03. A Night In Chicago (1977) (3:44)
-04. You Love Me In a Special Way (1977) (2:48)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, Disco, PopПродолжительность: 02:39:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4658E567BDE89A19D9288521B561D0AD508F9ABD
 ```
 
 https://mybot314.ru/tekegram_catalog/

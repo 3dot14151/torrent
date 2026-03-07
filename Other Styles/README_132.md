@@ -1,3 +1,32 @@
+###  Публикация: 1077151   (308625) от 27.11.2016
+
+Delerium - Mythologie (2016) [FLAC|Lossless|image + .cue] <New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_308625.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Fires (6:25)
+ 02. Zero (4:50)
+ 03. Keep On Dreaming (5:24)
+ 04. Stay (4:09)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 01:03:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E72189C6852BF311F7900FFFEF987434FE2D091A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1183691   (307772) от 14.11.2017
 
 Olga Stankevich (Ольга Станкевич) - Alone with the City (2014) [FLAC|Lossless|WEB-DL|tracks] <Instrumental Pop, Piano>
@@ -722,35 +751,6 @@ VA - Classic Christmas (2020) [FLAC|Lossless|WEB-DL|tracks] <Christmas Music>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:547C7AEBA2ACC62F7A00D17EEABD9D4E00845626
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422657   (304155) от 11.11.2020
-
-Tantric Massage Experts - Open New Erotic Feelings of Pleasure and Excitement (2020) [MP3|320 Kbps] <New Age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Free a Tension (3:33)
-02. No More Taboo (3:54)
-03. Sexual Experience (3:05)
-04. Intimacy Between Us (3:28)(   Читать дальше...   )Жанр: New Age, RelaxПродолжительность: 00:54:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D81116F10EC976C2BFC5A72D4803B6CDDE08573
 ```
 
 https://mybot314.ru/tekegram_catalog/

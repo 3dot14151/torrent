@@ -1,3 +1,32 @@
+###  Публикация: 1154063   (542653) от 29.07.2017
+
+Артель Роса - Ляпота (2017) EP [MP3|320 Kbps] <Russian Urban Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542653.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ляпота
+02. Тюря
+03. Чучело
+04. Ляпота (Instrumental)(   Читать дальше...   )Жанр: Russian Urban FolkПродолжительность: 00:20:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F15966906DFEE4A5322E7534A61DFEFE7834EB6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1154183   (542536) от 29.07.2017
 
 VA - Best of Cuba (2017) [MP3|320 Kbps] <Latin Music, Cuban>
@@ -756,35 +785,6 @@ Taikoza - Beginnings (Японские барабаны!) (2002) [MP3|~190 кб/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050430   (538158) от 08.09.2016
-
-Anhidema - Le Retour Du Anunnaki (2016) [MP3|320 Kbps] <New Age, Space, Spiritual Chillout>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538158.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Legendaire
-03. Metamorphosis
-04. Babylonia(   Читать дальше...   )Жанр: New Age, Space, Spiritual ChilloutПродолжительность: 01:54:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99B099BE26930B2E0E7CC081FD13A98D1F770EAE
 ```
 
 https://mybot314.ru/tekegram_catalog/

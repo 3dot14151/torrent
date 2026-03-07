@@ -1,3 +1,32 @@
+###  Публикация: 1156963   (526407) от 09.08.2017
+
+VA - Zlote przeboje radia Pogoda (1997) [MP3|320 Kbps] <Pop-rock, Polish-rock, Soft-rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_526407.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jingle - Radio Pogoda
+02. Andrzej Rybinski - Nie licze godzin i lat
+03. Ryszard Sygitowicz - Cavalcado
+04. Oddzial Zamknienty - Obudz Sie(   Читать дальше...   )Жанр: Pop-rock, Polish-rock, Soft-rockПродолжительность: 01:16:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F615F903004CB8E78FB0A4FEBC46519B8594537
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1240467   (524255) от 12.08.2018
 
 VA - Classic Road Trip (2018) [MP3|320 Kbps] <Blues, Psychedelic Rock, Folk, Blue-eyed Soul>
@@ -727,35 +756,6 @@ Rare Earth - Get Ready (1969) [MP3|320 кб/с]<Rock, Funk Rock, Blues, Acid Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64FC2268BD3FE341FED439557E5D19240955E1B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929417   (519441) от 19.08.2015
-
-Eric Clapton - Eric Clapton & Friends - The Album (2015) [MP3|320 кб/с]<Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519441.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Smokestack Lightning
-02. Train Kept a Rollin'
-03. Good Morning Little Schoolgirl
-04. Stroll On(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 02:18:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94DB7A390572B842775091ABB5288C43ED0DEA21
 ```
 
 https://mybot314.ru/tekegram_catalog/

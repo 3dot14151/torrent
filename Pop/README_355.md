@@ -1,3 +1,206 @@
+###  Публикация: 1744239   (46167) от 20.08.2024
+
+Duran Duran - Is There Something I Should Know? (1983) Remaster, 2024, Rhino [FLAC|Lossless|WEB-DL|tracks] <Synth-pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_46167.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Is There Something I Should Know? [00:04:09]
+02. Faith in This Colour [00:04:06]
+03. Is There Something I Should Know (Monster Mix) [00:06:44]
+04. Faith in This Colour (Alternate Slow Mix) [00:04:06]Жанр: Synth-pop, Pop RockПродолжительность: 00:19:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AE7C807336439386083507D8BE2D934938BE73A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744391   (46145) от 21.08.2024
+
+Сергей Минаев - Коллаж (Нон-стоп альбом) (2021) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_46145.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вступление
+02. Братец Луи
+03. Я слышу твой голос
+04. Только у нас(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6B265E9A38A7C0EBC59D7909193FD61D5279B08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744348   (46118) от 21.08.2024
+
+Валерий Леонтьев - Годы Странствий (2009) [WavPack|Lossless|image + .cue] <Pop, Stage>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_46118.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Голуби
+ 02. Облаком
+ 03. После праздника
+ 04. Помоги(   Читать дальше...   )Жанр: Pop, StageПродолжительность: 01:05:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D08F6439A799551C08F168147AD7302BD2021E94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744383   (46088) от 21.08.2024
+
+Кристина Соколова - Русский Стилль (2024) 2CD [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_46088.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я не знаю
+02. А вишня красная
+03. Нaшe время
+04. Ты какой-то не такой(   Читать дальше...   )Жанр: PopПродолжительность: 02:14:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:624E5D42DCE94B917363639F8C395762C7D01ABE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744396   (46067) от 21.08.2024
+
+David Hasselhoff - Looking For Freedom  (1989) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_46067.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Is Everybody Happy
+02. Lonely Is The Night
+03. Je T'Aime Means I Love You
+04. Sheitered Heart(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29BA381DE3BC83F8ABD6AF0C39D89E603B4DE97A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746080   (45264) от 29.08.2024
+
+Ukulena - Only Daddy Calls Me Marley (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_45264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. sucha shame (intro) [00:02:02]
+02. Only Daddy Calls Me Marley [00:03:29]
+03. Blunt If You Want [00:03:21]
+04. 420 Honey [00:03:08](   Читать дальше...   )Жанр: PopПродолжительность: 00:50:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A590B185369CFC66B1D84DB0231A22827F48C5D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746273   (45158) от 30.08.2024
+
+Поющие гитары - Поющие гитары (2024) Live [MP3|320 Kbps] <Pop, Retro>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_45158.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Не ломай черёмухи (Live)
+2. Из-за острова на стрежень (Live)
+3. Смуглянка (Live)
+4. Мотокросс (Live)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:50:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC1B7FEA984BD8C422C105AB3B11B5F0292CBE0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1746274   (45150) от 30.08.2024
 
 Игорь Николаев - Летние хиты нашей молодости (2024) [MP3|320 Kbps] <Pop>
@@ -542,206 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62966A735AF4004B6072DDDCF5710AD041AE3473
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749137   (43566) от 14.09.2024
-
-Kylie Minogue - Tension (2023) (Bonus Deluxe Edition) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Pop, House>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43566.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Padam Padam [2:47]
-02 - Hold On To Now [3:58]
-03 - Things We Do For Love [3:10]
-04 - Tension [3:37](   Читать дальше...   )Жанр: Electronic, Pop, HouseПродолжительность: 00:53:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B904959F005A57D85AFA2907CBD225A1DCEA010
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749351   (43563) от 14.09.2024
-
-VA - Bravo Hits Party - 90er Vol. 2 (2024) 3 x CD, Compilation Box Set [MP3|320 Kbps] <Pop, Dance, Rock, RnB>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43563.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, Dance, Rock, RnBПродолжительность: 03:59:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBCDA33D72B9D210ABF4EAA677283BE9A526AA97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749491   (43561) от 14.09.2024
-
-VA - 00s Radio Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance, Rock, RnB>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43561.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Coldplay - Viva La Vida
-02. James Blunt - You’re Beautiful
-03. Gym Class Heroes - Cupid’s Chokehold Breakfast in America
-04. Jason Mraz - I’m Yours(   Читать дальше...   )Жанр: Pop, Dance, Rock, RnBПродолжительность: 04:16:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FC18D659DD81C8CE9DCE3EA3FFE7890D5506F53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749523   (43557) от 14.09.2024
-
-VA - 10s Radio Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance, Rock, RnB>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43557.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ed Sheeran - Shape of You
-02. Christina Perri - A Thousand Years
-03. Coldplay - A Sky Full of Stars
-04. Bebe Rexha - Meant to Be (feat. Florida Georgia Line)(   Читать дальше...   )Жанр: Pop, Dance, Rock, RnBПродолжительность: 05:21:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2CBDC22151A330B3DBDF101E1CE3B3AD56D835F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 651155   (43540) от 15.09.2024
-
-ВИА"ЗЕМЛЯНЕ" - Золотая коллекция CD1-CD2 (2007) [APE|Lossless]<Pop>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Каскадёры (В. Мигуля - А. Дементьев)
-02. Красный конь (М. Фрадкин - М. Пляцковский)
-03. А жизнь такая непростая
-04. Две столицы(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A12C45EE29C14F1F76881C8E6939446A27F4BAFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749886   (43358) от 16.09.2024
-
-VA - DJ Hits Vol. 2030 (1998) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43358.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Puma - Do It Right
-02. Loverman - Touch My Body
-03. U96 feat Dea-Li - Electric Love
-04. Robin Cook - Reagge In The Night(   Читать дальше...   )Жанр: Electronic, Pop, EurodanceПродолжительность: 01:13:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80BFE21A7C4A4377000B02095602D6F96AF07532
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749880   (43353) от 16.09.2024
-
-VA - DJ Hits Vol. 3100 (1998) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43353.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daze - Super Hero
-02. Grace - Skin On Skin
-03. Maria Montell - And So The Story Goes ...
-04. Alexia - Virtual Reality(   Читать дальше...   )Жанр: Electronic, Pop, EurodanceПродолжительность: 01:12:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33A11505D2AEEE77B699D2649B9305F11CB323CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

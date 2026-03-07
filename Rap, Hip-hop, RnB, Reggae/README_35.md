@@ -1,3 +1,91 @@
+###  Публикация: 269494   (51780) от 28.06.2024
+
+Триада - 8 Альбомов (2004-2011) [FLAC|Lossless]<Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_51780.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа Триада образовалась в октябре 1999г, в составе Jazzz (Фёдор,Краснодар), Rico(Асватур, Ростов) Нигатив (Владимир, Краснодар).
+Название группы имеет несколько корнейСписок альбомов:
+2004 - Противоядие
+2005 - Орион
+2006 - Точка Росы (Соло Нигатива)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 07:32:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CE2467C2C98AD10500BF1AE9D00BCE031FAE751
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 285046   (51779) от 28.06.2024
+
+Бумбокс - 7 Альбомов (2005-2010) [FLAC|Lossless]<Hip-Hop / Funk / Reggae / Rock>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_51779.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бумбокс — украинская фанки-грув группа. Образована в 2004 году в Киеве вокалистом группы «Графіт» Андреем Хлывнюком и гитаристом группы «Тартак» Андреем «Муха» Самойло. В основном песни группы исполняются на украинском языке с английскими и русскими фразами, но также присутствуют русскоязычные и англоязычные песни.Список альбомов:
+2005 - Меломанія
+2006 - Family Бiзнес
+2007 - Тримай(   Читать дальше...   )Жанр: Hip-Hop / Funk / Reggae / RockПродолжительность: 05:41:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17CAE72B53651518EE7B0BDF4347553DC8CD9422
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 365430   (51758) от 28.06.2024
+
+Gentleman - 6 Альбомов (1999-2010) [FLAC|Lossless]<Reggae, Roots Reggae, Dancehall, Reggae fusion, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>RnB, Reggae (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_51758.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+1999 - Trodin On
+2002 - Journey To Jah
+2003 - Gentleman & The Far East Band Live(   Читать дальше...   )Жанр: Reggae, Roots Reggae, Dancehall, Reggae fusion, Hip-HopПродолжительность: 07:34:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE0153D892C87A26EF0A2CCA610B50EF8A5B5860
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 289790   (51756) от 28.06.2024
 
 Das EFX - 5 Albums + 3 Singles (1992-2003) [FLAC|Lossless]<Hip-Hop / Rap / Hardcore Hip-Hop>
@@ -664,93 +752,6 @@ VA - Russian Rapcore Vol. 1-2 (2008-2009) [FLAC|Lossless|tracks + .cue] <Rapcore
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:738EF9CB39186E433A560F44E31B97E2DF63A8CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780504   (26995) от 20.02.2025
-
-Невзатяг - Бубнеж (2015) [MP3|320 Kbps] <Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26995.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Нет денег
-02. Велосипед
-03. Песня пиратов
-04. Пробирает жуть(   Читать дальше...   )Жанр: Hip-HopПродолжительность: 00:24:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:663EF6B28FF2AC735BA48C675B45E203CD4A2CB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785084   (24685) от 14.03.2025
-
-Noize MC - Не все дома (2025) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24685.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Не Все Дома
-02. Атлантида (feat. Дмитрий Емельянов)
-03. Криокамеры (feat. Монеточка, Витя Исаев)
-04. Страна Дождей(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:01:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A756898F44F7BE2BE8B170C1C0CCD9749026B774
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785075   (24679) от 14.03.2025
-
-Noize MC - Не все дома (2025) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24679.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Не Все Дома
-02. Атлантида (feat. Дмитрий Емельянов)
-03. Криокамеры (feat. Монеточка, Витя Исаев)
-04. Страна Дождей(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:01:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62A88652CE0991FFE8A853C1CE0066F7DA71DACF
 ```
 
 https://mybot314.ru/tekegram_catalog/

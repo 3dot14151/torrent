@@ -1,3 +1,32 @@
+###  Публикация: 1767499   (33414) от 22.12.2024
+
+V.A. - Christmas Lounge – The Essential (Playlist 2024) (2024) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Lounge, Chill Out>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_33414.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vakanzregel - Interchangeable Words
+02. HIC ET NUNC - Blow Your Mind
+03. Hohe Minne - Dissolved Silence
+04. Mind Conventions - Hidden Whispers(   Читать дальше...   )Жанр: Electronic, Lounge, Chill OutПродолжительность: 01:54:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9E1D9C28822E4CE15A9491060FDCF1C6A1A8F17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1770502   (32293) от 01.01.2025
 
 Schwarz & Funk - Topas Lounge (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill House>
@@ -716,35 +745,6 @@ VA - Downtempo Reflection: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:718BD94784F5C26BC31F2050B86161A4732A32F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796223   (18817) от 09.05.2025
-
-VA - Relax & Unwind: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peter Pearson - Sous La Lune (5:39)
-02. Michael e - All My Love (5:58)
-03. Luis Hermandez - Rolling (4:51)
-04. Steven Solveig - Smooth Faces (3:18)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:01:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6D5DAB2997F4083A5B080FEC340E2E03F4E5EA5
 ```
 
 https://mybot314.ru/tekegram_catalog/

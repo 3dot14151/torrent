@@ -1,3 +1,29 @@
+###  Публикация: 1185422   (292946) от 21.11.2017
+
+Linkin Park - Crawling (One More Light Live) (2017) Single [FLAC|Lossless|WEB-DL|track] <Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_292946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crawling (One More Light Live) (3:29)Жанр: AlternativeПродолжительность: 00:03:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C5DA3B70279F2E8E44972D809791FB904DB9CFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 986196   (292694) от 30.10.2019
 
 INXS - The Very Best (2011) Compilation [FLAC|Lossless|tracks + .cue] <Pop-Rock, Post-Punk, New Wave>
@@ -716,35 +742,6 @@ Lo Moon - Lo Moon (2018) Columbia Records [FLAC|Lossless|WEB-DL|tracks] <Alterna
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5ED294C9804A61EA48A5A3D243D8DA77B5BE18B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337545   (273540) от 11.11.2019
-
-Audioslave - Discography (2002-2006) 3CD [FLAC|Lossless|tracks + .cue] <Alternative Rock, Hard Rock, Post-Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Revelations (4:13)
-02. One And The Same (3:38)
-03. Sound Of A Gun (4:20)
-04. Until We Fall (3:51)(   Читать дальше...   )Жанр: Alternative Rock, Hard Rock, Post-Grunge |Продолжительность: 00:48:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:731663595A1B26A0A9CBE84C53323FF675A5FAEE
 ```
 
 https://mybot314.ru/tekegram_catalog/

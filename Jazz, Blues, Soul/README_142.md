@@ -1,3 +1,234 @@
+###  Публикация: 1391715   (773101) от 21.06.2020
+
+Levi De Ville - Better Man (2020) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_773101.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All About A Good Time (03:42)
+ 02. Gotta Find A Love  (05:52)
+ 03. Better Man  (03:44)
+ 04. I'm On My Way  (03:12)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:49:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88DAAB1596A3D0669C98B944B3E03977EA9D3936
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 628658   (772635) от 21.06.2020
+
+The Dave Brubeck Quartet - Bossa Nova USA (2013) [FLAC|Lossless] <Bossa Nova, Cool Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_772635.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bossa Nova USA [02:30]
+02. Vento Fresco [03:35]
+03. Trolley Song [03:09]
+04. Theme For June [04:20](   Читать дальше...   )Жанр: Bossa Nova, Cool JazzПродолжительность: 01:17:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:468491CFEA923E4EF7E41A568EAEA180546FDF3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 662051   (772622) от 21.06.2020
+
+VA - Electro Swing Of Spirit (2012) 4CD Box [FLAC|Lossless]<Jazz, Nu Jazz, Future Jazz, Acid Jazz, Modern Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_772622.jpg" />
+</div>
+
+
+###  Подробнее
+
+Электро свинг, или свинг хаус, это музыкальный жанр, который сочетает в себе влияние винтажного или современного свинга и джаза, смешанного с хаусом, хип-хопом и электронной танцевальной музыкой. В группу электро-свинга обычно входят певцы, музыканты, играющие на традиционных джазовых инструментах (труба, тромбон, кларнет, саксофон) и, по крайней мере, один диджей. (   Читать дальше...   )01. Caravan Palace - Jolie Coquine (3:46)
+02. Mr. Scruff - Get A Move On (3:25)
+03. Tape Five - Madame CoquetteЖанр: Jazz, Nu Jazz, Future Jazz, Acid Jazz, Modern JazzПродолжительность: 05:12:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB3A3BC3AFCDC90A22C2A110B639BB74C1D2F6B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125039   (772105) от 14.04.2017
+
+VA - The Complete Brusnwick & Vocalion Recordings Of Louis Prima And Wingy Manone (1924-1937) (2002) [FLAC|Lossless|tracks + .cue] <New Orleans Jazz, Big Band, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_772105.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. That's Where The South Begins (3:25)
+02. Jamaica Shout (instr.) (2:51)
+03. 'Long About Midnight (2:42)
+04. Star Dust (2:50)(   Читать дальше...   )Жанр: New Orleans Jazz, Big Band, SwingПродолжительность: 07:11:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:455CF776CDB50CB201251DC7FE154DEC8AD2FFDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125358   (772104) от 14.04.2017
+
+"Sir" Oliver Mally's Blues Distillery - Fleeting Moments (2011) [APE|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_772104.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Here I am  (04:19) 
+02. Fleeting Moments  (06:45) 
+03. Heading for a Fall  (05:34) 
+04. Sleepwalking  (05:20) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:48:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DED6F774AC25DEC07D25538438D6A2A46ACAE70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125398   (772100) от 14.04.2017
+
+Dave Brubeck - One Alone: Solo Piano (1998) 2000, Telarc [FLAC|Lossless|tracks + .cue] <Cool, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_772100.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.That Old Feeling [06:52]
+ 02.I'll Never Smile Again [04:24]
+ 03.One Alone [06:40]
+ 04.You've Got Me Crying Again [04:00](   Читать дальше...   )Жанр: Cool, Piano JazzПродолжительность: 01:02:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F69ACFA2817FDCBE839C459ABAFFE6E12795C59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125131   (772097) от 14.04.2017
+
+Nguyen Le & Ngo Hong Quang - Ha Noi Duo (2017) [FLAC|Lossless|tracks + .cue] <World Jazz, Guitar Jazz, World Music>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_772097.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cloud Chamber  (05:40) 
+02. Five Senses  (04:55) 
+03. Like Mountain Birds  (06:23) 
+04. A Night with You, Gone  (07:02) (   Читать дальше...   )Жанр: World Jazz, Guitar Jazz, World MusicПродолжительность: 00:58:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A82C2643F599E27BCE5B3D836211B695AECBB504
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213420   (772008) от 16.03.2018
+
+The BBC Big Band - Harlem Nocturne (2004) Galaxy Music [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_772008.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Getting Sentimental Over You [03:35]
+02. Harlem Nocturne [02:50]
+03. Leave Us Leap [03:30]
+04. You Made Me Love You [03:19](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 00:52:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2153D6FF0D87F316DF4524ADC96AB99F0D88C7DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1213177   (772002) от 16.03.2018
 
 Swingle Singers - Best Of The Classic Years (1963 - 1968) 2003, Helicon [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Classical Crossover>
@@ -514,238 +745,6 @@ Masabumi Kikuchi, Gary Peacock, Paul Motian - Tethered Moon (1991) Remaster, 201
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56A0BF45D51B77590ECBEBA1BA483BD58A54B017
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016675   (769691) от 15.05.2016
-
-Nobby Reed Project - Hold the Truth (2006) [MP3|320 кб/с] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769691.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hold the Truth    03:40
-02. It's Myself    03:55
-03. Sliding    02:39
-04. I'm In Love    03:26(   Читать дальше...   )Жанр: BluesПродолжительность: 01:11:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EFAE30FAF29840D2A6D2D4BBCCC7CFCCDC5C758
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016817   (769690) от 15.05.2016
-
-Stefano Bollani - Live From Mars (2016) Casa Del Jazz[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769690.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.In A Silent Way-Billie Jean-Couldn't Stand The Weather [17:19]
- 02.I Feel Good [03:54]
- 03.Parole Parole [09:11]
- 04.Giroconlon [07:11](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:50:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5FCB53ACDE8822DDDBB88791508BEC91FC01860
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392360   (769394) от 25.06.2020
-
-Duke Ellington - Second Sacred Concert 1974 (2000) ADA Sound [APE|Lossless|image + .cue] <Swing, Big Band, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769394.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Praise God [3:14]
-02. Supreme Being [11:49]
-03. Heaven [4:57]
-04. Something About Believing [8:15](   Читать дальше...   )Жанр: Swing, Big Band, Vocal JazzПродолжительность: 01:15:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC516E5634C7DCC08048FA4E199977A5D826B3CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392531   (769250) от 26.06.2020
-
-Duke Ellington - The Great Duke Ellington 1959 (2000) ORO [APE|Lossless|image + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769250.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black And Tan Fantasy - Creole Love Call - The Mooch [9:12]
-02. Newport Up [4:58]
-03. Sonnet In Search Of A Moor [3:26]
-04. Kinda Dukish - Rockin' In Rhythm [6:00](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:51:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F2F2A8C888F7EB32C4A1CE3C658B51347A8C597
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393018   (768997) от 28.06.2020
-
-Jae Sinnett's Zero To 60 Quartet - Just When You Thought... (2020) Self-Released [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768997.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just When You Thought [6:23]
-02. That Said [5:03]
-03. Slopes [6:53]
-04. Snidely [7:11](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:59:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78A154CF3C798DA194187BDB6D229C9C33B9505D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392720   (768949) от 28.06.2020
-
-Sinne Eeg & The Danish Radio Big Band - We've Just Begun (2020) Stunt Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768949.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We've Just Begun [4:03]
-02. Like a Song [5:20]
-03. Those Ordinary Things [5:04]
-04. Talking to Myself [3:35](   Читать дальше...   )Жанр: Vocal Jazz, Big BandПродолжительность: 00:51:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5B319B911A77F0EBA96B2D2C6ADD8287B3674DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125159   (768817) от 14.04.2017
-
-Eric Bell - Exile (2015) [FLAC|Lossless|tracks + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep In Your Heart  (04:42) 
-02. Don't Love Me No More  (03:58) 
-03. Gotta Say Bye Bye  (05:07) 
-04. Vote For Me  (03:07) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCB4CAF6E77A9F6E50322D6B937F8F913035DEBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125072   (768815) от 14.04.2017
-
-The Stumble - Lie to Me (2012) [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lie to Me  (02:29) 
-02. Big Better Love  (06:32) 
-03. I Get a Little Hot  (05:53) 
-04. Money On Time  (02:56) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:49:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:983A7D0F7F083971CED4D0F8EC3A0DDEA574E8C4
 ```
 
 https://mybot314.ru/tekegram_catalog/

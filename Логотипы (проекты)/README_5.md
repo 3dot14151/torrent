@@ -1,3 +1,55 @@
+###  Публикация: 1105390   (874817) от 18.02.2017
+
+Проекты - VideoHive - Energetic Particle Reveal - 7157708 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_874817.jpg" />
+</div>
+
+
+###  Подробнее
+
+Energetic Particle Reveal - энергичный проект для демонстрации вашего логотипа. Поместите свой логотип и жмите рендер.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA3BBD76E1FD91367DEBB8EEC3D88305D65E16A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1105970   (874508) от 18.02.2017
+
+Проекты - VideoHive - Gear - 3D Logo - 14106795 / Motion Array - Gear 3D Logo - 25775 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_874508.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стильный проект для демонстрации Вашего логотипа.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B1FFE0FAE17CC03DB24A2C0A43AAD9C1C0560D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1374274   (874034) от 09.04.2020
 
 Проекты - VideoHive - Magic Metal Particles Logo Reveal - 26215603 [AEP]
@@ -624,58 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D568B450EDB31F4E9B7C36C3F2BCF2E90E383EEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109973   (854965) от 01.03.2017
-
-Проекты - VideoHive - Fire Vortex Logo - 19438036 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854965.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания демонстрации логотипа.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7311AEFE39607E9F92A76C92C391F76863EF61C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001282   (853630) от 28.03.2016
-
-Проекты - VideoHive - Pack of Hand Logo - 8585073 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853630.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания логотипа. Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97FA90124F28CE39A29CAA0328C6570C953AB444
 ```
 
 https://mybot314.ru/tekegram_catalog/

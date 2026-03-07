@@ -1,3 +1,32 @@
+###  Публикация: 1735713   (106861) от 09.07.2024
+
+VA - Chillout & Lounge Music Summer Vibes (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106861.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crossing Colors - Animated Expressions (4:20)
+02. Bio Logical Theory - Sunny Groove (4:25)
+03. Klasse XXI - Shared Aspirations (4:20)
+04. Vostok Divers - Apparent Nonchalance (4:30)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:50:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86A0B314F8969E5CA061FB27DFBF60F5FB59250B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1736021   (106807) от 10.07.2024
 
 VA - Summer Chillout & Lounge Music (Best Session) (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
@@ -741,35 +770,6 @@ The Internet - Purple Naked Ladies (2012) [FLAC|Lossless]<Electronic, Funk, Trip
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771568   (71838) от 07.01.2025
-
-VA - When Time Stops: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71838.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matt Sour - First Breath (Binaural) (4:36)
-02. Scott Reich - Tranquility (Original Mix) (5:09)
-03. Free Spirit Muse - Breath-Ful Moments (20:21)
-04. Peter Pearson - Blissful Journey (Original Mix) (4:51)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:26:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E1EFDEE648BA1E14A65353C258ABCDA27A0D940
 ```
 
 https://mybot314.ru/tekegram_catalog/

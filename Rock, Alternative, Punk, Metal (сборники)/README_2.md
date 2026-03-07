@@ -1,3 +1,32 @@
+###  Публикация: 1468945   (1016765) от 10.05.2021
+
+VA - Punk Rock Bulldozer (2CD) (2021) [MP3|320 Kbps] <Punk Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016765.jpg" />
+</div>
+
+
+###  Подробнее
+
+Скандальный имидж, распущенная и зачастую агрессивная манера исполнения - это всё панк рок! Вам предлагается послушать эту музыку на сборнике под наименованием "Punk Rock Bulldozer". Любителей этого жанра порадуют мощные синтезаторные рифы, брей бит, новаторские аранжировки и вокал их исполнителей.CD 01:
+
+001. Daysworth Fighting - Warm Hands, Warm Heart
+002. 999 - Doctor Nick(   Читать дальше...   )Жанр: Punk RockПродолжительность: 11:23:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61586CCDAFFF7B41F35E268DE00C7233D6538AAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1469078   (1016746) от 10.05.2021
 
 VA - Music For You vol.17 (2021) [MP3|320 Kbps] <Metal, Rock, Other>
@@ -716,35 +745,6 @@ VA - 100 Greatest Soft Rock Songs (2021) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7242325D7AFE6B195138814E43642CB11969AEAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 513185   (1004715) от 31.07.2021
-
-VA - 30 The Final Countdown covers (2009) [MP3|128-320 кб/с]<Rock, Metal, Ska, Reggy>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004715.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Axel Boys Quartet - The Final Countdown
-02. Norther - The Final Countdown
-03. Skam - The Final Countdown (original mix)
-04. Boney Nem - The Final Countdown(   Читать дальше...   )Жанр: Rock, Metal, Ska, ReggyПродолжительность: 01:53:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACD082E143ABB2D261E0DDC60066E66DD6A041E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

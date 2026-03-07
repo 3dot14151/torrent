@@ -1,3 +1,32 @@
+###  Публикация: 1199761   (800142) от 17.01.2018
+
+Riccardo Muti & Wiener Philharmoniker - New Year's Concert 2018 (2018) 2CD [FLAC|Lossless|tracks + .cue] <Classical, Orchestral>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800142.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Freikugeln, Polka schnell, op. 326 (2:48)
+ 02. Geschichten aus dem Wienerwald, Walzer, op. 325 (12:29)
+ 03. Festmarsch, op. 452 (4:10)
+ 04. Stadt und Land, Polka Mazurka, op. 322 (4:23)(   Читать дальше...   )Жанр: Classical, OrchestralПродолжительность: 01:53:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:473F470FDAB6C2BBFC0F28F3D7642BB0CA0B4D75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 425187   (799476) от 03.04.2017
 
 Великие композиторы. Жизнь и творчество (2009) [FLAC|Lossless]<Classical>
@@ -745,35 +774,6 @@ PIANO SONATA in E minor Op. 90
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5ADDA14C042B35AA2D3A53F7A4E7D946686F13E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058149   (470697) от 30.09.2016
-
-Gabor Boldoczki - Oriental Trumpet Concertos (2016) [FLAC|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470697.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. - Trumpet Concertino: I. Andante 3:55
- 02. - Trumpet Concertino: II. Larghetto 3:55
- 03. - Trumpet Concertino: III. Intermezzo 1:09
- 04. - Trumpet Concertino: IV. Vivo ma non troppo 2:31(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:51:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:638A03985060635CE5F15852B850641B5F73461F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1292020   (648635) от 28.03.2019
+
+Current 93 - Invocations Of Almost (2019) [FLAC|Lossless|tracks + .cue] <Folk, Country, Ambient>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648635.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Untitled (10:22)
+2. Untitled (05:56)
+3. Untitled (03:40)
+4. Untitled (07:06)(   Читать дальше...   )Жанр: Folk, Country, AmbientПродолжительность: 01:00:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF54BCC2D5296B199E6C6ACBA7EB29B8C2C0A499
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1292135   (648625) от 28.03.2019
 
 VA - The Ultimate Country Love Songs Anthology (2019) [FLAC|Lossless|WEB-DL|tracks] <Country>
@@ -732,35 +761,6 @@ John Fluker - 11:11 (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A28922E367850679542B0DFB60295157DEA24D8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032545   (644027) от 08.07.2016
-
-Amy Lauren - Sulla Riva (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644027.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mahogany Cider [00:02:59]
-02. Black Creek Trail [00:04:29]
-03. Where Three Rivers Meet [00:05:18]
-04. Emmerson's Ballad [00:03:14](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:52:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12E84847938C33BE8AF513E245D8507CEDE05374
 ```
 
 https://mybot314.ru/tekegram_catalog/

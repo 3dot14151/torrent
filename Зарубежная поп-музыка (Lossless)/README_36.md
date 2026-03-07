@@ -1,3 +1,119 @@
+###  Публикация: 1289433   (686626) от 16.03.2019
+
+Rozalén - Cerrando Puntos Suspensivos (2018) 2CD [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686626.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. 80 Veces (03:13)
+02. Comiendote a Besos (04:00)
+03. Las Hadas Existen (03:42)(   Читать дальше...   )Жанр: PopПродолжительность: 01:50:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:009509C70D6A003193454380CDE7DAA76907FC0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289331   (686623) от 16.03.2019
+
+Bonnie Tyler - Between The Earth And The Stars (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686623.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hold On
+02. Battle Of The Sexes (Duet with Rod Stewart)
+03. Slow Walk
+04. Seven Waves Away(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CE10FA71B2FD3C64681B025547881515BD2531F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289333   (686477) от 16.03.2019
+
+Sophie Ellis Bextor - The Song Diaries (2019) Cooking Vinyl Ltd. [FLAC|Lossless|WEB-DL|tracks] <Pop, Classical, Orchestral>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686477.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Groovejet (Orchestral Version) (3:21)
+ 02. Take Me Home (Orchestral Version) (4:23)
+ 03. Murder On The Dancefloor (Orchestral Version) (3:46)
+ 04. Move This Mountain (Orchestral Version) (4:48)(   Читать дальше...   )Жанр: Pop, Classical, OrchestralПродолжительность: 01:13:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:550667AB7B066CC6CF1B1D2F726A6D3E71EEBE77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403889   (686325) от 22.08.2020
+
+Johnny Hates Jazz - Wide Awake (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, New Wave>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686325.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spirit of Love
+02. New Day Ahead
+03. Love the Light
+04. Greater Good(   Читать дальше...   )Жанр: Pop, New WaveПродолжительность: 00:31:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46CE70BE135830D7C9172752266EA5C10F88A3A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 73285   (685884) от 22.08.2020
 
 VA - Best Audiophile Voices vol.4 (2005) [APE|Lossless|image + .cue] <Vocal>
@@ -635,119 +751,6 @@ VA - Pavarotti & Friends For War Child (1996) [APE|Lossless|image + .cue] <Rock,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D5D6052E08ED67CBFED7A2CD8542AD3B58D6642
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030213   (674567) от 30.06.2016
-
-VA - Ultimate... Christmas (2015) Box Set, 4CD  [FLAC|Lossless|tracks + .cue] <Pop, Jazz, Soul, Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674567.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, Jazz, Soul, DiscoПродолжительность: 04:16:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:341D6306477011C1F01E054CAFF04EDC9B2A1B6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290984   (674346) от 22.03.2019
-
-VA - Sophisticated Ladies (2018) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674346.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Edith Piaf - La Vie en Rose
-02. Margaret Whiting - Moonlight in Vermont
-03. Peggy Lee - I've Got You Under My Skin
-04. Sarah Vaughan - Come Rain or Come Shine(   Читать дальше...   )Жанр: PopПродолжительность: 01:04:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0BA2D8DF8161A2933E47F13B4F46EF061139345
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290854   (674340) от 22.03.2019
-
-Tamaryn - Dreaming The Dark (2019) [FLAC|Lossless|WEB-DL|tracks] <New-wave, Dream-Pop, Synth-Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674340.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angels of Sweat
-02. Terrified
-03. Path to Love
-04. Fits of Rage(   Читать дальше...   )Жанр: New-wave, Dream-Pop, Synth-PopПродолжительность: 00:36:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4131D6F7A12259BE3DD0F4D4CD526D9EFB3FAC20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290934   (674329) от 22.03.2019
-
-Alessandro Safina - Insieme A Te (1999) 2001 Universal [FLAC|Lossless|image + .cue] <Pop, Classical>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674329.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luna
-02. La Sete di Vivere
-03. Aria E Memoria (Radio Edit)
-04. Siena(   Читать дальше...   )Жанр: Pop, ClassicalПродолжительность: 01:00:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B622B1A9463033D652EE50F519F9FF1E482BA9AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

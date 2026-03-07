@@ -1,3 +1,180 @@
+###  Публикация: 592967   (132568) от 28.12.2012
+
+Edguy - 5 альбомов (2001-2011) /10LP/ [FLAC 2.0 192/24 |tracks (VinylRip)] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_132568.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: power metal, heavy metalПродолжительность: 6:18:12
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595495   (132401) от 28.12.2012
+
+Bryan Ferry - Boys And Girls (1985) /2005 Remaster/ [DST 2.0, 5.1 1bit/2822,4kHz |SACD-R]<Glam Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_132401.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sensation (5:10)
+02. Slave To Love (4:26)
+03. Don't Stop The Dance (4:19)
+04. A Waste Land (1:03)
+05. Windswept (4:31)
+06. The Chosen One (4:51)
+07. Valentine (3:48)
+08. Stone Woman (4:56)
+09. Boys And Girls (5:25)
+Что такое SACD-R, и как его слушатьЖанр: Glam RockПродолжительность: 00:38:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83F604A041BE5DA3B77078E7EFC28727EE033AD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682358   (131508) от 07.12.2023
+
+Pyramaze - Studio Albums (7 releases) (2004-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_131508.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pyramaze — датская пауэр-метал группа, образованная в 2001 году.2004 - Melancholy Beast
+2006 - Legend Of The Bone Carver
+2008 - Immortal
+2015 - Disciples Of The SunЖанр: Progressive Power MetalПродолжительность: 06:18:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4FD17833A6834C9759E877803F36D54D69A5A7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682547   (131499) от 07.12.2023
+
+Porcupine Tree - Closure / Continuation.Live (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Progressive Rock, Heavy Prog>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_131499.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blackest Eyes (5:23)
+02. Harridan (8:07)
+03. Of The New Day (4:44)
+04. Rats Return (5:16)(   Читать дальше...   )Жанр: Progressive Rock, Heavy ProgПродолжительность: 02:29:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22E4BCF73946D5D3D27551A4BD53C0E687245567
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682841   (131195) от 08.12.2023
+
+The London Suede - Autofiction (2022) Expanded, 2023, BMG Rights Management (UK) Limited [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_131195.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+Disc 01
+Disc 02
+Disc 03Жанр: Alternative RockПродолжительность: 3CD, 01:53:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0475EA06D860B71392171BBCFD0187CFE6455DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682664   (131190) от 08.12.2023
+
+Atreyu - The Beautiful Dark of Life (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_131190.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Drowning (2:46)
+02. Insomnia (3:38)
+03. Capital F (2:35)
+04. God/Devil (2:55)(   Читать дальше...   )Жанр: Alternative metalПродолжительность: 00:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13EEC6E3F3E21D4746266401446427C3E50CDFC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1682694   (131188) от 08.12.2023
 
 The Chronicles of Father Robin - The Songs & Tales of Airoea - Book II (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Rock>
@@ -573,178 +750,6 @@ Bloodywood - индийская метал-группа из Нью-Дели, о
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51661B315415AA1F34CB8BA655550AFAE553FAFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824589   (128807) от 15.10.2025
-
-The Hu - Studio Albums (2 releases) (2020-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Folk Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128807.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Hu - монгольская фолк-метал группа, образованная в 2016 году в Улан-Баторе. Используя традиционные монгольские музыкальные инструменты, такие как морин хуур, товшуур и горловое пение, группа называет свой музыкальный стиль «хунну-рок».2020 - The Gereg
-2022 - Rumble of ThunderЖанр: Folk MetalПродолжительность: 03:01:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6553A1F79AA5D7DA718EBF8E489A346E4646314B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824134   (128599) от 14.10.2025
-
-Easy Rider - Maniphesto (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128599.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Paralysis (03:52)
- 02 - Felurian (Spanish version) (04:09)
- 03 - Welcome To My Paradise (04:43)
- 04 - Hear My Voice (04:24)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:38:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC691BE2D78780C73F280404D32B9F135ED8820A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577393   (128583) от 14.10.2025
-
-Trivium (& Ibaraki) - Studio Albums (12 releases) (2003-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore, Thrash/Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128583.jpg" />
-</div>
-
-
-###  Подробнее
-
-Trivium — американская метал-группа из Орландо, Флорида, образованная в 1999 году.2003 - Ember To Inferno
-2006 - Ascendancy
-2006 - The Crusade
-2008 - ShogunЖанр: Metalcore, Thrash/Heavy MetalПродолжительность: 14:01:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D819840B377D25E8AE4BEE79E81291FAF4DDEE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683178   (128553) от 10.12.2023
-
-Blacksilver - Blacksilver (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128553.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Life in a Bubble (4:36)
-02. Whiskey and Beer (4:08)
-03. Sweet Lady (5:37)
-04. Beautiful (6:31)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:29:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E727318E8FC86BF085A9F86F65C39B8A46123381
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683357   (128547) от 10.12.2023
-
-Ancient Ceremony - Studio Albums (6 releases) (1995-2004) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Black Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128547.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ancient Ceremony — немецкая симфо блэк-метал-группа, образованная в 1991 году. После 2005 года от группы не поступало никаких новостей и, предположительно, на данный момент она распущена.1995 - Cemetary Visions
-1997 - Under Moonlight We Kiss
-1999 - Fallen Angel's Symphony
-2000 - Synagoga DiabolicaЖанр: Symphonic Black MetalПродолжительность: 03:33:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7F6C776EE1B96B68C075E188564D25862C5161E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683242   (128544) от 10.12.2023
-
-Ayreon - Universal Migrator Part 2-Flight of the Migrator (2000) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Metal, Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chaos
-02. Dawn Of A Million Souls
-03. Journey On The Waves Of Time
-04. To The Quasar: а) The Taurus Pulsar b) Quasar 3C273(   Читать дальше...   )Жанр: Progressive Metal, RockПродолжительность: 01:05:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDA58600C7A0A869A21F41F7C0F800DCD50D342F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1030227   (674034) от 30.06.2016
+
+VA - Русская Дискотека ХХ Века - 1 (2010) [MP3|320 Kbps]<Disco, Dance, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_674034.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ролик Студии Мастер ( 1989 )
+02. Мираж - Солнечное Лето ( 1988 )
+03. 1-е апреля - Доктор Берия ( 1990 )
+04. Каролина - Остановись ( 1991 )(   Читать дальше...   )Жанр: Disco, Dance, Pop.Продолжительность: 01:27:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1F193E33A0DBD03C7FE8B44E742E35D90351DEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030527   (673799) от 30.06.2016
+
+Enrique Iglesias - The Best Songs (2016) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_673799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bailando (English Version)
+02. Bailando (Spanish Version)
+03. Cuando Me Enamoro
+04. DUELE EL CORAZON(   Читать дальше...   )Жанр: PopПродолжительность: 00:58:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:084895A67E3CB967FE596B8D9A7F9F0695317784
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1223493   (673463) от 05.05.2018
 
 VA - German Top 100 Single Charts 04.05.2018 (2018) [MP3|320 Kbps] <Pop, Dance>
@@ -705,64 +763,6 @@ VA - Зарубежная Дискотека ХХ Века - 38 (2016) [MP3|320 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:158A7D3977C3C7536FFD86C351E8EAAD73193541
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030923   (670462) от 02.07.2016
-
-VA - Зарубежная Дискотека ХХ Века - 36 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670462.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bellini - Samba De Janeiro ( 1997 )
-02. Bad Boys Blue - Kiss You All Over, Baby ( 1985 )
-03. Fun Fun - Gimme Some Loving ( 1988 )
-04. E-Type - Set The World On Fire ( 1994 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0072A76591191CB15CF8FF9AD75610D3F62B1813
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030976   (670334) от 02.07.2016
-
-VA - Русская Дискотека ХХ Века - 18 (2010) [MP3|320 Kbps]<Disco, Dance, Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Лолита - Забытые Герои ( Бони'М ) ( 1990 )
-02. Королева Наташа - Желтые Тюльпаны ( 1990 )
-03. Mr. Credo - Cosa Nostra ( 1998 )
-04. Студия Звук - Чико ( 1989 )(   Читать дальше...   )Жанр: Disco, Dance, Pop.Продолжительность: 01:13:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:327EA327C3FD25325271A1F016611A6A39020A35
 ```
 
 https://mybot314.ru/tekegram_catalog/

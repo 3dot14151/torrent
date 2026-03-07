@@ -1,3 +1,119 @@
+###  Публикация: 1284323   (728961) от 21.02.2019
+
+The Lemon Trees - Open Book (1993) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love The Sun
+02. Love Is In Your Eyes
+03. Everything I Want To Know
+04. Child Of Love(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E1A69E801C0E5F1ADE72BDECF20AE03736EA3A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284274   (728897) от 21.02.2019
+
+Jamelia - Superstar-The Hits (2007) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Superstar
+02. Thank You
+03. See It in a Boy's Eyes
+04. Stop(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A2A586483DF2B5091A7B7D5227A6C8BCC6BEB32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022494   (728710) от 02.06.2016
+
+Fifth Harmony - Reflection (2015) Deluxe Edition [FLAC|Lossless|image + .cue] <Pop, Dance, RnB>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728710.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Top Down 3:40
+02. BO$$ 2:51
+03. Sledgehammer 3:51
+04. Worth It (feat. Kid Ink) 3:45(   Читать дальше...   )Жанр: Pop, Dance, RnBПродолжительность: 00:48:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD40757C2EE02933F38B8BD8A4E4871EA2227A15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128496   (727444) от 25.04.2017
+
+Texas - Jump On Board (2017) [FLAC|Lossless|image + .cue] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727444.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let's Work It Out (3:42)
+ 02. Can't Control (3:43)
+ 03. For Everything (4:32)
+ 04. It Was Up to You (3:19)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:37:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81363537BAF79EA0412218B227FF8218D85590BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1022773   (727361) от 03.06.2016
 
 Roxette - Good Karma (2016) [FLAC|Lossless|image + .cue] <Pop Rock, Soft Rock>
@@ -629,122 +745,6 @@ VA - 538 Hitzone 81 (2017) 2CD [FLAC|Lossless|image + .cue] <Top 40, Pop, Electr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C504A049E721CFEAD4ACCA3A2B7A7C1673F9B767
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129685   (720321) от 29.04.2017
-
-VA - 100 Hits Sunday Morning Songs (2017) Box Set, 5CD [FLAC|Lossless|tracks + .cue] <Dance, Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720321.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ну какой релиз публиковать субботним предпраздничным утром - конечно 100 Hits: Sunday Morning Songs. Этим сборником британский лейбл Demon Music Group продолжает серию боксетов для самых различных слушателей (ссылку на серию NNM-Club вы найдете в конце релиза). Сдесь собраны спокойные, светлые и умиротворяющие композиции со всего света. 100 мягких мелодий собраны (   Читать дальше...   )CD1:
-01. Kris Kristofferson - Sunday Morning Comin' Down  (4:33)
-02. Johny Cash - It Ain't Me Babe  (3:04)
-03. Lulu - The Man Who Sold The World  (3:51)(   Читать дальше...   )Релиз состоялся: 17 февраля 2017Жанр: Dance, Pop, RockПродолжительность: 06:20:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B187667912098D3F6F8FAD72AF6995110B2BC6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129692   (720232) от 29.04.2017
-
-VA - BRAVO Hits 97 (2017) [FLAC|Lossless|WEB-DL|tracks] <Top 40, Pop, Dance, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Katy Perry feat. Skip Marley - Chained To The Rhythm (3:57)
-02. Ed Sheeran - Castle On The Hill (4:21)
-03. Alma - Chasing Highs (3:15)
-04. Zedd & Alessia Cara - Stay (3:30)(   Читать дальше...   )Жанр: Top 40, Pop Compilation, Pop, Electronic, R&B, Disco, Dance, Indie Pop, Europop, R&B, Hip Hop, Pop Rap, House, Euro House, Deep House, Electro, Synthpop, Pop RockПродолжительность: 02:36:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F3B1F1E0B4C9C23DB1CB3A498CB799790E225B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400492   (719253) от 05.08.2020
-
-The Boy Least Likely To - The Wrong End of a Rainbow (2020) A Collection of B Sides and Rarities [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Rock Lo-fi>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It Could've Been Me (Pop String Version) (03:49)
-02. Rock Upon a Porch with You (02:42)
-03. When I Grow up I Want to Be a Boy Again (03:07)
-04. My Country Heart (04:45)(   Читать дальше...   )Жанр: Indie Pop, Rock Lo-fiПродолжительность: 00:40:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B14394E18EBBB3A624569920D0841EA4ABE2F676
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400458   (719038) от 05.08.2020
-
-VA - The 90s Music Generation Playlist (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719038.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mighty Metal Gods - One (07:54)
-02. Knightsbridge - Living on My Own (03:37)
-03. Knightsbridge - Miracle (04:53)
-04. Groovy-G - Fly Like an Eagle (04:16)(   Читать дальше...   )Жанр: PopПродолжительность: 02:09:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C259483B93E5AAEE1C426CD283B2A358985D0AF5
 ```
 
 https://mybot314.ru/tekegram_catalog/

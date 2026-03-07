@@ -1,3 +1,32 @@
+###  Публикация: 1001277   (853850) от 28.03.2016
+
+Tatiana Sergeeva - Russian Harpsichord Music of the XIX century. (1997) [FLAC|Lossless|image + .cue] <Classical, Baroque, Keyboard>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853850.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Bortnyansky: Sonata B-dur  3:57
+02.  Bortnyansky: Sonata C-dur - I. Allegro moderato  4:41
+03.  II. Adagio  6:18
+04.  III. Rondo  2:36(   Читать дальше...   )Жанр: Classical, Baroque, KeyboardПродолжительность: 00:52:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89568C70D7B25A25D5CCBABFC64047DEC1000D4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1001501   (853798) от 28.03.2016
 
 Ton Koopman, Musica Antiqua Amsterdam - Haydn: Complete Harpsichord Concertos (1995) 2CD [FLAC|Lossless|tracks] <Classical, Baroque>
@@ -713,35 +742,6 @@ Schnittke
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8410EE70FD938C7E63E2542749A3980770DF7AFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999558   (848595) от 31.03.2016
-
-Viktor Merzhanov - Russian Piano School (1995) [FLAC|Lossless|tracks] <Classical, Keyboard>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848595.jpg" />
-</div>
-
-
-###  Подробнее
-
-• Johannes Brahms - Variations on a Theme by Paganini Op.35
-01. Sketch-book 1   11:53
-02. Sketch-book 2   09:59
-(   Читать дальше...   )Жанр: Classical, KeyboardПродолжительность: 00:46:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C31B8515D2F2BA21E6AC229211226E6F976FFDA
 ```
 
 https://mybot314.ru/tekegram_catalog/

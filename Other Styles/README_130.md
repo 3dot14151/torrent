@@ -1,3 +1,32 @@
+###  Публикация: 1181787   (321208) от 08.11.2017
+
+VA - Где-то на белом свете... (1996) [FLAC|Lossless|image + .cue] <Retro, Soundtrack, Pop>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_321208.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Нина Бродская - Звенит Январская Вьюга (Иван Васильевич Меняет Профессию) (3:04)
+02. Лев Полосин - Кап-Кап-Кап (Иван Васильевич Меняет Профессию) (2:24)
+03. Эстрадный Оркестр П-У В.Людвиковского - Погоня (Иван Васильевич Меняет Профессию) (1:43)
+04. Валерий Золотухин - Разговор Со Счастьем (Иван Васильевич Меняет Профессию) (2:40)(   Читать дальше...   )Жанр: Retro, Soundtrack, PopПродолжительность: 01:04:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA80E65F6D9B7089D06B2CCE94C6EFD0E8B434DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1075217   (321152) от 22.11.2016
 
 Midori - A Very Midori Christmas (2016) [MP3|320 Kbps] <New Age>
@@ -722,35 +751,6 @@ VA - Xmas Jukebox 2016 (2016) [MP3|320 Kbps] <Soundtracks>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5C48070B7CB8E4258784C7DFDB7A330C3FAFC36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260255   (314222) от 06.11.2018
-
-VA - For Women vol. 1-3 (2014-2016) [MP3|320 Kbps] <Ambient, Electronic, Instrumental, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314222.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yakuro - Long Road To Happiness (12:13)
-02. Artur Bayramgalin - The Morning Moon (4:18)
-03. Alexandr Brynskikh - Love Expectation (6:33)
-04. Rainy - Time (3:36)(   Читать дальше...   )Жанр: Ambient, Electronic, Instrumental, New AgeПродолжительность: 05:13:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12E0F91CA0BC5FD035CE3A1C05C1F8393C39B8DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

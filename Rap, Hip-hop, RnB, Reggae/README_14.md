@@ -1,3 +1,90 @@
+###  Публикация: 1284692   (720787) от 26.02.2019
+
+Dr. Dre - 2001 (1999) [MP3|320 Kbps] <Hip-Hop, Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720787.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Lolo (Intro) ft Xzibit & Tray-Dee
+02.The Watcher
+03.F*ck You ft Devin a.k.a The Dude & Snoop Dogg
+04.Still D.R.E ft Snoop Dogg(   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 01:08:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49776E1BB5B176F96A02BDD6ABC48148E56B85CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399965   (719397) от 05.08.2020
+
+Pastor Napas - Азъ есмь (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719397.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Белый король [02:47]
+02. Я жив [02:34]
+03. Бьется снова [02:39]
+04. О мой Бог [03:15](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:29:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C62AC39913B76DD57FD4A4D23858DB41639E272
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399963   (719395) от 05.08.2020
+
+ЗАМАЙ - Lust Hero 2 (Deluxe) (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719395.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Дальнобойная [03:08]
+02. Instagram [02:53]
+03. Poker [03:10]
+04. Девочка похожая на сон [03:20](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:29:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7691DC6E4AF9E684F8287015E17B92A2CE60396
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1399972   (719262) от 05.08.2020
 
 Murda Killa x 13senpai - D.S.H.H. (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -656,93 +743,6 @@ VA - Chillhop Essentials Summer (2016) [FLAC|Lossless|Web-DL|tracks] <Hip Hop, J
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8A5CAA8CC486A54F50FB21635E09EBC21A8C91D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289264   (688145) от 15.03.2019
-
-Смоки Мо - Белый блюз (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688145.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Смоки, скажи им
-2. Белый блюз
-3. #ВидаЛока
-4. Бутылка вина(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:40:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61C17BF373C696F11C4F6B57B630FD34DA20CF52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289096   (688132) от 15.03.2019
-
-VA - Vintage Reggae Cafe - The Definitive Collection, Vol. 2 (2019) [MP3|320 Kbps] <Reggae>
-
->>Rap, Hip-hop, RnB, Reggae
->>RnB, Reggae
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688132.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-1 All About That Bass - The Reggister's
-2 Yellow - Natty Bong
-3 L.S.F. (Lost Souls Forever) - Sublime Reggae Kings(   Читать дальше...   )Жанр: ReggaeПродолжительность: 2:21:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F1A8E14787C93812227A5BC8E98C4098D4D9077
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029018   (686256) от 24.06.2016
-
-VA - Vintage Reggae Cafe Vol 4 (2015) [MP3|320 кб/с] <Reggae>
-
->>Rap, Hip-hop, RnB, Reggae
->>RnB, Reggae
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686256.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Reggister's - All About That Bass (2:53)
-02. Natty Bong - Yellow (4:33)
-03. Sublime Reggae Kings - L.S.F. (Lost Souls Forever) (3:12)
-04. Trippynova - Treasure (3:04)(   Читать дальше...   )Производство: Music BrokersЖанр: ReggaeПродолжительность: 00:46:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:931C35918EEDBB19821F13203E1472530C45A609
 ```
 
 https://mybot314.ru/tekegram_catalog/

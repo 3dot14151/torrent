@@ -1,3 +1,32 @@
+###  Публикация: 1724569   (109209) от 20.05.2024
+
+VA - Good Morning Best Chillout Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109209.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roy Bell - Noche Hermosa (3:46)
+02. Hints of soul - Cloudscape (4:30)
+03. Rhythmphoria - Indistinguishable (4:31)
+04. Silex Soils - Without Disguise (4:29)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:51:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A5669BC3B8A8A1E8B36812949BA0586891C6867
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1724406   (109190) от 21.05.2024
 
 Koan - The Queen of Spades (Side A) (2024) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Downtempo, Psychedelic>
@@ -716,35 +745,6 @@ VA - Afrobeat Vol. 3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Downtempo, So
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D3E2E0FD18684504CD140747CF9868C134942C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735713   (106861) от 09.07.2024
-
-VA - Chillout & Lounge Music Summer Vibes (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106861.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crossing Colors - Animated Expressions (4:20)
-02. Bio Logical Theory - Sunny Groove (4:25)
-03. Klasse XXI - Shared Aspirations (4:20)
-04. Vostok Divers - Apparent Nonchalance (4:30)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:50:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86A0B314F8969E5CA061FB27DFBF60F5FB59250B
 ```
 
 https://mybot314.ru/tekegram_catalog/

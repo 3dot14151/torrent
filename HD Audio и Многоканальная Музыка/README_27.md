@@ -1,3 +1,177 @@
+###  Публикация: 1298844   (601561) от 29.04.2019
+
+Bad Boys Blue - Super 20. Greatest Hits (1995) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Electronic, Synth-pop, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_601561.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. You're A Woman
+02. I Wonna Hear Your Heartbeat (Sunday Girl)
+03. A World Without You (Michelle)(   Читать дальше...   )Жанр: Electronic, Synth-pop, DiscoПродолжительность: 01:14:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB03C6BC398D09687432ECC0BED1F22DC13E89E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 686920   (601259) от 06.08.2013
+
+Melody Gardot - 3 Альбома (2008-2012)[FLAC 2.0 24/96|image (Vinyl-Rip)]<Jazz, Easy listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_601259.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mira
+02. Amalia
+03. So Long
+04. So We Meet Again My Heartache(   Читать дальше...   )Жанр: Jazz, Easy listening |Продолжительность: 00:43:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:842F7247551AACCB6C88176ABB74324705A3A885
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 686820   (601064) от 06.08.2013
+
+БГ - Живьем в Темяшкинхолле (1982) [FLAC 2.0 24/192|image (OpenReel-Rip)]<Singer/Songwriter>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_601064.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Стучаться в Двери Травы (3:06)
+02. Опираться о Платан (4:13)
+03. Десять Прекрасных Дам (4:31)
+04. Сторож Сергеев (2:57)(   Читать дальше...   )Жанр: Singer/SongwriterПродолжительность: 01:13:31
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547993   (601023) от 01.05.2022
+
+Frankie Laine - Frankie Laine's Greatest Hits (1975) Compilation [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_601023.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 I Believe
+A2 Your Cheatin' Heart
+A3 Jalousie
+A4 That's My Desire(   Читать дальше...   )Жанр: PopПродолжительность: 00:23:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FF9E1DB1D9DCE6078A9FD746E47BC0C13154C04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152515   (599863) от 02.05.2022
+
+Karat - Schwanenkönig (Schwanenkonig) (1980) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_599863.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Tanz Mit Der Sphinx
+A2 Mitternacht-Blues
+A3 Magisches Licht
+A4 Der Boxer(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:44:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C498842D7398C7EAA03C7A1CCE58F37006DACF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1150936   (599858) от 02.05.2022
+
+Ольга Пирагс - Спасибо, Музыка, Тебе (1984) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_599858.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Два Стрижа
+02. По Коням
+03. Дождевые Кольца
+04. Не Забыть Нам(   Читать дальше...   )Жанр: Jazz, PopПродолжительность: 00:37:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C72EBB761AEF6F73201CE9988F99C5CCB97E8FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1152267   (599856) от 02.05.2022
 
 P.R. Computer - P.R. Computer (1983) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Electronic, Synth-pop, Modern Classical>
@@ -569,180 +743,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0C29062D77F0B1F8A3577109D6BD00F8AF65079
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039521   (594514) от 02.08.2016
-
-Арсенал - Своими Руками (1983) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Fusion>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594514.jpg" />
-</div>
-
-
-###  Подробнее
-
-А1 Тайна (Mystery)
-А2 Посвящение Махавшину (Dedication To Mahavishnu)
-В1 Свет На Пути (Light On The Way)
-В2 Сюита В Фа Миноре (Suite In F Minor)Жанр: Jazz, FusionПродолжительность: 00:34:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9258C86254D062CB9A287D909694D832CD4FDD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 806923   (594171) от 22.07.2014
-
-Van Halen - 1984 (1984)  [FLAC 2.0 24/192|image (Vinyl-Rip)]<Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594171.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. 1984 (1:07)
-A2. Jump (4:04)
-A3. Panama (3:33)
-A4. Top Jimmy (3:01)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:33:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D06854D4B32B2584F86081D4E764026D44453965
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150247   (594036) от 15.07.2017
-
-VA - Песни На Стихи Андрея Вознесенского (1981) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop, Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594036.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Николай Гнатюк - Танец На Барабане
-A2 Ольга Пирак - Два Стрижа
-A3 Петер Тилс - Белый Шиповник
-A4 Яак Йоала - Подберу Музыку(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:37:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC0D1A40407AA866ADF95FB8C0E354A6F8A8D043
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548801   (593957) от 06.05.2022
-
-The Ray Conniff Singers - It's The Talk Of The Town (1959) 1971 [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Jazz, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593957.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 It's The Talk Of The Town
-A2 You're An Old Smoothie
-A3 Buttons And Bows
-A4 Let's Put Out The Lights (And Go To Sleep)(   Читать дальше...   )Жанр: Jazz, PopПродолжительность: 00:29:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D554410E59E11D75E351C627B965CC74770AC44A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042634   (593733) от 06.05.2022
-
-Ray Conniff/Рэй Коннифф - Смех Под Дождем (1976) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Jazz, Pop, Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593733.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Смех Под Дождем (Laughter In The Rain)
-А2 Я Действительно Тебя Люблю (I Honestly Love You)
-A3 Закат (Sundown)
-A4 Ангелочек (Angie Baby)(   Читать дальше...   )Жанр: Jazz, Pop, Easy ListeningПродолжительность: 00:33:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1655F0090854A45F02B4616BF73161E16B5AC5B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549435   (593359) от 07.05.2022
-
-Ray Conniff/Рэй Коннифф - Голубая Рапсодия (1987) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Jazz, Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593359.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Страна Улыбок
-A2 Грезы Любви
-A3 Романс
-A4 Парафраза(   Читать дальше...   )Жанр: Jazz, Easy ListeningПродолжительность: 00:40:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB3EB617B322DEC6AFD9997B13D1BC7727A82D48
 ```
 
 https://mybot314.ru/tekegram_catalog/

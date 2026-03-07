@@ -1,3 +1,32 @@
+###  Публикация: 1213037   (771743) от 16.03.2018
+
+VA - Great Melodies From Great Musicals (1999) [MP3|320 Kbps] <Instrumental, Classical, Easy Listening>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_771743.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The King And I Medely: Getting To Know You/I Whistle A Happy Tune/I Have Dreamed/Shall We Dance? (7:50)
+2. As If We Never Said Goodbye/With One Look From Sunset Boulevard (4:14)
+3. How Are Things in Glocca Morra? From Finian's Rainbow (3:45)
+4. I'm Still Here From Follies (2:54)(   Читать дальше...   )Жанр: Instrumental, Classical, Easy ListeningПродолжительность: 01:01:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:543E41273136D37CE89EB1051B979B8DAFA6EAC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1277195   (771707) от 25.01.2019
 
 James Last - My Favourites. Die Schonsten Pop-Titel Aus Den Jahren 1989-1993 (1993) [FLAC|Lossless|image + .cue] <Pop, Instrumental>
@@ -716,35 +745,6 @@ Richard Clayderman - Ballade pour Adeline (2012) [FLAC|Lossless|image + .cue] <I
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:497E4C7D79F086A73D2D02F996A111E265E9A755
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213994   (766545) от 19.03.2018
-
-Хелависа - Люцифераза (2018) [MP3|320 Kbps] <Folk, Folk Rock>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766545.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Кракатук
-2. Поверь
-3. Шей
-4. Дорога в огонь(   Читать дальше...   )Жанр: Folk, Folk RockПродолжительность: 00:45:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CAE6DE14976B955080AF11C215E43F6A24681F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

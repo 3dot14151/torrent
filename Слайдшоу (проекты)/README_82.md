@@ -1,3 +1,30 @@
+###  Публикация: 953765   (346230) от 05.11.2015
+
+Проекты - VideoHive - Old Memories Album Gallery [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_346230.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект - фотоальбом с элементами осенней тематики.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44D0C40FA58E72AAB136118AC0CF16EB382E25C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 953802   (346227) от 05.11.2015
 
 Проекты - VideoHive - Album memories Old Film Look - Full HD [AEP]
@@ -661,32 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BCE6BF5A0F579D7D76308CB25695F00E7EC020DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180649   (336881) от 05.11.2017
-
-Проекты - VideoHive - Simply Elegant Slideshow - 11441688 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336881.jpg" />
-</div>
-
-
-###  Подробнее
-
-Simply Elegant Slideshow - многоцелевой шаблон, прост, чист и элегантен. Идеально подходит для свадебных фотографий. Поделитесь своими свадебными моментами с семьей и друзьями или покажите все, что вам захочется.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C0D31F7AA4621E037FFE32AEA42EB832A6E9FF0
 ```
 
 https://mybot314.ru/tekegram_catalog/

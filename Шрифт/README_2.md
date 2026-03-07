@@ -1,3 +1,30 @@
+###  Публикация: 1111726   (846404) от 06.03.2017
+
+Шрифты - TheHungryJPEG - The FREE March Fonts Bundle [TTF, OTF, EOT, WOFF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846404.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор бесплатных рукописных шрифтов с официальной документацией.
+Поддержки кириллицы нет!Формат: TTF, OTF, EOT, WOFF, WOFF2, SVG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17EB556F5A0F8CFAFC98C3AE3FFF222D7A30D9F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1111728   (846307) от 06.03.2017
 
 Шрифты - CreativeMarket - Janesville Script [TTF]
@@ -679,32 +706,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:98E17AD6E8F50880B6FBDB3483041B7E9CE55638
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506495   (799812) от 31.10.2021
-
-Шрифты - Creative Fabrica - All Fonts Collection - Mega Typeface Bundle [TTF, OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799812.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция All Fonts - Mega Typeface Bundle с невероятным выбором из +460 шрифтов.Формат: TTF, OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6536A0F87D853852BFBC9CEDB7FA675470EF956C
 ```
 
 https://mybot314.ru/tekegram_catalog/

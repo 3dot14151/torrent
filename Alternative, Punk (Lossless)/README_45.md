@@ -1,3 +1,32 @@
+###  Публикация: 1582300   (323571) от 09.10.2022
+
+Bronson - Live Fast Die Hard (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hardcore, Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323571.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome on board [00:01:43]
+02. Una canzone per disobbedire [00:03:06]
+03. Roma Tiger Punk (vol.2) [00:02:16]
+04. Tutto quello che ho [00:02:53](   Читать дальше...   )Жанр: Melodic Hardcore, Punk RockПродолжительность: 00:30:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37D475B998750F0986931E5A3EEDD7ABAB9A0D57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1259215   (323544) от 02.11.2018
 
 VA - Dr. Demento Covered in Punk (2018) 2CD [FLAC|Lossless|tracks + .cue] <Punk, Comedy>
@@ -709,35 +738,6 @@ Daniel Lanois - For the Beauty of Wynona (1993) American Edition [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82B93EDFF0994112F375E88A4C3F6425A749FFBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260526   (311618) от 07.11.2018
-
-Muse - Simulation Theory (2018) Deluxe [FLAC|Lossless|tracks + .cue] <Alternative Rock, Electronic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311618.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Algorithm
-02. The Dark Side
-03. Pressure
-04. Propaganda(   Читать дальше...   )Жанр: Alternative Rock, Electronic RockПродолжительность: 01:00:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5BC873F95330590A01FAB4CDAD081F11658F73B
 ```
 
 https://mybot314.ru/tekegram_catalog/

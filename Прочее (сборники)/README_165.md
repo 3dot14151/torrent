@@ -1,3 +1,206 @@
+###  Публикация: 969464   (147408) от 27.12.2015
+
+VA - 100 New Year Dance Party 2016 (2015) [MP3|320 кб/с] <Dance, Club, House, Funky>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_147408.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daddy's Groove Feat Mindshake - Surrender (Extended Mix)
+02. Haddaway - What Is Love (Project 46 Remix)
+03. Black Van - Fen Fires
+04. Giorno - The Way (Radio Edit)(   Читать дальше...   )Жанр: Dance, Club, House, FunkyПродолжительность: 09:49:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0601E06338E189CF7211E05840659BFA0FF3751C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347815   (147308) от 25.12.2019
+
+VA - не Громкие новинки недели 49 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_147308.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Alex Nikov - Малышка (3:18)
+2.Chacha - Куранты В Тумане (1:25)
+3.Chernika - По Беспределу (3:19)
+4.DeeSpace - Стань Моим Ангелом (3:15)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:41:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C9CAEB002EA75A88DBE31D63FC57B4035316C5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678237   (147285) от 20.11.2023
+
+VA - Музыка для машины Vol.39 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_147285.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 5Утра - Давай сбежим (Искорки) (02:32)
+02. 2xA - We Got a Love (01:35)
+03. A R I Z O N A - Hanging On (03:12)
+04. Bryan Adams - You're Awesome (02:50)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:36:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F2BF009EAB7AAEECDBF0CE986CB87790835AF56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678243   (147255) от 20.11.2023
+
+VA - Музыка для машины Vol.40 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_147255.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex Amor - Like The First Time (03:07)
+02. Slavique Green - I Like That (02:55)
+03. Юлия Колерт - Давай Танцевать (03:18)
+04. Эдуард Хуснутдинов - Распустилась Cирень (03:38)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:38:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EEC02D56750AFF3977C18437266979A36D72D56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271959   (147196) от 25.12.2018
+
+VA - Громкие новинки месяца Vol.19 (2018) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_147196.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lil' Wayne, Kid Ink, Saweetie - YUSO
+002. Lena Katina - Куришь
+003. Доминик Джокер, Екатерина Кокорина - Новый день и Новый год
+004. Grivina - Девочку несёт(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:22:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C793D0D3519955C9DB7B53A6BA24F6FA8CEE9946
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434896   (146961) от 26.12.2020
+
+VA - Новинки С Разных Популярных мп3 Сайтов ver. 102 (2020) [MP3|320 Kbps] <Club, Dance, Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_146961.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dance:
+01. Ava Max - My Head  My Heart (NitugaL Radio Edit)
+02. Bingo Players & Ida Corr - I Know This Club (Extended Mix)
+03. Bingo Players, Felguk, Fafaq - Devotion (2020 Remix) (Instrumental Mix)(   Читать дальше...   )Жанр: Club, Dance, Disco, Pop, Rap, RnB, RockПродолжительность: 06:24:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:134F0CC423E1D028CEE5B27D5F763E7C7877CEB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969641   (146907) от 27.12.2015
+
+VA - Новогодний танцпол NRJ (2015) [MP3|192-320 кб/с] <Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_146907.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dj Antonio Vs. Feder - Goodbye (Buddha Bar Hitup Extended Mix)
+002. Joy Tarantino Ft Eleonoire - All Of That (Jack & Joy Computer Controlled Radio Mix)
+003. MC Zali & DJ HaLF feat. Karina Kari - Этот Новый Год
+004. Optimum Feat. Brianna - Lately Baby (Radio Edit)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 06:34:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:522170601222504935F58DB9502F606BB31EE0FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1519674   (146067) от 25.12.2021
 
 VA - DJ Mixes New Year 2022 (2021) [MP3|320 Kbps] <Pop, Dance>
@@ -542,211 +745,6 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:356B24100A106AD0CB3A5CC98E29778EB7C5A20F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195104   (144186) от 28.12.2017
-
-VA - Подставляйте ладони-я насыплю Вам солнца! (Часть 26) (Compiled by Виктор31RUS) (2017) [MP3|256-320 Kbps] <Советская Эстрада, Ретро>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144186.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Александра Стрельченко  -  Эхо любви  3:39
-02.  Евгений Мартынов  -  Алёнушка  3:29
-03.  Мария Лукач  -  Я шаги твои слышу  2:46
-04.  Нина Бродская  -  С любовью встретиться  3:06(   Читать дальше...   )Жанр: Советская Эстрада, РетроПродолжительность: 01:59:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26E4A2D6AF0F7E0057B42BB926CA36DB2C73AA58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195054   (144073) от 28.12.2017
-
-VA - Подставляйте ладони-я насыплю Вам солнца! (Часть 25) (Compiled by Виктор31RUS) (2017) [MP3|256-320 Kbps] <Советская Эстрада, Ретро>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144073.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Иосиф Кобзон  -  Где-то далеко  3:41
-02.  Марк Бернес  -  С чего начинается Родина  2:35
-03.  Тамара Миансарова  -  Ты лучше всех  2:23
-04.  Гелена Великанова  -  Не знала я  2:45(   Читать дальше...   )Жанр: Советская Эстрада, РетроПродолжительность: 02:12:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A392F9FDDAC64C3B885A37FE090D4CBBD44FDEC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678710   (143703) от 22.11.2023
-
-VA - Музыка для машины Vol.41 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143703.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dрянь Feat. & Osaili - Под Твоим Кружевом (02:55)
-02. Lord - Я Же Тебя Помню (03:43)
-03. Polli Feat. & Reznikov - Он Мое (02:49)
-04. Саша Санта - Мой Океан (02:20)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:39:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0951C0FC18068FD7E856F437571F0F10998200CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348601   (143572) от 28.12.2019
-
-VA - The Official UK Top 40 Singles Chart 27.12.2019 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143572.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ellie Goulding - River
-02. Mariah Carey - All I Want for Christmas Is You
-03. Wham! - Last Christmas
-04. The Pogues - Fairytale of New York (feat. Kirsty MacColl)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:17:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B844CD6AA089E42733D58530511DEA138152EBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520354   (143513) от 27.12.2021
-
-VA - Top Songs of 2021: Global [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. BTS - Dynamite
-02. Olivia Rodrigo - drivers license
-03. Ariana Grande - positions
-04. Pop Smoke, Lil Baby, DaBaby - For The Night(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:29:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68CA5231EB851E2055E53117224548AF9CE3F32F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 854539   (143247) от 29.12.2014
-
-VA - The Official UK Top 40 Singles Chart (28-12-2014) [MP3|320 кб/с]<Pop, Dance, Rock, R&B, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143247.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вот и последний в этом году традиционный UK Singles Chart  - официальный хит-парад синглов Великобритании, отсортированных по результатам продаж за неделю.
-Все изменения по сравнению с прошлым чатом Вы можете посмотреть здесь.
-Во все треки вшиты обложки альбомов.01. Mark Ronson - Uptown Funk! (Feat.Bruno Mars)  (4:31)
-02. Ben Haenow - Something I Need  (3:46)
-03. Ed Sheeran - Thinking Out Loud  (4:42)
-04. Taylor Swift - Blank Space  (3:52)(   Читать дальше...   )Жанр: Pop, Dance, Rock, R&B, OtherПродолжительность: 02:31:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2802D6F62BAE7332FF232D27F2F6F04A6FA3769E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520356   (143155) от 27.12.2021
-
-VA - Top 100 2021: Shazam [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Masked Wolf - Astronaut In The Ocean
-02. The Weeknd - Save Your Tears
-03. Ed Sheeran - Bad Habits
-04. Olivia Rodrigo - drivers license(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:30:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE949EC68478AE23C21801FF2A9271B36CD60459
 ```
 
 https://mybot314.ru/tekegram_catalog/

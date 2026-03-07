@@ -1,3 +1,32 @@
+###  Публикация: 1260255   (314222) от 06.11.2018
+
+VA - For Women vol. 1-3 (2014-2016) [MP3|320 Kbps] <Ambient, Electronic, Instrumental, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_314222.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yakuro - Long Road To Happiness (12:13)
+02. Artur Bayramgalin - The Morning Moon (4:18)
+03. Alexandr Brynskikh - Love Expectation (6:33)
+04. Rainy - Time (3:36)(   Читать дальше...   )Жанр: Ambient, Electronic, Instrumental, New AgeПродолжительность: 05:13:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12E0F91CA0BC5FD035CE3A1C05C1F8393C39B8DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1260246   (314050) от 06.11.2018
 
 VA - For Men vol. 1-3 (2014-2016) [MP3|320 Kbps] <Chillout, Electronic, Instrumental, New Age, Space>
@@ -728,35 +757,6 @@ Sarah Schachner - Call of Duty: Modern Warfare (Original Game Soundtrack) (2019)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D417652B9660B10B1C04C8A3DEE412FB0549DBCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077151   (308625) от 27.11.2016
-
-Delerium - Mythologie (2016) [FLAC|Lossless|image + .cue] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308625.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Fires (6:25)
- 02. Zero (4:50)
- 03. Keep On Dreaming (5:24)
- 04. Stay (4:09)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 01:03:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E72189C6852BF311F7900FFFEF987434FE2D091A
 ```
 
 https://mybot314.ru/tekegram_catalog/

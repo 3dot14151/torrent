@@ -1,3 +1,32 @@
+###  Публикация: 1187692   (278721) от 29.11.2017
+
+Sean Evenett - My Peaceful Heart (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_278721.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Peaceful Heart (3:31)
+02.  Spirituality & Happiness (3:53)
+03.  Energy of Life (3:45)
+04.  Magic Relaxation (3:53)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:17:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB36A06A99834EAA452C100A9796F1D9D9CE1335
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1081844   (278632) от 12.12.2016
 
 Leonard Cohen - The Essential Leonard Cohen (2002) 2CD, Compilation [FLAC|Lossless|image + .cue] <Folk, Rock>
@@ -710,35 +739,6 @@ Back to Earth - Peace of Mind (2019) [FLAC|Lossless|WEB-DL|tracks] <New age, Rel
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE7F66C2438D59F0D623A5AA06F5885F6C28286E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083546   (273638) от 16.12.2016
-
-Molly Valentine - Fantasyland (2016) [MP3|320 Kbps] <New Age, Neo-Classical>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273638.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 -  Luchia [00:05:01]
-02 -  Fantasyland [00:06:05]
-03 -  Quasi Una Fantasia [00:05:54]
-04 -  The Blue Whale vs. the Giant Squid [00:07:31](   Читать дальше...   )Жанр: New Age, Neo-ClassicalПродолжительность: 01:01:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A7BCE20829DC3007DC10ACE9FE130F218A3CEB3
 ```
 
 https://mybot314.ru/tekegram_catalog/

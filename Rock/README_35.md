@@ -1,3 +1,32 @@
+###  Публикация: 905484   (649596) от 06.06.2015
+
+Steve Hughes - Tales From The Silent Ocean (2015) [MP3|320 кб/с]<Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_649596.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Will We Ever Be Free (9:42)
+2. 50/50 Zone (7:11)
+3. Tapestry of Change (13:55)
+4. One Day (7:50)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:18:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9312163011F07BCE43FDE0D0406B65E9DD57D75D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1032000   (649337) от 05.07.2016
 
 2Cellos - Discover (2016) [MP3|320 Kbps] <Symphonic Rock>
@@ -740,35 +769,6 @@ Los Venturas - Miles High (2016) [MP3|320 Kbps] <60's Guitar's Instrumental Surf
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6BE358DF454F5DA1CD2473A346AE8552B40E0F17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906558   (643483) от 09.06.2015
-
-Led Zeppelin - Live (Bootleg) (1993) [MP3|320 кб/с]<Сlassic Rock, Hard Rock, Blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643483.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whole lotta love 4:15 (Page - Plant - Jone - Bonham)
-02. Communication breakdown 3:17 (Page - Jones - Bonham)
-03. Immigrant song 3:17 (Page - Plant)
-04. Going to California 3:54 (Page - Plant)(   Читать дальше...   )Жанр: Сlassic Rock, Hard Rock, BluesПродолжительность: 00:53:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF3F3284A0C679FF5A1D14947EE1E8AC16A52621
 ```
 
 https://mybot314.ru/tekegram_catalog/

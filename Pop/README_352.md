@@ -1,3 +1,205 @@
+###  Публикация: 1726830   (54888) от 30.05.2024
+
+VA - 100% Hits: DJ Hits '97 Vol. 1 (1997) [OGG Vorbis|480 Kbps] <Electronic, Reggae, Euro House>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_54888.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paradisio - Bailando
+02. Real McCoy - One More Time
+03. Heart Attack - I Was Made For Loving You
+04. Captain Jack - Together And Forever(   Читать дальше...   )Жанр: Electronic, Reggae, Euro HouseПродолжительность: 01:11:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3AC40153C56C335E65194E8645BEE4DFB24827C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727091   (54776) от 31.05.2024
+
+Silver Convention - Get Up & Boogie: The Worldwide Singles (2024) [FLAC|Lossless|WEB-DL|tracks] <Disco, Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_54776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Save Me ((Single Edit))
+02 - Fly, Robin, Fly ((Stereo Single Long Version Edit))
+03 - Tiger Baby ((Single Radio Edit))
+04 - San Francisco Hustle ((Single Version))(   Читать дальше...   )Жанр: Disco, SoulПродолжительность: 01:00:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:177C8F3BD47BDF769DCDA3A885B030475740CC05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726889   (54767) от 31.05.2024
+
+VA - 100% Hits: DJ Hits '97 Vol. 3 (1997) [OGG Vorbis|480 Kbps] <Electronic, Reggae, Euro House>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_54767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spice Girls - Spice Up Your Life
+02. La Bouche - You Won't Forget Me
+03. Nice Device - Cool Corona
+04. The Boom Beat - Touch the Fire!(   Читать дальше...   )Жанр: Electronic, Reggae, Euro HouseПродолжительность: 01:12:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18AA7B2EF23654813633500CFE96894A26CD298F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728030   (54254) от 05.06.2024
+
+VA - DJ Hits 31 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_54254.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Toolex - Open Your Heart (Extended Mix)
+02. Bass Bumpers - Keep On Pushing (Extended Club Mix)
+03. Flip Da Crip - Throw Ya Hand In The Air
+04. Back To Nature - Come Back To Me (D.J. Remix)(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 01:10:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:847B2DC0F12204AA0ED746B0A743F637260AD241
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728044   (54250) от 05.06.2024
+
+VA - DJ Hits Vol. 32 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_54250.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. N-Trance feat. Ricardo Da Force - Stayin' Alive
+02. 2 Unlimited - Do Whats Good For Me (edit version)
+03. Alexia Feat. Double You - Me And YouЖанр: Electronic, Euro House, EurodanceПродолжительность: 01:13:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:111D355ED3C2E795B0A44F147DD5A22282D8C823
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728146   (54236) от 05.06.2024
+
+VA - Sabadell Sound Megamixes (2024) [FLAC|Lossless|tracks + .cue] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_54236.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. D.J. Funny - Megamix Part 1 18:05
+- Closed - Living In Your Eyes
+- Squash Gang– I Want An Illusion
+- Vicio Latino – ¿Qué Me Pasa, Qué Me Pasa?(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:18:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F33D0946D533F0C03B947D8A05302BD678AEB40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728227   (54133) от 06.06.2024
+
+VA - DJ Hits 33 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_54133.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dr.Alban - This Time I'm Free
+02. Ace Of Base - Lucky Love
+03. Clock - Everybody
+04. Imperio - Veni Vidi Vici(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 01:14:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02489115F64C4A9C6980C37608063D632A138D84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1728409   (54034) от 07.06.2024
 
 Дмитрий Маликов - За туманами (2024) [MP3|320 Kbps] <Pop>
@@ -537,209 +739,6 @@ Leah Kate - Super Over (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB33419368225BDAF36DE31C1DDFB0B26164D728
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731199   (52781) от 19.06.2024
-
-VA - DJ Hits Vol. 70 (1996) [OGG Vorbis|480 Kbps] <Electronic, Dance-pop, Euro-Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52781.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Captain Jack - Soldier, Soldier
-02. Whigfield - Sexy Eyes
-03. Sqeezer - Blue Jeans
-04. Blue System - Only With You(   Читать дальше...   )Жанр: Electronic, Dance-pop, Euro-DiscoПродолжительность: 01:17:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CECAEB2D9AAB608EAC2B4D4DBE708AF30015CCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295024   (52445) от 23.06.2024
-
-Юрий Шатунов - Любимые песни (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52445.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. А лето цвета
-2. Белые розы
-3. Седая ночь
-4. Детство(   Читать дальше...   )Жанр: PopПродолжительность: 01:01:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D900FA2FBDC826BAE7F981F8C1AB2B3ADBEFF2C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 665134   (52441) от 23.06.2024
-
-Юра Шатунов - 11 альбомов (1988-2012) Дискография [FLAC|image+.cue]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52441.jpg" />
-</div>
-
-
-###  Подробнее
-
-Советский и российский певец, солист группы «Ласковый май». Один из популярных исполнителей в истории российского шоу-бизнеса.01. Белые розы (05:42)
- 02. Я откровенен только лишь с луною (03:54)
- 03. Лето (03:26)
- 04. Тающий снег (05:39)(   Читать дальше...   )Жанр: Pop
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732429   (52022) от 25.06.2024
-
-VA - DJ Hits Vol. 103 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52022.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bizz Nizz feat. Geoge Arrendell - DABADABIABOO
-02. Beat Society - Feel The Beat
-03. Rama - Light My Fire
-04. Paolo Ferrari & Andrea Giuditta - The Sun In The Night E.P.(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 01:14:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AEF2CFA88187CEAC3E572DA70282B24F27ED582
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732406   (52016) от 25.06.2024
-
-Duran Duran - My Own Way (1981) Remaster, 2024, Rhino [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52016.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Own Way (Single Version) [00:03:42]
-02. Like an Angel [00:04:47]
-03. My Own Way (Night Version) [00:06:36]
-04. My Own Way (Carnival Remix; 2009 Remaster) [00:04:29](   Читать дальше...   )Жанр: PopПродолжительность: 00:40:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9DCA9CEDDAEC8D801576D4CF2A9AC276307B818
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732903   (51793) от 27.06.2024
-
-VA - 80er - 100 Hits (2023) [OGG Vorbis|480 Kbps] <Pop, Rock, RnB>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51793.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jimmy Nail - Love Don't Live Here Anymore
-02. Peter Schilling - Major Tom (Single Version)
-03. Tina Turner - What's Love Got to Do with It
-04. Heinz Rudolf Kunze - Dein ist mein ganzes Herz (2008 Remaster)(   Читать дальше...   )Жанр: Pop, Rock, RnBПродолжительность: 06:55:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15B99F5B1C6A456F896EAEBA05CA024C113F9A7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733433   (51602) от 29.06.2024
-
-VA - DJ Hits Vol. 122 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51602.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj Chroma Feat.Dj Youth - Na Na Hey
-02. Unique II - Break My Stride
-03. Leila K. - Rude Boy
-04. Captain Hollywood - Waiting So Long(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 01:10:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B61CF4F881994DE0C80B6C9A8D4EEA211A5C615F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,38 @@
+###  Публикация: 608110   (992170) от 27.01.2013
+
+VA - Country Legends (12CD) (2005) [MP3|320 кб/с]<Country>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_992170.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Rawhide01. Johnny Cash - Cry, Cry, Cry
+ 02. Charley Pride - Happiness Of Having You
+ 03. Frankie Laine - Granada
+ 04. Lynn Anderson - Heaven's Just A Sin Away
+ 05. Tina Turner - If It's Alright With You
+ 06. Jimmie C. Newman - A Fallen Star
+ 07. Anne Murray - It's All Over
+ 08. Patsy Cline - Hungry For Love
+ 09. Jim Reeves - Wind Up Doll
+ 10. Jerry Lee Lewis - Your Cheatin' Heart(   Читать дальше...   )Жанр: CountryПродолжительность: 00:39:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBF32E4DE86015100417B04A45DE33682A3A8BEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 301513   (990753) от 28.01.2013
 
 Chakra's Dream - 27 albums (2002 - 2009) [MP3|128-320 кб/с]<New age, Meditative>
@@ -756,35 +791,6 @@ Bonny Light Horseman - Bonny Light Horseman (2020) [FLAC|Lossless|WEB-DL|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6994E26268B53FFF58E3491A29F2740537C84C56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355154   (984868) от 25.01.2020
-
-VA - Restart 2020 Chillout (2020) [MP3|320 Kbps] <Downtempo, ChillOut, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984868.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oscar Salguero - Cbmo (Original Mix) 4:31
-02. Sunyata Project - Words Of Vishnu (Original Mix) 7:15
-03. Minka - Rainy Day (Original Mix) 5:33
-04. Rex Kramer - 2800M Above (Original Mix) 5:38(   Читать дальше...   )Жанр: Downtempo, ChillOut, Relax, ElectronicaПродолжительность: 02:35:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C829429786327B1223A78A6E0E457E61972F37AB
 ```
 
 https://mybot314.ru/tekegram_catalog/

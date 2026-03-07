@@ -1,3 +1,32 @@
+###  Публикация: 1298560   (601755) от 28.04.2019
+
+DBUK - Songs Nine Through Sixteen (2019) [FLAC|Lossless|tracks + .cue] <Folk, Americana, Gothic Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_601755.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Bonnie Clyde, The Big-Bull-Hen Of The Women's Prison (6:37)
+2. Deerslayer (5:26)
+3. From The Estate Of John Denver (6:59)
+4. In San Francisco Bay (4:07)(   Читать дальше...   )Жанр: Folk, Americana, Gothic CountryПродолжительность: 00:39:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D689ED015B36526B665778469FB7608EA030353E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1298533   (601750) от 28.04.2019
 
 Bear McCreary - Godzilla: King of Monsters / Годзилла 2: Король монстров (Original Motion Picture Soundtrack) (2019) Single [MP3|320 кб/с]<Soundtrack>
@@ -742,35 +771,6 @@ Amure - 8 albums (2010-2015) [FLAC|Lossless|WEB|tracks] <New Age, Enigmatic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CF9457DDB75FF68260C5032791FB70B5CC036EEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232844   (596358) от 26.06.2018
-
-Kimberly Haynes - In Dreams (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Folk>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596358.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kabir's Song
-02. Interlude - Sangeeta’s Soul
-03. I Am Light
-04. Interlude - Sangeeta’s Light(   Читать дальше...   )Жанр: New Age, FolkПродолжительность: 00:48:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6FAF7E8D4F2C3E25085F403D7AF8E359B9D9B20
 ```
 
 https://mybot314.ru/tekegram_catalog/

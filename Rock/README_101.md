@@ -1,32 +1,3 @@
-###  Публикация: 1799105   (16814) от 26.05.2025
-
-Sweet - Hannover Sessions (2025) [4CD Box-Set] [MP3|320 Kbps] <Rock, Glam Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. X-Ray Specs (Non Album Track) [04:07]
-02. Marshall Stack (Version 1) [04:18]
-03. Red Tape [05:17]
-04. Mind [04:26](   Читать дальше...   )Жанр: Rock, Glam Rock, Hard RockПродолжительность: 02:35:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A673D8293417FA1C65CD2DD23AF63BE554A8385F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1800748   (15572) от 05.06.2025
 
 Олександр Положинський - 2 Albums + 3 Single`s (2023-2025) [MP3|320 kbps] <Rock>

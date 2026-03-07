@@ -1,3 +1,32 @@
+###  Публикация: 1376566   (858558) от 18.04.2020
+
+No Good Sons - Sin Reprisal (2020) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_858558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Intro [00:00:37]
+02 - Highway Robbery [00:03:30]
+03 - Rolling Around [00:04:03]
+04 - One Last Time [00:04:30](   Читать дальше...   )Жанр: RockПродолжительность: 00:44:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9D7342A4C4A7C71AD406790196D5DC970CBCC6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1498091   (857804) от 26.09.2021
 
 Sex Pistols - 76-77 (2021) 4CD [MP3|320 Kbps] <Punk Rock>
@@ -710,41 +739,6 @@ Santiano - Wenn die Kälte kommt (2021) 2CD [MP3|320 Kbps] <Folk Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0468B5B5FBB0829324BEBF09DBF96E87254FF0F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 310242   (837381) от 18.03.2011
-
-Panic At The Disco - Vices And Virtues (2011) [MP3|192-320 kbps]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837381.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Ballad Of Mona Lisa [03:46]
-02. Let's Kill Tonight [03:33]
-03. Hurricane [04:25]
-04. Memories [03:25]
-05. Trade Mistakes [03:36]
-06. Ready To Go (Get Me Out Of My Mind) [03:37]
-07. Always [02:33]
-08. The Calendar [04:43]
-09. Sarah Smiles [03:33]
-10. Nearly Witches (Ever Since We Met…) [04:16]Жанр: RockПродолжительность: 00:37:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEE0CA3E9DF728D989424A351639C5DB9A6D1E9E
 ```
 
 https://mybot314.ru/tekegram_catalog/

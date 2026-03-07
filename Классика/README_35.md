@@ -1,3 +1,32 @@
+###  Публикация: 717446   (391525) от 31.10.2013
+
+Lindsey Stirling - Lindsey Stirling (Target Exclusive Deluxe Edition) (2013) [FLAC|Lossless]<Dance-Pop, Classical, Dubstep>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_391525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Electric Daisy Violin (03:15)
+ 02. Zi-Zi's Journey (03:17)
+ 03. Crystallize (04:18)
+ 04. Song of the Caged Bird (03:05)(   Читать дальше...   )Жанр: Dance-Pop, Classical, DubstepПродолжительность: 01:07:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B8FC212559B9B84B74F2346B46E82B167E3524B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 569419   (391505) от 03.11.2012
 
 Фёдор Шаляпин - Избранное (2012) [FLAC|Lossless]<классика, вокал>
@@ -791,35 +820,6 @@ Bach transcription. London Symphony Orchestra.
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CEF2C8AA2F2FB0C3F030F9EB2F0A7004E09E60ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949101   (379144) от 22.10.2015
-
-David Garrett - Explosive (2015) 2CD [FLAC|image+.cue]<Classical, Crossover>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379144.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dangerous
-02. Explosive
-03. Serenity feat. Nicole Scherzinger
-04. Lose Yourself(   Читать дальше...   )Жанр: Classical, CrossoverПродолжительность: 01:11:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B43DAEA47ABECC90495A55F2C85BDF0EAEF7F12
 ```
 
 https://mybot314.ru/tekegram_catalog/

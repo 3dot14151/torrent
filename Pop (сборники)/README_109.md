@@ -1,3 +1,61 @@
+###  Публикация: 1083996   (221069) от 18.12.2016
+
+VA - Radio Top musicFM - October (2016) [MP3|128-320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_221069.jpg" />
+</div>
+
+
+###  Подробнее
+
+LOVE радио - Тор 20
+01. Max Barskih - Туманы (3:26)
+02. DJ Snake ft. Justin Bieber - Let Me Love You (3:26)
+03. MONATIK - Кружит (3:17)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 20:46:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AA5340743FA6901E107F3A9EDEEB375CEAC12A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083901   (221014) от 18.12.2016
+
+VA - Top 100 Amnezia Hits (2016) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_221014.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Marcus & Martinus feat. Samantha J. - Light It Up 3:15
+ 002. Enrique Iglesias feat. Tinashe & Javada - Duele El Corazon 3:20
+ 003. BBX feat. Tony T & Alba Kras - Crazy (Radio Edit) 3:20
+ 004. Mohombi - InfinityЖанр: Pop, DanceПродолжительность: 05:47:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0842CF0EA8275CFBE2208D073FF7F0F98259418E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 588030   (220850) от 11.12.2012
 
 VA - Зимний Hit (2012) [MP3|320 кб/с]<Pop,Dance>
@@ -705,64 +763,6 @@ VA - German Top 100 Single Charts 03.12.2021 [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11ADAF68E0C42278014CC7D088D9C79428186C83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562240   (212755) от 08.07.2022
-
-VA - Лето на Love Radio (2022) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212755.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Purple Disco Machine feat. Sophie And The Giants - In The Dark (Denis Bravo Radio Edit) (3:10)
-02. Harry Styles - As It Was (2:47)
-03. Imagine Dragons - Bones (2:45)
-04. Regard feat. Years And Years - Hallucination (2:54)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:04:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:831EA3245F61A9E4578A9B665B6B19DFDCCF70F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638836   (211892) от 10.06.2023
-
-VA - German Top 100 Single Charts 09.06.2023 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211892.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ski Aggu, Joost & Otto Waalkes - Friesenjung (2:26)
-002. Udo Lindenberg & Apache 207 - Komet (2:47)
-003. Bonez MC - Alles nur kein Star (2:30)
-004. Yung Yury & Damn Yury - TABU. (2:15)(   Читать дальше...   )Жанр: PopПродолжительность: 04:48:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37CD9394BC4FFD66D51824D65A16AE561359D3D5
 ```
 
 https://mybot314.ru/tekegram_catalog/

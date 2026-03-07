@@ -1,3 +1,97 @@
+###  Публикация: 770600   (637650) от 11.07.2016
+
+Motörhead Videography / Motorhead Видеография (29 клипов) (1980-2010) TVRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_637650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Rock Out
+02 - God Save The Queen (2000)
+03 - Get Back In Line (2010)
+04 - I Ain't No Nice Guy (1992)(   Читать дальше...   )Сборник из 29 видеоклипов. Скачано из сети.
+Некоторые видео пришлось вытягивать или восстанавливать...
+Использовались программы - Corel , AVS, SolveigЖанр: Heavy metal, hard rock, speed metal, rock and rollПеревод: ОтсутствуетСубтитры: нетПродолжительность: 01:52:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DC160063C88CD43182A6EE9F30B6DADAE79FE5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 519218   (636690) от 06.07.2012
+
+Whitesnake:  "Live In The Still Of The Night" (MTV-HD) (2004) HDTV 1080i [H.264]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_636690.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это запись концерта группы01. Burn
+02. Bad Boys
+03. Love Ain"t No Stranger
+04. Is This Love
+05. Give Me All Your Love
+06. Ain"t No Love in the Heart of the City
+07. Don"t Break My Heart Again
+08. Here I Go Again
+09. Still of the NightЖанр: RockАктеры: David Coverdale, Doug Aldrich, Reb Beach,  Timothy Drury,  Tommy Aldridge,  Marco MendozaПеревод: Не требуетсяПродолжительность: 00:58:58
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 800246   (636310) от 01.07.2014
+
+Tarja Turunen & Mike Terrana - Beauty & The Beat (2014) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_636310.jpg" />
+</div>
+
+
+###  Подробнее
+
+First Part
+* Orchestra — Carmen Overture
+* Mike — Concert For Violin & Oboe (Bach)
+* Tarja — Blute Nur (Bach)(   Читать дальше...   )Жанр: Neoclassical, ClassicalПродолжительность: 02:03:02+00:07:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:670ECCC46B3C42EDA5EF6313A60270D3940FB5C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 217781   (636226) от 12.07.2010
 
 Александр Серов - Моя Богиня, Мишель, Клипы ( 2001) 2 х DVD-5
@@ -614,91 +708,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EAF2926975F5E8188E470F7D477943713E5F9D07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034797   (629931) от 15.07.2016
-
-Сборник клипов - Philizz "Tropical Summer" (2016) HDTV [1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629931.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник клипов "Tropical Summer 2016" - фирменный видеомикс от голландского ви-джея Philizz. Устройтесь поудобнее, расслабьтесь и наслаждайтесь!
-Видеомикс - это видеосборник,составленный из небольших фрагментов клипов. Довольно новое явление в современной музыкальной культуре, насчитывает всего несколько лет, и все больше и больше приобретает популярность. (   Читать дальше...   )Twenty One Pilots - Stressed Out (Tomsize Remix)
-Alan Walker - Sing Me To Sleep
-Sigala ft. Imani & DJ Fresh - Say You Do
-Eagles - Hotel California (Diezeo Remix)(   Читать дальше...   )Жанр: Pop, Club, Dance, Video-MegamixПродолжительность: 00:57:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF2193692E50F1AAC08C3ECF11D55B478A3E76FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294313   (629883) от 07.04.2019
-
-Квартирник НТВ у Маргулиса. Горан Брегович (06.04.2019) WEB-DL [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629883.jpg" />
-</div>
-
-
-###  Подробнее
-
-В гости к ведущему Евгению Маргулису пришел популярный европейский композитор и музыкант Горан Брегович. Самый известный балканский исполнитель и автор музыки к кинофильмам Эмира Кустурицы поделился со слушателями не только своей этнической музыкой, но и интересными воспоминаниями из жизни и творчества.Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:06:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:853D9B6C41E12A74C1DF5198B8219E7C33BC7605
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293943   (629620) от 07.04.2019
-
-Сборник клипов - Rock & Metal Video Collection от ALEXnROCK часть 2 (2019) WEBRip [H.264/1080p-LQ] [upscale]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629620.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полностью переделал выпущенный ранее сборник (растянул картинку с SD до HD) Вся сила энергия и мощь понастоящему крутой музыки! Это 2я часть сборника. Ремастеринг видео и звука. Обложка и блин для диска в раздаче. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK00. Rock & Metal 2 - Intro
-01. Guns N' Roses - You Could Be Mine
-02. Kingdom Come - Should I
-03. Limp Bizkit - Take a Look Around(   Читать дальше...   )Жанр: RockПродолжительность: 02:43:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7533F9DA9DAFEE7D3FD30FBD35B3EBC8607FC26A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,25 +1,25 @@
-###  Публикация: 1778746   (70657) от 14.02.2025
+###  Публикация: 1773271   (71669) от 17.01.2025
 
-VA - Compilation part 142 (2025) [MP3|320 Kbps] <Electronic>
+Elvis Costello - King Of America & Other Realms (2024) Super Deluxe, Remaster, 2024,  UMe - Elvis Costello [MP3|320 Kbps] <Country Rock, Rock & Roll>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Rock, Alternative, Punk, Metal
+>>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70657.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71669.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Adik - When You're Gone
-02. Jumanov - Live Happily
-03. Muvi - Loris
-04. Adik - Wait for Me(   Читать дальше...   )Жанр: ElectronicПродолжительность: 02:04:59
+01. The Big Light (Live) [00:03:02]
+02. Only Daddy That'll Walk The Line (Live) [00:02:48]
+03. Our Little Angel (Live) [00:04:28]
+04. It Tears Me Up (Live) [00:03:24](   Читать дальше...   )Жанр: Country Rock, Rock & RollПродолжительность: 4 CD, 03:55:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6FA1F46295C6BEDA0230CB1D71A8692DE95B7EEA
+magnet:?xt=urn:btih:9C5B580FD51AB9FBC6CEA8D7166E1D02AD041928
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779653   (70656) от 14.02.2025
+###  Публикация: 1773657   (71668) от 17.01.2025
 
-VA - 50 DJ Tracks Vol. 1 (2025) [MP3|320 Kbps] <Dance, House, Club, Electronic>
+The Twangtown Paramours - The Wind Will Change Again (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues, Folk>
 
->>Electronic
->>House
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70656.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71668.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Special D. - You (2025 Extended Mix) [3:40]
-02. Andrew Spencer & Andre Picar feat. Ice MC - It's A Rainy Day (Pete Mazell Extended Remix) [3:06]
-03. Brooklyn Bounce feat. Deso Latee & Samantha Lawrence - Love & Bass (Verano Remix) [4:08]
-04. DJ Dean & DJ Fait - Just One Life (Extended Mix) [4:32](   Читать дальше...   )Жанр: Dance, House, Club, ElectronicПродолжительность: 03:23:56
+01.  Sincerely Yours No More (3:20)
+02.  A Room in Bordeaux (3:25)
+03.  The Garden (2:59)
+04.  The Goodwill Store (1:41)(   Читать дальше...   )Жанр: Blues, FolkПродолжительность: 00:38:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:83BC583CB7AA2699250C039024EE3D21361B2B88
+magnet:?xt=urn:btih:388ABD98CE9138D9F5ACBF652D92437C3EFAF235
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,25 +56,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779589   (70655) от 14.02.2025
+###  Публикация: 1773749   (71667) от 17.01.2025
 
-PrivaZer Pro 4.0.99 RePack (& Portable) by elchupacabra [Multi/Ru]
+Myles Kennedy - Solo Studio Albums (3 releases) (2018-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock, Jazz-Fusion, Post-Grunge>
 
->>Архив торрентов
->>Архив Программ
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70655.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71667.jpg" />
 </div>
 
 
 ###  Подробнее
 
-PrivaZer - полезная утилита, которая поможет вам очистить компьютер от следов конфиденциальной информации. Она подготовит детальный отчет со списком всех обнаруженных следов, обнаруженных в реестре, истории посещений сайтов, cookies и т.п. Также PrivaZer предоставит вам возможность удалить все обнаруженные или выбранные объекты при помощи специальных алгоритмов. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Майлз Кеннеди — американский музыкант, играл в группах Citizen Swing, The Mayfield Four. Наиболее известен как вокалист и гитарист Alter Bridge, а также как вокалист и ритм-гитарист сольного проекта гитариста Guns N' Roses Слэша (Saul Hudson)2018 - Year Of The Tiger
+2021 - The Ides of March
+2024 - The Art Of Letting GoЖанр: Hard Rock, Jazz-Fusion, Post-GrungeПродолжительность: 02:42:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1D8AC8E36444215BA4655DF9C49937CA30787F58
+magnet:?xt=urn:btih:9699B02E6B0275518FF1DD8DC5B48FBA30F2C19A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -82,383 +84,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779634   (70654) от 14.02.2025
+###  Публикация: 1773776   (71666) от 17.01.2025
 
-Татьяна Буланова - Записная книжка (2025) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70654.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Искусственный интеллект
-2. Годы летят десятками
-3. Издалека любить
-4. Записная книжка(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B3FD1CAEE2634BE2E95721120FCD7CE921891B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779698   (70653) от 14.02.2025
-
-Bridge to Another World Remastered: Burnt Dreams (2025) [En] (1.0) Unofficial [Collector's Edition]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70653.jpg" />
-</div>
-
-
-###  Подробнее
-
-Переиздание захватывающей сказочной игры Bridge to Another World. Ваш братишка исчез в клубах неведомого тумана, и спустя двадцать лет вы возвращаетесь на тот же мост, чтобы разгадать тайну прошлого. Вашими помощниками будут фея и очаровательное синее существо, обладающее магией. Отправляйтесь в неведомое, туда, где мечты становятся реальностью.Тип издания: UnofficialРазработчик: Friendly Fox GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6D43B15C3FBA9149837E7A63D655E0D296AD1FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779743   (70652) от 14.02.2025
-
-Проекты - VideoHive - Historical Slideshow - 56342310 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70652.jpg" />
-</div>
-
-
-###  Подробнее
-
-От автора "Создайте красивое и грустное видео об истории вашей страны, слайд-шоу о погибших героях войны или документальную презентацию с вашими фотографиями или видео."
-
-Музыка предоставлена в демо режиме.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B22E7F06934BF3A7BEE8E1E78A8247AF7E699C2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779590   (70651) от 14.02.2025
-
-Beth Hart - Live compilation (2025) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70651.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Delicious Surprise [04:15]
-02. Let's Get Together [04:10]
-03. Saved [04:31]
-04. Guilty [04:52](   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 05:44:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38922E875221A85A95329381C5FC9761AA7C4DE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630455   (70650) от 14.02.2025
-
-Олег Шаст | Песня одного желания (2023) [MP3, Puffin Cafe]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70650.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Молодой парень приносит дар забытому лесному духу. К его удивлению, дух слышит его просьбу и обещает ее выполнить. Но является ли загаданное желание искренним и осознанным? И чего желает сама забытая богиня Черемуха?" (с)Жанр: ФантастикаПродолжительность: 00:37:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0649E4E27992CD2ED870A3B8756FA2E8A2DE29CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779580   (70649) от 14.02.2025
-
-Одержимые / Endemoniados (2024) WEBRip [H.264/1080p] [MVO] [AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70649.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лео жаждет отомстить за убийство своего отца, и ему приходится заключить опасные союзы, чтобы достичь этой цели. Но когда он решает отомстить, то обнаруживает, что не все так, как ему казалось.Производство: Эквадор, США / Escuadrón FilmsЖанр: БоевикРежиссер: Alejandro Nieto-PoloАктеры: Chesko Wan, Juan Luis Chavez, William Corsi, Gerardo Zamora, Jose Luis Ruiz, Milena Zarate, Carmen Felissa Añez Guzman, Carlos Urbina, David Arenas, Hansell HoffmannПеревод: Многоголосый (1win Studio)Язык озвучки: русскийСубтитры: русские (forced hardsub)Продолжительность: 01:43:58Реклама: присутствует пара вставок видеорекламы и статичный логотип
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779726   (70648) от 14.02.2025
-
-Полина Усова | Распознай свое Я (2024) [PDF, EPUB, FB2, FB3, RTF]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70648.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Как найти себя? В чем мое призвание? Как понять, чего я хочу?» В поисках ответов на эти вопросы зачастую проходит вся жизнь, а мы так и упускаем возможность делать своё дело, гармонично реализуя внутренний потенциал. Эта книга-путеводитель с помощью понятных шагов поможет вам услышать себя и найти профессиональное призвание, не заплутав в лабиринте страхов на пути (   Читать дальше...   )Жанр: о психологии популярно, самопознание, саморазвитиеИздательство: АСТФормат: PDF, EPUB, FB2, FB3, RTFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2456631147ED1328E7E4125D97EA978B61A43727
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779600   (70647) от 14.02.2025
-
-Beyond Compare Pro 5.0.5.30614 RePack (& Portable) by elchupacabra (14.02.2025) [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70647.jpg" />
-</div>
-
-
-###  Подробнее
-
-Beyond Compare — мощнейшая программа для сравнения файлов и папок. Так же с её помощью можно синхронизировать архивы, сайты FTP, обновлять веб-сайты, управлять исходным кодом, находить отличия между двумя текстовыми файлами и т.д. Beyond Compare может сохранять образцы структуры выбранных папок и в заданное время сравнивать их с теми копиями, которые находятся у (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7EFF3C00E73325F2437A3A071015221449823DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779584   (70646) от 14.02.2025
-
-Митио Каку | Квантовое превосходство (2025) [MP3, Алексей Комиссаров]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70646.jpg" />
-</div>
-
-
-###  Подробнее
-
-В своей аудиокниге известный физик и непревзойденный популяризатор науки Митио Каку рассматривает феномен квантовых компьютеров, способных решать задачи, с которыми классические вычислительные системы до сих пор не в состоянии справиться. Развитие квантовых компьютеров может привести к революционным открытиям в криптографии, медицине, сфере искусственного интеллекта, (   Читать дальше...   )Жанр: Учебная и научно-популярная литератураИздательство: Альпина нон-фикшнПродолжительность: 11:31:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FE4EDAA97AC7882384357305FFDB7FC43AE6554
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779640   (70645) от 14.02.2025
-
-VA - Black Hole House Music 02-25 (2025) [MP3|320 Kbps] <House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70645.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. PARAFRAME - Mermaids (Extended Mix) [5:47]
-02. Fonzerelli & Kryder - Moonlight Party (Extended Mix) [5:49]
-03. Christina Novelli & Linney - Fallen Ones (Tensteps Extended Remix) [4:13]
-04. ZOYA - Power (Extended Mix) [5:17](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:08:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9779C37CAA01B17860FF2623FB08AF0530C017F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779709   (70644) от 14.02.2025
-
-Шрифты - Creative Market - Markile - Bold Rounded Script - 290875036 [OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70644.jpg" />
-</div>
-
-
-###  Подробнее
-
-Markile — жирный шрифт с округлой формой.
-
-Кириллица не поддерживается.Формат: OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5412401B49B3CDA6718908D0E5FE0C215DE95BC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779656   (70643) от 14.02.2025
-
-Шрифты - Creative Market - Frieren La Belle | Modern Serif - 290873298 [OTF, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70643.jpg" />
-</div>
-
-
-###  Подробнее
-
-Frieren La Belle - современный дисплейный шрифт с засечками от Denustudios, подходящий для любых проектов.
-
-Кириллица не поддерживается.Формат: OTF, TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03579A4BD19718BCDF7EFE94C514EA56F11009B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779742   (70642) от 14.02.2025
-
-Шрифты - Creative Market - Blue Mirage - 290875593 [OTF, TTF, WOFF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70642.jpg" />
-</div>
-
-
-###  Подробнее
-
-Blue Mirage — это современный шрифт с засечками с высокой контрастностью и элегантными изгибами, больше, чем просто красивое начертание.
-
-Кириллица не поддерживается.Формат: OTF, TTF, WOFF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACE8EED9925F5F5CEFD8069BC4A13105E02EE066
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779619   (70641) от 14.02.2025
-
-VA - Black Hole Trance Music 02-25 (2025) [MP3|320 Kbps] <Trance>
+VA - Trance Party 2025 (2025) [MP3|320 Kbps] <Trance>
 
 >>Electronic
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70641.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71666.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Richard Durand - Sugarphoria (Extended Mix) [5:44]
-02. Cosmic Gate & Christian Burns - Brave (ATB's Extended Anthem Remix) [6:36]
-03. Driftmoon & Hel:Sløwed - Orion (Misja Helsloot Extended Remix) [7:26]
-04. RAM & Roxanne Emery - Echoes (Craig Connelly Extended Remix) [8:14](   Читать дальше...   )Жанр: TranceПродолжительность: 02:38:24
+01. Artyom Kitsenko - Atlas (Original Mix) [6:33]
+02. Alexander Pakhomov - Eternity (Original Mix) [3:36]
+03. Cybercat LPR - Space Party (Original Mix) [6:02]
+04. Dmitry Bereza - Abstract (Original Mix) [3:22](   Читать дальше...   )Жанр: TranceПродолжительность: 01:05:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7B7414189CA46064D20AB653AFCB632D68F49D35
+magnet:?xt=urn:btih:94C1C9851E64E9469B88B6ECE484238E952BC604
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -466,28 +113,143 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779587   (70640) от 14.02.2025
+###  Публикация: 1773813   (71665) от 17.01.2025
 
-VA - Armin van Buuren - A State Of Trance 1212 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+Opeth - The Last Will And Testament (2024) [FLAC|Lossless|image + .cue] <Progressive Metal, Death Metal, Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71665.jpg" />
+</div>
+
+
+###  Подробнее
+
+… И вот мы здесь. После немного более долгого ожидания, чем ожидалось (он должен был выйти в октябре), у нас есть The Last Will and Testament, первый альбом Opeth после In Cauda Venenum 2019 года, и их грандиозное возвращение к дэт-металу после 4 альбомов прогрессивного рока, некоторые из которых на самом деле были довольно хорошими, другие не очень.
+
+Но с The Last (   Читать дальше...   )01. §1 5:57
+02. §2 5:33
+03. §3 5:10
+04. §4 7:00(   Читать дальше...   )Жанр: Progressive Metal, Death Metal, Prog RockПродолжительность: 00:51:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62FE879212A3BDCA9F52A0AFF62154B23E6E11AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773727   (71664) от 17.01.2025
+
+Grave Digger - Bone Collector (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bone Collector
+02. The Rich, The Poor, The Dying
+03. Kingdom Of Skulls
+04. The Devil's Serenade(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:46:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3191AE1B34D6B3B580FCE0D7ED0DA836282F46A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773745   (71663) от 17.01.2025
+
+VA - Black Hole House Music 01-25 (2025) [MP3|320 Kbps] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. PARAFRAME - Breathe (Extended Mix) (05:37)
+02. ZOYA - Gone (Extended Mix) (04:53)
+03. Yero & 9 - After Hours (Dave Winnel Extended Remix) (04:26)
+04. Kasey Taylor & Gai Barone - Distance Between Us (Extended Mix) (09:16)(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:13:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F234AEE0604D211ADC9BCAEBE83EE9F59D654AA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773849   (71662) от 17.01.2025
+
+Фёдор Достоевский | Село Степанчиково и его обитатели (2024) [MP3, Михаил Богдасаров]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71662.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сергей Александрович, столичный студент, узнает, что с семьей его опекуна Ростанева творятся какие-то странные и неприятные вещи. Со свойственной ему самоуверенностью он немедленно решает во всем разобраться, и для того отправляется в поместье. Встречающийся ему по дороге сосед Ростанева рассказывает о вещах столь абсурдных и жутких, что в них и поверить-то сложно. (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: АРДИСПродолжительность: 09:57:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD6737DE79081170F59D6002DCD99D4442EA4E5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773735   (71661) от 17.01.2025
+
+VA - Armin van Buuren - A State Of Trance 1208 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
 
 >>Electronic
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70640.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71661.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. BLR & Amber Revival – Love Me Endless (Tune Of The Week)
-02. Arodes – Kidz (CamelPhat Remix)
-03. Claptone & Chicane ft. Moya Brennan – Saltwater
-04. Giuseppe Ottaviani pres. Ottagon ft. Lake Silver – Dust(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:02:07
+01.	Mesa & Boss, Vorwerk & HALIENE - Reach You (Zack Martino & Matt Steffanina Remix)
+02.	Miss Monique - Magnet
+03.	AR7ANIS - From the Shadows
+04.	Ghost Etiquette & Memory Loss feat. Aza Nabuko - Under Your Ocean (Tune Of The Week)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:01:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:31F6A5723BEA8A06118C3610AF7D639F47A53F2C
+magnet:?xt=urn:btih:EC39B4A7DF7B0A96D5B8E065D2F63CBB5D505175
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -495,29 +257,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779618   (70639) от 14.02.2025
+###  Публикация: 1773794   (71660) от 17.01.2025
 
-Crazy Lixx - Thrill Of The Bite (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+VA - By the Fireplace: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70639.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71660.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Шведские хард-рокеры CRAZY LIXX выпустят новый студийный альбом “Thrill Of The Bite” 14 февраля 2025 года на лейбле Frontiers Music Srl.
-“Thrill Of The Bite” обещает поднять музыку CRAZY LIXX на новые высоты. На альбоме масса мощных гимнов, запоминающихся риффов и мелодий, зажигательных гитарных соло и могучей энергетики, которую фэны уже привыкли ждать от группы. (   Читать дальше...   )01.    Highway Hurricane  03:36
-02.    Who Said Rock N’ Roll Is Dead  03:02
-03.    Little Miss Dangerous  06:10
-04.    Call Of The Wild   04:14(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:17
+01. Peter Pearson - Can Summer Last Forever (Original Mix) (5:05)
+02. Peter Pearson - I Need to Chill - Original Mix (4:30)
+03. Michael E - Andiamo (Original Mix) (4:42)
+04. Lemongrass - Sur La Mer (4:31)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:13:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4583DDDAB3DDFC9B3566715980B0860BED5B984F
+magnet:?xt=urn:btih:2B05B82BBE69A6F6D140DF9EC657FFC6220EB311
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -525,27 +286,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779748   (70638) от 14.02.2025
+###  Публикация: 1773783   (71659) от 17.01.2025
 
-Шрифты - Creative Market - Across Corner Font - 290875836 [OTF, TTF]
+Александр Грибоедов | Горе от ума (1939) [MP3, Василий Качалов, Михаил Тарханов, Иван Москвин и др.]
 
->>Материалы для мультимедиа и дизайна
->>Шрифты
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70638.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71659.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Шрифт Across Corner, потрясающий шрифт с засечками, сочетающий в себе вневременную элегантность с современной эстетикой. Смелый и пленительный шрифт, который соединяет элегантность средневековых засечек с резким очарованием темного футуристического дизайна.
-
-Кириллица не поддерживается.Формат: OTF, TTF
+Действие пьесы происходит в России, в двадцатые годы XIX века. В дом старого московского барина Павла Афанасьевича Фамусова, управляющего в казённом месте, убеждённого крепостника и яростного противника просвещения, неожиданно возвращается его бывший воспитанник Александр Андреевич Чацкий. Он давно влюблён в дочь Фамусова, Софью, и ждёт не дождётся встречи с ней. (   Читать дальше...   )Жанр: Классика, комедияИздательство: Гостелерадиофонд. МХАТПродолжительность: 02:32:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E871DD8EF5717D377B9100E57E1DD5407FE3B6A5
+magnet:?xt=urn:btih:BAFC163047B77879F5F3FDDD0FE52F8602BD4E4E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -553,26 +312,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779616   (70637) от 14.02.2025
+###  Публикация: 1773678   (71658) от 17.01.2025
 
-Журнал | Профиль №5-6 (247) (февраль 2025) [PDF]
+Рафаэль Дамиров, Валерий Гуров | Боксер (Книга 4). Назад в СССР (2024) [MP3, Александр Воробьёв]
 
->>Журналы
->>Другие журналы
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70637.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71658.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Актуальная и эксклюзивная информация, аналитические материалы, обзоры и рейтинги в области политики и общества, экономики и бизнеса, финансов и инвестиций.
-На страницах журнала вы найдете эксклюзивные репортажи, аналитические прогнозы, рейтинги и обзоры по различным темам (экономика, политика, финансы, бизнес, промышленность, инвестиции), социологические опросы и (   Читать дальше...   )Жанр: Деловой, аналитическийИздательство: ООО «ИДР»Формат: PDFКачество: Обработанный скан
+Подготовка в спортивном лагере закончена. Миша приглашен в секцию по боксу спортивного общества «Динамо». Ему предстоит доказать тренерам, что он достоин представлять на ринге бело-голубые цвета. Сделать это можно только на ринге.Жанр: Альтернативная история, Историческая фантастикаИздательство: ЛитРес: чтецПродолжительность: 08:11:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:34EF99F5A944F1B43F2860BE96845082EF5DA9EF
+magnet:?xt=urn:btih:210109CE96A7E054EAC3F47152B3D8F73AC68B34
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -580,27 +338,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779660   (70636) от 14.02.2025
+###  Публикация: 1773761   (71657) от 17.01.2025
 
-Шрифты - Creative Market - Square Byte - Modern Pixel Font - 290873883 [OTF, TTF. WOFF, WOFF2]
+Devin Townsend - PowerNerd (2024) 2 x CD, Limited Edition [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
 
->>Материалы для мультимедиа и дизайна
->>Шрифты
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70636.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71657.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Шагните в яркий ретро-мир с Square Byte, современным пиксельным шрифтом, вдохновленным золотым веком классических видеоигр! Благодаря смелому, блочному дизайну и уникальному стилю этот шрифт идеально подходит для всех ваших творческих потребностей.
-
-Кириллица не поддерживается.Формат: OTF, TTF. WOFF, WOFF2
+Девин Таунсенд – художник, который действительно никогда не терпит неудач, поскольку все, что он делает, по крайней мере, очень хорошо (если не велико или экстраординарно). Даже когда его работы относительно знакомы и безопасны, они все равно весьма полезны из-за того, насколько они вдохновляющие, авантюрные и восхитительно характерные. Так было в случае с Lightwork (   Читать дальше...   )CD1- Main Album:
+01. PowerNerd 3:28
+02. Falling Apart 4:23
+03. Knuckledragger 4:30(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:10:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:46D4E6BFFFADACB33ADB0DAE08C719F96D1E20C6
+magnet:?xt=urn:btih:D866418BE53A02625FF4D64D205EC4DAC12FBA4F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -608,54 +367,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779597   (70635) от 14.02.2025
+###  Публикация: 1773731   (71656) от 17.01.2025
 
-Журнал | Здоровье №1-2 (812) (январь-февраль 2025) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70635.jpg" />
-</div>
-
-
-###  Подробнее
-
-Здоровье — первый и главный на сегодня российский журнал о здоровом образе жизни. Это яркое и интересное издание о том, как достичь физического и эмоционального благополучия, не болеть, всегда сохранять прекрасную форму и высокий жизненный тонус. Красота, полезная еда, фитнес, здоровые привычки, психология, новейшие медицинские открытия, детское здоровье – основные (   Читать дальше...   )Жанр: ЗдоровьеИздательство: ИД журнала «Здоровье»Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A92F5D3320EF3EB4F44A9673AC2463F4F989932
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779609   (70634) от 14.02.2025
-
-VA - Winter Tech House Hits 2025 (SSL Music) [FLAC|Lossless|WEB-DL|tracks] <Tech House>
+VA - Nomadica 2025 (Tibetania Orient) [FLAC|Lossless|WEB-DL|tracks] <Organic House, Downtempo>
 
 >>Electronic
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70634.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71656.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Fluction - XTC's (3:08)
-02. Amiy - Make Your Mind (2:26)
-03. Nikk - My Zone (3:02)
-04. Rush - Fruity (2:45)(   Читать дальше...   )Жанр: Tech HouseПродолжительность: 00:59:03
+01. Alexander Barabash - Bedouin (6:49)
+02. The Friend - The Road To Egypt (Olendo remix) (6:20)
+03. La'Dell - Get Oriented (4:54)
+04. Fernando - Corazon Seco (feat Ludelf) (5:26)(   Читать дальше...   )Жанр: Organic House, DowntempoПродолжительность: 01:43:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:69BC9CACEEE4EA595F5A47B72818B4F29A0A9614
+magnet:?xt=urn:btih:F2B453973A36DEB6CB326D1897E9E737AEFE96B0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -663,28 +396,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779733   (70633) от 14.02.2025
+###  Публикация: 1773842   (71655) от 18.01.2025
 
-Ginger Evil - The Way It Burns (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+Overkill - Hello From Colombia 2023 (2024) [FLAC|Lossless|image + .cue] <Thrash, Speed Metal, Melodic Death Metal>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70633.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71655.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Rainmaker (3:31)
-02.  Dead On Arrival (4:01)
-03.  Shame Old (3:33)
-04.  Flames (4:34)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:25
+01. Scorched
+02. Bring Me The Night
+03. Electric Rattlesnake
+04. Hello From The Gutter(   Читать дальше...   )Жанр: Thrash, Speed Metal, Melodic Death MetalПродолжительность: 00:57:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F7D55C4E5ADEA71F76F86DAC4614E9DFCB5ACBDD
+magnet:?xt=urn:btih:AF7DEE2B81C9E9BA4A6511350C0766F2394A63C4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -692,28 +425,292 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779475   (70632) от 14.02.2025
+###  Публикация: 1773850   (71654) от 18.01.2025
 
-Fidel Wicked - Compilation (2025) [MP3|320 Kbps] <Electronic>
+Евгений Понарошку | Экспансия Зла (Книга 8). Семена Апокалипсиса (2023) [MP3, Радион Нечаев]
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70632.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71654.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  L'amour
-  02.  Wicked Angel
-  03.  Sadness
-  04.  Fidelity(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:29:39
+Старые долги ведут Артема в новый мир.
+С каждым днем, с каждым шагом, с каждым уровнем Артём продвигается по своему пути. Пути Игрока.
+Миры открыли свои врата для землян.Жанр: Боевая фантастика, Темное фэнтези, РеалРПГИздательство: Author TodayПродолжительность: 7:54:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C865DC7808A1BDBB44E706B47D3B5C9D0D8044F2
+magnet:?xt=urn:btih:32C8D060C044920CF3429E00C152ABEA02A4F6D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773993   (71653) от 18.01.2025
+
+Генри Хаггард | Дочь Монтесумы (2024) [MP3, Илья Акинтьев]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71653.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аудиостудия «Ардис» предлагает вашему вниманию историко-приключенческий роман Генри Райдера Хаггарда «Дочь Монтесумы», опубликованный в 1893 году. Действие в книге происходит на фоне завоевания Мексики Кортесом, во времена правителя Монтесумы.Жанр: Зарубежная литература, классика, историко–приключенческий романИздательство: АрдисПродолжительность: 07:52:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:083BDDEA7A9EB1CB07DFD8F7EDBB10F1BC6D1717
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773928   (71652) от 18.01.2025
+
+Алексей Толстой | Гиперболоид инженера Гарина (2024) [MP3, Алексей Багдасаров]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71652.jpg" />
+</div>
+
+
+###  Подробнее
+
+Золотая классика детективной фантастики. Талантливый инженер Петр Гарин создаёт гиперболоид — настоящий «луч смерти», оружие необыкновенной разрушительной силы. Открытие Гарина привлекает к нему внимание не только научных кругов, но и всего мира! Спецслужбы, правительства разных стран и преступные организации любой ценой пытаются заполучить гиперболоид. Гарин оказывается (   Читать дальше...   )Жанр: Русская литература, классика, фантастика, романИздательство: ВИМБОПродолжительность: 12:13:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F189C9F49FDDB521E6808F8C5E2D00AB09A25D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773930   (71651) от 18.01.2025
+
+Photo Lab PRO v3.13.45 Mod by Mixroot [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71651.jpg" />
+</div>
+
+
+###  Подробнее
+
+Photo Lab PRO - супер-лаборатория фотоприколов у вас в кармане. Встречайте PRO-версию приложения Photo Lab! Неограниченные возможности для создания фотоэффектов, анимированных фотокарикатур, аватарок, виртуальных открыток, заставок на телефон, фотомонтажей и фотоприколов!Тип издания: ProРелиз состоялся: 17.01.2025Разработчик: Linerock Investments LTDПоддерживаемая ОС: Android 5.1+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9358BF1743E46317BD77093B8A417F3FEAFE7EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773858   (71650) от 18.01.2025
+
+Advanced Renamer 4.08 + Portable (x64) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71650.jpg" />
+</div>
+
+
+###  Подробнее
+
+Advanced Renamer - довольно популярная программа для массового переименования, а также систематизации файлов в операционной системе Windows. В новых версиях данной утилиты была реализована поддержка новых тегов при работе с разными форматами файлов, например мультимедиа, были переработаны методы отвечающие за образование имен файлов.
+Advanced Renamer хоть и бесплатная (   Читать дальше...   )Язык интерфейса: Русский*, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:518A3D4B3E9D96230A73BE20E21A5367A835624C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773934   (71649) от 18.01.2025
+
+Periodic Table / Таблица Менделеева 2025 PRO v3.5.8 Mod by Balatan [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71649.jpg" />
+</div>
+
+
+###  Подробнее
+
+Химия - это наука о химических элементах, их соединениях и превращениях, происходящих в результате химических реакций. Она изучает, из каких веществ состоит тот или иной предмет; почему и как ржавеет железо, и почему олово не ржавеет; что происходит с пищей в организме; почему раствор соли проводит электрический ток, а раствор сахара - нет; почему одни химические (   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 17.01.2025Разработчик: www.chernykh.techПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C1D2888847DABFBB8917B18FA38FB5FB438E220
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773860   (71648) от 18.01.2025
+
+Free Download Manager 6.25.1.6042 x64 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71648.jpg" />
+</div>
+
+
+###  Подробнее
+
+Free Download Manager - кроссплатформенный менеджер загрузок, позволяющий удобно и централизованно управлять загрузкой файлов из интернета. Программа поддерживает перехват загрузок из браузеров Chrome, Firefox, Edge и Safari, скачивание торрентов, а также скачивание онлайн-видео с YouTube и других потоковых сервисов.
+Многопоточная загрузка файлов позволяет скачивать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CE24FBBAA78452CEDE1E0CE18BAC09BC2329CED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773838   (71647) от 18.01.2025
+
+Microsoft Visual Studio 2019 Enterprise 16.11.43 (Offline Cache) [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71647.jpg" />
+</div>
+
+
+###  Подробнее
+
+Visual Studio Enterprise 2019 - Интегрированное комплексное решение для групп любого размера с высокими требованиями к качеству и масштабу. Воспользуйтесь полным набором инструментов и служб для разработки, создания сложных корпоративных приложений и управления ими.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93CB66B70DA9CD0B89D538AC72064F8BA277ED2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773944   (71646) от 18.01.2025
+
+Борис Базунов | Кумиры стадионов Эллады (2004) [DJVU]
+
+>>Разное (категория книг)
+>>Спорт, Фитнес, Боевые искусства
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71646.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге популярно и практически исчерпывающе - с привлечением документов, свидетельств историков и литературных источников - изложена история Олимпийских и других панэллинских игр. Читателю впервые представлены биографии выдающихся олимпиоников древности, а также список победителей античных олимпиад, прежде не публиковавшийся на русском языке. Также впервые автором (   Читать дальше...   )Жанр: Спорт, историяИздательство: Советский спортФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1799B3C6038E92A21F51582CD30027ED717D4260
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773992   (71645) от 18.01.2025
+
+PilotEdit Lite & Pro 19.6.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71645.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один из многих текстовых редакторов, но с большими возможностями и своими особенностями.
+PilotEdit можно использовать для редактирования больших файлов размером 400 ГБ (40 миллиардов строк) или сравнения больших файлов размером 100 ГБ (10 миллиардов строк). PilotEdit предлагает настраиваемую подсветку синтаксиса и ключевых слов, расширенные операции поиска и замены, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DA0E7FC29DDE27A19068E86313DB2F4A541B21B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773920   (71644) от 18.01.2025
+
+Домино v1.69.3 Mod by vadj [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71644.jpg" />
+</div>
+
+
+###  Подробнее
+
+Домино, безусловно, одна из самых известных настольных игр в мире. Есть десятки правил, но три режима привлекают больше внимания:
+- Нарисуйте домино: просто, расслабляйтесь, играйте в свои плитки по обе стороны доски. Вам нужно только подобрать плитку, у вас есть один из двух концов, уже на доске.
+- Блокируйте домино вашей очереди, если у вас заканчиваются опционы (   Читать дальше...   )Тип издания: ModРелиз состоялся: 17.01.2025Разработчик: Loop GamesПоддерживаемая ОС: Android 6.0+Жанр: Настольные игрыЯзык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85F0658A3377321F89C36DCDD92222BCBD1F37B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

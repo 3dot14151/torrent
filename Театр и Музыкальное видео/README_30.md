@@ -1,3 +1,84 @@
+###  Публикация: 264515   (877063) от 23.02.2011
+
+Видеоклипы / Music Videos [MPG] [VCD, SVCD]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_877063.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lo-Fi. Качество многих клипов (особенно российских) оставляет желать большего, но это всё же лучше, чем совсем ничего.Жанр: Pop, Pop Rock, AlternativeФормат: MPGПродолжительность: 3:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A97DE3F4896393B827DF25616A3FE5E4C96D38D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373749   (876708) от 08.04.2020
+
+Alestorm - Treasure Chest Party Quest (2020) WEBRip [H.264/1080p-LQ] <Scottish Pirate Metal>
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_876708.jpg" />
+</div>
+
+
+###  Подробнее
+
+Производство: Napalm RecordsЖанр: Scottish Pirate MetalПродолжительность: 00:04:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:381A29048D189599F81DF0D5E2AF68D8198FAF9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373770   (876619) от 08.04.2020
+
+ILL NINO - 18 Music Videos (2001-2020) WEBRip [H.264/480p/720p/1080p/2160p-LQ] <Nu-Metal>
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_876619.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 2001 ILL NINO - God Save Us DVDRip
+002 2001 ILL NINO - Unreal DVDSRip
+003 2001 ILL NINO - What Comes Around DVDRip
+004 2003 ILL NINO - How Can I Live  DVDRip(   Читать дальше...   )Жанр: Nu-MetalПродолжительность: 01:06:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8153C1938D383EA8F86D67E88D424363F51366F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1373709   (876612) от 08.04.2020
 
 Юлия Чичерина - Фонтан счастья/Рынок-лабиринт (2020) WEBRip [H.264/720p-LQ]
@@ -630,85 +711,6 @@ Gangnam Style 3D / PSY - Gangnam Style (2012) HDRip [H.264/1080p]  [ Гориз�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B42D7985B869CC4A45DEB4BCBED6FF2B1A97BC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 766413   (867087) от 16.03.2014
-
-Демонстрационный DVD-Video диск #2. Dolby Digital 6.1, DTS Multichannel Sound 6.1 [DVD5]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867087.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Демонстрационные музыкальные клипыПродолжительность: 01:01:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFDA5F313A85175D4B1C3F56BEFA9CDDEB97EE4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375037   (867033) от 13.04.2020
-
-Torrential Rain - Home Alone (2020) WEBRip [VP9/2160p-LQ]<Electronic Metalcore>
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867033.jpg" />
-</div>
-
-
-###  Подробнее
-
-Torrential Rain - Home AloneЖанр: Electronic MetalcoreПродолжительность: 00:04:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FA4F979839B1A4144235FF3BB0107EECAE334FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 302073   (866889) от 01.03.2011
-
-Кипелов - Жить вопреки (Бонус-DVD) (2011) DVD5
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866889.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Музыка / Heavy MetalПродолжительность: интервью: 00:37:53
-фотогалерея: 00:05:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6D8F662B568624635B918850F994158FEC493DA
 ```
 
 https://mybot314.ru/tekegram_catalog/

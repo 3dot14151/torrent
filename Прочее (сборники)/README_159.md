@@ -1,3 +1,206 @@
+###  Публикация: 1594538   (176631) от 03.12.2022
+
+VA - Music News vol.228 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_176631.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Berezhnaya feat. Паша Руденко - Ревность (03:26)
+ 002. 84 feat. Nebezao - Узумаки (02:26)
+ 003. A1JR feat. Wagner - Youngers In Сharge (03:00)
+ 004. Adriana Onci feat. DJ Sava - Deep End (Lesfunk Remix) (02:39)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 13:26:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:564E6870C62B59333E7098F5FFE1519DFBC6748E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595180   (175886) от 04.12.2022
+
+VA - Русские Хиты 6 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_175886.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dj Zarubin - Open My Heart (5:14)
+002. Чёрный Крем, Deeper Craft - Девушка мечты (Deeper Craft Remix) (4:55)
+003. Ноггано - Эквадор (4:54)
+004. Max Wawe - Fire (4:52)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 08:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BA8473F818FD4580D831ECE36B2C72C591306C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429685   (175754) от 07.12.2020
+
+VA - не Громкие новинки недели 90 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_175754.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. AEHO - Проснись (3:25)
+02. ANIKV - Лень (2:18)
+03. Arik - Заново (3:42)
+04. Chris Yank - Крейзи Love (2:38)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:40:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADB027BA0722C6FA85731D8D223D639404D96A3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595497   (175462) от 05.12.2022
+
+VA - Music News vol.229 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_175462.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Eline Noelia feat. Falito - Unholy (02:27)
+ 002. Akon feat. Amirror - Prolly Fuck (02:08)
+ 003. Akon feat. John Mamann & Dawty Music - TT Freak (01:32)
+ 004. Alessiah - Breeze Of Love (Sean Norvis Remix) (02:53)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:08:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C254C454F5358061CADC77980781B7CA877724C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429608   (175456) от 07.12.2020
+
+VA - Не спи за баранкой 3 (Музыка в машину) (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_175456.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The FifthGuys, Polina Grace - Seven Nation Army (2:15)
+002. Bear Grillz, Tisoki, Sam Nelson - Taking Over (3:01)
+003. ELYX, Hawk, Young Jae - Ride It (2:21)
+004. ARMNHMR, KLAXX, GLNNA - Somebody To Love (3:13)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:14:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:441C44A2E598E7AF97298D89D5A13A9BE56123ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429852   (175138) от 08.12.2020
+
+VA - The Real West (2020) [MP3|320 Kbps] <Country>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_175138.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данный сборник предназначен для ценителей как старой,так и новой школы народной музыки в стиле кантри. Эти замечательные мелодии и слова из песен дают возможность проникнуться культурой народной песни первых переселенцев Америки и познать все ее детали.001. Roadside Graves - The Sea Is Empty
+002. Gary Allan - Long Year
+003. Ingrid Andress - Lady Like
+004. Mandy Barnett - A Fool Such As I(   Читать дальше...   )Жанр: CountryПродолжительность: 10:01:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F77E219ACAE44671A78B008E1AD06E6D5A827FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668153   (174574) от 11.10.2023
+
+VA - Top of the Morning (2023) [MP3|320 Kbps] <Pop, House, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_174574.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thunderstorm Artis - Stronger (Grey's Anatomy Version) (2:59)
+02. TALK - Run Away to Mars (3:33)
+03. Robert Grace - Casper (3:03)
+04. Rea Garvey - Free Like The Ocean (2:51)(   Читать дальше...   )Жанр: Pop, House, OtherПродолжительность: 03:13:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A2776459268FC0705983F6D2DBE24DCF0EAF934
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1430236   (174375) от 09.12.2020
 
 VA - Music News vol.55 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -542,209 +745,6 @@ VA - You & Me (2021) [MP3|320 Kbps] <Pop,Folk, Indie, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F84A547B8FA2AB7B7D9B7524FF9EADB7C2F21FFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344479   (170346) от 10.12.2019
-
-VA - НГ 2020 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170346.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Моральный кодекс - Москва новогодняя (8:02)
-2.Мумий Тролль - С Новым годом, крошка! (5:04)
-3.Григорий Лепс - Новый год (4:34)
-4.Дискотека Авария - Новогодняя (4:27)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:34:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D775DE2D4A3054B34E19E31BD10A75223F976932
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596308   (170301) от 09.12.2022
-
-VA - Music News vol.230 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170301.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Amirchik - Love Is (02:23)
- 002. 52Ghz - Город Наукоград (02:32)
- 003. A Boogie Wit Da Hoodie feat. Kodak Black - Water (Drowning Pt. 2) (03:27)
- 004. A'DI - Красками Город (02:39)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:07:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:184D2D5CA13A7E6A567D6CCE42958B30422915A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515318   (170269) от 06.12.2021
-
-VA - Music News vol.154 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170269.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dakooka - Заклинание (03:08)
- 002. Aitana feat. Nicki Nicole - Formentera (03:27)
- 003. Akris & Teddy - Сансет (03:07)
- 004. Alex Mica - Ceas (03:07)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 06:23:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C9559462249E810329417F8F9985A4E75F4064A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672057   (170205) от 27.10.2023
-
-VA - Party Night (2023) [MP3|320 Kbps] <ElectroPop, Future House, Groove, Progressive>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170205.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. David Guetta - Baby Don’t Hurt Me
-002. Tones and I - Dance Monkey
-003. Ava Max - Kings & Queens
-004. Ed Sheeran - Shivers(   Читать дальше...   )Жанр: ElectroPop, Future House, Groove, ProgressiveПродолжительность: 06:10:06 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E1E18A41AD8D6F466F71DEE4875986F2115E113
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672153   (170060) от 27.10.2023
-
-VA - Music News vol.310 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170060.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Carla - J'en Veux Pas (02:27)
- 002. Aarne feat. ALBLAK 52 & Баста - Там Где Я (02:32)
- 003. Aarne feat. FEDUK & Scally Milano - Мечты (01:50)
- 004. Aarne feat. MAYOT & Huzzy Buzzy - С Ума (02:31)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 11:52:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCC8A6D69D7679C373629BA603A884ADE1BD42BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672061   (169940) от 27.10.2023
-
-VA - Top 100 DJs Chart 20 October (2023) [MP3|320 Kbps] <ElectroPop, Techno, Groove, Progressive>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169940.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. David Guetta, Bebe Rexha - I'm Good (Blue)
-002. The Him, OCEANS - Fool Me
-003. David Guetta, Anne-Marie, Coi Leray - Baby Don't Hurt Me
-004. Dualhi - Chase My Dreams(   Читать дальше...   )Жанр: ElectroPop, Techno, Groove, ProgressiveПродолжительность: 04:37:59 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C7E4F3382326EC9846B9F8B4B172A007F9EBA58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515120   (169923) от 06.12.2021
-
-VA - Shazam & Apple Music Chart (Россия Топ 100 Ноябрь) (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169923.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Artik & Asti - Я так люблю тебя (2:38)
-002. Люся Чеботина - СОЛНЦЕ МОНАКО (2:39)
-003. HammAli & Navai, Jah Khalib - Боже, как завидую (2:40)
-004. JONY, HammAli - Наверно, ты меня не помнишь (3:10)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:00:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AA4ECB1D1B5B702857B49B1323605523D460FBD
 ```
 
 https://mybot314.ru/tekegram_catalog/

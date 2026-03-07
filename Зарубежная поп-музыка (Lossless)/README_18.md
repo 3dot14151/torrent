@@ -1,3 +1,121 @@
+###  Публикация: 1106341   (872877) от 19.02.2017
+
+Supermax - 25 Years Of Magic Dance Music 1977-2002 (2002) Limited Edition, 6CD BoxSet [FLAC|Lossless|image + .cue] <Pop, Reggae, Funk, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872877.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lovemachine (8:10)
+02. World Of Today (4:25)
+03. Don't Stop The Music-African Blood (8:14)
+04. It Ain't Easy (4:23)(   Читать дальше...   )Жанр: Pop, Reggae, Funk, Soul |Продолжительность: 00:54:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:812DA548EFBA97A3DB482CBA4116B9989B1654C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 765512   (872671) от 13.03.2014
+
+VA - Radio 538: Hitzone 68 (2014) 2CD [FLAC|Lossless]<Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872671.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. John Legend - All Of Me  (4:31)
+02. Stromae - Formidable  (3:36)
+03. Pitbull ft. Kesha - Timber  (3:26)
+04. Dvbbs & Borgeous - Tsunami  (3:08)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:26:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05675B27F50942A0F28FC20E221CFE3BCE476455
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997650   (871872) от 18.03.2016
+
+Gwen Stefani - This Is What The Truth Feels Like (2016) International Deluxe Edition [FLAC|Lossless|tracks + .cue] <Pop, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871872.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Misery (3:26)
+02. You're My Favorite (2:56)
+03. Where Would I Be? (3:18)
+04. Make Me Like You (3:37)(   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 00:59:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D51668A014ED8AE8937D50FE59CA561D41FD191
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997852   (871754) от 18.03.2016
+
+VA - Number 1's: The Ultimate Collection (2014) Box Set, 5CD [FLAC|Lossless|tracks + .cue] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871754.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот бокс сет представляет 100 хитов, которые  достигли столь желанной для каждого исполнителя вершины топа Великобритании.
+Каждый из 5 компакт-дисков набран из победителей одной из 5 декад - от 60-х годов вплоть до нулевых. Здесь собраны не просто лучшие, а самые признанные треки ошеломляющих рок, поп и соул гимнов.
+На офсете для него нашли даже такое сравнение как (   Читать дальше...   )CD1 - 60s:
+01. Marvin Gaye - I Heard It Through The Grapevine  (3:11)
+02. The Foundations - Baby, Now That I've Found You  (2:56)
+03. Diana Ross & The Supremes - Baby Love  (2:34)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 05:51:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8B0AC665CC8148300FBAD9486FA3E04D17A41CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1106754   (871065) от 20.02.2017
 
 Falco - Falco 60 (2017) Limited Premium Edition [FLAC|Lossless|tracks + .cue] <Pop, Electronic, Pop Rock, New Wave>
@@ -632,123 +750,6 @@ Ardis - Love Addict (1994) [APE|Lossless|image + .cue] <Electronic, Reggae, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA54DA67BB4CE9106F990009F976DF8FBEA5AA9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000635   (857429) от 26.03.2016
-
-Cher - The Millennium Collection: The Best of Cher (2000) [FLAC|Lossless|image + .cue] <Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gypsies, Tramps And Thieves [02:37]
-02. The Way Of Love [02:31]
-03. Take Me Home [06:47]
-04. Dark Lady [03:26](   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:35:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC8CE360DA6E0621302D14BFD5CD7B616778EED0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109789   (857233) от 28.02.2017
-
-Waaktaar & Zoe - World Of Trouble (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857233.jpg" />
-</div>
-
-
-###  Подробнее
-
-Долгожданный дебютный альбом нового проекта гитариста и основного композитора легендарной норвежской группы a-ha Пола Воктор-Савой (Pål Waaktaar-Savoy).01. Beautiful Burnout (3:55)
-02. Tearful Girl (4:01)
-03. World Of Trouble (3:57)
-04. Laundromat (3:59)(   Читать дальше...   )Жанр: Pop, Indie PopПродолжительность: 00:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B68BB0CDF1134AC5642532516449B5ACAA46F864
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109728   (857062) от 28.02.2017
-
-Bebe Rexha - All Your Fault: Pt. 1 (2017) [FLAC|Lossless|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857062.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Atmosphere
-2. I Got You
-3. Small Doses
-4. Fuck Fake Friends (feat. G-Eazy)(   Читать дальше...   )Жанр: PopПродолжительность: 00:19:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D46BDF486B7207B2F0DC7F361896ECF8C48DED33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 875712   (855959) от 07.03.2015
-
-Madonna - Rebel Heart [Super Deluxe Edition] (2015) 2CD [FLAC|Lossless]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855959.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 (01:14:25)
-CD2 (00:28:17)Треклист CD1:
-01. Living for Love
-02. Devil Pray
-03. Ghosttown(   Читать дальше...   )Жанр: Pop |Продолжительность: 01:42:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C5BCAAAC6588999643E9856A9B20A116D364B9C
 ```
 
 https://mybot314.ru/tekegram_catalog/

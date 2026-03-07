@@ -1,3 +1,32 @@
+###  Публикация: 1380333   (835129) от 02.05.2020
+
+VA - Dreaming Up Life: Indie Rock Music (2020) [MP3|320 Kbps] <Indie, Pop Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835129.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Grotto Terrazza - Gestalt Bondage
+002. Los Retros - Oh Grace
+003. Night Flowers - I've Loved You
+004. Crushed Beaks - Jupiter(   Читать дальше...   )Жанр: Indie, Pop Rock, AlternativeПродолжительность: 08:15:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7443F99D67333C209D32F327B73F4A53A3F54E12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1380100   (834626) от 02.05.2020
 
 VA - Classic Pop & Rock Songs Hits Of The 80's (2020) [MP3|320 Kbps] <Rock, Pop>
@@ -717,35 +746,6 @@ VA - Household Names: Indie Pop-Rock Collection (2021) [MP3|320 Kbps] <Indie, Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:873E91BB7C2AE04DDF205082A1052E891452594A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382231   (821030) от 10.05.2020
-
-VA - Galaxia: Indie Rock Collection (2020) [MP3|320 Kbps] <Rock Indie, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821030.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kit Sebastian - Durma
-002. Amy Studt - Different Coloured Pills
-003. Jaakko Eino Kalevi - The Source
-004. Huey Blue - White Flag(   Читать дальше...   )Жанр: Rock Indie, AlternativeПродолжительность: 08:18:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B678FFA8D2FD25C2CEEEF2E95E9736F7B24930F
 ```
 
 https://mybot314.ru/tekegram_catalog/

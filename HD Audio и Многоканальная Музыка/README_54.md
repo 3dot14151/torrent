@@ -1,3 +1,177 @@
+###  Публикация: 1653322   (214374) от 17.08.2023
+
+Asia - Alpha (1983) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop Rock, Symphonic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_214374.jpg" />
+</div>
+
+
+###  Подробнее
+
+Alpha
+A1 Don't Cry
+A2 The Smile Has Left Your Eyes
+A3 Never In A Million Years(   Читать дальше...   )Жанр: Pop Rock, Symphonic RockПродолжительность: 00:43:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A42E6A5A78A9883EA18C93959CF9F44C9B54D5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653669   (214264) от 17.08.2023
+
+Asia - Asia (1982) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop Rock, Prog Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_214264.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Heat Of The Moment
+A2 Only Time Will Tell
+A3 Sole Survivor
+A4 One Step Closer(   Читать дальше...   )Жанр: Pop Rock, Prog RockПродолжительность: 00:44:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4BA8AC14B7F5B6963C6A316363423C56132203D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653299   (214043) от 17.08.2023
+
+ELO (Electric Light Orchestra) - Discovery (1979) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop Rock, Prog Rock, Symphonic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_214043.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Shine A Little Love
+A2 Confusion
+A3 Need Her Love
+A4 The Diary Of Horace Wimp(   Читать дальше...   )Жанр: Pop Rock, Prog Rock, Symphonic RockПродолжительность: 00:39:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F22BDD8CC9582039405F5DEF751DCDEABED0FE55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342898   (213980) от 08.12.2019
+
+Pink Floyd - The Dark Side of the Moon (1973) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Rock, Psychedelic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_213980.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Speak To Me 1:12
+2. Breathe 2:44
+3. On The Run 3:35
+4. Time 7:06(   Читать дальше...   )Жанр: Rock, Psychedelic RockПродолжительность: 00:42:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE8A338EEA5B1C10C759FEF4DC3F42E42B1881AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 661321   (213969) от 17.08.2023
+
+Kiss – 42 Альбома (1974-2012) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]<Hard Rock, Glam Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_213969.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hell Or Hallelujah [4:06]
+02. Wall Of Sound [2:54]
+03. Freak [3:34]
+04. Back To The Stone Age [3:00](   Читать дальше...   )Жанр: Hard Rock, Glam RockПродолжительность: 00:43:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DEB28FEA7D153A67F73376AABE59CEDBDA1D44E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1586667   (213843) от 29.10.2022
+
+Gloria Gaynor/Глория Гейнор - Love Tracks/Пути Любви (1978/1984) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Funk, Soul, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_213843.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Stoplight • Стоп-Сигнал
+A2 Anybody Wanna Party • Кто-Нибудь Хочет Повеселиться?
+A3 Please, Be There • Будь Там, Пожалуйста
+A4 Goin' Out Of My Head • Я Схожу С Ума(   Читать дальше...   )Жанр: Funk, Soul, DiscoПродолжительность: 00:39:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BCC3AD9183F07B42C3A2D754456B4F7D1CFB450
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1652921   (213671) от 18.08.2023
 
 Kreator - Endorama (1999) AFM Records, Reissue 2022 [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash Metal>
@@ -566,182 +740,6 @@ A4 Сцена прощания(   Читать дальше...   )Жанр: Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9EFF4AC77BF50A3704E82B84B4F0FB9D6C5FCD82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641848   (210672) от 24.06.2023
-
-Kiss – Creatures Of The Night (1982) 40th Anniversary 2022 remaster [DTS-ES Discrete 6.1 CD-DA|44.1/24|image+.cue|BD-Audio] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210672.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ну вот, и еще одно юбилейное издание "властителей музыкальных дум" 80-х вышло. На этот раз, KISS. Что тут сказать? В те годы довольно прохладно к ним относился. Для меня рулили Пёпл, Хип. Но услышав Династию, мнение изменил.
-Для моих ровесников - Ночные Твари - в многоканале!))
-Про желательность наличия заднего центра не забываем01. Creatures Of The Night
-02. Saint And Sinner
-03. Keep Me Comin’
-04. Rock And Roll Hell(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:39:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:695242D560B937D657DE3853DCA81FF126D29FE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641932   (210633) от 25.06.2023
-
-Ultravox - Rage in Eden (1981) 40th Anniversary deluxe edition 2022 [DTS 5.1 CD-DA|44.1/24|image+.cue|Audio-DVD] <Electronic, Pop>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210633.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Voice	6:00
-02. We Stand Alone	5:33
-03. Rage In Eden	 4:13
-04. I Remember (Death In The Afternoon)	4:57(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 01:01:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D6BAE678A51A99362CFFD2FFAE15D09F116E8D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642095   (210627) от 25.06.2023
-
-Jethro Tull - Stand Up (1969) SACD, Remastered, 2023, Analogue Productions [DSD64 2.0|1bit/2822,4kHz|SACD-R] <Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210627.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - A New Day Yesterday
-02 - Jeffrey Goes To Leicester Square
-03 - Bourée
-04 - Back To The Family(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:38:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AD111939237D4A3676690FF964DDE0C2703CD1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642286   (210529) от 26.06.2023
-
-Paul McCartney – The McCartney Years (2007) 2 discs [DTS 5.1 CD-DA|44.1/16|image+.cue|DVD-Video] <Rock, Pop>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210529.jpg" />
-</div>
-
-
-###  Подробнее
-
-disc1
-
-01. Tug Of War
-02. Say Say Say(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 01:19:13+01:17:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:349FD9B0854395EA92A047061EA399F363990FDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642386   (210315) от 28.06.2023
-
-Леонид Агутин - Летний Дождь (1998) [FLAC 2.0|44,1/16|tracks|MC-Rip] <Latin, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210315.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Не Унывай!
-A2 Летний Дождь
-A3 Полночи
-A4 Танцевали Пары(   Читать дальше...   )Жанр: Latin, PopПродолжительность: 00:41:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E57C4B6B7ECC3820126283DEC211B08B454D5722
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603756   (210261) от 11.01.2023
-
-Шахерезада - Свадьба в Малиновке (1992) [WavPack 2.0|192/32|tracks|MB-Rip] <Pop, Dance, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210261.jpg" />
-</div>
-
-
-###  Подробнее
-
-[4:03] 01. Берег Левый, берег Правый
-[3:47] 02. Командир Полка
-[5:18] 03. Цыганочка-Яночка
-[3:47] 04. Это не сон(   Читать дальше...   )Жанр: Pop, Dance, DiscoПродолжительность: 00:42:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C02762DD7A2E305447501C9C4AA8D425D81B0BD0
 ```
 
 https://mybot314.ru/tekegram_catalog/

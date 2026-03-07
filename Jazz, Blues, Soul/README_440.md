@@ -1,3 +1,235 @@
+###  Публикация: 1670828   (171776) от 22.10.2023
+
+John Pizzarelli - Stage & Screen - Stage & Screen (2021) 2023, Palmetto Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Too Close for Comfort [5:56]
+02. I Love Betsy [3:06]
+03. I Want to Be Happy [5:21]
+04. Tea for Two [7:46](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:02:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64623A75BE544741918E6492269D57BD6C423146
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670823   (171774) от 22.10.2023
+
+Bill Evans - Nardis (1965 - 1972) 2003, Absord Music [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. How My Heart Sings [4:20]
+02. Time to Remember [5:20]
+03. 12 Toned Tune [4:57]
+04. Waltz for Debby [5:00](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:41:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9AE91F099E8DE3F4D42872F93B696FC319A9AA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670825   (171770) от 22.10.2023
+
+Howard Roberts - Good Pickin's (1959) 1999, Verve [FLAC|Lossless|tracks + .cue] <Cool, Mainstream Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Will You Still Be Mine [4:25]
+02. When the Sun Comes Out [4:18]
+03. All the Things You Are [2:45]
+04. Lover Man [4:30](   Читать дальше...   )Жанр: Cool, Mainstream Jazz, Guitar JazzПродолжительность: 00:43:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6BFBD5E63A6D0DEC1B5F60944D714CB8B163D54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670812   (171769) от 22.10.2023
+
+Johnny Griffin Meets Horace Parlan - Close Your Eyes (2000) Minor Music [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171769.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'll Close My Eyes [6:38]
+02. Pannonica [9:32]
+03. I Hear a Rhapsody [6:01]
+04. My One and Only One [8:27](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 00:59:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7FB678362B7E5D5E099524655398A8CA63E1C45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670835   (171761) от 22.10.2023
+
+Howard Alden + George Van Eps - 13 Strings (1991) Concord [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171761.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just You, Just Me [5:22]
+02. My Ideal [4:18]
+03. I Hadn't Anyone Till You [5:42]
+04. A Beautiful Friendship [6:43](   Читать дальше...   )Жанр: Mainstream Jazz, Guitar JazzПродолжительность: 00:59:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9603AD85E99CF62FE0AB316A0E09E5137F90301F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670898   (171662) от 22.10.2023
+
+Incognito - Into You (2023) [FLAC|Lossless|WEB-DL|tracks] <Acid Jazz, Funk, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Keep Me in the Dark (feat. Natalie Duncan)
+02. Into You (feat. Cherri V)
+03. Nothing Makes Me Feel Better (Incognito in collaboration with Basile Petite & Drew Wynen)
+04. Colourblind (feat. Natalie Duncan)(   Читать дальше...   )Жанр: Acid Jazz, Funk, SoulПродолжительность: 01:19:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E93C1241B00F0B5C1B09B0EEE78A89A29E213C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671079   (171601) от 23.10.2023
+
+Clare Fischer - Memento (1992) Discovery Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz, World Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171601.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Basic Blues [4:39]
+02. A Long Time Ago [4:33]
+03. Blues Bossa [6:47]
+04. Preludio [4:05](   Читать дальше...   )Жанр: Hard Bop, Piano Jazz, World FusionПродолжительность: 01:00:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63D6F69132D14506B00E38E6C6E018C7AC5B9DDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671072   (171599) от 23.10.2023
+
+Sir Roland Hanna & George Mraz - Ancestral Light (1995) 2CD, 1999, Red Earth Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_171599.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Commentary [0:28]
+02. Our Love Is Here to Stay [6:09]
+03. Single Petal of a Rose [7:35]
+04. Commentary [1:41](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:42:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E5A5AB1A4667A031B83A11AD58ED9974F595B07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1671080   (171595) от 23.10.2023
 
 Robert Conti - The Jazz Quintet (1981) 2000, Pinnacle Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Guitar Jazz>
@@ -513,238 +745,6 @@ Ruby Braff - The Mighty Braff (1954, 1955) 1989, Charly Records [FLAC|Lossless|i
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E832D4EB2225C180A75201D50B60AD984D1C834E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671560   (171262) от 25.10.2023
-
-Robert Conti - To The Brink! (2005) Pinnacle Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171262.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. To the Brink! [9:30]
-02. Anticipation [4:49]
-03. Pork Loin! [6:06]
-04. Here's That Rainy Day [6:57](   Читать дальше...   )Жанр: Hard Bop, Guitar JazzПродолжительность: 00:59:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AF114A04707D4FD6F09D62AAC5C29F971B0D23D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671619   (171239) от 25.10.2023
-
-VA - 30 Cozy, Harmonious, Pleasing to the Ear and Relaxing Tunes (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillaxonic - Velvet Meadows (4:28)
-02. Chillaxing Jazz Kollektion - Like a River (5:23)
-03. Kool&Klean - The Sea (6:11)
-04. eJazz Artistry - Story of My Life (5:06)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 02:21:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D729408C58E36E8ECF90E5FA532BE34E6A50F88A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671616   (171227) от 25.10.2023
-
-VA - Autumn Slow Chill-out Jams to Relax and Unwind (2023) [FLAC|Lossless|WEB-DL|tracks] <Chill Out/Smooth Jazz/Lounge>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171227.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kool&Klean - Beyond the Horizon (4:58)
-02. Chillaxing Jazz Kollektion - Serendipity (4:38)
-03. Konstantin Klashtorni - Let's Chill (5:29)
-04. Chillaxonic - Oasis (4:58)(   Читать дальше...   )Жанр: Chill Out/Smooth Jazz/LoungeПродолжительность: 02:16:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F76419487FCC186AE06F069D1C75EC45A41051AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671623   (171217) от 25.10.2023
-
-VA - 33 Relaxing Healing Jazz Vibes Chilly Tunes (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171217.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillaxonic - Aurora (5:13)
-02. Chillaxing Jazz Kollektion - Serendipity (4:38)
-03. Kool&Klean - I Can Only Imagine (4:55)
-04. Konstantin Klashtorni - Let's Chill (5:29)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 02:37:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D02A079791DF1426CD998031844A2372D2B51205
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671538   (171203) от 25.10.2023
-
-VA - Jazz Funk Instrumentals Vol. 4(Funky Soul Jazzy Instrumental Acid Tracks) (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171203.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mecco Guidi - Ju Ju (3:49)
-02. The Smoke Orchestra - Funky Generation (3:17)
-03. Lo Greco Bros - Kick And Push (4:22)
-04. Bossa Nostra - Kontaminazione II (5:06)(   Читать дальше...   )Жанр: Jazz, FunkПродолжительность: 02:25:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A88FEAC7185CF65B923227B1EABC598913BB66D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671562   (171191) от 25.10.2023
-
-Chris Botti - Vol. 1 (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171191.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Danny Boy
-02. Bewitched, Bothered and Bewildered
-03. Two For The Road
-04. Paris (feat. John Splithoff)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:47:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5729425ED17F6935DA61A0531A1571EBC983FA9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671820   (171086) от 26.10.2023
-
-Toshiyuki Miyama & The New Herd - Gallery (1979) Three Blind Mice [FLAC|Lossless|tracks + .cue] <Post-Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flower Arrangement [5:28]
-02. Art Gallery [5:30]
-03. A Falling Star [5:39]
-04. Blue Sail [5:34](   Читать дальше...   )Жанр: Hard Bop, Big BandПродолжительность: 00:45:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7905C1AA491F047260854D93F9668AF31A3334CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671817   (171083) от 26.10.2023
-
-Robert Conti - You Are The Sunshine Of My Life (1985) Trend [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171083.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Softly as I Leave You [3:40]
-02. You Are the Sunshine of My Life [3:48]
-03. People [3:36]
-04. My Favorite Things [2:12](   Читать дальше...   )Жанр: Mainstream Jazz, Guitar JazzПродолжительность: 00:51:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28C526940BA8C759EA56D837C0CF693ED19D1D14
 ```
 
 https://mybot314.ru/tekegram_catalog/

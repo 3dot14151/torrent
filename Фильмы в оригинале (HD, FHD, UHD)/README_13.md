@@ -1,3 +1,81 @@
+###  Публикация: 1119673   (803008) от 30.03.2017
+
+Патерсон / Paterson (2016) BDRemux [H.264/1080p] [EN / RU, EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_803008.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнь Патерсона — сплошная романтика: он работает водителем автобуса в городе Патерсон, штат Нью-Джерси, а в свободное время пишет стихи для любимой жены Лоры. Патерсон облачает красоту повседневности в стихи и встречает поэтов повсюду — такова магия города — родины поэтов Аллена Гинзберга и Уильяма Карлоса Уильямса. Патерсон пишет в стол и даже не мечтает публиковаться, (   Читать дальше...   )Производство: США, Франция, ГерманияЖанр: Драма, Мелодрама, КомедияРежиссер: Джим ДжармушАктеры: Адам Драйвер, Голшифте Фарахани, Нелли, Ризван Манжи, Доминик Лириано, Джейден Майкл, Бэрри Шебака Хенли, Тревор Пархэм, Трой Пархэм, Брайан МакКарти, Фрэнк Хартс, Луис Да Силва мл.Перевод: СубтитрыСубтитры: Русские, английскиеПродолжительность: 01:57:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A59FF4D87120A2FC14E267FC16655FAE26CECBF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198986   (802609) от 14.01.2018
+
+Земля Гангстеров / Gangster Land / In the Absence of Good Men  (2017) BDRemux [H.264/1080p] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802609.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм рассказывает о самом известном бандите Америки Аль Капоне, его жизни и приходе к власти, а также затрагивает деятельность его «правой руки» Джека МакГерна.Производство: США / Status Media & Entertainment, BondItЖанр: драма, криминалРежиссер: Тимоти Вудворд мл.Актеры: Шон Фэрис, Майло Гибсон, Джейсон Патрик, Джэми-Линн Сиглер, Питер Фачинелли, Марк Ролстон, Майкл Паре, Шон Кэнан, Ал Сапиенца, Дон Харви, Джейсон Брукс, Райан КизерПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английскиеПродолжительность: 01:28:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E051A3D24950191CE858C8DF6DA11B91F0F3CAC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505659   (802388) от 28.10.2021
+
+Армия воров / Army of Thieves (2021) WEB-DL [H.264/1080p] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802388.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнь скромного банковского служащего Дитера круто меняется, когда таинственная незнакомка приглашает его в команду самых разыскиваемых Интерполом преступников, решивших взломать неприступные сейфы по всей Европе.Производство: Германия, США / Pantaleon Films, The Stone Quarry, Film UnitedЖанр: боевик, триллер, криминалРежиссер: Маттиас ШвайгхёферАктеры: Маттиас Швайгхёфер, Натали Эммануэль, Руби О. Фи, Стюарт Мартин, Гуз Кхан, Джонатан Коэн, Ноэмиэ Накаи, Трент Гарретт, Джон Бубняк, Джим ХайПеревод: отсутствуетЯзык озвучки: английскийСубтитры: английскиеПродолжительность: 02:06:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:338F4C9F6691F9BB69B43B83C9AEA081B55BDBE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1505661   (802280) от 28.10.2021
 
 Преступный квест / Apex (2021) WEB-DL [H.264/1080p] [EN]
@@ -592,84 +670,6 @@ A millennial writer from San Francisco travels to the Philippines where she and 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:768BD0322B69C4F6114AFFBF40271A6809BC590A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385805   (796580) от 26.05.2020
-
-Несчастье Рона Хоппера / Ron Hopper's Misfortune (2020) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796580.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sara, a beautiful young girl, returns to an old abandoned mechanical workshop in the middle of nowhere to meet her unexpected confidant Ron Hopper; a mysterious being that has been anchored in the same place since always.Производство: США, Испания / La Ira FilmЖанр: фэнтези, драма, детективРежиссер: Jaime FaleroАктеры: Vinnie Jones, Sam Medina, Alyssa Lozovskaya, Franky Lankester, Román Reyes, Luis Dyangani, Biondolillo Pascal, Juan Antonio Estévez, Lou Di Giorgio, Paco AranaПеревод: ОтсутствуетЯзык озвучки: EnglishСубтитры: English (Full, SDH)Продолжительность: 01:33:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFFC7EC1AD8CA16E8797B9EC2976F426E1CC0CD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385818   (796539) от 26.05.2020
-
-Леди водитель / Lady Driver (2020) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796539.jpg" />
-</div>
-
-
-###  Подробнее
-
-When a rebellious teen embarks on a solo summer journey to connect with her roots, she finds herself in a new world, geared up for the ride of her life, and discovers she had the drive in her all along.Производство: США / ESX Entertainment, Forrest FilmsЖанр: спортРежиссер: Shaun Paul PiccininoАктеры: Grace Van Dien, Sean Patrick Flanery, Christina Moore, Casper Van Dien, Amanda Detmer, John Ducey, Matthew Joel Kranyak, David Gridley, Cameron McKendry, Jack KellyПеревод: ОтсутствуетЯзык озвучки: EnglishСубтитры: EnglishПродолжительность: 01:44:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96BF2BAE50A20E74CB2ADDA8BC4AF00CAF370796
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385797   (796505) от 26.05.2020
-
-Приключения Руфуса: Фантастический питомец / Adventures of Rufus: the Fantastic Pet (2020) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796505.jpg" />
-</div>
-
-
-###  Подробнее
-
-Friends Scott and Emily, are at Scott's grandmother's home when they suddenly discover a mysterious creature Rufus and the wizard Abbot in a secret room. They have a mission: with the help of an ancient spell book, they'll gather some ingredients to make a magic dust to save their world, a magical world. However, they encounter several obstacles when three mean servants (   Читать дальше...   )Производство: Франция / Ace EntertainmentЖанр: приключения, семейный, фэнтезиРежиссер: Ryan BellgardtАктеры: Leah N.H. Philpott, Kyler Charles Beck, Erin Herring, Cory Phillips, Evan Assante, Madilyn Kellam, Madelyn Kientz, Mattie Walker, LaRonn Marzett, Lisandro BoccacciПеревод: ОтсутствуетЯзык озвучки: EnglishСубтитры: EnglishПродолжительность: 01:22:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15B5E116298AAF4D308DD4BB4C29ECC24D7D3C1C
 ```
 
 https://mybot314.ru/tekegram_catalog/

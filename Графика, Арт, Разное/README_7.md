@@ -1,3 +1,29 @@
+###  Публикация: 598042   (999650) от 05.01.2013
+
+Рисованная графика - Artworks by Kai Spannuth
+
+>>Графика, Арт, Разное
+>>Современное изобразительное искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999650.jpg" />
+</div>
+
+
+###  Подробнее
+
+Работы художника-иллюстратора Kai Spannuth.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:236E4956AB0744262A49E9D5DC9CFEE336DFFD82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 598047   (999633) от 05.01.2013
 
 Рисованная графика - Artworks by Paul Kelley
@@ -649,36 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA4FAF2B10E1643410B411D3162549FFEB0AF96C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 601255   (998350) от 10.01.2013
-
-[Wallpapers] Car wallpapers (10.01.13)
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998350.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Car wallpapers (10.01.13)
-Название: Car wallpapers (10.01.13)
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1680х1050 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C4497326AABD33C233AD084B1831153EB25F531
 ```
 
 https://mybot314.ru/tekegram_catalog/

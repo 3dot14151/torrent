@@ -1,3 +1,206 @@
+###  Публикация: 1338780   (267680) от 17.11.2019
+
+VA - Radio DFM: Top D-Chart (15.11) (2019) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_267680.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tones and I - Dance Monkey (Remix) 3:33
+02. Shawn Mendes & Camila Cabello - Senorita (Qodes Remix) 3:25
+03. Audiosoulz - Dancefloor 3:13
+04. Meduza feat. Becky Hill & GOODBOYS - Lose Control 2:48(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:36:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:863447D05E91C75D4BD0504E2C822FA9AB499C80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1190281   (267660) от 09.12.2017
+
+VA - По волне моей памяти 2: Том40 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Рок>
+
+>>След.
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_267660.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Жанна Агузарова и Браво  -  Желтые ботинки  3:29
+02.  ЧайФ  -  Не спеши  3:52
+03.  Любэ  -  Давай-наяривай  5:28
+04.  Маша и Медведи  -  Рейкьявик  4:18(   Читать дальше...   )Жанр: Поп, РокПродолжительность: 02:15:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A65E963C3BF4B08D1347753C46B05CF7B5B689CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1190570   (267104) от 10.12.2017
+
+VA - The Official UK Top 40 Singles Chart 08.12.2017 [MP3|320 Kbps] <Alternative, Indie, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_267104.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ed Sheeran - Perfect 4:23
+02. Rak-Su Feat. Wyclef Jean & Naughty Boy - Dimelo (X Factor Recording) 3:02
+03. Rita Ora - Anywhere 3:35
+04. Camila Cabello - Havana (Feat. Young Thug) 3:37(   Читать дальше...   )Жанр: Alternative, Indie, OtherПродолжительность: 02:27:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF75CCAFF88AD80B65341A928A7EF6BBCFBF6521
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1267282   (266665) от 06.12.2018
+
+VA - Billboard Hot 100 Singles Chart 08.12.2018 (2018) [MP3|320 Kbps] <Pop, Dance, Euro>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_266665.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Travis Scott - SICKO MODE
+02. Ariana Grande - thank u, next
+03. Marshmello & Bastille - Happier
+04. Halsey - Without Me(   Читать дальше...   )Жанр: Pop, Dance, EuroПродолжительность: 05:28:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE5474F0062E94BFB1E9AAC153C5D2FE9DEEDA6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1267284   (266564) от 06.12.2018
+
+VA - Top 100 Зайцев.Нет Ноябрь 2018 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_266564.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Тима Белорусских - Мокрые Кроссы
+002. Tiesto - In My Mind
+003. Егор Крид feat. Филипп Киркоров - Цвет Настроения Чёрный
+004. N1NT3ND0 - Ран Вася ран(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:11:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FC3A9F13B67AAF3D92F0BF778C1A9973B94CEA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1190701   (266522) от 10.12.2017
+
+VA - Зима танцевальная 2017-18 [MP3|320 Kbps] <Pop, Dance, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_266522.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Fake Pictures - Tiger Park
+002. Jason Derulo (Feat. French Montana) - Tip Toe
+003. Anitta & J Balvin - Downtown
+004. Иракли - Online(   Читать дальше...   )Жанр: Pop, Dance, HouseПродолжительность: 06:12:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C69E7285EFFE78261E0E354F2196ECCE07E5E960
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1267331   (266287) от 06.12.2018
+
+VA - Kiss FM: Top 40 (02.12.2018) (2018) [MP3|320 Kbps] <House, Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_266287.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Dynoro & Gigi D'Agostino — In My Mind
+02.  Rompasso — Ignis
+03.  TRU Concept — Save Me (Probass & Hardi Remix)
+04.  PlatonЖанр: House, Pop, DanceПродолжительность: 02:42:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61AFEE1B1BAA0203B3CEC106542156D56B513056
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1339362   (266018) от 19.11.2019
 
 VA - Громкие новинки Ноября Vol 2 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -538,209 +741,6 @@ VA - The Official UK Top 40 Singles Chart 15.12.2017 [MP3|192-320 Kbps] <Alterna
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0C03E5E7C265E9A6D6AD6B5F9A920684B6643BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340738   (263093) от 25.11.2019
-
-VA - Нормас Пати (2019) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263093.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Джоззи - Сердце Бродяги (4:57)
-2.Дима Карташов - Давай останемся никем (4:16)
-3.Marselle - Вещий сон (4:02)
-4.104 x Скриптонит feat. Truwer - Потом и Кровью (4:01)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:23:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A88273C75925226DB07733AE45285F54B17B7CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340788   (263091) от 25.11.2019
-
-VA - Radio DFM Top D-Chart Ноябрь 2019 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263091.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meduza feat. Becky Hill & GOODBOYS - Lose Control 2:48
-02. Tones and I - Dance Monkey (DJ Noiz Remix) 4:00
-03. Audiosoulz - Dancefloor 3:13
-04. SAINt JHN - Roses (Imanbek Remix) 3:58(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:34:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:765106E8C31B9616651C25FA73B933B41281AB3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191515   (263025) от 17.12.2017
-
-VA - The best hits 80-90 Vol. 2 (2017) [MP3|192-320 Kbps] <Eurodance, Pop, Dance, Rap, Hip-hop, House, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263025.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Beatles Revival Band & Orchestra - Yesterday (02:18)
-02. Demis Roussos - From Souvenirs To Souvenirs (02:33)
-03. Spice Girls - Wannabe (02:51)
-04. Vaya Con Dios - Nah neh nah (02:56)(   Читать дальше...   )Жанр: Eurodance, Pop, Dance, Rap, Hip-hop, House, ClubПродолжительность: 15:36:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B6084D7A4F61931473F3839909C22568DB59C86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192368   (262958) от 17.12.2017
-
-VA - Зайцев.Нет: Лучшие Новинки Декабря (2017) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262958.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Север.17  -  Песня  4:00
-02.  Moby  -  Like A Motherless Child  4:37
-03.  Kygo feat. Justin Jesso  -  Stargazing (Kaskade Remix)  3:03
-04.  Ханна  -  Опять одна я  2:49(   Читать дальше...   )Жанр: PopПродолжительность: 03:19:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60A51B0E5F717766EAC51EB84867F3297FAE0316
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340967   (262889) от 26.11.2019
-
-VA - Зайцев.нет Свежие хиты Ноябрь 2019 [MP3|320 Kbps] <Pop, Club, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262889.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Bon Jovi - Unbroken (6:07)
-2.SHOO - Кольцо (6:06)
-3.Agnes Obel - Island Of Doom (5:28)
-4.Jessie Ware - Mirage (Don’t Stop) (4:47)(   Читать дальше...   )Жанр: Pop, Club, OtherПродолжительность: 02:12:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A104F8CCDA8335A63CF2A5C6BB3987D41AE1C086
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192877   (262747) от 18.12.2017
-
-VA - Mery Cristmas Eurodance (2017) [MP3|224-320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262747.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Imagine Dragons - Whatever It Takes
-002. Luis Fonsi - Despacito (feat. Daddy Yankee)
-003. Zhi-Vago - Dreamer (Radio Version)
-004. Kay One - Senorita (feat. Pietro Lombardi)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 10:47:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBF091E62DA934DB57CA2461CD3EDEA11033273B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192743   (262743) от 18.12.2017
-
-VA - Music For Car 6 (2017) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262743.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Chante Moore  -  Chasin'  3:36
-02.  Alan Walker  -  The Spectre  3:10
-03.  Robin Schultz & David Guetta & Cheat Codes  -  Shed A Light  3:13
-04.  Camila Cabello feat. Young Thug  -  Havana  2:58(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:53:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27ECF53B4DEC26A373153B05C0D379590EE39A42
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,34 @@
+###  Публикация: 1801694   (66185) от 12.06.2025
+
+Kim & Buran - MAMA (2025) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Space disco, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66185.jpg" />
+</div>
+
+
+###  Подробнее
+
+Впервые запись в виде цифрового демо увидела свет в 2010 году. Коллектив планировал доработать программу, но история распорядилась иначе. Больше 10 лет материал ждал своего часа, и в 2023 году музыканты возобновили работу над альбомом.
+
+Новая версия «Мамы» не только получила новую обложку, но и зазвучала фактурнее. Многие партии были переписаны с использованием аналоговых (   Читать дальше...   )01. Polar lights
+02. I'm Flying With You
+03. Robot Love
+04. Beautiful Way(   Читать дальше...   )Жанр: Synthpop, Space disco, DowntempoПродолжительность: 00:57:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3179EBD9540C7F71F4AC1ECC912CEFF35044A02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1802050   (66130) от 14.06.2025
 
 D Note - Fuchsia Dog (2002) [FLAC|Lossless|tracks + .cue] <Downtempo, House, Breakbeat>
@@ -716,35 +747,6 @@ V.A. - Lounge Covers of Popular Songs (2024) [FLAC|Lossless|WEB-DL|tracks] <Down
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5A22D436DCF3CAE8B57838CDD7AEB759A6D98AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735341   (50758) от 07.07.2024
-
-V.A. - Buddha Bar Beach 10 Years by Ravin (2024) 3CD [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Lounge, Chill Out>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50758.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Tauon, Christoph Sebastian Pabst – Black Sand Beach
-02. Fluidia – Messzirol (Extended Mix)
-03. Lascivio Bohemia – Niebla(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill Out |Продолжительность: 04:11:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:994AA0D2D8E3E1C1D31699648C97B5C3433A7344
 ```
 
 https://mybot314.ru/tekegram_catalog/

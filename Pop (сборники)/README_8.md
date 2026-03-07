@@ -1,3 +1,61 @@
+###  Публикация: 1360935   (955405) от 19.02.2020
+
+VA - Romantic Souls: Popular Lyric Collection (2020) [MP3|320 Kbps] <Pop, Lyric>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_955405.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Neron - Decomposing
+02. Hilaa - Naked
+03. Cassidy Janson - Fairytale
+04. 1Team - Not Afraid(   Читать дальше...   )Жанр: Pop, LyricПродолжительность: 04:26:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F22459538E085772FF8FAB7D0E9598CCFF29C413
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088471   (955145) от 01.01.2017
+
+VA - Discoteka 2016 Dance Club. New Year's release (2016) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_955145.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ferrazzy - One More Time (Radio Edit) 3:39
+002. Thomas Gold Ft. Jillian Edwards - Magic (Original Mix) 2:51
+003. R3HAB & Skytech - Everything (Extended Mix) 4:15
+004. David Guetta & Cedric Gervais Ft. Chris Willis - Would I Lie To You (Extended Mix) 4:48(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 07:01:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E79F4562AB44C9DF5812192280076B1F8580F77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1088774   (954023) от 02.01.2017
 
 VA - Стопудовые зимние хиты. Сборник № 2 (2016) [MP3|256 Kbps] <Pop>
@@ -687,64 +745,6 @@ VA - Новогодняя Дискотека 80-х от Авторадио – 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91E9744D0D90FFF5CC751962C0900FABD2305DDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089400   (949923) от 04.01.2017
-
-VA - Русские свежаки радиостанций. Выпуск № 5 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949923.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Miela - Города 4:18
-002. Vavan (Владимир Селиванов) - Я Знаю 3:14
-003. Полиграф Шарикoff (Серега) - Гелик Вани 3:08
-004. Роман Bestseller - Полный 4:07(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D563CC3E9FB70D6E43AC4BE38A863D4B81D265DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089720   (949922) от 04.01.2017
-
-VA - Музыкальный плен на Europa Plus Часть № 6 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949922.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rave Boar - Potentially Lime 4:17
-002. Simply Red - Shine On 3:11
-003. Андрей Бельгиец - Как Ты Хочешь 3:57
-004. Натаника - Два Неба 3:10(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAF7CA31BA5897A14459206C124C6472E20362D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

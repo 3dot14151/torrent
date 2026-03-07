@@ -1,3 +1,206 @@
+###  Публикация: 1513844   (220547) от 01.12.2021
+
+Григорий Лепс - Честь имею! Высоцкий (2020) 5xCD [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_220547.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания «Юнайтед Мьюзик Групп» представляет новый проект Григория Лепса на стихи В.С. Высоцкого "Честь имею!". Это серия из 5 альбомов разных периодов творчества поэта, но основной упор сделан на издании редких, малоизвестных песен. Работа над проектом велась более полутора лет на студии исполнителя с участием лучших российский музыкантов. Целью этой работы (   Читать дальше...   )CD - 1 - Мой первый срок
+CD - 2 - Разведка боем
+CD - 3 - На дистанции
+CD - 4 - Городской романс(   Читать дальше...   )Жанр: PopПродолжительность: 04:32:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:409C696071B6498343FC0535280D4163291A1461
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966184   (220497) от 17.12.2015
+
+Emin - 8 в падении (2015) [MP3|320 кб/с] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_220497.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Одна на миллион
+02. Не больно
+03. Забыть тебя
+04. Ты(   Читать дальше...   )Жанр: PopПродолжительность: 00:46:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C959E1AD67F21C785DD8C6BE2C4F3CF31D29EA39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425668   (220446) от 21.11.2020
+
+Sarah Brightman - France (2020) [FLAC|Lossless|WEB-DL|tracks] <Classical Crossover, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_220446.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just Show Me How To Love You
+02. Nella Fantasia
+03. There For Me
+04. Dans La Nuit(   Читать дальше...   )Жанр: Classical Crossover, PopПродолжительность: 01:14:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A66676E4E7242052D865328271580366FEEAC0B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966191   (220392) от 17.12.2015
+
+Michael Jackson - Bad (1987) [FLAC|Lossless|tracks + .cue] <Pop Rock, Ballad, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_220392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad (4:08)
+02. The Way You Make Me Feel (4:58)
+03. Speed Demon (3:59)
+04. Liberian Girl (3:55)(   Читать дальше...   )Жанр: Pop Rock, Ballad, DiscoПродолжительность: 00:43:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B6055395D5DBDFE641A75A22B08D65DAC07BA7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585586   (220305) от 23.10.2022
+
+Various - The Best Of Duets (2000) 4 CD [OGG Vorbis|480 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_220305.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. B.B.King & Eric Clapton - Riding With The King
+02. Elton John & Rendy Newan - It's Tough To Be God
+03. Celin Dion & Andrea Bocelli - The Prayer
+04. Pet Shop Boys & Lisa Minelli - Losing My Mind(   Читать дальше...   )Жанр: PopПродолжительность: 05:00:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C2690327DF9003D229F51A0C26B8FD9A063CDCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585696   (220252) от 23.10.2022
+
+Carly Rae Jepsen - The Loneliest Time (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_220252.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Surrender My Heart
+02. Joshua Tree
+03. Talking to Yourself
+04. Far Away(   Читать дальше...   )Жанр: PopПродолжительность: 00:54:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8493BAB1077C601F1860B6341F7DDBACAE406986
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651807   (220209) от 08.08.2023
+
+Jef Scott - Ten Stories (1986) Remastered, 2013, Yesterrock [FLAC|Lossless|image + .cue] <Pop Rock, New Wave, AOR>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_220209.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One By One (3:37)
+02. I Watch My City Sleep (3:14)
+03. Mega-Millionare (4:26)
+04. You Are The Only One (3:32)(   Читать дальше...   )Жанр: Pop Rock, New Wave, AORПродолжительность: 00:36:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D486C4A5A6041ADBB8EBF4ADF3840E9C0E69E47C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 586556   (220114) от 11.12.2012
 
 Tina Turner - All The Best (2012) [MP3|320 кб/с]<Pop-Rock>
@@ -554,209 +757,6 @@ VA - Workout Dance 2019 (2018) [MP3|320 Kbps] <Euro Dance, Pop Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD837B51408E997F7188C655817C92F8A47F566E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514149   (219143) от 02.12.2021
-
-Марина Хлебникова - Лучшие Песни (2021) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219143.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Чашка кофию
-2. Дожди
-3. Солнышко моё, вставай!
-4. Нева(   Читать дальше...   )Жанр: PopПродолжительность: 00:55:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F822B009E45DC034067E92E365C447F84A32C8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425989   (218878) от 22.11.2020
-
-Camaro's Gang - Decamerone (The Camaro One) (1985) LP [MP3|320 Kbps] <Electronic, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218878.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ali Shuffle  (7:37)
-02. Maskarp-One  (5:30)
-03. Move A Little Closer  (5:39)
-04. Snake Your Money  (6:02)(   Читать дальше...   )Жанр: Electronic, Italo-DiscoПродолжительность: 00:48:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B0F1646DA5FC7138B2B68F024A8DAEF08D1BAA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343248   (218747) от 06.12.2019
-
-Die Partymixer - Hit Sommer Mix (1998) [FLAC|Lossless|tracks] <Pop, Cover, Medley>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218747.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Medley 1: Coco Jambo, Macarena, Tic Tic Tac, Jo Jo Action, Lovefool, (Un, Dos, Dres) Maria, Samba De Janeiro (12:32)
-
-02. Medley 2: Ymca, Born To Be Alive, A Walk In The Park, Hands Up, Agadou, Espania, Bellissima Sole, Please Don't Go, Vamos A La Playa, Dolce Vita, Lemon Tree (16:27)
-(   Читать дальше...   )Жанр: Pop, Cover, MedleyПродолжительность: 00:41:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0078F49CD7632D773FC5A0510101B651355D16DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343131   (218738) от 06.12.2019
-
-VA - Best of 2019 - Frühlingshits (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218738.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Nico Santos - Unforgettable
-02. Ariana Grande - 7 Rings
-03. Sam Smith & Normani - Dancing With A Stranger(   Читать дальше...   )Жанр: PopПродолжительность: 02:29:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDEA9E99F608D64FEF59BBDDEBE6183CCDF71AE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343207   (218706) от 06.12.2019
-
-New Mexico - New Mexico (1980) LP [MP3|320 Kbps] <Funk, Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take It To Your Limit (4:36)
-02. It's Love (4:00)
-03. Skate With Me (3:21)
-04. Get Up And Dance (3:13)(   Читать дальше...   )Жанр: Funk, Soul, DiscoПродолжительность: 00:36:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CA4F55004E02BB994CB0655E970D04A0DEA0ADC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343258   (218703) от 06.12.2019
-
-Vision Mastermixers - Reggae Mega Mix (1999) [FLAC|Lossless|image + .cue] <Reggae, Pop, Cover/Medley>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218703.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reggae Mix 1 (22:20)
-- No Woman No Cry
-- Stir It Up
-- Starry(   Читать дальше...   )Жанр: Reggae, Pop, Cover/MedleyПродолжительность: 01:14:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BACCEBC7A089A600CE71BA0168FC48E14897CB63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343176   (218696) от 06.12.2019
-
-VA - Blow Up Disco Vol 3: Back To Italodisco (2019) [FLAC|Lossless|WEB-DL|tracks] <Disco, Nu-Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218696.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Loui$ – Magic Dance (Italo Club mix) (8:32)
-02. Loui$ – Pink Footpath (Back To instrumental mix) (6:08)
-03. Zanza's – This Is A Day (Mr.u.b. Italo instrumental mix) (4:58)
-04. Zanza's – This Is A Day (Mr.u.b. Italo mix) (5:26)(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 01:05:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98AFA117BD795FFB00162D4923680174824545A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

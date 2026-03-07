@@ -1,3 +1,32 @@
+###  Публикация: 1090517   (945857) от 07.01.2017
+
+Игорь Матвиенко - Викинг (Оригинальный саундтрек к фильму) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_945857.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Молитва Владимира (feat. Малый симфонический оркестр "Симфониетта") (02:47)
+02. Испытание водой (feat. Малый симфонический оркестр "Симфониетта") (02:07)
+03. Штурм Полоцка (01:26)
+04. Плач (Вокализ) (03:57)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:54:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3D189D4751A240A181954F9DEC06B61470EB49D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1089783   (945798) от 07.01.2017
 
 Лихолесье - Туман перехода (2016) [MP3|320 Kbps] <Folk>
@@ -715,36 +744,6 @@ George Streicher - Howard Lovecraft and the Frozen Kingdom / Говард и З�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1A54048F14D194ED368C54169C08D0B7DDD075A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 250185   (941155) от 16.01.2015
-
-Eric Chiryoku - 3 альбома (2006-2012) [MP3|320 кб/с]<New Age, Easy Listening, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941155.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы:
-
-2006 - Spring Of Life
-2007 - Winter Story
-2012 - Autumn JourneyЖанр: New Age, Easy Listening, PianoПродолжительность: 02:18:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A43D3AE12D4267637AC30272C3E67BEF616B5C98
 ```
 
 https://mybot314.ru/tekegram_catalog/

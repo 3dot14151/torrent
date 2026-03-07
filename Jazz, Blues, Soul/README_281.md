@@ -1,3 +1,235 @@
+###  Публикация: 939039   (478149) от 20.09.2015
+
+John Carter & Bobby Bradford - Mosaic Select 36 (1969/1971/1972/1979) 3CD /2010, Mosaic Records/ [FLAC|tracks+.cue]<Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_478149.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.In the Vineyard [10:31]
+02.Karen On Monday [06:53]
+03.Sticks and Stones [06:18](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 03:13:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E11A5F782EFB80106630871D30DAF7C3652E1C0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 938903   (478148) от 20.09.2015
+
+Dizzy Gillespie - Have Trumpet, Will Excite! (1959) /2015, Poll Winners Records/ [FLAC|tracks+.cue]<Afro-Cuban Jazz, Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_478148.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Heart Belongs To Daddy [06:03]
+02. My Man [04:20]
+03. Moonglow [06:25]
+04. ST. Louis Blues [05:55](   Читать дальше...   )Жанр: Afro-Cuban Jazz, BopПродолжительность: 01:14:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F3728B0675B8B8DB1245F001B41D16CEFC2098C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 938812   (478146) от 20.09.2015
+
+John Coltrane - Stellar Regions (1967) /2015, Universal/ [FLAC|tracks+.cue]<Avant-Garde Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_478146.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Seraphic Light [08:58]
+02.Sun Star [06:09]
+03.Stellar Regions [03:36]
+04.Iris [03:55](   Читать дальше...   )Жанр: Avant-Garde JazzПродолжительность: 01:00:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB7425409F57016ADDDCF41A880C049CEDB0490A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 938834   (478144) от 20.09.2015
+
+Karrin Allyson - Many A New Day Karrin Allyson Sings Rodgers & Hammerstein (2015) [FLAC|tracks|WEB-DL]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_478144.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oh, What a Beautiful Mornin’ (4:12)
+02. Many A New Day (3:01)
+03. Happy Talk (3:54)
+04. I Cain't Say No (4:19)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:54:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:926FFF6AB3AC42D26DEC02BA0E6EEEC03AEEBAAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244920   (478097) от 03.09.2018
+
+Deák Bill Gyula - Hatvan csapás (2008) [FLAC|Lossless|image + .cue] <Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_478097.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hatvan csapas (3:48)
+02. A nagy generacio temetesere (2:53)
+03. Kene egy uveg bor (5:03)
+04. Let-e, aki let (2:38)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 01:07:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0483B4C1CC8BDCA8B08A9D95ABB9B7AE173D97AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 938801   (478025) от 20.09.2015
+
+Rose Room - The High Life (2015) [FLAC|tracks|WEB-DL]<Jazz, Swing, Gypsy>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_478025.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The High Life (2:37)
+02. Edge of Love (3:54)
+03. I'm Confessin' (3:45)
+04. Sleads Street (2:51)(   Читать дальше...   )Жанр: Jazz, Swing, GypsyПродолжительность: 00:38:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:808A4BB26CAE79E1AE1CB22A97131ACF74BD0D37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 939100   (477923) от 20.09.2015
+
+Nils - Alley Cat (2015) [FLAC|Lossless]<Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_477923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Two Of A Kind
+02. Alley Cat
+03. Don't Hold Back
+04. Saturday Night(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:46:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C34C6EC457D178FB1385BDB26193F1FFD8527799
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 938928   (477909) от 20.09.2015
+
+Joanne Shaw Taylor - White Sugar (2009) [MP3|320 кб/с]<Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_477909.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Going Home (04:50)
+02. Just Another Word (04:08)
+03. Bones (05:23)
+04. Who Do You Want Me To Be (03:36)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:51:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BED89842AF912A2B58EBDD6BC331179C1C1E9B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1057186   (477721) от 27.09.2016
 
 Art Blakey And The Jazz Messengers - Reflections In Blue (1978) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -540,250 +772,6 @@ Gary Bartz - Episode One Children Of Harlem (1994) /Challenge/[FLAC|tracks+.cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:70FAEE87E7094124452D04512892725BB52B9B78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 546354   (476067) от 14.09.2012
-
-VA - Jazz Audiophile Voices (2010) [FLAC|Lossless]<Vocal jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476067.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lyle Ritz & Rebecca Kilgore - Sway [03:48]
-02. Pamela Luss with Houston Person - You Belong To Me [05:31]
-03. Niki King - The Very Thought  Of You [04:07]
-04. Janet Seidel - Spanish Harlem [04:30]
-05. Saskia Bruin - Estate [04:27]
-06. Lisa Lauren - And I Love Him [05:25]
-07. Todd Gordon & Jacqui Dankworth - If You Could Read My Mind [04:32]
-08. Joe Fagan Quartet - My Foolish Heart [05:00]
-09. Sarah Morrau - Both Sides Now [04:54]
-10. Alison Burns - Cry Me A River [04:59](   Читать дальше...   )Жанр: Vocal jazzПродолжительность: 01:12:49
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939190   (476035) от 21.09.2015
-
-Kat Reinhert - Spark (2015) [FLAC|image+.cue]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476035.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Walk Into The Rain
-02. Heavy
-03. Spark
-04. Paper Bag(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:02:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CCED15038814C3709FDBF3FE7767C105447438F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939386   (476032) от 21.09.2015
-
-Thomas Chapin - I've Got Your Number (1993) /Arabesque Jazz/[APE|tracks+.cue]<Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476032.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.I've Got Your Number [05:48]
-02.Drinkin' [07:42]
-03.Time Waits [07:34]
-04.Moon Ray [07:47](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:56:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F0F2FC70027442B987A168B85825F33C64CE8C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 546340   (475892) от 14.09.2012
-
-VA - Acoustic Audiophile Voices (2004) [FLAC|Lossless]<Vocal jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475892.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rhonda Vincent - When I Close My Eyes [03:26]
-02. Alison Krauss & Union Station - Looking In The Eyes Of Love [04:18]
-03. Claire Lynch - I Don't Have To Dream [03:25]
-04. Cheryl Wheeler - Frequently Wrong But Never In Doubt [03:58]
-05. Nanci Griffith - Once In A Very Blue Moon [02:35]
-06. The Wayfaring Strangers - Wayfaring Stranger [06:22]
-07. Alison Krauss & Union Station - I'm Gone [03:26]
-08. Claire Lynch - These Flowers [03:16]
-09. Cheryl Wheeler - Howl At The Moon [03:26]
-10. Tish Hinojosa - Roses Around My Feet [04:57](   Читать дальше...   )Жанр: Vocal jazzПродолжительность: 00:55:02
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057370   (475481) от 28.09.2016
-
-The Tony Lustig Quintet - Taking Flight (2016) Bimperl Entertainment & Media[FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Change Is Comin' [05:56]
- 02.Fraytown [08:52]
- 03.Prometheus [08:37]
- 04.For Wayne [06:02](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:56:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D97613106C4274BE3485DD6ADA2FD5C89FE80310
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057366   (475476) от 28.09.2016
-
-John Surman - Morning Glory (1973) 2016, Fledg'ling Records[FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475476.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Cloudless Sky [08:15]
- 02.Iron Man [13:03]
- 03.Norwegian Steel - Septimus [09:33]
- 04.Hinc Illae Lacrimae - For Us All [12:33]Жанр: Avant-Garde Jazz, Post-BopПродолжительность: 00:43:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3962251F96B7CCF8928D93C17C1ED79F0BC9112E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057305   (475349) от 28.09.2016
-
-The Wicked Mercy - The Wicked Mercy (2013) [FLAC|Lossless|tracks] <Blues Rock, Southern Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475349.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. God Knows   (04:08)
-02. River Run Dry   (03:16)
-03. Gypsy Jazz   (03:40)
-04. Wanted Man   (03:54)(   Читать дальше...   )Жанр: Blues Rock, Southern RockПродолжительность: 00:37:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF13CC7E328E11061A3AAAF6EBFAE3D1E94C08A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057375   (475242) от 28.09.2016
-
-VA - Smooth Jazz Best of Sax (2016) [MP3|320 Kbps] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. LeBron - Groove City
-02. Randy Scott - Woodward Avenue
-03. Elizabeth Mis - Slow Burn
-04. Michael Lington - The Serenade(   Читать дальше...   )Жанр: JazzПродолжительность: 01:56:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65404665F97C8C654D80466D57052F542875DFBC
 ```
 
 https://mybot314.ru/tekegram_catalog/

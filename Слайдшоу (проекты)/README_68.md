@@ -1,3 +1,29 @@
+###  Публикация: 1159587   (479749) от 22.08.2017
+
+Проекты - VideoHive - Summertime Movements - Bright Opener - 20286763 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_479749.jpg" />
+</div>
+
+
+###  Подробнее
+
+Summertime Movements - Bright Opener - Энергичный, красочный шаблон AE, который поможет вам создать современное слайд-шоу, короткое яркое вступление, промо ролик. Отлично подходит для блога YouTube.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:306EF0D745BACBB983FEDFF85B9E5549F4CF861D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1244558   (479703) от 02.09.2018
 
 Проекты - VideoHive - Upbeat Style - 16560510 [AEP]
@@ -656,32 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:750BBF9F53CC216CE2EAE52BDA7C1EE60FAFCC55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 701863   (471657) от 20.09.2013
-
-VideoHive - Mystic Shapes - 2544693 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471657.jpg" />
-</div>
-
-
-###  Подробнее
-
-Элегантный 3D проект отображения видео. Органические волны сделают ваше видео впечатляющими.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:310A84669A806584D4ED5BE54E16A722D76D49D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

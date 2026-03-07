@@ -1,3 +1,293 @@
+###  Публикация: 1224026   (667174) от 09.05.2018
+
+VA - Psychedelic Chill Bass (2018) [MP3|256 Kbps] <DnB, Dubstep, Experimental>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_667174.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Govinda - Try Again
+02. Wu Wei - Eternally Unfolding
+03. Templo - Deja
+04. Tipper - Lattice(   Читать дальше...   )Жанр: DnB, Dubstep, ExperimentalПродолжительность: 06:08:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81598CB05FAE139E3F88F4A84801808CAF1D1377
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 511120   (667162) от 16.06.2012
+
+VA - СупердискотЭка Радио Рекорд 80х-90х 50/50 (2012) [MP3|192 kbps]<Dance | Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_667162.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Smokie - Needles And Pins
+002 Черный Кофе - Я Ищу
+003 Afric Simone - Hafanana
+004 Электроклуб - Ты Замуж За Него Не Выходи(   Читать дальше...   )Жанр: Dance | DiscoПродолжительность: 07:58:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:388E7B914550E7135C9015B6B690875E2B20D1EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1224124   (667128) от 09.05.2018
+
+VA - I'm Blessed: Gold Pack Rap Compilation (2018) [MP3|320 Kbps] <Rap, Hip Hop>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_667128.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыка для активных и позитивных, для ценителей качественной и красивой музыки, для настроения и заряда бодрости в течении всего дня. Мелодии настраивающие на позитивное мышление в сборнике "I'm Blessed: Gold Pack Rap Compilation".001. Onyx & Dope D.O.D. - Piro
+002. Royce Da 5'9" - Black History (Prod. By DJ Premier)
+003. Denzel Curry - ULT
+004. Bodega BAMZ - Hell Iz Real (Prod. By Streetrunner Rugah Rahj)(   Читать дальше...   )Жанр: Rap, Hip HopПродолжительность: 08:37:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59341BB6637E093E7D510F4967919365FABEEF2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223922   (667070) от 09.05.2018
+
+VA - Жаркие музыкальные хиты (2018) [MP3|256 Kbps] <Поп>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_667070.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Indira - Делай Меня Любовь
+002. Vitalio - Засыпай
+003. Artemiev - Держи Меня
+004. Оля Краснова - Та Самая Лов(   Читать дальше...   )Жанр: ПопПродолжительность: 06:06:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:717206AACE5E3C843E0C24174C0B2AF2901717B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137705   (666784) от 27.05.2017
+
+VA - Psybreaks [Compiled by Zebyte] (2017) [MP3|320 Kbps] <Psybreaks>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_666784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Acidova & Too Dusty - Too Acid [07:12]
+02. Perpetual Present - Collision Course (Bear Moss Remix) [06:06]
+03. Magnus - Frozen Sun (Chris Voro Thumping Remix) [06:00]
+04. Tee-ex - Wonder (Retroid Remix) [05:21](   Читать дальше...   )Жанр: PsybreaksПродолжительность: 04:24:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C94B9D2FA486D8AA0A9058425E7CDD2ACC59FED1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537633   (666633) от 17.03.2022
+
+VA - Music News vol.173 (2022) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_666633.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Максим Фадеев - Выживший (03:18)
+ 002. Adele - Rolling In The Deep (Ayur Tsyrenov DFM Remix) (03:16)
+ 003. Agunda feat. ТАХА - Velum Verum (02:34)
+ 004. Akord - S-a Deschis Fereastra (03:42)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 05:32:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24455E3E194021582994AC377F6963E7EED09B25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137664   (666574) от 27.05.2017
+
+VA - Рада Рай, Ирина Круг, Лариса Кучина, Инна Наговицына (2008) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_666574.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ирина Круг - Дорога от души к душе
+02. Ирина Круг и Алексей Брянцев - Привет, малыш
+03. Ирина Круг и Михаил Круг - Встретились глаза
+04. Ирина Круг - Юбочка(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:31:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D7FF5ED5171E35CCB721A056E0E772C8F76FE40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537680   (666482) от 17.03.2022
+
+VA - Pop & Dance Remix NNM (2022) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_666482.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kastelo, H4RRIS, G Elise - Love You Better (2:29)
+002. Newclaess, KENO - (I Just) Died in Your Arms (2:26)
+003. Masove, Liam Cole, Edu Monteiro - Stay (2:51)
+004. CTH, Jaxomy - Your Highs (2:30)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:05:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33656C61CB113F5DDB705CB807325F31F4A8C97B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1224400   (666063) от 10.05.2018
+
+VA - Elite Session Uplifting Trance (2018) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_666063.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Earth Inc - Strong (Original Mix)
+02. Etasonic - When You're Gone (Intro Mix)
+03. Frainbreeze feat. Vika - Better Day
+04. Anton Greco - Endless Love (Kiyoi & Eky Remix)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 09:31:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C824AEA7FFE927C3613441E2A4B8B02527A82727
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1224515   (666000) от 10.05.2018
+
+VA - Guitar Collection (Spring) (2018) [MP3|320 Kbps] <Instrumental>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_666000.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Acoustic Alchemy - The Ebor Sound System  (05:23) 
+02. John Sutton Band - Helping Hand (E-Jam)  (06:42) 
+03. Gregg Rolie - Orient Express  (05:35) 
+04. Fred Chapellier & The Gents, Dale Blade - 3'45 Am  (04:38) (   Читать дальше...   )Жанр: InstrumentalПродолжительность: 02:11:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07C98D10B785175F205BFD5170A2C3B245E7E4E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1224391   (665936) от 10.05.2018
 
 VA - Music for Car 7 (2018) [MP3|320 Kbps] <Pop>
@@ -455,293 +745,6 @@ VA - Pet Shop Boys - Standard Disco Holiday (2017) [MP3|320 Kbps] <Europop, Synt
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13C91D21D4141A0654CD1300F2C20B73355BEAE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138224   (665256) от 28.05.2017
-
-VA - Песни для души от радио Шансон выпуск № 9 (2017) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665256.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Павел Шубин & Андрей Якиманский - Где Же Вы Мои Друзья 3:56
-002. Александр Куликов - Пожалуйста 4:08
-003. Централ - Соскучился 4:08
-004. Сергей Комин - Девочка Далеких 80-Х 4:09(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE9B077682DADED7B7FDC4B4D0120AA57C94F117
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137910   (665246) от 28.05.2017
-
-VA - Зажигай вместе с Европа Плюс выпуск № 6 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665246.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Оля Краснова - Мурашки 3:20
-002. Елена Темникова - Голые 3:23
-003. Юран - Пусть Будет Так 3:45
-004. Olisha - Мы Такие Девочки 3:23(   Читать дальше...   )Жанр: PopПродолжительность: 06:01:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22D34EA046692FEFA4EAF8D2EB9FF780E86E90A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138219   (665213) от 28.05.2017
-
-VA - Музыка отличного настроения на Шансоне выпуск № 2 (2017) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665213.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Евгений Коновалов - Танцуй Под Коновалова 3:53
-002. Андрей Гончаров - Я И Ты 3:23
-003. Игорь Добролевский - Остановка 3:21
-004. Оксана Орлова (Башинская) - Наливай 3:23(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:12:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82659650996C7DA331CE996F162E015CB6E1131F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137903   (665136) от 28.05.2017
-
-VA - Дискотека Hit FM. Любимая музыка. Сборник № 6 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665136.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Денис Филимонов - Чужой Мой Близкий Человек 3:30
-002. Fargo - Лев Толстой 3:30
-003. Icetowne - Территория 5:23
-004. Иракли - Два Океана 3:29(   Читать дальше...   )Жанр: PopПродолжительность: 06:04:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10E2964509DBF870613306860F3DAC6CB3DA94E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137877   (665132) от 28.05.2017
-
-VA - Остаться Молодым: Сборник Русского Рока (2017) [MP3|256-320 Kbps] <Рок, Альтернатива, Классика Рока>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665132.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Северный Флот - Поднимая Знамя 4:41
-002. Epolets - Нам Выбирать! 3:57
-003. Иван Курнаев - В Пульсе Сердца 4:00
-004. Annodomini - Не Надо Слов 3:28(   Читать дальше...   )Жанр: Рок, Альтернатива, Классика РокаПродолжительность: 07:54:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11BF7F9DB7F867EABBB7C12714B8561CD153948E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137883   (665025) от 28.05.2017
-
-VA - Club Elite Session: Popular Dance Mix (2017) [MP3|320 Kbps] <Club, Dance, Pop House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665025.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Years & Years - Shine (Sanna & Pitron Remix) 7:06
-002. Felix Jaehn Featuring Jasmine Thompson - Ain't Nobody (Loves Me Better) (The Rooftop Boys Remix) 4:09
-003. Duke Dumont - Ocean Drive (Shaun Frank Remix) 5:08
-004. Frequency And Soulcircuit Featuring Diia - Lost Feat. Diia (Original Mix) 5:54(   Читать дальше...   )Жанр: Club, Dance, Pop HouseПродолжительность: 08:53:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0ABB64D8C7FA25AD682881EBEADEFF983F5E62E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224387   (664864) от 11.05.2018
-
-VA - Psy Goa Trance: Beach Party (2018) [MP3|320 Kbps] <Psy, Goa Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664864.jpg" />
-</div>
-
-
-###  Подробнее
-
-Солнечная и оптимистичная атмосфера в треках сборника "Psy Goa Trance: Beach Party", которая не покидает Вас до последнего трека. Интересная подача текстов и своеобразный тип вокала придает звуку некой винтажности и загадочности. Какой-то определенный трек сложно выделить и назвать однозначным хитом, абсолютно все композиции достаточно разные по своей структуре (   Читать дальше...   )001. Nova Fractal, Median Project - Gravitational Field
-002. Perfect Stranger - Small Beginnings
-003. Omneon - Deep Space
-004. Sensient - Roll Call(   Читать дальше...   )Жанр: Psy, Goa TranceПродолжительность: 13:11:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4431D087507C8AF6E8351BD5C4C696F97D6DEB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 512210   (664842) от 18.06.2012
-
-VA - The Official UK Top 40 Singles Chart (17-06-2012) [MP3|320 кб/с]<Pop, Rok, R&B>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664842.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, Rok, R&BПродолжительность: 02:29:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EB377826EFD0023195FD539F1E2EA3F8B023BE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224593   (664788) от 11.05.2018
-
-VA - Jazz For You! (2018) [MP3|320 Kbps] <Jazz Instrumental, Vocal Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664788.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбом Jazz For You! составлен из красивейших композиций для прослушивания меломанами, истинными знатоками джаза и рекомендуется новичкам, желающим приобщиться к джазу деликатного ритма и утончённой разноликости.001. Ray Charles - Rockhouse (Parts 1 & 2) (Remastered)
-002. Seby Burgio - Corcovado
-003. Erroll Garner - High Wire
-004. American Jazz Orchestra - Cotton Tail(   Читать дальше...   )Жанр: Jazz Instrumental, Vocal JazzПродолжительность: 07:12:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F77C034065564152FD0C24421A681888616412CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224647   (664786) от 11.05.2018
-
-Procol Harum - Beyond The Pale (2CD) Compilation (2018) [MP3|320 Kbps] <Rock, Progressive & Art-Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664786.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shadow Boxed
-02. Something Magic
-03. Skip Softly (My Moonbeams)
-04. As Strong As Samson(   Читать дальше...   )Жанр: Rock, Progressive & Art-RockПродолжительность: 01:28:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05C07C737749A4E331804A3880D5DF1AB602B319
 ```
 
 https://mybot314.ru/tekegram_catalog/

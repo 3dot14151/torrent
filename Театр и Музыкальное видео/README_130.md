@@ -1,3 +1,64 @@
+###  Публикация: 479723   (87234) от 08.04.2012
+
+Bee Gees - The Ultimate DVD only (2009) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_87234.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop/RockРежиссер: VariosАктеры: Bee Gees: Barry, Robin and Maurice GibbПеревод: ОтсутствуетПродолжительность: 1:05:54
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479346   (87227) от 08.04.2012
+
+ABBA - Number Ones (2006) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_87227.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбом-компиляция шведской группы ABBA, выпущенный Universal Music Group в 2006 году. Этот альбом (DVD-версия) включает видеоклипы песен, ставших хитами №1 в ведущих хит-парадах разных стран.1. Gimme! Gimme! Gimme! (A Man After Midnight)
+2. Mamma Mia
+3. Dancing Queen
+4. Super Trouper
+5. SOS
+6. Summer Night City
+7. Money, Money, Money
+8. The Winner Takes It All
+9. Chiquitita
+10. One Of Us(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:54:40
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 479498   (87197) от 08.04.2012
 
 Simon and Garfunkel - The Concert In Central Park, 1981 (2004) DVD5
@@ -686,61 +747,6 @@ Armin van buuren video asot 550 live in Kiev (2012) (CamRip/DVD5)
  08. Orjan Nilsen – Between The Rays (Armind)
  09. Setrise vs Johann Stone – Icesave (Original Mix)
  10. Gaia – Stellar (Armind)(   Читать дальше...   )Жанр: Музыка/TranceПродолжительность: 01:34:40
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476015   (85555) от 31.03.2012
-
-Видеоклипы «t.A.T.u.» - All The Things She Said. Пиратская Вечеринка HD x264 1080p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85555.jpg" />
-</div>
-
-
-###  Подробнее
-
-«All the Things She Said» — первый сингл с дебютного англоязычного альбома «200 km/h in the Wrong Lane» группы «Тату», выпущенный 10 сентября 2002 года. Стал первым синглом российских исполнителей, который занял первое место в британском чарте UK Singles Chart, удерживая позицию в течение четырёх недель. По итогам 2003 года сингл занял 6-е место по продажам в Великобритании (   Читать дальше...   )Жанр: TV, Video, Popular music, Pop music, Pop, Club, Dance, HouseПеревод: Не требуетсяПродолжительность: 00 часа 04 мин 08 сек (00:04:08)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7139303D63F6C06D99794BD8A38368F79774E76A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474534   (85018) от 28.03.2012
-
-Lady GaGa Presents: The Monster Ball Tour at Madison Square Garden (2011) [1080p] BDRip
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85018.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Lady GaGa Presents: The Monster Ball Tour at Madison Square Garden» - это масштабное шоу, снятое 21 и 22 февраля 2011 года в Нью-Йорке во время аншлаговых концертов Леди Гаги в рамках знаменитого «The Monster Ball Tour» – одно из самых значительных событий поп-культуры за последние 20 лет. Леди Гага в сопровождении 10 виртуозных музыкантов и 10 блистательных танцоров (   Читать дальше...   )01. Intro
-02. Dance In The Dark
-03. Glitter And Grease
-04. Just Dance(   Читать дальше...   )Жанр: PopСубтитры: Английские, РусскиеПродолжительность: 01:54:24
 
 ## Скачать торент
 ```bash

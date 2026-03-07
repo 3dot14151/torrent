@@ -1,3 +1,32 @@
+###  Публикация: 1309598   (550436) от 20.06.2019
+
+Two Door Cinema Club - False Alarm (2019) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Once (3:21)
+02. Talk (4:25)
+03. Satisfaction Guaranteed (feat. Mokoomba) (3:50)
+04. So Many People (4:43)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:40:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:789ECD8D33B1F29A9D8863C29339D6DD42F031C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1309907   (548855) от 22.06.2019
 
 The Get Up Kids - Problems (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Emo, Pop Punk>
@@ -713,35 +742,6 @@ Tunng - This Is Tunng…Magpie Bites and Other Cuts (2019) [FLAC|Lossless|WEB-DL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DEF80882DEF51737DE863A8B08A1C1DFD650A719
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311690   (540070) от 30.06.2019
-
-Atreyu - Lead Sails Paper Anchor (2007) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Hardcore, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540070.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Doomsday (3:20)
- 02. Honor (3:09)
- 03. Falling Down (3:00)
- 04. Becoming the Bull (3:41)(   Читать дальше...   )Жанр: Alternative Rock, Hardcore, Hard RockПродолжительность: 00:46:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C25EC5C76A8FD24DAEB8C5CC3A04BC239644304
 ```
 
 https://mybot314.ru/tekegram_catalog/

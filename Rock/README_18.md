@@ -1,3 +1,32 @@
+###  Публикация: 1196292   (825989) от 01.01.2018
+
+Nicolette Larson - The Very Best Of Nicolette Larson (1999) Compilation [MP3|320 Kbps] <Country Rock, Pop Rock, Ballad>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_825989.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lotta Love 3:12
+02. Rhumba Girl 3:50
+03. Give A Little 2:57
+04. Angels Rejoiced 2:27(   Читать дальше...   )Жанр: Country Rock, Pop Rock, BalladПродолжительность: 00:56:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77D86CB0AAF57111974132CEEFF2808D26911A59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1502738   (824728) от 16.10.2021
 
 The Beatles - Let It Be (1970) 5СD, Super Deluxe, 2021, Universal Music Catalogue [MP3|320 Kbps] <Rock>
@@ -705,35 +734,6 @@ Wild Turkey - Turkey (1972) Reissue, 1995, Edsel Records [MP3|320 Kbps] <Classic
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E1C24AF73BA476415BB483478C4632902745AD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008325   (816035) от 18.04.2016
-
-April Wine - Harder.....Faster (1979) [MP3|320 кб/с] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816035.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Like To Rock (04:24)
-02. Say Hello (02:59)
-03. Tonite (04:13)
-04. Ladies Man (03:37)(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1E465BBADAD69A500947EE17565B1E12DAC9C52
 ```
 
 https://mybot314.ru/tekegram_catalog/

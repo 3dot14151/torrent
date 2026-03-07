@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1857384   (1059612) от 05.03.2026
+
+R.E.M. - Reckoning (1984) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1059612.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Harborcoat [0:03:53.55]
+02. 7 Chinese Bros. [0:04:18.40]
+03. So. Central Rain [0:03:16.03]
+04. Pretty Persuasion [0:03:53.15](   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:38:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62456941796FD0DAA38C6353FB2886F3FDB36B8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1851133   (1054977) от 01.02.2026
 
 Nirvana - In Utero (1993) [FLAC|Lossless|tracks + .cue] <Grunge, Alternative Rock>
@@ -716,35 +745,6 @@ Catherine Wheel - Adam and Eve (1998) [FLAC|Lossless|tracks + .cue] <Alternative
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A7D39118B5C53C66CF8BB956517B05E5E7ACC33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438353   (1041186) от 08.01.2021
-
-Bury Tomorrow - Cannibal (2020) [FLAC|Lossless|image + .cue] <Melodic Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041186.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Choke
-02. Cannibal
-03. The Grey (VIXI)
-04. Imposter(   Читать дальше...   )Жанр: Melodic MetalcoreПродолжительность: 00:42:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1FF63E9A9FEC5253F805C40893118F1D45D42AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

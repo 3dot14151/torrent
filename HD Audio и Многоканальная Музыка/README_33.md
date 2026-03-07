@@ -1,3 +1,177 @@
+###  Публикация: 1159161   (481624) от 21.08.2017
+
+VA - Робинзон - Леонид Дербенёв (1985) [DSD2.0|5,64MHz/1bit|image+.cue|Vinyl-Rip] <Pop, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_481624.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Михаил Боярский - Робинзон [3:21]
+02. Алла Пугачева - Белая дверь [4:46]
+03. Михаил Боярский - Сяду в скорый поезд [2:40]
+04. ВИА Здравствуй, песня - Акселераты [3:12](   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:36:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC29A3F97A34A309CF555D9E7A95CE0C6502A23B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1159305   (479937) от 22.08.2017
+
+Кристина - Октябрьский Вечер (1989) [DSD2.0|5,64MHz/1bit|image+.cue|Tape-Rip] <Pop, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_479937.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интро-1 (0:58)
+02. Кристина (3:53)
+03. Мой Дождь (4:40)
+04. С Января до Января (5:26)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:31:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:992FC651038C8FE9812A2A290D85E65FE6748AF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1159319   (479756) от 22.08.2017
+
+Мираж - Снова Вместе (катушка 2) (1989) [DSD2.0|5,64MHz/1bit|image+.cue|Tape-Rip] <Pop, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_479756.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Млечный путь [4:28]
+02. Где я [4:40]
+03. Море грёз [4:33]
+04. Я не шучу [3:15](   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB1058C3984588CB492182A6CD51B6072CF00B76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1159174   (479753) от 22.08.2017
+
+Ласковый Май - 1 альбом "Оренбург" (AKAI) (1988) [DSD2.0|5,64MHz/1bit|image+.cue|Tape-Rip] <Pop, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_479753.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Белые розы (05:28)
+02. Я откровенен лишь с луной (03:46)
+03. Лето (03:40)
+04. Пусть будет ночь (05:41)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:46:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12799DA28FC820189063311F0B8381AFDD1EAB8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244874   (477957) от 03.09.2018
+
+Supertramp - Even In The Quietest Moments... (1977) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_477957.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Give A Little Bit (4:08)
+A2. Lover Boy (6:51)
+A3. Even In The Quietest Moments (6:27)
+A4. Downstream (4:01)(   Читать дальше...   )Производство: A&M Records - 28 600 XOTЖанр: Progressive RockПродолжительность: 00:43:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:949B5744F6B1DA7280E69124992821AD7D5DD7E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244958   (477742) от 03.09.2018
+
+Enigma - A Posteriori (Limited Edition, Remastered, Pink Translucent) (2018) [FLAC 2.0 24/192|image + .cue|Vinyl-Rip] <Downtempo, New Age, Ambient>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_477742.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Eppur Si Muove
+A2 Feel Me Heaven
+A3 Dreaming Of Andromeda
+A4 Dancing With Mephisto(   Читать дальше...   )Жанр: Downtempo, New Age, AmbientПродолжительность: 00:53:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BB584EFF790C75FB825833C2AB40830F3825BC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1244921   (477738) от 03.09.2018
 
 Enigma - The Cross Of Changes (Limited Edition, Remastered, Yellow Translucent) (2018) [FLAC 2.0 24/192|image + .cue|Vinyl-Rip] <New Age, Downtempo, Ambient>
@@ -570,175 +744,6 @@ A4 Weird Of Hermiston(   Читать дальше...   )Жанр: Art Rock, Pro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:031AC6E8CA59882F1C8ED132CF6C5FF5BACC5B91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568303   (461945) от 08.08.2022
-
-Unisonic (Helloween, Gamma Ray, Iron Savior) - Studio Albums (2012 - 2014) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Melodic Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461945.jpg" />
-</div>
-
-
-###  Подробнее
-
-Unisonic — немецкая метал-супергруппа, образованная в 2009 году экс-вокалистом группы Helloween Михаэлем Киске вместе с Деннисом Уордом и Костой Зафирио из группы Pink Cream 69 и Мэнди Майером из группы Gotthard. В 2011 году к группе присоединяется сооснователь Helloween и лидер Gamma Ray, Кай Хансен.2012 - Unisonic
-2014 - Light of DawnЖанр: Melodic Heavy MetalПродолжительность: 02:01:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49434313FE80F9B7F217FC3C7CF1110FFFBF39C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059544   (461729) от 04.10.2016
-
-VA - Hits Of BBC And Alaska Records 1 & 2 (1977) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Funk,  Europop, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461729.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Funk,  Europop, DiscoПродолжительность: 01:19:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B78BC52F3E8C73FC99C4F6238D2A72A9E6DCA86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059501   (461549) от 04.10.2016
-
-Car-Man (Кар-Мэн) - Кармания (Carmania) (1992) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Hip-House, Europop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad Russians
-02. В Багдаде всё спокойно
-03. Бомбей буги
-04. Coribian Girl(   Читать дальше...   )Жанр: Hip-House, EuropopПродолжительность: 00:41:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE146ED843CC42F0767552426FD7ACAE57B11BCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059526   (461534) от 04.10.2016
-
-Savage - Tonight (1984) Ultimate Edition, Remastered, 2014, Мирумир [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Italo-Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461534.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Radio (6:01)
-A2. A Love Again (5:26)
-A3. Fugitive (5:00)
-A4. Tonight (3:40)(   Читать дальше...   )Производство: Мирумир - MIR 100715Жанр: Italo-DiscoПродолжительность: 00:47:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E200C30D544F3F807D2EDBB1474285307C00418B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162167   (461335) от 31.08.2017
-
-Barclay James Harvest - XII (1978) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461335.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Fantasy: Loving Is Easy (4:04)
-A2. Berlin (4:56)
-A3. Classics: A Tale Of Two Sixties (3:35)
-A4. Turning In Circles (3:32)(   Читать дальше...   )Производство: Polydor - POLD 5006Жанр: Progressive RockПродолжительность: 00:48:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13DFB3F1B800C00EBC337220436272A56DFF494D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162027   (458746) от 01.09.2017
-
-Мираж - Звёзды нас ждут (1987) [DSD2.0 (DFF)|5,64MHz/1bit|image+.cue|Tape-Rip] <Pop, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458746.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Звёзды нас ждут (06:18)
-02. Видео (04:29)
-03. Электричество (04:30)
-04. Безумный мир (04:02)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:44:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:119B0A483678636826F666896191C10049CE198E
 ```
 
 https://mybot314.ru/tekegram_catalog/

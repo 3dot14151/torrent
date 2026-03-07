@@ -1,3 +1,38 @@
+###  Публикация: 517350   (647280) от 01.07.2012
+
+Mirusia - Always and Forever (2010) [FLAC|Lossless]<Classical>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647280.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Schubert: Ave Maria   [04:45]
+02. R. M. Sherman, R. B. Sherman: Feed the birds (from Mary Poppins) [02:57]
+03. F. Pascal: Botany Bay [04:05]
+04. Saint-Preux: Concerto pour une voix [03:37]
+05. Grieg: Solveig's Song (from Peer Gynt) [04:03]
+06. Mozart: Porgi Amor (from Le Nozze di Figaro) [04:30]
+07. G. B. Martini: Plaisir d'amour (duet met Monarcha Carmen) [04:32]
+08. Franck: Panis Angelicus [04:13]
+09. F. Schröder: Dancing through the skies [03:14]
+10. A.L. Webber: Memory (from Cats) [03:54](   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:56:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA435659C4A7F950949878D196D2BCF9219D9BC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1032799   (643453) от 08.07.2016
 
 VA - Dark Side Of The Classical Music (2011) Box Set, 3CD [FLAC|Lossless|tracks + .cue] <Classical>
@@ -745,36 +780,6 @@ Peter Szuts, Alfredo Bernardini, Paolo Grazzi, Concerto Armonico - Tomaso Albino
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB2EAAB96617706F28A23B26EAFE85E4CC1ABB51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523107   (618536) от 15.07.2012
-
-Antonio Vivaldi - Shades of Red - Concertos & Sonatas for Recoder & Strings - Matthias Maute, Rebel / Jorg-Michel Schwarz (2005) [FLAC|Lossless]<Classical, Chamber Music,  Concert, Symph ...
-
->>Классика
->>Концерты (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618536.jpg" />
-</div>
-
-
-###  Подробнее
-
-Piccolo (Flautino) Concerto, for piccolo (or recorder/flute), strings & continuo in C major, RV 443
-01. Allegro    (03:28)
-02. Cadenza    (01:07)
-03. Largo    (02:59)
-04. Allegro molto (02:49)Жанр: Classical, Chamber Music,  Concert, Symphonies, Sonatas, Trio-sonatasПродолжительность: 01:05:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE4D36B8049DA231F1BFC4683D844F5E28D053B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

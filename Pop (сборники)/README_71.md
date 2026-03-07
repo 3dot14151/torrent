@@ -1,3 +1,61 @@
+###  Публикация: 1046711   (549247) от 30.08.2016
+
+VA - Танцевальный ритм - 8 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_549247.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Настасия - Если Мы С Тобой
+002. North Base Feat. Mica - Give You Up
+003. Prospektr - Окна
+004. Cheat Codes & Kriss Kross Amsterdam - Sex(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A3AC3FEFEDC6BB73E5DDB2CEFA95F7A516D7A5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047539   (549023) от 30.08.2016
+
+ABBA - DMC Classic Mixes I Love ABBA Volume 1 (2016) [MP3|320 Kbps] <Pop, Disco, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_549023.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mamma Mia (vs Does Your Mother Know)  5:07
+02. Gimme Gimme Gimme (DMC International English-Spanish Mix)  4:07
+03. Dancing Queen (DMC International English-Spanish Mix)  4:07
+04. Knowing Me Knowing You (DMC International English-Spanish Mix)  3:59(   Читать дальше...   )Жанр: Pop, Disco, DanceПродолжительность: 01:18:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86F3F3CC82B556CA06CC4DDD2C417FC18C2EBA29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 693612   (548526) от 27.08.2013
 
 VA - The Official UK Top 40 Singles Chart (25-08-2013) [MP3|320 кб/с]<Pop, Dance, Club, Rock, R&B, Trance, House, Other>
@@ -706,70 +764,6 @@ VA - Your Songs: The All Summertime Greatest Hits (2018) [MP3|320 Kbps] <Pop, Da
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:622FC31DE6A3C5982AC71F4DBBE6268CD8115451
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239234   (540352) от 04.08.2018
-
-VA - ЕвроХит Топ 40 Europa Plus 03.08.2018 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Clean Bandit feat. Demi Lovato - Solo 3:41
-02. David Guetta feat. Sia - Flames 3:15
-03. Alvaro Soler - La Cintura 3:25
-04. Jax Jones feat. Ina Wroldsen - Breathe 3:28(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:18:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AFC9CDD2136500C2DE62001877C1134ABB86242
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 531887   (540305) от 06.08.2012
-
-VA - Золотой Шлягер (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540305.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Вадим Казаченко - Я Буду Любить Тебя
- 002. Жасмин - Можно
- 003. Митя Фомин - Садовник (Radio Edit)
- 004. Катя Лель - Не Могу Забыть
- 005. Филипп Киркоров - Мне Не Жаль Тебя
- 006. Диана Гурцкая - В Этом Городе
- 007. Потап И Настя Каменских - Не Хватило Воздуха
- 008. Николай Басков И Валерия - Сохранив Любовь
- 009. Макс Барских - Замок Из Дождя
- 010. Xs - Вооружена И Опасна(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E1D12FAD429B94096CE8C0F306AE1D75C67544F
 ```
 
 https://mybot314.ru/tekegram_catalog/

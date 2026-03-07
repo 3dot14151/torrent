@@ -1,3 +1,32 @@
+###  Публикация: 1109311   (859007) от 27.02.2017
+
+E.S. Posthumus - Unearthed (2001) [FLAC|Lossless|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_859007.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Antissa
+02. Tikal
+03. Harappa
+04. Ulaid(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:58:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F479CB6BCEFDF9387459139DDBC843AE63645C86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1000377   (858865) от 25.03.2016
 
 Floex (Tomas Dvorak) - Samorost 3 (2016) [FLAC|Lossless|WEB-DL] <Soundtrack, Downtempo, Jazz, Ambient>
@@ -734,35 +763,6 @@ Nicholas Gunn - Thirty - One Nights (2012) [FLAC|Lossless|tracks] <Brass & Milit
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8AF345B827B00440BF4974F4DD912CB00C832D0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110808   (850242) от 04.03.2017
-
-Marco Beltrami - Logan / Логан (Original Motion Picture Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Main Titles (02:21)
-02. Laura (02:25)
-03. The Grim Reavers (01:33)
-04. Old Man Logan (02:45)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 0:00:57:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9AC3A8882CD4C7E38861FAF594F4D93DDF4C962
 ```
 
 https://mybot314.ru/tekegram_catalog/

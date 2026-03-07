@@ -1,3 +1,32 @@
+###  Публикация: 1813458   (6925) от 19.08.2025
+
+Сергей Мазаев & Моральный Кодекс - Compilation (1991-2025) [MP3|320 Kbps] <Pop rock, Jazz rock, Blues rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_6925.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. До Свидания, Мама ! (Сотрясение Мозга | 1991)
+02. Где Ты (Где Ты | 2008)
+03. В Ожидании Чуда (Славянские Танцы | 2007)
+04. Реки и Горы (Хорошие Новости | 2001)(   Читать дальше...   )Жанр: Pop rock, Jazz rock, Blues rockПродолжительность: 06:59:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA6413FCCED78F05AB0DB90B848D000C79526CC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1813666   (6785) от 20.08.2025
 
 David Lee Roth - Voice Of Rock - Compilation (1985-2023) [MP3|320 Kbps] <Hard rock, Glam metal, Blues rock>

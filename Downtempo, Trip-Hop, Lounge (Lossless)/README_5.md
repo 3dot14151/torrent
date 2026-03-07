@@ -1,3 +1,32 @@
+###  Публикация: 1487535   (1003618) от 05.08.2021
+
+VA - Amberdelic Space (1996) Dressed To Kill [FLAC|Lossless|tracks+.cue] <Downtempo, Acid, Broken Beat, Techno, Ambient, Breaks>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003618.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Surge - 4.27 Ambience (10110111) (09:38)
+ 02. Drum Club - The Illuminated (03:05)
+ 03. Sensurreal - Confidential Suite (12:54)
+ 04. Nev - Simulated Wood (06:22)(   Читать дальше...   )Тип издания: CDЖанр: Downtempo, Acid, Broken Beat, Techno, Ambient, Breaks •Продолжительность: 04:59:02 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42282225CC29C6A2FE0CCC709E690DC05377C06A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1487418   (1003617) от 05.08.2021
 
 VA - Lavender in Summer: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -728,35 +757,6 @@ Portico - Living Fields (2015) Ninja Tune [FLAC|Lossless|WEB-DL|tracks] <Downtem
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A27870513949B1202C6711044B0C4B0E428259D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987405   (922723) от 19.02.2016
-
-Trademarks & Copyrights - Marble Girls (2016) [FLAC|Lossless|WEB-DL|tracks] <Vaporwave, Chillout, Lounge>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922723.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marble Girls (5:47)
-02. 正当な (1:41)
-03. Together Tonight (2:23)
-04. キス (2:01)(   Читать дальше...   )Жанр: Vaporwave, Chillout, LoungeПродолжительность: 00:34:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:338ABD6FB423DBBCF433EDA870C5BE0079239E1C
 ```
 
 https://mybot314.ru/tekegram_catalog/

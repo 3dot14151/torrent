@@ -1,3 +1,90 @@
+###  Публикация: 1684500   (127565) от 16.12.2023
+
+VA - Interplay 2023 (Selected By Alexander Popov) - Extended Versions (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_127565.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DaWTone - I Still Want More (Extended Mix) [4:14]
+02. ANASTASiiA - Swan (Extended Mix) [6:36]
+03. Alexander Popov & Fedo - Lost In Space (Extended Mix) [4:25]
+04. Alexander Popov & Chester Young & Whiteout - Overtaking (VIP Extended Mix) [3:56](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 03:13:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0761F6D6FD6C0B33E95AEFAB3EF2E9133D0A6DCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685009   (127219) от 18.12.2023
+
+VA - The Best Of Full On 140 Records 2023 [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_127219.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SMR LVE - Never Say Goodbye (Extended Mix) [5:43]
+02. James Dust - Be The Same (Extended Mix) [6:33]
+03. Spy & Dave Steward - Reflection (Extended Mix) [6:33]
+04. PITTARIUS CODE & Remeya Kingston - Forever (Extended Mix) [5:27](   Читать дальше...   )Жанр: TranceПродолжительность: 01:34:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BECDA3BD1C4D1B5B9F36DA1E306C0AAE8951E481
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684973   (127208) от 18.12.2023
+
+VA - The Best Of Trancemission 2023 [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_127208.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hypersia - Revolution (Extended Mix) [4:56]
+02. Sergey Salekhov & Andrew Mirt - Everest (Extended Mix) [7:05]
+03. ILYIN - All About You (Extended Mix) [6:23]
+04. Anton Pallmer - Intentions (Extended Mix) [7:01](   Читать дальше...   )Жанр: TranceПродолжительность: 01:54:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BA2BED612CB7640009E668903FE43DF1F2739E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1685856   (126899) от 20.12.2023
 
 VA - The Best Of Aerodynamica Music Group 2023 [MP3|320 Kbps] <Uplifting Trance>
@@ -658,93 +745,6 @@ VA - A State of Trance - Classics Top 10, Vol. 9 (2025) [MP3|320 Kbps] <Trance, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB3D962F4071AD6B5E48EC8FD8F0D0438C7D033A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694047   (121314) от 23.01.2024
-
-Armin van Buuren - Breathe In - Extended Versions (2024) [MP3|320 Kbps] <Trance, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121314.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin Van Buuren & Goodboys - Forever (Stay Like This) (Extended Mix) (04:11)
-02. Armin Van Buuren & Xoro Feat Yola - God Is In The Soundwaves (Extended Mix) (03:35)
-03. Armin Van Buuren Feat Anne Gudrun - Love Is A Drug (Extended Mix) (05:22)
-04. Armin Van Buuren - Lose This Feeling (Extended Mix) (04:09)(   Читать дальше...   )Жанр: Trance, ElectronicПродолжительность: 01:00:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:395ABC2999BE075A652062752501B7BEF2BAD21B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694344   (121119) от 24.01.2024
-
-VA - Redux Selection Vol. 2 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121119.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul Courbet - Left Alone (Extended Mix) [6:42]
-02. Mark Hide - Close To The Stars (Extended Mix) [7:47]
-03. AREO - Passion (Extended Mix) [7:48]
-04. Erik D & Katty Heath - Love Again (Extended Mix) [6:35](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:23:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD1908B2722E6C91D2C5CFCE12DDA880593F1699
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694277   (121109) от 24.01.2024
-
-VA - Melodically Trance 02 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121109.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alpha Frequency - Northern Lights (Atmospherika Remix) [6:51]
-02. Adam Sein - Winter Tales (Mind Of One Remix) [5:12]
-03. Virgil Hill & Tudor Wolf - Constanta (ReLoaded Mix 2021) [7:02]
-04. The Husky - Loba (Mark Digital Remix) [5:48](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:08:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FAFB709E43153DE25F13F21029C837D3A211536
 ```
 
 https://mybot314.ru/tekegram_catalog/

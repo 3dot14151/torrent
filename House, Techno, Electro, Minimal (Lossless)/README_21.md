@@ -1,3 +1,119 @@
+###  Публикация: 1123483   (786389) от 08.04.2017
+
+Martin Buttrich - Collaborator Vol.1 (2017) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep Tech, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786389.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Martin Buttrich & DJ Tennis - Perpetual (Original Mix) [12:49]
+02. Martin Buttrich & Ramon Tapia - Evita (Original Mix) [08:36]
+03. Martin Buttrich, Timo Maas - Nach Acht [03:29]
+04. Martin Buttrich, Loco Dice - Damn U Made It [03:26](   Читать дальше...   )Жанр: Tech House, Deep Tech, MinimalПродолжительность: 02:36:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:990E5DD6E1E06314BF652CEB288A662F02217962
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124817   (785582) от 12.04.2017
+
+VA - Live in Brooklyn Output NYC (Mixed by John Digweed) (2017) [FLAC|Lossless|WEB|tracks|image] <Progressive House, Deep House, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. John Digweed - Live in Brooklyn Output NYC (Continuous Dj Mix 1) (70:13)
+02. John Digweed - Live in Brooklyn Output NYC (Continuous Dj Mix 2) (77:23)
+03. John Digweed - Live in Brooklyn Output NYC (Continuous Dj Mix 3) (77:12)
+04. John Digweed - Live in Brooklyn Output NYC (Continuous Dj Mix 4) (69:25)(   Читать дальше...   )Жанр: Progressive House, Deep House, TechnoПродолжительность: 12:53:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34920BD4F09DE76B05BAF961498EB68BDF2945B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204128   (785467) от 04.02.2018
+
+Occer - Imperfect (2017) Zenon Records [FLAC|Lossless|WEB-DL|tracks] <Techno, Psy-Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785467.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Affection (06:22)
+02. Imperfect (06:05)
+03. Nefario (06:21)
+04. Tumult (06:31)Жанр: Techno, Psy-TranceПродолжительность: 00:25:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08F071207FF8593B7FFA146CA557B7C9712A5EC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277307   (785457) от 20.01.2019
+
+MRUKS - Deja VU Vol. 2 (2018) [FLAC|Lossless|WEB-DL|tracks] <Funky, Club House, Retrowave>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785457.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MRUKS - UH
+02. MRUKS - FOX
+03. MRUKS - Tempore
+04. MRUKS - Ancient People(   Читать дальше...   )Жанр: Funky, Club House, RetrowaveПродолжительность: 00:39:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45182DC63AD509EB52BF8DD33E55946799F1CFDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1203899   (785386) от 04.02.2018
 
 VA - Deep House | Odyssey, Vol. 2 (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
@@ -629,122 +745,6 @@ Tell - August EP (2014) House Running [FLAC|Lossless|WEB-DL|tracks] <Deep House,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7458B5B073E8B531E27DB1B708A28E1C69E41CBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205843   (783222) от 11.02.2018
-
-VA - Clinique: The Best Of 2017 (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech House, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783222.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Platunoff - Give Me (Solid Stone remix) (7:17)
-02. Dr Alfred - Kuiper Belt (original mix) (9:47)
-03. Monojoke - The Garden Of Eden (Dofamine remix) (9:32)
-04. Monojoke - La Bodega (Tim Aaron remix) (12:41)(   Читать дальше...   )Жанр: Progressive House, Tech House, Deep HouseПродолжительность: 09:49:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F06CAB83C94007AEAC080D5899E8641EFC98A72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205552   (782983) от 12.02.2018
-
-VA - A Taste Of Kandi Winter (2010) [FLAC|Lossless|tracks] <House, Disco, Electro>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782983.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.DJ Neo - Groove With You (feat Soraya Vivian - Soulgangsters Groove dub) (6:33)
-02.Jonni Black - I'm Over This (feat Lauren Rose) (7:18)
-03.Steven Quarre & Morris Mavado - The Reason (feat Stanford) (7:01)
-04.Sosua & Mad - Supaconstellation (7:32)(   Читать дальше...   )Жанр: House, Disco, ElectroПродолжительность: 02:55:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C4F7169F015BB80AAD231B042EB3E1CA9E53A18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205544   (782982) от 12.02.2018
-
-VA - Hed Kandi (A Taste Of Kandi Summer 2009) (2009) [FLAC|Lossless|tracks] <Progressive House, House, Electro>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Warren Clarke & Tara McDonald - Love Crazy (Triple D remix) (6:59)
-02.Disco International - Ready 4 More (feat Miss Lynsey) (5:06)
-03.No Halo - What Is This Feeling (7:43)
-04.Wawa & Herd - The Right Way (feat Amanda Wilson - Triple D remix) (6:39)(   Читать дальше...   )Жанр: Progressive House, House, ElectroПродолжительность: 02:55:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1FC94836FD04633B0C66997E25B353F6EF304C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206024   (782914) от 12.02.2018
-
-Don Diablo - Future (2018) [FLAC|Lossless|WEB-DL|tracks] <Funky, Club House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782914.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back to Us (feat. Mike Waters) (03:00)
-02. Everybody's Somebody (feat. Bully Songs) (03:18)
-03. Put It On For Me (feat. Nina Nesbitt) (03:23)
-04. Give Me Love (feat. Calum Scott) (03:28)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:55:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4C5CA7D139D61D588E260F8FB2880A6BE44BD4F
 ```
 
 https://mybot314.ru/tekegram_catalog/

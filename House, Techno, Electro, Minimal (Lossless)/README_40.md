@@ -1,3 +1,119 @@
+###  Публикация: 932182   (509089) от 29.08.2015
+
+VA - 538 Dance Smash 2015 Vol.3 (2015) [FLAC|Lossless]<House, Electro, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_509089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Felix Jaehn feat. Jasmine Thompson - Ain't Nobody
+ 02. Martin Garrix vs. Matisse & Sadko - Break Through The Silence
+ 03. Sam Feldt - Show Me Love (EDZ's Indian Summer Remix)
+ 04. Axwell ^ Ingrosso - Sun Is Shining(   Читать дальше...   )Жанр: House, Electro, DanceПродолжительность: 01:16:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2EECCB95FFE93E853B1D005E4967717487C601E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1316013   (508832) от 23.07.2019
+
+VA - Five Years Of Annulled (2019) Annulled Music [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_508832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. BLNDR - Fluid System (06:03)
+ 02. Underjack - Teuthida (08:28)
+ 03. Hydrangea - Lines (05:46)
+ 04. Von Grall - Falling Bodies (07:12)(   Читать дальше...   )Жанр: Techno, AmbientПродолжительность: 01:53:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5B73D244E41D00E74D7ACD06B080197F357848E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1316522   (505975) от 26.07.2019
+
+Pantha Du Prince - Diamond Daze (2003) [FLAC|Lossless|tracks + .cue] <Tech House, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_505975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Suzan (08:03)
+02. St.Denis Bei Licht  (06:16)
+03. The Right For Romance (06:00)
+04. Satin Drone (06:00)(   Читать дальше...   )Жанр: Tech House, MinimalПродолжительность: 01:06:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08249BBAA10129AD090C83248F2FF2EC0439D96D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1316450   (505974) от 26.07.2019
+
+Raz Ohara And The Odd Orchestra - Kisses (2008) EP [FLAC|Lossless|WEB-DL|tracks] <Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_505974.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kisses (Over Temperature Vocal Mix)
+02. Kisses (Over Temperature Instrumental Mix)
+03. Kisses (Pantha Du Prince Remix)
+04. KissesЖанр: Tech HouseПродолжительность: 00:24:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:296C33E2358E7C02C88251E41AF3544FF0BA02C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1316707   (505219) от 27.07.2019
 
 Sam KDC - Omen Rising (2019) Horo [FLAC|Lossless|WEB-DL|tracks] <Techno, Experimental>
@@ -628,119 +744,6 @@ Malik Djoudi - Remixes (2020) EP [FLAC|Lossless|WEB-DL|tracks] <EDM, Electro Hou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BFF9983AA92BB17E90EBDD4D2FD49B8B414A4E16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244210   (483950) от 31.08.2018
-
-VA - Deep & Melodic Techno #03 - Best of 5 Years (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep Techno, Tech House, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483950.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daniel Harris – Let Down (06:55)
-02. DJ Andrew Force – Element (06:29)
-03. Dr. Pause T – Ouh !!! Yeah !!! (08:32)
-04. Alex ll Martinenko – Follow My Mind (09:30)(   Читать дальше...   )Жанр: Deep Techno, Tech House, MinimalПродолжительность: 05:18:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1768D47711282CF406B44A64FF7C51DCAA02222C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 545769   (482901) от 11.09.2012
-
-VA - Hamburg Elektronisch Vol 1-2: Von House Zu House (2011-2012) [FLAC|Lossless]<Tech House, Deep House, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482901.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Tech House, Deep House, TechnoПродолжительность: 02:45:05
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244392   (482171) от 01.09.2018
-
-Arnaud Rebotini - Flowers For Algernon (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482171.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flowers For Algernon  (6:35)
- 02. Jacob's Cycle  (6:55)
- 03. My 909  (6:27)
- 04. The Great Frog  (7:06)(   Читать дальше...   )Жанр: TechnoПродолжительность: 00:32:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60B542C5A1B2ECDFA202C13053CC144BD8E0E17F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160153   (478204) от 23.08.2017
-
-Roderic - Perfect Mirror Remix (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478204.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Midnight Sorrow (Dirty Doering remix) (6:20)
- 02. Slowly (Christopher Schwarzwalder remix) (7:43)
- 03. Kissing Into Each Other (Ante Perry remix) (6:48)
- 04. No Name (Franz Alice Stern Latenight mix) (5:17)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 00:33:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:941BAF5675683175040E10FF2FAB4792C5FCF5A9
 ```
 
 https://mybot314.ru/tekegram_catalog/

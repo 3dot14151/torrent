@@ -1,3 +1,32 @@
+###  Публикация: 1170076   (401425) от 29.09.2017
+
+UFO - Salentino Cuts (2017) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_401425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heartful Of Soul
+02. Break On Through (To The Other Side)
+03. River Of Deceit
+04. The Pusher(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5462B383BA8EF2433C7C9048CCB468AA026AE2DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1170173   (400382) от 30.09.2017
 
 The Sweet - Grand collection (1997) [MP3|320 Kbps] <Hard rock, Glam rock>
@@ -737,35 +766,6 @@ Berwanger - Exorcism Rock (2016) [MP3|320 Kbps] <Melodic Hard Rock, Garage Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B81AAE208D586DCE12B02A5696A04BEED1025E1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068579   (368792) от 06.11.2016
-
-Killer Bee - Eye in the Sky (2016) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368792.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eye in the Sky 05:23
-02. Shout It Out 02:40
-03. One Step Closer 04:22
-04. Higher and Higher 04:24(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1EEEC2A401636E831511ECE3E557C8EDFE26B09
 ```
 
 https://mybot314.ru/tekegram_catalog/

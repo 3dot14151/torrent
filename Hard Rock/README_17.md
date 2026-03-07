@@ -1,3 +1,32 @@
+###  Публикация: 817968   (542941) от 02.09.2014
+
+Phil Rudd (AC/DC) - Head Job (2014) [MP3|320 кб/с]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Head Job (3:33)
+02. Sun Goes Down (2:48)
+03. Lonely Child (4:01)
+04. Lost In America (3:40)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB337377DBB42E61C7F47D41954469C2247DE7ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 790079   (541214) от 06.08.2015
 
 Joshua - Surrender (1985) [MP3|320 кб/с]<Melodic Hard Rock>
@@ -725,35 +754,6 @@ Stranded - New Dawn (2019) [MP3|320 Kbps] <Melodic Hard Rock, AOR>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20D20306273E51BD7F1B59875C695E473FDE9067
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932073   (510192) от 28.08.2015
-
-Backyard Babies - Four By Four (2015) [MP3|320 кб/с]<Hard Rock, Glam Punk>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510192.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Th1rt3en Or Nothing
-02. I'm On My Way To Save Your Rock 'N' Roll
-03. White Light District
-04. Bloody Tears(   Читать дальше...   )Жанр: Hard Rock, Glam PunkПродолжительность: 00:33:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78151EEEC2C795D67520C1C60205B84D8B0F18CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1109973   (854965) от 01.03.2017
+
+Проекты - VideoHive - Fire Vortex Logo - 19438036 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_854965.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания демонстрации логотипа.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7311AEFE39607E9F92A76C92C391F76863EF61C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001282   (853630) от 28.03.2016
+
+Проекты - VideoHive - Pack of Hand Logo - 8585073 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853630.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания логотипа. Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97FA90124F28CE39A29CAA0328C6570C953AB444
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1110647   (851520) от 03.03.2017
 
 Проекты - VideoHive - Quick Logo Reveal Pack 2 - 19483447 [AEP]
@@ -624,58 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B77EF31B0AA279264CD3C0A05E72EFBFD62B8567
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004540   (836544) от 07.04.2016
-
-Проекты - Motion Array - Flame Logo  [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836544.jpg" />
-</div>
-
-
-###  Подробнее
-
-Flame Logo - еще один вариант эффектного огненного показа вашего логотипа.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B37D186D523D17042EAF9D1F7FBF1D12F91EDBC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113950   (834536) от 13.03.2017
-
-Проекты - VideoHive - Quick Logo Reveal Pack V4 - 10399896 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834536.jpg" />
-</div>
-
-
-###  Подробнее
-
-Quick Logo Reveal Pack V4 - 72 специальных анимации логотипа для презентации вашего проекта, компании или бизнеса. 4 категории, каждая с 18 анимациями, которые очень просты в использовании.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38295CF90161314072E012300F93AF9690137ACC
 ```
 
 https://mybot314.ru/tekegram_catalog/

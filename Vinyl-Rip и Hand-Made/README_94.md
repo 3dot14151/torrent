@@ -1,3 +1,172 @@
+###  Публикация: 1580496   (40372) от 14.10.2024
+
+Death Angel - Studio Albums (11 releases) (1987-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40372.jpg" />
+</div>
+
+
+###  Подробнее
+
+Death Angel — филиппино-американская трэш-метал-группа из города Конкорд, штат Калифорния, образованная в 1982 году.1987 - The Ultra-Violence
+1988 - Frolic Through The Park
+1990 - Act III
+2004 - The Art Of DyingЖанр: Thrash MetalПродолжительность: 08:58:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D1738461AB73FF03163965EB876B1CA5658BE31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755241   (40357) от 14.10.2024
+
+Cruachan - Studio Albums (9 releases) (1995-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Celtic Folk/Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40357.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cruachan — ирландская группа, играющая в стиле фолк-метал. Cruachan смешивают кельтскую музыку, историю и мифологию с блэк-металом, влияние которого на творчество группы со временем уменьшается.1995 - Tuatha Na Gael
+2000 - The Middle Kingdom
+2002 - Folk-Lore
+2004 - PaganЖанр: Celtic Folk/Black MetalПродолжительность: 08:19:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:173BDC202A5DE1D15C1786156ED818C689174950
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755378   (40284) от 15.10.2024
+
+Вячеслав Добрынин - Браво, Маэстро! I+II (1997) [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop, Chanson, Schlager>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40284.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, Chanson, SchlagerПродолжительность: 02:03:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0480D3E1AC726DEC83377099979E6C7997A12DD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755429   (40265) от 15.10.2024
+
+Nocturna (Italy) - Studio Albums (2 releases) (2022-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40265.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nocturna - симфо-метал группа из Италии с женским вокалом.2022 - Daughters Of The Night
+2024 - Of Sorcery And DarknessЖанр: Symphonic Power MetalПродолжительность: 01:16:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE87BD46A3D347C12CD20DECBB08D3420B03F091
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522707   (40116) от 17.10.2024
+
+Mylene Farmer - Studio Albums (19 releases) (1986-2024) hand made [restored, declipped] [FLAC|16/44.1|tracks +.cue] <French Pop, Dance, Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40116.jpg" />
+</div>
+
+
+###  Подробнее
+
+Милен Жанна Готье (фр. Mylène Jeanne Gautier), профессионально известная как Милен Фармер (Mylène Farmer), французская певица, композитор, актриса и поэтесса канадского происхождения.1986 - Cendres de lune
+1988 - Ainsi soit je
+1991 - L'autre
+1995 - AnamorphoseeЖанр: French Pop, Dance, ElectronicПродолжительность: 25:14:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD270D99E137BE6EF9BE745E37B5BA8A350F1808
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755693   (40054) от 17.10.2024
+
+Сергей Беликов - Вечерний Звонок (1997) [FLAC 2.0|48/24|image +.cue|MC-Rip] <Ballad, Schlager>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40054.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1:
+01. Вечерний Звонок
+02. Возвращение
+03. Подари Мне Свой Взгляд(   Читать дальше...   )Жанр: Ballad, SchlagerПродолжительность: 00:47:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F04C0C9B805E13C53449FD475EA39ABB7EBEC5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1637597   (39975) от 18.10.2024
 
 Kamelot - Studio Albums (13 releases) (1995-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive/Melodic Power Metal>
@@ -566,183 +735,6 @@ Vision Divine — итальянская пауэр-метал-группа, о�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C2A7313DF0C0AD47EB459EECD38503B0A76631F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758818   (38277) от 04.11.2024
-
-NonExist - Studio Albums (4 releases) (2002-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Thrash/Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38277.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nonexist — шведская мелодик-дэт/трэш-метал группа, созданная бывшим вокалистом Arch Enemy Йоханом Лиивой в феврале 2000 года.2002 - Deus Deceptor
-2012 - From My Cold Dead Hands
-2015 - Throne of Scars
-2020 - Like The Fearless Hunter(   Читать дальше...   )Жанр: Melodic Death/Thrash MetalПродолжительность: 03:06:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDC85D1A1E11A4EE9A9CDD983F2279786F8BC1D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519857   (38256) от 05.11.2024
-
-Motley Crue - Studio Albums (10 releases) (1981-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] < Heavy/Glam Metal, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38256.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mötley Crüe — американская глэм-метал группа, основанная в Лос-Анджелесе в 1981 году.
-Группа была создана бас-гитаристом Никки Сиксом и барабанщиком Томми Ли, к которым впоследствии присоединились гитарист Мик Марс и вокалист Винс Нил.1981 - Too Fast for Love
-1983 - Shout At The Devil
-1985 - Theatre Of Pain
-1987 - Girls, Girls, GirlsЖанр: Heavy/Glam Metal, Hard RockПродолжительность: 11:02:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E827EA74E336AE7B60CB4C0A69FF9E7B129D728C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668555   (38210) от 05.11.2024
-
-Withering Surface - Studio Albums (7 releases) (1997-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38210.jpg" />
-</div>
-
-
-###  Подробнее
-
-Withering Surface - Melodic Death Metal группа из Нестведа, Дания. Основана в 1993 году.1997 - Scarlett Silhouettes
-1998 - The Nude Ballet
-2001 - Walking on Phantom Ice
-2004 - Force The PaceЖанр: Melodic Death MetalПродолжительность: 04:52:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFF91E5458263DBA29058FFE0C03959E98A79C88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758901   (38192) от 05.11.2024
-
-Visions of Atlantis - Studio Albums (10 releases) (2002-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38192.jpg" />
-</div>
-
-
-###  Подробнее
-
-Visions of Atlantis — симфоник-метал и пауэр-метал-группа из Штирии, Австрия, основанная в 2000 году.
-Участники группы были вдохновлены симфо-пауэр-метал-группой Nightwish и легендой об Атлантиде2002 - Eternal Endless Infinity
-2004 - Cast Away
-2007 - Trinity
-2011 - DeltaЖанр: Symphonic Power MetalПродолжительность: 08:09:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C91DCD17B7A80D500872E1C81EB9305F1F3B513
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674502   (38187) от 05.11.2024
-
-Nightmare (France) - Studio Albums (10 releases) (2001-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38187.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nightmare - французская пауэр-метал группа из Гренобля, основана в 1979 году.2001 - Cosmovision
-2003 - Silent Room
-2005 - The Dominion Gate
-2007 - Genetic DisorderЖанр: Heavy/Power MetalПродолжительность: 09:21:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5A8A59EA31FFF7DF07ADCB267D11E1E33028810
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648817   (38123) от 06.11.2024
-
-Sonata Arctica - Studio Albums (16 releases) (1999-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38123.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sonata Arctica — пауэр-метал-группа из Кеми, Финляндия, действующая с 1999 года.
-Первоначально основанная в 1996 году как хард-рок-группа Tricky Beans (позже Tricky Means), группа остановилась на названии Sonata Arctica в 1999 году, поскольку их музыкальный стиль изменился на пауэр-метал, вдохновленный Stratovarius.1999 - Ecliptica
-2001 - Silence
-2003 - Winterheart's Guild
-2004 - Reckoning NightЖанр: Power MetalПродолжительность: 16:10:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:255B3A5253A42123A7784089EF934C2F28358006
 ```
 
 https://mybot314.ru/tekegram_catalog/

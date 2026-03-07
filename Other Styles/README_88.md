@@ -1,3 +1,32 @@
+###  Публикация: 919429   (584030) от 18.07.2015
+
+Marcus Viana - Pleiadian Connections (2015) [MP3|320 кб/с]<New Age, Instrumental, Meditation>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_584030.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Orion Calls
+02. No Tempo
+03. Pleione
+04. A Fonte das Estrelas(   Читать дальше...   )Жанр: New Age, Instrumental, MeditationПродолжительность: 00:59:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC8A15BC90C44DDF365129D6EBF5EC833AE0535A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 918961   (583968) от 18.07.2015
 
 Zhang Yi - Strings Of Love (2015) [FLAC|Lossless]<New Age>
@@ -710,35 +739,6 @@ Michael Forster - Piano Chill (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C26B3EEDBCB3C035718ED7CE181CB1B7D615A7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554452   (575764) от 31.05.2022
-
-Vartra - Basma (2022) [FLAC|Lossless|WEB-DL|tracks] <Dark Folk, Ethereal, Doom Metal>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575764.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Aina [00:05:54]
-02 - Jerovine [00:06:01]
-03 - Inanna [00:04:41]
-04 - Hajd u Kam [00:05:13](   Читать дальше...   )Жанр: Dark Folk, Ethereal, Doom MetalПродолжительность: 00:46:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB36687E5C7E950E8FC7DFE524A19C431B43A864
 ```
 
 https://mybot314.ru/tekegram_catalog/

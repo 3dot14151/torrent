@@ -1,3 +1,32 @@
+###  Публикация: 1079848   (291984) от 05.12.2016
+
+Крематорий - Live in Sexton (21.01.1993) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_291984.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Крематорий
+02. Лепрозорий
+03. Последний шанс
+04. Клубника со льдом(   Читать дальше...   )Жанр: RockПродолжительность: 01:12:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D4D31F7A5787B7C7007E57535DAB3ECEDCCC1D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1079472   (290158) от 06.12.2016
 
 Медвежья икра - Сборник (2010-2015) [MP3|128 Kbps] <Рок, фолк>
@@ -717,35 +746,6 @@ VA - Hard Rock Division Vol.02 (2017) [MP3|320 Kbps] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A87812E32A7B5163ACA42CE4AA1E39753171F116
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190992   (265845) от 11.12.2017
-
-VA - Heavy Metal Collections Vol. 2 (5CD) (2017) [MP3|320 Kbps] <Heavy, Power, Progressive Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265845.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-
-01.The Rods - Hurricane (1998) (4:45)
-02.Black Sabbath - Turn Up The Night (1996) (3:40)(   Читать дальше...   )Жанр: Heavy, Power, Progressive MetalПродолжительность: 05:07:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6044E3363C882FE9C5D22FD1335EAB6D8D57DF5E
 ```
 
 https://mybot314.ru/tekegram_catalog/

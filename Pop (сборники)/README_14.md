@@ -1,3 +1,61 @@
+###  Публикация: 1097261   (916051) от 26.01.2017
+
+VA - Снежный презент Выпуск № 2 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_916051.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Evan Rai - Лети На Солнце 3:03
+002. Solterov - Алтайский Экспресс 4:20
+003. Андрей Витвитский - Улетаю 3:40
+004. Dee Flack & Gen Ree - Рубежи 3:20(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E536F50F2E7FAF03FE215B27C19852DEB0F435D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097089   (916042) от 26.01.2017
+
+VA - Зимняя сотка хитовая. Версия № 3 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_916042.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Елена Есенина - Тамтамы 3:00
+002. Анастасия Царькова - Оригами 3:37
+003. Layah - Дети Неба 3:13
+004. Таша Белая - Море Пополам 2:57(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FDF585730C2689BB944178404FAAEF7EC6B3F3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1097086   (916026) от 26.01.2017
 
 VA - Зимний русский музобоз. Сборник № 4 (2017) [MP3|256 Kbps] <Pop>
@@ -699,61 +757,6 @@ VA - Дискотека 80-90 годов по - новому (Зарубежны
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F678CE7E06B521811C5A8720A0AB11599DBAD38F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 635428   (909441) от 26.03.2013
-
-VA - Now Thats What I Call Music 84 (2CD) (2013) [MP3|320 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909441.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Avicii & Nicky Romero - I Could Be the One (Nicktim Radio Edit)Жанр: Pop, DanceПродолжительность: 01:19:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33FBDB38C1B2ABAE8BEFB14951E9742E3151532E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098418   (908982) от 30.01.2017
-
-VA - German Top 40 DBC Deutsche Black Charts 27.01.(2017) [MP3|192-320 Kbps] <Hip-Hop, R&B>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908982.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Chris Brown feat. Usher & Gucci Mane - Party 5:02
-002. Busta Rhymes Ft. Swizz Beatz - Aaahhhh!!! 2:37
-003. Rae Sremmurd feat. Gucci Mane - Black Beatles 4:52
-004. DJ Katch feat. Hayley - Lights Out (Too Drunk) 3:19(   Читать дальше...   )Жанр: Hip-Hop, R&BПродолжительность: 02:20:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:672EF6215EA3D0285D71BDF32826923579FA0BC6
 ```
 
 https://mybot314.ru/tekegram_catalog/

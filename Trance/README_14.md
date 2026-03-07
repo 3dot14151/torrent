@@ -1,3 +1,90 @@
+###  Публикация: 1217470   (743481) от 04.04.2018
+
+VA - United Colors Of Trance Vol.11 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Earth Inc - Strong
+02. Vol Deeman - Fantasy
+03. Daniel Wanrooy & Marc Simz - Komaru
+04. Ryoji Takahashi & EpicFail feat. Amy K - Moments(   Читать дальше...   )Жанр: TranceПродолжительность: 02:42:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD47B86B589DBDF9FAE9A395DC5B471D2460CAA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217669   (742404) от 05.04.2018
+
+VA - Voice Of Suanda Vol.6 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_742404.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maria Milewska - Crystalized (Original Mix)
+02. Dennis Graft feat. Maria Milewska - Until (Extended Mix)
+03. Eranga feat. Maria Milewska - Up To You (Original Mix)
+04. NoMosk feat. Maria Milewska - Black Light (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:50:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D80D9AF5848CF1DAC1C97139C57A698F17CBD59B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1396934   (741341) от 19.07.2020
+
+VA - Black Hole Trance Music 07-20 (2020) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zara Taylor & Martin Graff - Falling (Extended Mix) 06:31
+02. Orkidea - That Feeling (Extended Mix) 07:13
+03. Craig Connelly & Siskin - All For Love (Extended Mix) 07:45
+04. Gordey Tsukanov - The Clutch (Extended Mix) 07:20(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:50:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:821EBC5652E2DC19DB9D0482DD6A80D79CCE942F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1283142   (741164) от 15.02.2019
 
 VA - Markus Schulz - Global DJ Broadcast Top 20 February (2019) [MP3|320 Kbps] <Trance>
@@ -658,93 +745,6 @@ VA - Dark Uplifting Vol.1 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D045E839C9A4DA400686D5A8A66ACFA501AC9823
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218197   (725292) от 08.04.2018
-
-VA - Good Day Music Compilation Vol.4 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725292.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Numall Fix - Memories (Original Mix)
-02. Estatica - The Lost World (Original Mix)
-03. Baintermix - Indian Chief (Original Mix)
-04. 5Beat - Lost Story (Remaster Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:10:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:858F44B957DF637996315F635891EB3951B391D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218204   (725208) от 08.04.2018
-
-VA - Dream Trance: The Future Is Now (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725208.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frozen Skies & Frank Laverne - Celebrate The Love (Radio version)
-02. Bernd Loorbach - Cafe Del Mar (TbO & Vega Trance mix)
-03. Chris Excess - Secret (Frozen Skies remix edit)
-04. Elaine Winter - Forever Young (Tbo & Vega remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:51:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77C90BF8208AE8B683C5529A826480F5EF1DF504
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129167   (724361) от 27.04.2017
-
-VA - Tiesto - In Search Of Sunrise 5: Los Angeles (2006) [MP3|320 Kbps] <Trance, Progressive Trance,House>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724361.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Conil - Malibu Beach (02:24)
-02. Mark Norman pres. Celine - Colour My Eyes (06:24)
-03. Late Night Alumni - Empty Streets (Haji & Emanuel Remix) (05:40)
-04. Electro-Prompt - Beside Me (Gothek D.C. Remix) (05:16)(   Читать дальше...   )Жанр: Trance, Progressive Trance,HouseПродолжительность: 02:35:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:258DF30BDA46BB3CF35BA02708298B0BC7E4EA04
 ```
 
 https://mybot314.ru/tekegram_catalog/

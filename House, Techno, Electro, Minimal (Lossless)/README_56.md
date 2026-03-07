@@ -1,3 +1,119 @@
+###  Публикация: 1655210   (204546) от 25.08.2023
+
+VA - Extreme Street Workout Songs For Fitness & Workout 2023 (Fitness Version 128 Bpm) [FLAC|Lossless|WEB-DL|tracks] <House, Dance, Pop>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_204546.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Th Express - Cuff It (Fitness Version 128 Bpm) (4:50)
+02. Lawrence - Celestial (Fitness Version 128 Bpm) (4:33)
+03. D'Mixmasters - Nothing Is Lost (you Give Me Strenght) (Fitness Version 128 Bpm) (5:07)
+04. Kyria - Black Mascara (Fitness Version 128 Bpm) (4:35)(   Читать дальше...   )Жанр: House, Dance, PopПродолжительность: 01:10:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A74DB6C9EFA7745609DC7CDF9AFA9999187A0CFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1656685   (203083) от 31.08.2023
+
+VA - Augmented 010  Dowden x Mango (2023) [FLAC|Lossless|WEB-DL|tracks] <Minimal,Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_203083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cheric - Stories [7:06]
+02. Niceshot - Temporal [7:27]
+03. Alex O'Rion - Ukko (Alternative Mix) [7:05]
+04. Fran Garay - Deductions [7:50](   Читать дальше...   )Жанр: Minimal,Tech HouseПродолжительность: 02:28:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD497A1EFF899DCC4DCB4E11AA78FF3E14C8DB6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1829246   (202108) от 25.10.2025
+
+VA - Lounge Music (Deep Strips Records) (2025) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_202108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. N.E.O.N - Feel The Fire (3:16)
+02. DeepTurco - Memory (3:33)
+03. The Fly - Rewind (2:46)
+04. Sharapov - Keep On Rising (3:19)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:40:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:844B98622569F7765826811EE76ABEA148F62558
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1319445   (201955) от 02.03.2023
+
+Late Night Alumni - Silver (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Downtempo, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_201955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mine (3:19)
+ 02. Float (4:06)
+ 03. Virtue (3:40)
+ 04. White Bear (3:04)(   Читать дальше...   )Жанр: Electronic, Downtempo, Deep HouseПродолжительность: 00:49:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44E429D7492DFB1BE5D617C6613EDB8B262C21FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1829447   (201952) от 25.10.2025
 
 VA - Ibiza Closing 2025 (Deep Strips Records) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
@@ -615,119 +731,6 @@ CamelPhat - Spiritual Milk (2023) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Dee
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:513AB9E0D51E82767BF6182BF0891BFF428B4D43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664206   (185972) от 25.09.2023
-
-Helena Hauff - fabric presents Helena Hauff (Mixed) (2023) [FLAC|Lossless|WEB-DL|tracks] <Electro, Techno, Industrial, House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185972.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turn Your Sights Inward (Mixed) [00:02:36]
-02. Sunken Park (Mixed) [00:04:02]
-03. Data Transfer (Mixed) [00:05:09]
-04. Machine Conflict (Mixed) [00:03:59](   Читать дальше...   )Жанр: Electro, Techno, Industrial, HouseПродолжительность: 01:17:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2134F425FF7BA0EFF9DC42D58E7119880EC541A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664478   (185448) от 26.09.2023
-
-Autograf - Affirmations (2023) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <House, Progressive House, Melodic House & Techno, Dance, Electronic>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185448.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: House, Progressive House, Melodic House & Techno, Dance, ElectronicПродолжительность: 2 CD, 01:35:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4673D521FABA45DDB62C24BBF066AF715BAD6A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663898   (184472) от 27.09.2023
-
-David Guetta - 7 (2018) 3CD, Anniversary Edition, 2023, Parlophone UK [FLAC|Lossless|WEB-DL|tracks] <Synth-pop, Deep House, Reggaeton>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184472.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-CD-01
-CD-02
-CD-03Жанр: Dance-pop, Electro House, Tropical House, House, Chiptune, Electro, Synth-pop, Deep House, Reggaeton, Trap, Tech House, Deep TechnoПродолжительность: 3CD, 02:10:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66808E80BB056D655B777B9AB027A616A25D1C23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592028   (184361) от 21.11.2022
-
-Paul Sabin - STALK 2 (ORIGINAL SERIES SOUNDTRACK) (2021) [FLAC|Lossless|tracks] <Techno, Deep Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184361.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Open 03:41
-02. The White Duke 06:52
-03. Dump 04:45
-04. Free Party 05:30(   Читать дальше...   )Жанр: Techno, Deep TechnoПродолжительность: 01:08:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82886C5E1C6C1E3BBF3DB1DD50E54198273038F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1025600   (710180) от 12.06.2016
+
+Cryptic Abyss - Feed 'Em To The Sea (2016) [MP3|320 кб/с] <Death Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_710180.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Machined Minds
+02. Unblinking Eye
+03. Alcoholic Surgeon
+04. Reduced To Bones(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:40:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E2A66C3A72E83DF98B5F13219B7D68703E86D6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1025591   (710107) от 12.06.2016
 
 Vale Of Pnath - Vale Of Pnath II (2016) [MP3|320 кб/с] <Melodic Death Metal>
@@ -717,35 +746,6 @@ VA - Women in rock (Compilation) (2020) [MP3|320 Kbps] <Rock, Hard Rock, Hard 'N
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0B5910EE842C1118C9F5A107905CCF357E48FC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 795882   (685726) от 14.06.2014
-
-VA - Alterportal HITS 14 Vol. 69 - May (2014) [MP3|128-320 кб/с] <Alternative, Metal, Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685726.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Waiting Room Reunion - Storm Rages On
-02. die Apokalyptischen Reiter - Wo Es Dich Gibt
-03. Body Count - Talk Shit, Get Shot
-04. Seventh Day Slumber - Goodbye(   Читать дальше...   )Жанр: Alternative, Metal, RockПродолжительность: 01:59:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83042A82FC25710CD1B04A3A92DF7C4579428724
 ```
 
 https://mybot314.ru/tekegram_catalog/

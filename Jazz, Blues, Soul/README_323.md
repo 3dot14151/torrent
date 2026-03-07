@@ -1,3 +1,235 @@
+###  Публикация: 949808   (372932) от 25.10.2015
+
+Joe Barbieri with Luca Aquino and Antonio Fresa - Chet Lives! (2013) /Yamaha/[FLAC|tracks+.cue]<Cool, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_372932.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Time After Time [04:20]
+ 02.But Not For Me [05:39]
+ 03.Chet Lives [04:43]
+ 04.I Fall in Love Too Easily [06:10](   Читать дальше...   )Жанр: Cool, Vocal JazzПродолжительность: 00:48:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8E6AECAB5BF996DC9460042A3FBD643025D740F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1327651   (372623) от 26.09.2019
+
+Paul Bley - Indian Summer (1987) 1991, SteepleChase [FLAC|Lossless|tracks + .cue] <Post-Bop, Avant-Garde Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_372623.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black and Blue [6:17]
+02. Blue Waltz [8:32]
+03. Lisbon Lights [10:05]
+04. Long Ago and Far Away [8:28](   Читать дальше...   )Жанр: Post-Bop, Avant-Garde Jazz, Piano JazzПродолжительность: 00:59:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A01F5F4A88C418DEFB56E3ED6B28CCACFEB490F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1176223   (372449) от 21.10.2017
+
+James Hurt - Dark Grooves • Mystical Rhythms (1999) Blue Note [APE|Lossless|image + .cue] <Jazz Fusion, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_372449.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Neptune [04:18]
+02. The Tree of Life [05:56]
+03. Waterfall [04:56]
+04. Mars [04:34](   Читать дальше...   )Жанр: Jazz Fusion, Contemporary JazzПродолжительность: 00:58:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66AFBFE92672C2AED8717E4048CEEE701ACB07B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1176226   (372448) от 21.10.2017
+
+John Muggsy Spanier - Classic Jazz Archive (1939 - 1946) 2CD, 2004, Membran Music [APE|Lossless|tracks + .cue] <Dixieland, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_372448.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Whistlin' The Blues:
+01. At the Jazz Band Ball [02:53]
+02. Sister Kate [02:57]
+03. Dippermouth Blues (Sugar Foot Stomp) [02:29](   Читать дальше...   )Жанр: Dixieland, SwingПродолжительность: 02:34:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A454FA84E167A3B1F191C612FF8EC60BC8D38543
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1176220   (372447) от 21.10.2017
+
+Peter Ecklund - Gigs Reminiscing In Music (1999) Arbors Records [FLAC|Lossless|image + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_372447.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Say It With A Kiss [02:56]
+02. Winter Waltz [04:41]
+03. Django And Bix [04:42]
+04. Blues My Naughty Sweetie Gives To Me [05:39](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:02:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCC4DE47B8300F272A2B0401F9FBEBA30C57BF7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415709   (372137) от 14.10.2020
+
+Sun Ra & Walt Dickerson - Visions (1978) 1988, SteepleChase [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_372137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Astro [7:52]
+02. Utopia [8:16]
+03. Visions [2:55]
+04. Constructive Neutrons [10:15](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 01:02:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83795E6F9DA4B3C2CE6D2AA0EB8A2E30BADA097F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415712   (372135) от 14.10.2020
+
+Poncho Sanchez - Chile Con Soul (1990) Concord [FLAC|Lossless|tracks + .cue] <Latin Jazz, Afro-Cuban Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_372135.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Song for Cal [4:17]
+02. A Night in London [6:17]
+03. Mama Guela [5:52]
+04. Soul Burst [3:39](   Читать дальше...   )Жанр: Latin Jazz, Afro-Cuban JazzПродолжительность: 00:56:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F79F81991671F0A2716B417CE4A84C888BF9FD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415936   (372133) от 14.10.2020
+
+Peter Bernstein Quartet - Live At Smalls (2008) Smalls Live [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight-Ahead Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_372133.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vida Blue [9:50]
+02. Say, Little Mama, Say [10:25]
+03. Stairway to the Stars [8:25]
+04. Delilah [12:20](   Читать дальше...   )Жанр: Post-Bop, Straight-Ahead Jazz, Guitar JazzПродолжительность: 01:14:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:015E273AB51C6341D0139D08A9AEC4D89F52C65B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1176375   (372039) от 21.10.2017
 
 Ray Bonneville - Solid Ground (1997) [FLAC|Lossless|tracks + .cue] <Blues>
@@ -513,238 +745,6 @@ Hundred Seventy Split - The Story so Far (2022) [FLAC|Lossless|WEB-DL|tracks] <B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B2BB41EA6F421076F5ED7D48AC28178C0E508530
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949957   (370508) от 26.10.2015
-
-Omer Avital Quintet - Live at Smalls (2010) [FLAC|tracks+.cue]<Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370508.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Theme For A Brighter Future (7:48)
-02. Magic Carpet (14:25)
-03. One (9:58)
-04. Bass Intro (4:54)(   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:11:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99988415D10EFDFC8AA8537A9365A38C8750DE69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950512   (370499) от 26.10.2015
-
-Dave Douglas - Moving Portrait (1998) /DIW/[APE|image+.cue]<Modern Creative, Avant-Garde Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370499.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.The Nine Cloud Dream [05:19]
- 02.Paradox [07:29]
- 03.Moving Portrait [10:05]
- 04.First Frost [06:31](   Читать дальше...   )Жанр: Modern Creative, Avant-Garde JazzПродолжительность: 01:04:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C54C1627082C6A69A7E3DEDEE4DA713543EB452E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950121   (370498) от 26.10.2015
-
-Ondrej Pivec - Never Enough (2007) [FLAC|image+.cue]<Neo-Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370498.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Never Enough
-02. Coming Soon
-03. V.P.
-04. Turkish Coffee(   Читать дальше...   )Жанр: Neo-Bop, Post-BopПродолжительность: 00:47:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68997C86C91AADEC7BDC39E5842835A9B4604000
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950112   (370497) от 26.10.2015
-
-Omer Klein - Heart Beats (2008) [APE|image+.cue]<Post-Bop, Etho-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370497.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heart Beats (2:52)
-02. Voices of War (4:04)
-03. Arak (2:13)
-04. Yemen (3:55)(   Читать дальше...   )Жанр: Post-Bop, Etho-JazzПродолжительность: 00:45:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60C66CB443F8375729F032D27A2B0E860CBF42F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950126   (370496) от 26.10.2015
-
-One For All - Blueslike (2004) [FLAC|tracks+.cue]<Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370496.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Five Outs To Go
-02. We'll Be Together Again
-03. Till There Was You
-04. In Between The Heartaches(   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:55:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:420AC07B7CD0BA1BCAE481ADA66AF7133544C725
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950116   (370495) от 26.10.2015
-
-Omer Klein - Rockets on the Balcony (2010) [APE|tracks+.cue]<Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370495.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Espana
-02. Baghdad Blues
-03. The Wedding Song
-04. Shining Through Broken Glass(   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:45:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:085CC7D6A42AC0A164BE93B3C2B201676B902118
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950516   (370494) от 26.10.2015
-
-Erik Tagg - Rendez-Vous (1977) /1998, Celeste/[APE|image+.cue]<Vocal Jazz, Jazz-Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370494.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Got To Be Lovin' You [03:28]
- 02.Rendez-Vous [05:04]
- 03.Lover With Stature [04:06]
- 04.Fancy Meeting You [02:57](   Читать дальше...   )Жанр: Vocal Jazz, Jazz-RockПродолжительность: 00:59:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A1ED2DFA70F2B0DAC6BB0926D39E0E1EC25290F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949830   (370427) от 26.10.2015
-
-VA - Genuine Houserockin' Music V (1993) [MP3|320 кб/с]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370427.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Koko Taylor - Don't Put Your Hands On Me (2:56)
-2. Billy Boy Arnold - I Wish You Would (3:38)
-3. Elvin Bishop - Stealin' Watermelons (4:50)
-4. Katie Webster - I'm Bad (4:35)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:07:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA98C9A426B3ABCA8D4A8BF9A871F8CDF4368B83
 ```
 
 https://mybot314.ru/tekegram_catalog/

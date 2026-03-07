@@ -1,3 +1,32 @@
+###  Публикация: 1406562   (474910) от 03.09.2020
+
+Christopher Phillips - Piano Chill: Songs of Simon & Garfunkel (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_474910.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. America (3:31)
+ 02. The Sound of Silence (3:24)
+ 03. Mrs. Robinson (3:29)
+ 04. El Condor Pasa (If I Could) (3:18)(   Читать дальше...   )Жанр: New Age, Instrumental, PianoПродолжительность: 00:39:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:831D42D346AE54B989C22E09B3303BE2F1B3CCC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1566577   (474325) от 02.08.2022
 
 Marina Raye and Olabayo - Drumming into Paradise (2000) [FLAC|Lossless|tracks + .cue] <Native American>
@@ -733,35 +762,6 @@ VA - When Lotus is opening (2005) [FLAC|Lossless|tracks] <DreamMusic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E61CC34F48863399C4F75C7679C98F7B0D7E5EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 377804   (468155) от 06.09.2020
-
-Richard Clayderman - Plays The Music Of ABBA (2010) Compilation [FLAC|Lossless|tracks + .cue] <Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mamma Mia (3:15)
-02. Waterloo (3:01)
-03. Dancing Queen (3:46)
-04. The Winner Takes It All (3:04)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:55:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8E4F884CFC74CB375B2E758F22EEF6B618E529C
 ```
 
 https://mybot314.ru/tekegram_catalog/

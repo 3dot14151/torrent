@@ -1,3 +1,61 @@
+###  Публикация: 1101312   (896398) от 06.02.2017
+
+VA - The Essential #LOVE (2017) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_896398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whitney Houston - Greatest Love of All (04:59)
+02. Savage Garden - Truly Madly Deeply (04:36)
+03. Backstreet Boys - As Long as You Love Me (03:32)
+04. NSYNC - This I Promise You (04:45)(   Читать дальше...   )Жанр: PopПродолжительность: 02:25:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5E5FD64C313A37D17C89653DDC43FEDF27168D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101127   (896217) от 06.02.2017
+
+VA - Дискотека зимних дорог. Индустрия поп музыки. Выпуск №5 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_896217.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ivan Grom - Осколками Льда 3:16
+002. Shami - Пой Вместе Со Мной 3:21
+003. Miela - Города 4:18
+004. Evidelle - Ну Почему 3:40(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D7D9FAA0DFA11CA3DB691A888F7B04406E4348E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1101115   (896127) от 06.02.2017
 
 VA - Хиты зимы. За рулем. Выпуск 50/50 (2017) [MP3|256 Kbps] <Pop>
@@ -686,64 +744,6 @@ VA - Музыка хорошего настроения 3 (2016) [MP3|256 кб/�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0EDCBA65BDF8F9764A318EF458E440354E5978FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494635   (887707) от 08.09.2021
-
-VA - National Pop Dance Music (Vol.25) (2021) [MP3|320 Kbps] <Pop, Dance, Folk>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887707.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Giorgio Gaber - Due Ninna Nanna
-002. Lisa Heider - Total Verrueckt
-003. Die Jungen Zellberger - Ein Festival Der Liebe
-004. Michelle - Mein Wunder(   Читать дальше...   )Жанр: Pop, Dance, FolkПродолжительность: 08:38:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0B1C9CE16D7A3808D4E60DDE9FA3754A4974E57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103094   (887639) от 11.02.2017
-
-VA - German Top 100 Single Charts 10.02.2017  [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887639.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ed Sheeran - Shape of You
-002. Zayn & Taylor Swift - I Don't Wanna Live Forever (Fifty Shades Darker)
-003. Ed Sheeran - Castle on the Hill
-004. The Chainsmokers - Paris(   Читать дальше...   )Жанр: PopПродолжительность: 05:51:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83BB495E365966FF42BEEF20FCD5AA74686BC7F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

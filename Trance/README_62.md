@@ -1,3 +1,90 @@
+###  Публикация: 1774445   (71540) от 21.01.2025
+
+VA - Uplifting Only Top 15: January 2025 (Extended Mixes) (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71540.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreamira & Tsuki Shizumutoki - Revive (Intro Mix) [5:37]
+02. Etasonic - In The Valley Of The Blue River (Extended Mix) [9:40]
+03. Jericho Frequency & Kate Miles - Blink Of An Eye (Extended Mix) [7:14]
+04. Dalmoori & RillLua with Euphoric Heart - Wheel Of Fortune (Harmonic Wave Extended Remix) [5:38](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:43:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D67EA0974A8C9985108BBA60F531B6BEB5E087B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775219   (71475) от 25.01.2025
+
+VA - Markus Schulz - Year in Review 2024 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71475.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hel:Sløwed & Amber Revival - If You Only Knew (Intro Mix) (Mixed) [3:10]
+02. Yotto & AVIRA feat. ALSO ASTIR - Forget (Mixed) [2:51]
+03. PARAFRAME - Breathe (Mixed) [2:35]
+04. Markus Schulz & HALIENE - Death Of A Star (Mixed) [3:06](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 06:14:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F86E041BD6906FFDFE73258BABDBF06901F6D5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775517   (71425) от 27.01.2025
+
+VA - Keep It Trance Vol. 26 (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. WhiteLight - Transcend Reality (Original Mix) [3:29]
+02. Simonic - We Are One (Original Mix) [2:51]
+03. Dalmoori & Euphoric Heart - Intelligence (Original Mix) [5:19]
+04. LekSin - Resistance (Extended Mix) [6:45](   Читать дальше...   )Жанр: TranceПродолжительность: 02:16:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D60CC433376D724452D88FD44333FDA0D04E7A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1775607   (71405) от 27.01.2025
 
 VA - Redux Selection, Vol. 2 / 2025 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -658,93 +745,6 @@ VA - Best of Gallant Synthax 2024 (2024) [MP3|320 Kbps] <Trance, Progressive, El
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF38D11D385806F7A1ACE9144EA8CA1FE20CA3AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781973   (70092) от 26.02.2025
-
-VA - YORK Mini Mix (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. York - On The Beach (Mauro Picotto's Extended CRW Remix) (06:40)
-02. DJ Sakin & Friends - Nomansland (David's Song) (Extended Mix) (05:56)
-03. DJ Sakin & Friends - Dragonfly (Extended Mix) (04:57)
-04. York - Fields Of Love (feat ATB - YORK dub Extended Mix) (07:20)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:20:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5410A45F18F527B50A6646CAB39A88BEB87370E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782445   (70035) от 28.02.2025
-
-VA - The Sound of 2025, Chapter 2: Madrid (Day Mix) (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70035.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Solar-B - La Playa (Intro Mix - Mixed) [4:39]
-02. Tim Besamusca feat. Mariel - Breathe Again (Original Mix - Mixed) [3:34]
-03. Robert B - Still See The Stars (Midnight Evolution Dub Mix - Mixed) [4:54]
-04. Extravagance SL & Carlos Trygon - Khargis (Original Mix - Mixed) [4:43](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:16:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BAF303B97F8098923331822716AFA08DDACA32E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782574   (69973) от 01.03.2025
-
-VA - D.Trance 109 (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69973.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. BVDE vs. Myde - The Katla Breathe Fire (Extended Mix) [6:11]
-02. Alan Morris - Think Twice (Extended Mix) [5:23]
-03. XiJaro & Pitch - Bittersweet (Original Mix) [3:48]
-04. AYDA - ATLAS (Extended Mix) [5:45](   Читать дальше...   )Жанр: TranceПродолжительность: 03:43:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B32B54A2408F9CF8AF04B7EE80C868A75F9441FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1345552   (165107) от 17.12.2019
+
+VA - MNM Big Hits - Best Of 2019 (2019) 3CD Box Set [FLAC|Lossless|tracks + .cue] <Pop, House, Other>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_165107.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Ava Max - Sweet But Psycho
+02. Tones and I - Dance Monkey
+03. Marco Borsato, Armin van Buuren & Davina Michelle - Hoe Het Danst(   Читать дальше...   )Жанр: Pop, House, OtherПродолжительность: 03:34:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71D55E916F08F6EA2DB5A7A1CB31D90D1670C146
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432427   (164448) от 17.12.2020
+
+Riccardo Cocciante - - ... Je Chante (1999) [FLAC|Lossless|image + .cue] <Pop, Chanson>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_164448.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Les Mains Dans Les Poches (1:56)
+02. Je Chante (4:46)
+03. C'était... (2:49)
+04. Au Fond De Mon Coeur (4:31)(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 00:30:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE099C261E7A3BDFEB7A485AF0F1A468DFBED55B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346252   (164447) от 18.12.2019
+
+VA - Apres Ski Party Hits 2020 (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_164447.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Rainer Seidl - Skispringerlied (Fliegen mit dem Ski)
+002. DJ Pascy - In den Bergen
+003. Jorg & Dragan (Die Autohandler) - Richtig einen geballert
+004. Willi Herren - Mary Jane(   Читать дальше...   )Жанр: PopПродолжительность: 05:45:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EABB725081140C5237F0972BBEADF8BC3790B692
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516901   (164288) от 13.12.2021
+
+Elton John - The Lockdown Sessions (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Pop, Pop Rock, Soft Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_164288.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elton John & Dua Lipa - Cold Heart (PNAU Remix)
+02. Elton John, Young Thug & Nicki Minaj - Always Love You
+03. Surfaces feat. Elton John - Learn To Fly
+04. Elton John & Charlie Puth - After All(   Читать дальше...   )Жанр: Pop, Pop Rock, Soft RockПродолжительность: 01:08:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A699347B7458D0A76647CBCBCB3611932849FD94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1598012   (164057) от 17.12.2022
 
 Vanessa Mai - Für Immer Tour Live 2022 [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -635,122 +751,6 @@ Mireille Mathieu - Mireille Mathieu chante Piaf (2023) [FLAC|Lossless|WEB-DL|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:452AEF1CF8B5979121B28945084DCE60DC54D8E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967870   (157130) от 23.12.2015
-
-Marc Almond - Stardom Road (2007) [FLAC|Lossless|tracks + .cue] <Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157130.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Have Lived (3:55)
-02. I Close My Eyes and Count to Ten (feat. Sarah Cracknell) (4:06)
-03. Bedsitter Images (4:10)
-04. The London Boys (3:27)(   Читать дальше...   )Жанр: BalladПродолжительность: 00:51:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3460E13EDF9BEAE67B745E39C2B3713DC62F10C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433497   (157071) от 21.12.2020
-
-VA - Acoustic Women (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157071.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Violette Wautier - I’d Do It Again - Acoustic (3:37)
-02. Chelsea Cutler, Jeremy Zucker - please (3:39)
-03. Hailee Steinfeld, Grey, Zedd - Starving - Acoustic (3:01)
-04. Reneé Dominique - Somewhere Only We Know (3:49)(   Читать дальше...   )Жанр: PopПродолжительность: 01:03:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B72BAF88FE20F358AFDCBAACBFEA67800088A52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967845   (156965) от 23.12.2015
-
-Chris de Burgh - Beautiful Dreams (1995) [FLAC|Lossless|tracks + .cue] <Acoustic, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156965.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Missing You (3:58)
-02. Girl (2:51)
-03. Discovery (3:23)
-04. Carry Me (4:06)(   Читать дальше...   )Жанр: Acoustic, BalladПродолжительность: 00:45:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBC2F373C277BBFB651BBA7627E1E73AF20F3B7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433688   (156742) от 21.12.2020
-
-VA - Amazon Music Best Songs Of 2020 (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156742.jpg" />
-</div>
-
-
-###  Подробнее
-
-Независимо от того какими словами вы будете вспоминать 2020 год - от «народ, мне было грустно», до «сертифицированный урод, семь дней в неделю», лучшие песни 2020 года позволят ненадолго уйти от всей чернухи за нашими окнами. Они подставят вам успокаивающее плечо, на котором можно будет поплакать, найти отдушину для давно закипающей ярости и временную замену танцполам (   Читать дальше...   )01. DaBaby feat. Roddy Ricch - ROCKSTAR  (3:02)
-02. Kane Brown feat. Swae Lee & Khalid - Be Like That  (3:11)
-03. Dua Lipa - Don't Start Now  (3:03)
-04. Future feat. Drake - Life Is Good  (3:58)(   Читать дальше...   )Жанр: Pop, Rock, DanceПродолжительность: 05:21:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B73783130DE5C37F89E21875BC9538E9ECBA7409
 ```
 
 https://mybot314.ru/tekegram_catalog/

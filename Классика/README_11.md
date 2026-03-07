@@ -1,3 +1,32 @@
+###  Публикация: 997670   (869695) от 19.03.2016
+
+Jean Sibelius - Lemminkainen Suite, Pohjola’s Daughter (Finnish Radio Symphony Orchestra, Hannu Lintu) (2015) [DTS 2.0, 5.0|ISO|64/1|SACD-R] <Orchestral>
+
+>>Классика
+>>Классика (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_869695.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lemminkäinen Suite
+01-I Lemminkäinen and the Maidens on the Island
+02-II The Swan of Tuonela
+03-III Lemminkäinen in Tuonela(   Читать дальше...   )Жанр: OrchestralФормат: DST64Продолжительность: 01:01:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F485FFD2684CF7B58904605DB26DF7BCC08104C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 997880   (869553) от 19.03.2016
 
 Римский-Корсаков - Шехеразада (1978)(BSO, Silverstein, Ozawa)  [DSD 2.0|ISO|64/1|SACD-R] <Orchestral>
@@ -714,35 +743,6 @@ VA - The Most Popular Classical Music In The World...Ever! (2008) 6CD, Compilati
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1FFBD37386EBC159D4BE8226FABE209AE1CC16E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497976   (859430) от 25.09.2021
-
-Vangelis - Juno to Jupiter (2021) [FLAC 2.0|48/24|tracks|WEB-DL] <Modern-Classical, New-Age>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vangelis: Atlas’ push [00:03:40]
-02. Vangelis: Inside our perspectives [00:03:32]
-03. Vangelis: Out in Space [00:04:14]
-04. Vangelis: Juno’s quiet determination [00:05:17](   Читать дальше...   )Жанр: Modern-Classical, New-AgeПродолжительность: 01:12:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67BD5A97B5BDB3F21EAE1097AA75022DECD6AC9B
 ```
 
 https://mybot314.ru/tekegram_catalog/

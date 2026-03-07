@@ -1,3 +1,32 @@
+###  Публикация: 1289927   (681878) от 18.03.2019
+
+Red Hot Chili Peppers - Transmission Impossible (2016) 3CD, Remastered, Compilation [FLAC|Lossless|tracks + .cue] <Funk Metal, Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_681878.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Out In L.A. (02:39)
+02. Backwoods (04:09)
+03. Funky Crime (04:48)
+04. Stone Cold Bush (03:58)(   Читать дальше...   )Жанр: Funk Metal, PunkПродолжительность: 03:47:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2A697BE7B04CF697A1287971FA0C8AFD5CF5EDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1135327   (680538) от 19.05.2017
 
 Linkin Park - One More Light (2017) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
@@ -725,35 +754,6 @@ Earshot - Two (2004) [FLAC|Lossless|tracks + .cue] <Alternative, Nu Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2F2F2C0E0A604F335E6B1A71BE8BDB4681E87EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515092   (655429) от 26.06.2012
-
-If These Trees Could Talk - Red Forest (2012) [FLAC|Lossless|tracks + .cue] <Post-Rock, Atmospheric, Math-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_655429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Breath of Life (01:48)
-02. The First Fire (06:30)
-03. Barren Lands of the Modern Dinosaur (05:57)
-04. They Speak with Knives (05:40)(   Читать дальше...   )Жанр: Post-Rock/Atmospheric/Math-RockПродолжительность: 00:47:39
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

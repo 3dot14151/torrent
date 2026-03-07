@@ -1,3 +1,57 @@
+###  Публикация: 1493384   (897107) от 02.09.2021
+
+Microsoft Windows 10 Insider Preview, Version 21H2 [10.0.19044.1165] - Оригинальные образы от Microsoft [En]
+
+>>ОС Windows
+>>Разное (RC, Beta и Service Packs)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_897107.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы - Windows 10 Version 21H2 Build 19044.1165.
+Оригинальные образы EnterpriseVL и Client.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBE8749ACCC0E2DE52A77B936A5244E885ECD1DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370344   (896439) от 27.03.2020
+
+Microsoft Windows 10.0.17763.1098 Version 1809 (March 2020 Update) - Оригинальные образы от Microsoft MSDN [Ru]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_896439.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 1809 Build 17763.1098.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:101241C3CBA47D982533780485C59AEC9F4F3867
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1370345   (896432) от 27.03.2020
 
 Microsoft Windows 10.0.18362.720 Version 1903 (March 2020 Update) - Оригинальные образы от Microsoft MSDN [Ru]
@@ -627,58 +681,6 @@ Microsoft Windows 10.0.19043.1237, Version 21H1 (Updated September 2021) - Ор�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C874B86F73F4A0078C916F04D5EFC6A7C9EFBB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497348   (865917) от 21.09.2021
-
-Windows Server 2022 LTSC, Version 21H2 Build 20348.230 (Updated September 2021) Оригинальные образы от Microsoft MSDN [Ru/En]
-
->>ОС Windows
->>Оригинальные версии Windows Server
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865917.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows Server 2022 впервые обеспечивает расширенную многоуровневую защиту, гибридные возможности на базе Azure и гибкую платформу для приложений. Этот выпуск также поддерживает функции защищенного ядра, которые помогают сберечь оборудование, встроенное ПО и функционал ОС Windows Server от сложных угроз безопасности. В основе сервера с защищенным ядром лежат такие (   Читать дальше...   )Язык интерфейса: Английский, Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F8CEB52634B533B2282D31C1D64F2BB860B8338
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497347   (864446) от 22.09.2021
-
-Windows Server, Version 20H2 (10.0.19042.1237) (Updated September 2021) - Оригинальные образы от Microsoft MSDN [Ru/En]
-
->>ОС Windows
->>Оригинальные версии Windows Server
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864446.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows Server SAC - канал Semi-Annual Channel идеально подходит для клиентов, быстро внедряющих инновации. Он помогает им начать использовать возможности новой операционной системы раньше. Это касается как приложений, особенно основанных на контейнерах и микрослужбах, так и программного гибридного центра обработки данных. В рамках канала Semi-Annual Channel для (   Читать дальше...   )Язык интерфейса: Английский, Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30581DAD4B6F06DEB103FDE847E5FD40E9504FB3
 ```
 
 https://mybot314.ru/tekegram_catalog/

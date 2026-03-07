@@ -1,3 +1,119 @@
+###  Публикация: 1287367   (703341) от 07.03.2019
+
+Little BIG - Skibidi (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Rave, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_703341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skibidi
+02. Skibidi (Romantic Edition)
+03. Skibidi (Doorly Remix)
+04. Skibidi (ЛАУД Remix)(   Читать дальше...   )Жанр: Rave, DanceПродолжительность: 00:16:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E60D3BEC4C75DDFC6D803CEE4A83F6725120F5E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132386   (702818) от 08.05.2017
+
+VA - Deepalma Ibiza 2017 (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, House, Nu Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702818.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. JazzyFunk & Stage Rockers - City Lights (original mix) [05:10]
+02. Juloboy - Sweet Summer Sins (feat Mougleta - Touch & Go remix)[05:09]
+03. Dark Matter - Let It Move U (original mix) [05:12]
+04. Dayne S - Blind (original mix) [05:56](   Читать дальше...   )Жанр: Deep House, House, Nu DiscoПродолжительность: 04:56:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F007B32805EF04D5D6003D5D56D4649A6D949DF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220606   (702552) от 20.04.2018
+
+Genning - Life In Dub (2018) MixCult Records  [FLAC|Lossless|WEB-DL|tracks] <Deep Techno, Dub Techno, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702552.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dub Reactor (06:24)
+ 02. Starsa (06:46)
+ 03. Waterfall (06:13)
+ 04. Saturn (06:51)(   Читать дальше...   )Жанр: Deep Techno, Dub Techno, Deep HouseПродолжительность: 01:11:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E783030ECE64B4B45C7EA10C235AA9545A676B68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220612   (702458) от 20.04.2018
+
+Hydrangea - Discography 8 Releases (2015-2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Techno, Techno Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702458.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Osmosis I (04:17)
+ 02. Osmosis II (07:58)
+ 03. Osmosis III (06:28)
+ 04. Osmosis IV (06:45)(   Читать дальше...   )Тип издания: WEBЖанр: Ambient/Techno/Techno AmbientПродолжительность: 00:31:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4107C47EE6443C4D038FE5F440770712A73D59C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1026699   (702311) от 16.06.2016
 
 VA - Deepalma Ibiza 2016 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
@@ -626,122 +742,6 @@ Foals - Collected Reworks Vol. 2 (2020) [FLAC|Lossless|WEB-DL|tracks] <Electro H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC58CA1A83875A34011A83DD80041B397C444284
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222225   (687494) от 28.04.2018
-
-Dorian Gray - Nostalgia for the Future EP (2018) Illegal Alien Records [FLAC|Lossless|WEB-DL|tracks] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687494.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maya (02:52)
- 02. Futuristic Past (05:52)
- 03. It Was Advanced (07:07)
- 04. Nostalgia For The Future (06:10)(   Читать дальше...   )Жанр: TechnoПродолжительность: 00:27:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FE59380E776127277562A0F1CB88C1598721DC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134678   (687445) от 16.05.2017
-
-Soul Button - Master of My Fate (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687445.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Master of My Fate (Original Mix) (7:15)
- 02. Secret Sense (Original Mix) (7:28)
- 03. Illumine (Original Mix) (7:36)
- 04. Paramour (Original Mix) (6:26)Жанр: Deep House, Tech HouseПродолжительность: 00:28:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47B16C803800A254F57993C5BC0BF04CDB3143E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028903   (686759) от 24.06.2016
-
-Cassy - Donna LP (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Is How We Know [02:30]
-02. Feel [06:19]
-03. Back [04:44]
-04. All I Do [05:11](   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 00:54:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AE5005471444A27D055DD11FC3845B53BCD3AA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028807   (686647) от 24.06.2016
-
-Roger Shah - Magic Island - Music for Balearic People, Vol. 7 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686647.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brian Laruso & John James Renfrow - Holding Closer (Intro Mix) [5:22]
-02. Rogier Dulac & Miss Autumn Leaves - Endless Dream (Original Mix) [5:08]
-03. Brian Laruso - The Way (Original Mix) [5:38]
-04. Raul Pablo Sanchez - Day Out (Original Mix) [6:53](   Читать дальше...   )Жанр: Deep House, TranceПродолжительность: 06:23:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E42583E405AB9C9F7FBB13FFBFF8C27E906D0D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

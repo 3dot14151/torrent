@@ -1,3 +1,90 @@
+###  Публикация: 1257078   (350058) от 24.10.2018
+
+VA - Submission Universal (Mixed By Atragun) (2018) [MP3|320 Kbps] <Trance,Psy-Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_350058.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tom Bro - Summit (Basil O Glue Intro Mix)
+02. Emran Badalov - Spaceman (Original Mix)
+03. Atragun - Lost In Dreams (Three Drives Remix)
+04. Xpectra - Seize The Day (Original Mix)(   Читать дальше...   )Жанр: Trance,Psy-TranceПродолжительность: 06:44:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCB99FA4183E6905A147569A524C5937E4D822BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257094   (350047) от 24.10.2018
+
+VA - Butterfly Music Amsterdam 2018 Selection (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_350047.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Syntouch - Waiting For The Sunrise (Extended Mix)
+02. Syntouch - Lasting Light (VoIces Mix)
+03. The Avains feat. Sabreena Singh - Blue Skies (Vocal Extended Mix)
+04. Syntouch - Waterfall (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:11:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2983C656423DFD0821F367A7B8AF849D029614B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257044   (350037) от 24.10.2018
+
+VA - Ellie Lawson - The Best Of (Extended Mixes) (2018) [MP3|320 Kbps] <Trance,Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_350037.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Raz Nitzan & Ellie Lawson - Beyond Time (Extended Mix)
+02. Frainbreeze & Ellie Lawson - I Pray (Extended Mix)
+03. Davey Asprey & Ellie Lawson - Bridge The Divide (Original Mix)
+04. Alan Morris & Ellie Lawson - Find Myself In Losing You (Original Mix)(   Читать дальше...   )Жанр: Trance,Vocal TranceПродолжительность: 02:54:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFA5162C89505098E5E2AB9392BF52DF2F096A92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1179216   (349351) от 31.10.2017
 
 VA - Halloween Handsup Power Party (2017) [MP3|320 Kbps] <Pop Trance, Big Room>
@@ -651,93 +738,6 @@ VA - My Nature: The Best Of Katty Heath (2019) [MP3|320 Kbps] <Trance, Vocal Tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49D2B7CBD6730D307108D47CA79DF9B462B34B7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330711   (338985) от 11.10.2019
-
-VA - Markus Schulz - Global DJ Broadcast Top 20 October (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338985.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Markus Schulz feat. Nikki Flores - We Are The Light (Artento Divini Extended Remix)
-02. Fisherman - Nature vs. Nurture (Extended Mix)
-03. Giuseppe Ottaviani - Empty World (Extended Mix)
-04. DIM3NSION - Gaman (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:19:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9F3A574DA723A3A6F202F650932C76793840E7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258342   (338813) от 29.10.2018
-
-VA - Suanda Music Radio Top 20: (October / November) (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338813.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roman Messer feat. Christina Novelli - Fireflies (Eximinds Extended Remix)
-02. Adip Kiyoi - Start With A Dream (Extended Mix)
-03. Betsie Larkin - Unite (Ruslan Radriges Extended Remix)
-04. Elite Electronic - Bloom (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:53:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0BB870FE38F99ED2AE59072CBCAB815CDC7DEB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258362   (338690) от 29.10.2018
-
-VA - United Colors of Trance Vol.12 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338690.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Corrie Theron & Barend Stapelberg - Concord (Original Mix)
-02. Fashion Police - Right There (Original Mix)
-03. ManMadeMan - Do You Believe in UFOs? (Cybered Remix)
-04. Digital Sun - Lunatic Journey (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:37:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1609469AF3F36DD497EDE503D3E73156344E5CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

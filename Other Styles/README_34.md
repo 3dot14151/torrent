@@ -1,3 +1,32 @@
+###  Публикация: 1380107   (835912) от 01.05.2020
+
+Luca Stricagnoli - Change Of Rules (2020) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Acoustic Guitar>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835912.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Lonely Shepherd
+02. For A Few Dollars More
+03. Lose Yourself
+04. Hold The Line(   Читать дальше...   )Жанр: Instrumental, Acoustic GuitarПродолжительность: 01:14:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81C5DE0FC8D45A7FE0D1456CE3D2E1DABFFE2E1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1378985   (835890) от 01.05.2020
 
 Peter Kater - Hawai'i: A Tribute to Aloha Aina (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -715,35 +744,6 @@ Wychazel - Mirage (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B26720604680B02E94858F2CC4207E27BA66E2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380949   (829763) от 05.05.2020
-
-Inon Zur - Syberia 3 (Official Soundtrack) (2017) [FLAC|Lossless|tracks] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829763.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Syberia 3 (Main Theme)
-02. Thrill Of Nature
-03. Dark Force In Motion
-04. Call Of Tradition(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:57:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60E939C45AB0C7ACB199E2BBFDD340B1ABA35341
 ```
 
 https://mybot314.ru/tekegram_catalog/

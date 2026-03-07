@@ -1,23 +1,25 @@
-###  Публикация: 1844314   (1050040) от 25.12.2025
+###  Публикация: 1845832   (1051095) от 04.01.2026
 
-3D Monsters, Алексей Савельев | Странствующий паладин - Стань 3D-Художником по персонажам (2024) PCRec [AD] [RU]
+Etta James - Favorites Collection (2025) [MP3|320 Kbps] <Blues Ballad>
 
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050040.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051095.jpg" />
 </div>
 
 
 ###  Подробнее
 
-На курсе мы создаем модель Паладина по стандартам ААА игровой индустрии.
-Через 6 месяцев ты научишься создавать персонажей для компьютерных игр по пайплайнам ведущих игровых студийПроизводство: 3D MonstersЖанр: 3D моделированиеЯзык озвучки: РусскийПродолжительность: 203:51:32Реклама: Присутствуют сторонние наложения
+01 - Low Light Love
+02 - Hold on to My Love
+03 - Still Here With You
+04 - Shadows Call My Name(   Читать дальше...   )Жанр: Blues BalladПродолжительность: 00:26:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EC552F70AFD110CF183D393E7F9B23C784101C4F
+magnet:?xt=urn:btih:A8F9F13C70470157184947E263337EC65F082AA3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -25,25 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844315   (1050039) от 25.12.2025
+###  Публикация: 1845813   (1051094) от 04.01.2026
 
-Шаблоны - Adobe Stock - Santa Claus Mockups [PNG]
+Ai - Inspired Blues & Soul Songs Part 4 (2025) [MP3|320 Kbps] <Blues & Soul Songs>
 
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050039.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051094.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Разные новогодние шаблоны для ваших творческих задач.Формат: PNGРазрешение файлов: 2816x1536 - 9600x7467
+01 - You're the Reason I Still Believe
+02 - Glows
+03 - No One Feels Like Home But You
+04 - So Real(   Читать дальше...   )Жанр: Blues & Soul SongsПродолжительность: 01:04:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A9AABDF4A40F6DA967F577106642D6C592243E40
+magnet:?xt=urn:btih:E2DA77A9FE01B36827F11DB978CBEDB53FF2234B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -51,25 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844320   (1050038) от 25.12.2025
+###  Публикация: 1845811   (1051093) от 04.01.2026
 
-Проекты - VideoHive - New Year | Countdown | 2026 - 61038427 [AEP]
+Ai - Inspired Blues & Soul Songs Part 3 (2025) [MP3|320 Kbps] <Blues & Soul Songs>
 
->>Проекты
->>Праздничные (проекты)
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050038.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051093.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Представляю вашему вниманию отличную анимацию «Обратный отсчет до 2026 года!» для ваших творческих задач!Формат: AEP
+01 - Broken Enough to Bleed
+02 - I Found Forever in You
+03 - I Cant Breathe Without Your Love
+04 - I Still Belong Where You Left Me(   Читать дальше...   )Жанр: Blues & Soul SongsПродолжительность: 00:57:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:30D90D7941C0E5BDB612D5799471DF77E0A57E06
+magnet:?xt=urn:btih:06B6B2A0847FA8E67292939EA17D7F66DFD8F30C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -77,222 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844317   (1050037) от 25.12.2025
+###  Публикация: 1845808   (1051092) от 04.01.2026
 
-Большая перемена (1972) HDTVRip [H.264] (серии 1-4 из 4)
-
->>Классика сериалов и многосерийное кино до 90-х
->>Отечественная классика сериалов и старое многосерийное кино до 90-х
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050037.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нестор Северов проваливается на экзамене в аспирантуру и идёт работать учителем в вечернюю школу. Он становится классным руководителем 9-го «А» - «удивительного, прекрасного, сумасшедшего» класса. Поначалу далёкий от мирской суеты Нестор Петрович начинает жить заботами своих взрослых учеников...Производство: СССР | МосфильмЖанр: мелодрама, комедияРежиссер: Алексей КореневАктеры: Михаил Кононов, Евгений Леонов, Ролан Быков, Александр Збруев, Светлана Крючкова, Юрий Кузьменков, Савелий Крамаров, Наталия Богунова, Наталья Гвоздикова, Виктор Проскурин и др.Субтитры: ОтсутствуютПродолжительность: ~01:03:08 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:806DDDAD56D12305015317DFCA9DE8F6D56588E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844321   (1050036) от 25.12.2025
-
-Auslogics Disk Defrag 12.1.0.1 + Portable [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050036.jpg" />
-</div>
-
-
-###  Подробнее
-
-Auslogics Disk Defrag - это профессиональная версия компактного и быстрого дефрагментатора, работающего как с FAT 16/32, так и с NTFS файловыми системами. Программа использует ряд алгоритмов, которые позволяют оптимизировать и упорядочить файлы Вашего жёсткого диска, дефрагментировать файловую структуру и ускорить работу приложений и Windows.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BF81867B8D9F654EB081E09F034FBE8D651E1BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844323   (1050035) от 25.12.2025
-
-Big Al Dorn & the Blues Howlers - She's the One for Me (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050035.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  She's the One for Me (6:17)
-02.  Greenback Blues (5:26)
-03.  Confessions (7:26)
-04.  Clarksdale Blues (11:33)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:04:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C1C96CBC6BF66C26578D95D57D607C5CBEA50FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844324   (1050034) от 25.12.2025
-
-Charles Sangnoir - On Fire (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050034.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Lead Feet (3:43)
-02.  Bad Wolf Boogie (3:15)
-03.  Bunk Bed Blues (3:01)
-04.  Seem So Quiet (4:44)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA1EE105CF73740CE4CE0C95D0E9CACD59CC7CA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844327   (1050033) от 25.12.2025
-
-Dave Wakefield - Turnpike Crows (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050033.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Crazy Mixed Up World (2:47)
-02.  Turnpike Crows (3:43)
-03.  Nine Below Zero (4:04)
-04.  My Babe (2:42)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C910F74E83BC2260E0E65C2245AB73E66D4DD3D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844325   (1050032) от 25.12.2025
-
-Шрифты - Michael Doret - Deliscript Font Family [OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050032.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хотя изначально шрифт Deliscript был вдохновлен неоновой вывеской перед гастрономическим магазином Canter's в Лос-Анджелесе, эти шрифты вскоре обрели собственную жизнь и свой собственный, неповторимый вид. Deliscript обладает множеством функций, расширяющих его функциональность, таких как изменяемая длина хвостиков и уникальные поперечные перекладины, которые могут (   Читать дальше...   )Формат: OTFПоддержка кириллицы: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FAB8BB158124A3E977EF0C9F3C8329E9408B664
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844329   (1050031) от 25.12.2025
-
-Dr. Helander & Third Ward - Wishing Spoon (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050031.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Congratulations (4:59)
-02.  Money On My Back (3:21)
-03.  My Home Town - Slight Return (3:42)
-04.  Big Bad Wolf (3:39)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47405B5C715EB5206C9733F92CD2332DD3BCC083
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844330   (1050030) от 25.12.2025
-
-Sabrina Carpenter - Man’s Best Friend (Bonus Track Version) (2025) [MP3|320 Kbps] <Pop>
+VA - AM Gold 1964 (1991) [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop>
 
 >>Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050030.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051092.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Manchild
-02 - Tears
-03 - My Man on Willpower
-04 - Sugar Talking(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:19
+01. The Supremes - Baby Love
+02. The Four Seasons - Rag Doll
+03. The Zombies - She's Not There
+04. Gene Pitney - I'm Gonna Be Strong(   Читать дальше...   )Жанр: Rock, Funk / Soul, PopПродолжительность: 00:58:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4DA27BAC622D142902E98AE988CFD1E8752CAE11
+magnet:?xt=urn:btih:474F7889AEC31A0F6D2F4B880E40396BA1787753
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -300,25 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844331   (1050029) от 25.12.2025
+###  Публикация: 1845815   (1051091) от 04.01.2026
 
-Проекты - VideoHive - Christmas Card - The Santa Claus Comes - 61047912 [AEP]
+VA - Blues compilation part 4 Blues Ballad (2025) [MP3|320 Kbps] <Blues Ballad>
 
->>Проекты
->>Праздничные (проекты)
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050029.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051091.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Christmas Card - The Santa Claus Comes — это волшебная и трогательная анимированная видеооткрытка для After Effects, которая оживляет самую любимую рождественскую историю. Высококачественная 3D-анимация показывает, как Санта-Клаус на своих санях прибывает в заснеженный дом, чтобы оставить подарки под сияющей елкой.Формат: AEP
+01 - Ai - Silver in the Dust
+02 - Etta Mae Hartwell - Emerald Silence
+03 - Ai - Remember Me
+04 - Mick Simpson - Now That the Magic Has Gone(   Читать дальше...   )Жанр: Blues BalladПродолжительность: 00:51:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:960483EDAFCAA7D4354DCEB55EA718749F956D41
+magnet:?xt=urn:btih:EB302C9056C07DE3CE89B1BB644650C7C00AB1F8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -326,28 +143,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844332   (1050028) от 25.12.2025
+###  Публикация: 1845934   (1051090) от 04.01.2026
 
-Duwayne Burnside - Red Rooster (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+Мэр Кингстауна / Mayor of Kingstown (2025) WEB-DL [H.265/2160p] [4K, SDR, 8-bit] (сезон 4, серии 1-10 из 10) HDRezka Studio, LostFilm, TVShows, WStudio, LE-Production
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Зарубежные сериалы
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050028.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051090.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Nightmare Blues (4:28)
-02.  Circle in the Sky (2:55)
-03.  Somebody Done Stole My Girl (3:31)
-04.  Things Aint Going My Way (2:56)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:28
+Семья Макласки, которая живет в маленьком мичиганском городке Кингстаун, выступает неофициальными посредниками между полицией, преступниками, заключенными, тюремными охранниками и политиками. Макласки хотят сохранить нейтралитет, но есть и те, кому не нравится тот факт, что одна семья имеет настолько большой контроль над тем, как обстоят дела в Кингстауне.Производство: США / 101 Studios, Bosque Ranch Productions, MTV Entertainment StudiosЖанр: триллер, драма, криминалРежиссер: Стефен Т. Кэй, Гай Ферленд, Кларк ДжонсонАктеры: Джереми Реннер, Хью Диллон, Тоби Бамтефа, Тейлор Хэндли, Эмма Лейрд, Дерек Уэбстер, Хеймиш Аллан-Хэдли, Дайэнн Уист, Эйдан Гиллен, Ниши МуншиПеревод: Многоголосый (HDRezka Studio, LostFilm, TVShows, WStudio, LE-Production)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (Full, SDH)Продолжительность: ~00:55:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E127F0CB87D6CFA52D0719702166C0F21A4157D8
+magnet:?xt=urn:btih:21FB4A92FEE6324A4E78469F35853FF4067239A9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -355,28 +169,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844187   (1050027) от 25.12.2025
+###  Публикация: 1845936   (1051089) от 04.01.2026
 
-Royal Bliss - The Covers That Surround Me (2025) [MP3|320 Kbps] <Modern Rock, Post-Grunge>
+Божья Коровка - Новогодние-застольные (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 
->>Rock, Alternative, Punk, Metal
->>Rock
+>>Pop
+>>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050027.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051089.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Sabotage [00:02:56]
-2. I Touch Myself [00:02:41]
-3. Sign of the Times [00:05:08]
-4. Somebody To Love [00:04:32](   Читать дальше...   )Жанр: Modern Rock, Post-GrungeПродолжительность: 00:49:56
+01. Гранитный камушек (винил версия)
+02. Апельсины новогодние (винил версия)
+03. А у нас, в Америке (винил версия)
+04. Хрусталь бокала (винил версия)(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:39CD8A64F3438AB80BF7F27353FE7F270771EECA
+magnet:?xt=urn:btih:5AAF1C9D917DB3011A09DB3BD5821084588561F2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -384,28 +198,142 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844225   (1050026) от 25.12.2025
+###  Публикация: 1845942   (1051088) от 04.01.2026
 
-VA - Interplay 2025 (Mixed by Alexander Popov) (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+Paul Mauriat - Forever And Ever (1973) [FLAC 24/96|Lossless|WEB-DL|tracks] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051088.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forever And Ever
+02. Les matins d'hiver
+03. Le peintre des étoiles
+04. Les volets clos(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:34:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24C45C74AC150A508E2B7A7D8BEA68B043479D16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845931   (1051087) от 04.01.2026
+
+Книжная серия | «Что такое Россия?» [37 книг] (2017-2025) [FB2]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051087.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта серия книг знакомит читателя о внутренних аспектах государственного строительства, о трагедии русской аристократии после крушения империи, о злоключениях французских подданных, приехавших и проживавших в России в царствование Николая I и других страницах истории России.
+Список книг:Жанр: Общая историяИздательство: Новое литературное обозрениеФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41DA3DA27B2EA5CE8F10F805FCE3A6CDF6171574
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845952   (1051086) от 04.01.2026
+
+Nina Blaze - Favorites Collection Part 4 (2025) [MP3|320 Kbps] <Blues Ballad, Blues Rock, AI>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Hollow in My Soul
+02 - Whispers of the South
+03 - The Hollow in My Chest
+04 - Bitters in My Blood(   Читать дальше...   )Жанр: Blues Ballad, Blues Rock, AIПродолжительность: 00:47:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4E82B41DEB98E87236C40454B60394BBFA20F58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845951   (1051085) от 04.01.2026
+
+VA - AM Gold 1965 (1990) [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051085.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sonny & Cher - I Got You Babe
+02. Petula Clark - Downtown
+03. Jackie DeShannon - What The World Needs Now Is Love
+04. The Temptations - My Girl(   Читать дальше...   )Жанр: Rock, Funk / Soul, PopПродолжительность: 00:59:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B627B7367B5C01C30F3C845765DCF73861817D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845950   (1051084) от 04.01.2026
+
+VA - Summer Melody - Best of 2025 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
 
 >>Electronic
->>Trance
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050026.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051084.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Alexander Popov & Huvagen - Fairytale (Mixed) 02:34
-02. Alexander Popov & Whiteout & Vaileri - Need To Feel Loved (Mixed) 03:33
-03. Idy Ramy & Dawtone - Pilgrim (Mixed) 03:02
-04. Dawtone & Alex Soun - Sirma (Mixed) 04:09(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:31:22
+01. Bvgsy Del Mar - Ineffable (Mixed) 04:26
+02. Codema - Down The Road (Hagen Hdm Remix / Mixed) 04:40
+03. Sunset Vision - Meant To Be (Mixed) 03:36
+04. Kirill Maxsimoff - Loneliness (Mixed) 05:08(   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 03:13:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0698F83EC1BE8BC08455DDE21783E3FAF9130F99
+magnet:?xt=urn:btih:E266D991B95A7E812747C350B0DDD399F6DD5018
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -413,28 +341,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844306   (1050025) от 25.12.2025
+###  Публикация: 1845949   (1051083) от 04.01.2026
 
-VA - Enhanced Progressive Best of 2025 (Mixed by Matt Fax) (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+Nina Blaze - Favorites Collection Part 3 (2025) [MP3|320 Kbps] <Blues Ballad, Blues Rock, AI>
 
->>Electronic
->>Trance
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050025.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051083.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Matt Fax - Arp (Intro Mix) 06:51
-02. Matt Fax - Sleepwalking (feat. Leo Wood) (Mixed) 03:52
-03. Nitrous Oxide & Genie - Fly (Mixed) 04:19
-04. York, John Grand & Lea Key - Indestructible (Mixed) 04:19(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:00:01
+01 - Echoes in the Hollow
+02 - Endless Nights
+03 - Storm Where My Heart Should Be
+04 - Blue Remains(   Читать дальше...   )Жанр: Blues Ballad, Blues Rock, AIПродолжительность: 00:43:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:496F144213B204C52A358283854B4509E46D820E
+magnet:?xt=urn:btih:86E7F9ED25871888295684927E4D175B7AC1141A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -442,28 +370,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844338   (1050024) от 25.12.2025
+###  Публикация: 1845945   (1051082) от 04.01.2026
 
-Cuervo - Abismo Y Ascensión (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+Nina Blaze - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Blues Ballad, Blues Rock, AI>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050024.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051082.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. En El Ayer
-02. Resplandor
-03. Letargo
-04. El Llamado De Los Mares(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:47:01
+01 - Love Left in the Rain
+02 - No Light in This Room
+03 - Where the Warmth Used to Live
+04 - When the Smoke Took Your Name(   Читать дальше...   )Жанр: Blues Ballad, Blues Rock, AIПродолжительность: 00:43:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F1B01B846FD2462D81139204C30B0511D2838668
+magnet:?xt=urn:btih:B9213935668D02B272217A5523ADABE3421C2BAE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -471,28 +399,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844341   (1050023) от 25.12.2025
+###  Публикация: 1845947   (1051081) от 04.01.2026
 
-French Leftovers - French Leftovers Volume 2 (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+К.А. Тимирязев | Наука и демократия (1963) [DJVU]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Научная и техническая литература
+>>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050023.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051081.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Before You Accuse Me (3:04)
-02.  Call Me the Breeze (3:24)
-03.  Can't You See (3:58)
-04.  Hurricane (3:14)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:01:09
+Климент Аркадьевич Тимирязев был одним из самых ярких и энергичных популяризаторов дарвинизма в России конца 19 - начала 20 века. Кроме того, он много публиковался в либеральной печати своего времени, выступая за демократизацию общественной жизни и углубление академических свобод. Тимирязев был известен своим антиклерикализмом и симпатиями к социалистическим идеям. (   Читать дальше...   )Жанр: История, науковедение, публицистика, историографияИздательство: СоцэкгизФормат: DJVUКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:090DCADA40D3C78E231EC841122DE956B84583C8
+magnet:?xt=urn:btih:BD86E9B11ACB671C403D869D787FD1CC4A0E5D41
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -500,28 +425,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844342   (1050022) от 25.12.2025
+###  Публикация: 1845946   (1051080) от 04.01.2026
 
-Greasy Belly - Lookin' For A Roll (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock, Southern Rock>
+Книжная серия | «Сделано в СССР» [248 книг] (2005-2020) [FB2]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Художественная литература
+>>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050022.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051080.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Rock And Roll Fools (4:02)
-02.  Galician Rain (4:05)
-03.  Redneggs (5:14)
-04.  Dancin' In A Silent Town (3:31)(   Читать дальше...   )Жанр: Blues Rock, Southern RockПродолжительность: 00:44:22
+Серия «Сделано в СССР» состоит их четырëх дружественных подсерий: «Любимая проза», «Любимый детектив», «Народная эпопея» и издательства «РИЦ Литература» и «Вектор» отличающихся оформлением и объемом изданий. В них представлены наиболее важные и популярные произведения известных российских авторов, созданные в Советский период истории нашей страны. Многие из (   Читать дальше...   )Жанр: Детектив, приключения, история, военная проза, классикаИздательство: Вече, РИЦ ЛитератураФормат: FB2Качество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FE07BB04515FE9B429D69E59C3ECDB330B74579C
+magnet:?xt=urn:btih:25053F03B92C9EBA5BF59E75DAEBB0003A68CE27
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -529,28 +451,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844344   (1050021) от 25.12.2025
+###  Публикация: 1845938   (1051079) от 04.01.2026
 
-James Buddy Rogers - Covered in Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+С.Я. Лурье | Очерки по истории античной науки (1947) [DJVU]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Научная и техническая литература
+>>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050021.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051079.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Bad Boy (3:09)
-02.  I'm Sorry (3:25)
-03.  I Lied (2:54)
-04.  Roll, Roll, Roll (2:50)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:29:39
+В книге известного советского ученого Соломона Яковлевича Лурье (1891–1964) излагается история научных представлений в Древней Греции эпохи ее расцвета. История эта доведена до Платона, однако центральной фигурой в изложении автора является философ-атомист Демокрит.Жанр: Научно-популярный очеркИздательство: Академия наук СССРФормат: DJVUКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:01946D5520691D7A491EE72DAF7A94ABAB30718B
+magnet:?xt=urn:btih:07184A47998B1456B1C79719F574547E1D6EACF7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -558,28 +477,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844333   (1050020) от 25.12.2025
+###  Публикация: 1845937   (1051078) от 11.01.2026
 
-Frankie V and the Lonely Club - Play the Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+Михаил Жмайло | Windows глазами хакера (2025) [PDF]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Компьютерная литература
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050020.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051078.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Purple Heart Blues (4:48)
-02.  Birds and Bees (4:59)
-03.  Reposado Blues (4:28)
-04.  So Long Ago (5:00)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:45
+Рассмотрена внутренняя архитектура Windows и Active Directory, подробно описаны доверенные отношения доменов и лесов, особенности работы Read-only Domain Controllers, уязвимости групповых политик и принципы управления привилегиями. Рассказывается о работе с Kerberos, инжекте и дампе, билетов, угоне пользовательских сессий, использовании WinAPI, COM и Named Pipes (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: БХВ-ПетербурrФормат: PDFКачество: Необработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BE2B52EF03C8E1CBF8FED0E07B53E257057A25F7
+magnet:?xt=urn:btih:D469861C695E30711E45312C33C5E0F708BF6FCC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -587,138 +503,211 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844343   (1050019) от 25.12.2025
+###  Публикация: 1845933   (1051077) от 04.01.2026
 
-Растровый клипарт (иллюстрации) - Christmas Tree Pretty Illustrations #8 [PNG]
+Т. Павлов | Избранные труды по эстетике (1978) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051077.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящий сборник включает работы Т. Павлова как общеметодологического характера, в которых он последовательно развивает основные принципы ленинской теории отражения, так и работы, посвященные таким актуальным проблемам, как значимость и революционная действенность творческого метода социалистического реалистического искусства — социалистического реализма. С позиций (   Читать дальше...   )Жанр: История, философия, литературоведениеИздательство: ИскусствоФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F9FD27809734E69EE4A3D898BC791070F0D241C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845926   (1051076) от 04.01.2026
+
+Валерий Рубанцев | Программирование для всех. Компьютерная графика на Питоне  (2019) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051076.jpg" />
+</div>
+
+
+###  Подробнее
+
+Современные программы редко обходятся без качественной и быстрой графики и при этом стремятся к мультимедийности и мультиплатформенности, поэтому требуют много времени и сил на разработку. Любители программирования хотели бы иметь инструменты, которые существенно облегчают программирование мультимедийных приложений.
+В книге «Компьютерная графика на Питоне» мы рассмотрим (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: МоскваФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA674DF684B46C9424FEFE23792E531808A1B906
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845920   (1051075) от 04.01.2026
+
+Ю.Г. Леонов и др. | Сборник задач по программированию (2011) [PDF]
+
+>>Компьютерная литература
+>>Программирование
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051075.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чтобы научиться программировать, недостаточно прослушать лекции или прочитать книгу, посвященную языку программирования, надо писать программы, решать конкретные задачи. Сборник задач содержит варианты задач разного уровня сложности по всем разделам информатики и является дополнением к методическим инструкциям и лекционным материалам по курсу «Информатика» и позволяет (   Читать дальше...   )Жанр: ПрограммированиеИздательство: Одесса:  ОНАСФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7E2A88F586C9E24C768A0413DDE7CCDEE5B0F5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845904   (1051074) от 04.01.2026
+
+Alaloth: Champions of The Four Kingdoms (2022) [Ru/Multi] (2025.11.18.994fa78/dlc) Repack Let'sРlay [Deluxe Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051074.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Alaloth: Champions of the Four Kingdoms судьба земли, разоренной древними распрями и тьмой, находится в ваших руках. Захватывающая RPG, сочетающая динамичные сражения в реальном времени с изометрическим видом, в мире, полном магии и чудовищ. Игрокам предстоит исследовать опасные подземелья, сражаться с грозными боссами и раскрывать древние тайны, чтобы спасти Пламен (   Читать дальше...   )Тип издания: RepackРазработчик: Gamera InteractiveЖанр: Экшены, Приключенческие игры, Инди, Ролевые игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:628C93944F2ED38D86F15FBDD111A2F5336755AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845958   (1051073) от 04.01.2026
+
+VA - Лучшие песни Радио Рекорд за 2025 год (2026) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051073.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Misha Miller & Alex Velea - Bam Bam (2:30)
+002. David Guetta & Sia - Beautiful People (3:07)
+003. Rudimental & Khalid - All I Know (2:56)
+004. Zerb & Ty Dolla Sign & Wiz Khalifa - Location (2:28)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:07:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6872A68585F3A7596FE1139C7113951DAFF94B2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845962   (1051072) от 04.01.2026
+
+MKVToolNix 97.0 Stable + Portable [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Нелинейный Видеомонтаж, Авторинг, Кодировщики
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051072.jpg" />
+</div>
+
+
+###  Подробнее
+
+MKVToolnix - функциональный набор инструментов для работы с видео-файлами MKV Matroska. Очень полезная программа, позволяет добавлять/убирать звуковые дорожки, субтитры, склеивать/резать файлы. Все очень быстро и понятно. Поддерживаются такие типы видео потоков: AVI, Ogg/OGM, и RealVideo. MKVToolnix - специальный аудио/видео контейнер, похожий на AVI, хранящий в (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8319FFED27C1615A58A0B199D60A119A76E9D0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845917   (1051071) от 04.01.2026
+
+Новый Год на Связи (2025) WEBRip [H.264/1080p]
+
+>>Горячие новинки
+>>Отечественные Новинки (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051071.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шестиклассник Егор со своим папой Олегом увлекаются радиотехникой. Отец-одиночка Олег работает вахтовым методом в Усть-Куте и ежедневно выходит в радиоэфир. 30 декабря папа выезжает на рабочее задание и в намеченный час не выходит на связь. Решив, что отец попал в беду, Егор отправляется на его поиски.Производство: Россия / ИП Мерзляков Игорь ИгоревичЖанр: драма, комедия, семейныйРежиссер: Михаил ЛысковцевАктеры: Данила Пузырёв, Денис Маган, Станислав Чернышев, Галина Боринец, Марина Коряченко, Александр Карпов, Алексей Портнягин, Алексей УрядновЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:21:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2988C13314A77A1BA989B10EA9E026BE05530440
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845966   (1051070) от 04.01.2026
+
+Ui Kits - UI8 -  Prompt AI - Premium AI App (MVP) [FIG]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (иллюстрации)
+>>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050019.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051070.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Немаленький набор рождественских елочек для ваших творческих задач.Формат: PNGРазрешение файлов: 3600x3600 - 4002x4002
+Prompt AI — это уникальный и инновационный набор элементов пользовательского интерфейса для приложений чата с ИИ, разработанный для того, чтобы помочь вам создавать и запускать MVP в 10 раз быстрее. Включая более 45 прекрасно разработанных экранов, современную систему дизайна и полную поддержку Figma с Auto Layouts, Prompt AI идеально подходит для стартапов, продуктовых (   Читать дальше...   )Формат: FIG
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:931F3508C46DB8E37E0BFB4ACB7B0CBEEA1A0FAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844346   (1050018) от 25.12.2025
-
-Jill Newman - Little Bit of Luck (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Little Bit of Luck (4:19)
-02.  Lost Without You (3:36)
-03.  Lay My Worries Down (4:07)
-04.  Making up for Lost Time (4:03)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0204C26A811EAABC027441FB4A1BB9AD210D1E08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844103   (1050017) от 25.12.2025
-
-Подшивка журнала | Садовод и огородник №19-24 (октябрь-декабрь 2025) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050017.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Садовод и огородник» — журнал для начинающих и опытных садоводов и огородников, владельцев загородных участков и сельских жителей, всех желающих добиться максимального урожая с минимальными затратами. Журнал знакомит своих читателей с современными технологиями и народным опытом выращивания овощных, плодовых, ягодных и лекарственных культур, разнообразием садовых (   Читать дальше...   )Жанр: Сад, огородИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6350252C74212D16DC9675753B810A8A2AE9ED00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844349   (1050016) от 25.12.2025
-
-Joe Galullo - Melody in the Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050016.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  You Gotta Care About Me (3:57)
-02.  Get out of My Head (3:56)
-03.  Rainy Sunday Morning (5:41)
-04.  Life Without Love (6:34)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FC6384432A16EDA04E7C9CBFF8B1E8F1A6B22C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844350   (1050015) от 25.12.2025
-
-JR Clark - J R Clark "Time TIcks Away" (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050015.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Time TIcks Away (4:01)
-02.  Life Of BB (5:13)
-03.  Lady Of The Night (11:08)
-04.  Cinnamon (4:18)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04F823AD9A0DE4574FA0158DC7E08313E915AEC8
+magnet:?xt=urn:btih:F0B04CBC432137AEF31DFA950A5E323BEEB7D1AA
 ```
 
 https://mybot314.ru/tekegram_catalog/

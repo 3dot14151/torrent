@@ -1,3 +1,206 @@
+###  Публикация: 1642044   (235195) от 25.06.2023
+
+Katy Perry - One Of The Boys (2008) 15th Anniversary Edition, 2023, Capitol Records [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_235195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Of The Boys [00:04:07]
+02. I Kissed A Girl [00:02:59]
+03. Waking Up In Vegas [00:03:19]
+04. Thinking Of You [00:04:06](   Читать дальше...   )Жанр: PopПродолжительность: 00:50:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCC9F448317C1634AF8530DFCC4331D1CA93B75B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642739   (235144) от 29.06.2023
+
+VA - Happy Vibes 2023 (2023) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_235144.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. OneRepublic – I Ain't Worried (2:28)
+02. Jonas Brothers – Waffle House (2:25)
+03. Marshmello – Happier (3:34)
+04. Coi Leray – Players (2:19)(   Читать дальше...   )Жанр: PopПродолжительность: 05:25:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48F6E4D2992D89A4BF81B77EDDCF4113F7767B1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632630   (235131) от 11.05.2023
+
+VA - The Universal - 90's Easy (2023) [MP3|320 Kbps] <Pop, Rock, RnB, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_235131.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blur - The Universal
+02. Seal - Kiss from a Rose
+03. Diddy, Faith Evans, 112 - I'll Be Missing You (feat. Faith Evans & 112)
+04. Duran Duran - Ordinary World(   Читать дальше...   )Жанр: Pop, Rock, RnB, DanceПродолжительность: 03:35:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1DE506E445488F1A9050CD5A3094F1EE00074AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632787   (235103) от 11.05.2023
+
+Belinda Carlisle - Kismet (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_235103.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Big Big Love
+02. If U Go
+03. Deeper Into You
+04. I Couldn't Do That To Me(   Читать дальше...   )Жанр: PopПродолжительность: 00:18:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEA51F5B154854D5B8E3EEC5B08603BE86848B7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641641   (235084) от 25.06.2023
+
+VA - Sexy Pride Music 2023 | For Girls Who Want Boys Who Like Boys [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_235084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sam Smith - Unholy (2:36)
+02. John Travolta - You're The One That I Want (From “Grease”) (2:49)
+03. Sylvester - You Make Me Feel (Mighty Real) (6:34)
+04. Jennifer Lopez - On The Floor (4:44)(   Читать дальше...   )Жанр: PopПродолжительность: 01:24:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3020BEB309317B3EEAFE1E15A4F8B8345955BFEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576860   (234851) от 16.09.2022
+
+VA - Best 80s Pop 2022 [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_234851.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ABBA - The Winner Takes It All (04:55)
+02. M.C. Hammer - U Can't Touch This (04:17)
+03. Salt-N-Pepa - Push It (04:28)
+04. Cameo - Word Up (04:18)(   Читать дальше...   )Жанр: PopПродолжительность: 01:32:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8025C939DB61502C2E1B4379FA401F42B73144F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632831   (234787) от 13.05.2023
+
+VA - Summer Chillin' (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_234787.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vance Joy - Riptide (3:24)
+02. Bruno Mars - After Last Night (feat. Thundercat & Bootsy Collins) (4:09)
+03. Daisy Jones & The Six - Look at Us Now (Honeycomb) (5:32)
+04. Løv Li - Glimpse of Us (3:36)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:31:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1BA94528B767A13A7351A55CFA4C2053E08C3E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1584433   (234764) от 13.05.2023
 
 Paula Abdul - The Greatest (1998) [OGG Vorbis|480 Kbps] <Pop>
@@ -543,209 +746,6 @@ CD4: - 00:53:30
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B63EBD0D2986D6BCE1E2F9D6E68F73FDFC33B6C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635604   (232450) от 26.05.2023
-
-Sparks - The Girl Is Crying In Her Latte (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Pop (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_232450.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Girl Is Crying In Her Latte (2:57)
-02. Veronica Lake (3:03)
-03. Nothing Is As Good As They Say It Is (3:13)
-04. Escalator (2:57)(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE5632D4AB0FFC53DA73D6BDEB495F16E02F8402
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635608   (232363) от 26.05.2023
-
-Simply Red - Time (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop, Funk, Soul>
-
->>Pop
->>Pop (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_232363.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Better With You
-02. Just Like You
-03. Let Your Hair Down
-04. Shades 22(   Читать дальше...   )Жанр: Pop, Funk, SoulПродолжительность: 00:39:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCA3FDF313198B34D764AE87D3AF138B87E8B717
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635521   (232347) от 26.05.2023
-
-CREAM SODA - INTERNET FRIENDS (2023) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_232347.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. ENTER
-2. СЧАСТЬЕ
-3. SLAVIC
-4. ПРАЗДНИК КАЖДЫЙ ДЕНЬ(   Читать дальше...   )Жанр: PopПродолжительность: 00:33:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8695BBBA2A7AC7B341359106A065AD3FC97F68C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1643877   (232340) от 03.07.2023
-
-Marc Fruttero - Miracle (2023) [FLAC|Lossless|tracks] <Pop, Euro Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232340.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dance With Me Tonight (Extended Version) [00:05:18]
-02. Time On Your Mind (Italo New Generation Long Remix) [00:08:01]
-03. Look In My Heart (Extended Version) [00:07:49]
-04. Love Sign [00:05:05](   Читать дальше...   )Жанр: Pop, Euro DiscoФормат: CD, Album, Limited EditionПродолжительность: 00:58:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47830CF8827C52D51D3DA1808F5DC500D57463A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646404   (232167) от 14.07.2023
-
-Sko/Torp - Radio Songbook "The Best Of" (1998) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232167.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.On A Long Lonely Night
-2.Get Ready
-3.Loser's Game
-4.Wheels(   Читать дальше...   )Жанр: PopПродолжительность: 01:11:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12B767D1785CB84AB0211006DC1BB37D42CA85DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646505   (232138) от 14.07.2023
-
-Cher - It's a Man's World (1995) Deluxe Edition, Remaster, 2023, Warner Records [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232138.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Walking in Memphis (2023 Remaster) [00:03:55]
-02 - Not Enough Love in the World (2023 Remaster) [00:04:21]
-03 - One by One (2023 Remaster) [00:05:02]
-04 - I Wouldn't Treat a Dog (The Way You Treated Me) (2023 Remaster) [00:03:34](   Читать дальше...   )Жанр: PopПродолжительность: 02:18:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5969663C3083AF60BD52317E90201A4B83B38B6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1647582   (231477) от 19.07.2023
-
-VA - Никита Богословский•Три года ты мне снилась... (2001) [FLAC|Lossless|image + .cue] <Советская эстрада, Ретро>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231477.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. В. Ободзинский - Вечный вальс
-02. В. Толкунова - Hемое кино
-03. Л. Барашков - Улыбка
-04. С. Лемешев - Помнишь, мама(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 01:08:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:949FCF46A1FCDA9A0AB0C52868A89CC09201BF0F
 ```
 
 https://mybot314.ru/tekegram_catalog/

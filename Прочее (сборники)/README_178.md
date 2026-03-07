@@ -1,3 +1,248 @@
+###  Публикация: 483039   (88563) от 15.04.2012
+
+VA - Hardcore Legends Top 100 (2012) [MP3|320 kbps]<Hardcore>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_88563.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+
+01. Outblast vs Korsakoff - Unleash The Beast
+02. Black Knight - Hardcore Rhyme
+03. DJ Isaac & The Viper - The Real Shit
+04. DJ Vince & The Dark Raver - Intelligent Hardcore
+05. Black Knight - Back To Tha 'O' School
+06. Korsakoff - Too Strong
+07. DJ Gizmo & DJ Norman - Check This Out (Oldest Stylos Mix)
+08. DJ Isaac & The Viper - Freak That Shit(   Читать дальше...   )2012Жанр: HardcoreПродолжительность: 02:35:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A19BC314DC5E7ADEC441F6E00D8AECCB13439D5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481739   (88158) от 13.04.2012
+
+VA - MAXI. Вибрация тела на Радио Record (2012) [MP3|320 kbps]<Club | Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_88158.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deepside Deejays Vs. Дмитрий Колдун Feat. Alex Brashovean - Never Be Light (Dj Zapad & Dj V1t Mash-Up)
+02. Dj Sandslash - Tek
+03. Red Hot Chili Peppers - Californication ( Promise Land Bootleg )
+04. Muse Vs. Fedde Le Grand Vs. Nirvana - Black & Forth Spirit (Dj Zapad & Dj V1t Mash-Up)
+05. Dj Velchev Pavel - Steps Of Freedom(2012)
+06. Rihanna Ft. Calvin Harris - We Found Love (Dj Gold Sky Dj Shirshnev Remix)
+07. Don Omar - Ella Ella (Mickey Martini,Dj Johnny Clash & Adrenalin Life Remix 2012)
+08. Dj Джонни Мохитос - Ibiza To Kazantip
+09. Rusko - Woo Boost (Subskrpt Remix)
+10. Don Omar - Danza Kuduro (Медляк Radio Edit )(   Читать дальше...   )2012Жанр: Club | DanceПродолжительность: 04:56:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0027FAD2E0BED55CCB65C50F8C1006359DDFE17E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481591   (88005) от 12.04.2012
+
+VA - Top 100 Зайцев.нет (11.04.2012) (2012) [MP3|128-320 kbps]<Alternative, Chanson, Club, Dance, Disco, Pop, Rap, RnB, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_88005.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Павел Воля и Город 312 - Мама, Мы Все Стареем [03:21]
+02. Michel telo - Ai Se Eu Te Pego [02:43]
+03. 5sta Family - Вместе Мы (Prod by T.Y.) [03:40]
+04. Loc-Dog feat. Guf ft Баста - Ты-это безумное желание жить [03:00]
+05. Aura Dione Feat. Rock Mafia - Friends [03:43]
+06. Шима (Shyma) - Океан [03:22]
+07. Jennifer Lopez feat. Pitbull - Dance Again [03:57]
+08. Иракли & Даша Суворова - Нелюбовь [03:24]
+09. Полина Гагарина - Спектакль Окончен [04:00]
+10. Madonna - Masterpiece [04:01](   Читать дальше...   )2012Жанр: Alternative, Chanson, Club, Dance, Disco, Pop, Rap, RnB, RockПродолжительность: 07:57:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D64B2F8EEC5BAC7204B936CAFFB5CD1340A4588
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481658   (87969) от 12.04.2012
+
+VA - Дискотека 90-Х Часть 2 (Mixed by Alex Mega) (2012) [MP3|320 kbps]<Pop | Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_87969.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Aqua - Roses Are Red (Invisible Brothers & Fomin Remix)
+03. Michael Jackson - Black Or White (Iv Roudyk & Red Max Tribute To The King Mix)
+04. Milk & Sugar Vs Vaya Con Dios - Hey (Nah Neh Nah) (Milk & Sugar Club Mix)
+05. DJ Bobo - Somebody Dance With Me 2.10 (Dj Cargo Vs.Kei Morton Club Remix)
+06. Dr Alban - No Coke (DJ Nejtrino & DJ Baur Cocain Mix)
+07. The Soundlovers - Abracadabra ( Peter Walley Aka. Peat jr.Remix)
+08. Bloodhound Gang - The Bad Touch (DJ Slider And DJ Magnit Remix)
+09. Haddaway - Life (Dj Denis Rublev & Dj Anton Remix)
+10. La Bouche - Be My Lover (DJ Alex Samoilov Mix)(   Читать дальше...   )2012Жанр: Pop | DanceПродолжительность: 01:02:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7087145DF548FC629C489654FFBBC24576806BB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480997   (87720) от 11.04.2012
+
+VA - Beatport Top 100 Download April (2012) [MP3|320 kbps]<House | Dance | Trance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_87720.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thomas Gold – Sing2Me (Original Mix)
+02. Swedish House Mafia - Greyhound (Original Mix)
+03. Sebastian Ingrosso,Alesso & Ryan Tedder – Calling (Lose My Mind) (Extended Club Mix)
+04. TJR – Funky Vodka (Original Mix)
+05. Zedd – Shotgun (Original Mix)
+06. Fedde Le Grand, Deniz Koyu & Johan Wedel – Turn It (Original Mix)
+07. Mark Knight – Alright (Original Club Mix)
+08. Mark Knight – Together (Original Club Mix)
+09. Cicada, Third Party – Feel (Original Mix)
+10. Luigi Rocca & Manuel De La Mare – Opa-Locka (Original Club Mix)(   Читать дальше...   )2012Жанр: House | Dance | TranceПродолжительность: 10:50:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:952FCFCDFDE2AF04C429403DA63C595A2F2990D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480132   (87492) от 09.04.2012
+
+VA - Disco Remix DJ (2012) [MP3|320 kbps]<Disco | Dance | Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_87492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Eagles - Hotel California (DJ Denis Rublev & DJ Anton Radio Mix)
+02. Opus - Life Is Life (DJ Vengerov Remix Version 1)
+03. Nek - La Vita E (DJ Zelensky Remix)
+04. Italian Disco Mafia - L'italiano (DJ Kharma & Mightyatom Spaghetti Edit)
+05. No Doubt - Don't Speak (DJ Solovey Remix Radio Edit)
+06. Nana & Ray Horton - Remember The Time (DJ Nejtrino & DJ Stranger Piano Mix)
+07. FM Audio - Killer 2K11 (Niels Van Goch Vs. Sunloverz Remix Edit)
+08. Vinylshakerz & Rico Bernasconi - One Night In Bangkok (Rico Bernasconi Radio Mix)
+09. Coolio - Gangsta's Paradise 2011
+10. DJ Bobo - Volare 2011(   Читать дальше...   )2012Жанр: Disco | Dance | ClubПродолжительность: 05:08:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E46B0476A87C683A2CE4B53348284DA1F6A5E59E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480285   (87368) от 09.04.2012
+
+VA - The Best Of Lounge Music (2012) [MP3|320 kbps]<Chillout | Lounge>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_87368.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lily Wood & The Prick - This Is A Love Song
+002. The Do - Too Insistent
+003. Emilie Simon - Desert
+004. Cocoon - Cornets
+005. Brisa Roche - Breathe In Speak Out
+006. General Elektriks - Summer Is Here
+007. Applause - Black Sand
+008. The Herbaliser Feat. Seaming To - Something Wicked
+009. Beat Assailant - Hard Twelwe - The Ante
+010. Raashan Ahmad Feat. Aloe Blacc & Gift Of Gab - Falling(   Читать дальше...   )2012Жанр: Chillout | LoungeПродолжительность: 07:54:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EEC6F23D3845AE38C1B84EB2BF5F40445321928
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 479254   (87008) от 07.04.2012
 
 VA - Beautiful and Relaxing music (2012) [MP3|320 kbps]<Chillout | Lounge | Relax>
@@ -643,242 +888,6 @@ VA - Жажда Скорости - Полный Драйв (2012) [MP3|192 kbps]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8EF6FE6C73B709C62C80825D30D46C541C19B3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473838   (84706) от 27.03.2012
-
-VA - Лучшая Клубная Музыка Марта (2012) [MP3|192 кб/с]<Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Afrojack Feat. Eva Simons - Take Over Control (Ian Carey Remix).mp3
- 02. Atb Feat. Jansoon - Move On (Airplay Edit).mp3
- 03. Bob Sinclar And Raffaella Carra - Far Lamore (8club Mix).mp3
- 04. Boris And Michi - Azzurro (The Cube Guys Molleggiato Mix).mp3
- 05. Britney Spears - Criminal (Dj Sergey Fisun Bootleg Rmx) 2.mp3
- 06. Britney Spears - I Wanna Go (Alex Dreamz Radio Edit).mp3
- 07. Caro Emerald - Stuck (Kraak & Smaak St. Tropez Remix).mp3
- 08. Energy 52 - Cafe Del Mar (Deadmau5 Remix).mp3
- 09. Fidel Wicked - Wicked Angel.mp3
- 10. Jai Alexander & Sarah - Ibiza Party.mp3(   Читать дальше...   )2012Жанр: Club, DanceПродолжительность: 02:33:29
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473594   (84654) от 27.03.2012
-
-VA - Gagauz Relax Station I (2012) [MP3|~205-320 кб/с]<Chillout, Ambient, Lounge, Vocal Trance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dan Balan - Freedom (Katana Slow Version) [03:48]
-02. Aelyn - Believe In Us (Chillout Mix) [04:01]
-03. Ascesion - For A Lifetime(Chillout Mix) [06:09]
-04. Sunlounger - Lost(Chill) [04:23]
-05. Cosmic Gate & Emma Hewitt - Be Your Sound (Radio Edit) [04:14]
-06. Headstrong feat. Stine Grove - Tears (Acoustic Piano Chillout Mix) [03:38]
-07. Dash Berlin - Till The Sky Falls Down (Monokini Beach Mix) [05:53]
-08. Phaeleh - In the twilight [06:26]
-09. Sandra - Forgive Me (Chillout Remix) [03:51]
-10. Sunlounger - Lost (Chill Version) [05:27](   Читать дальше...   )2012Жанр: Chillout, Ambient, Lounge, Vocal TranceПродолжительность: 01:33:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80E3A4842BA61A686793171AE74AFF6C340D6147
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474050   (84651) от 27.03.2012
-
-VA - Горячая 70-ка в Машину (2012) [MP3|256-320 кб/с]<Electro-House, Club House, Dance, Club, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84651.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Ian Carey & Rosette Ft. Timbaland & Brasco - Amnesia (Cazzette Another Sugar Hunt Mix)
- 02 Sean Paul - She Doesnt Mind (LX-Tronix Remix)
- 03 Jerry Rekonius - 10TH (Original Mix)
- 04 Tom Moroca - Hello (Original Mix)
- 05 DJ Dank - Midnight Moroder (Darth & Vader Remix)
- 06 Electrixx - Some Beats (Original Mix)
- 07 Project 46 - Jigsaw (Original Mix)
- 08 Sean Paul - She Doesn't Mind (Mixshow Extended Mix)
- 09 Dev feat. Enrique Iglesias - Naked (Proper Villains Remix)
- 10 Skrillex & The Doors - Breakn' A Sweat (Zedd Remix)(   Читать дальше...   )2012Жанр: Electro-House, Club House, Dance, Club, PopПродолжительность: 06:07:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4439AFAC8903ECE59BE47F5BC1E4431D967A5C13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473480   (84626) от 26.03.2012
-
-VA - 500 величайших песен всех времён по версии журнала Rolling Stone (2012) [MP3|320 kbps]<Pop|Rock|Soul|R&B|Punk|Hip-Hop|Folk|Country>
-
->>След.
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84626.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bob Dylan - Like A Rolling Stone ...(1965)
-02. The Rolling Stones - Satisfaction ...(1965)
-03. John Lennon - Imagine ...(1971)
-04. Marvin Gaye - What's Going On ...(1971)
-05. Aretha Franklin - Respect ...(1967)
-06. The Beach Boys - Good Vibrations ...(1966)
-07. Chuck Berry - Johnny B. Goode ...(1958)
-08. The Beatles - Hey Jude ...(1968)
-09. Nirvana - Smells Like Teen Spirit ...(1991)
-10. Ray Charles - What'd I Say ...(1959)(   Читать дальше...   )Жанр: Pop|Rock|Soul|R&B|Punk|Hip-Hop|Folk|CountryПродолжительность: 31:07:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:764A1A59995B50473B2403A4490DF2191E352596
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473652   (84620) от 26.03.2012
-
-VA - XXXL Лучшая музыка для секса (2012) [MP3|224 kbps]<Pop|Sex music>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84620.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Afromental - Pray 4 Love
-02. Everything But The Girl - Before Today
-03. Triangle Sun - Summer Of Our Love
-04. Plonn - Many Hours Passed
-05. Octowire - The New York Grill (In & Out Mix)
-06. 2raumwohnung - Alles Aus
-07. Aram Quartet - Walk On The Wild Side
-08. Ennio Morricone - Chi Mai
-09. Stargazer - Malkimono
-10. Enigma - Between Generations(   Читать дальше...   )2012Жанр: Pop|Sex musicПродолжительность: 07:24:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5189E1B917B9E82561FCA2EAF7E2B0F2F596B8EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473238   (84563) от 26.03.2012
-
-VA - The Complete 90's Music Collection (10CD) (2012) [MP3|128 kbps]<Pop|Rock|Metal|Instrumental|Retro>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84563.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD-1: (1990)
-
-01. 2 Live Crew - Me So Horny (1990)
-02. B52's - Love Shack (1990)
-03. B52's - Roam (1990)
-04. Bell Biv Devoe - Poison (1990)
-05. Bette Midler - From A Distance (1990)
-06. Billy Idol - Cradle Of Love (1990)
-07. George Michael - Praying for Time (1990)
-08. Glenn Medeiros & Bobby Brown - She Ain't Worth It (1990)(   Читать дальше...   )2012Жанр: Pop|Rock|Metal|Instrumental|RetroПродолжительность: 38:20:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED4DE7980F694CB8A1DF3F4280A9130AF49029C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473459   (84531) от 26.03.2012
-
-Коллекция исполителей песни - Besame Mucho (2012) [MP3|128 кб/с]<Blues, Retro>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84531.jpg" />
-</div>
-
-
-###  Подробнее
-
-2012Жанр: Blues, RetroПродолжительность: 2:56:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70A4F734FF8E25F933D1649C76397B3F0E61BF72
 ```
 
 https://mybot314.ru/tekegram_catalog/

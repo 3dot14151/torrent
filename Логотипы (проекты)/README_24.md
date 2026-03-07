@@ -1,3 +1,55 @@
+###  Публикация: 1032393   (645444) от 07.07.2016
+
+Проекты - VideoHive - Liquid Logo Reveal - 6941467 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645444.jpg" />
+</div>
+
+
+###  Подробнее
+
+Liquid Logo Reveal - шейповая жидкостная анимация для показа вашего логотипа.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BBD562EBE02F0FBBA11806A03D7A9C704FBEDCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032396   (645439) от 07.07.2016
+
+Проекты - VideoHive - Clean Flip Logo - 5988691 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645439.jpg" />
+</div>
+
+
+###  Подробнее
+
+Clean Flip Logo - простой, элегантный, чистый показ вашего логотипа.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:380A2611B41370AC98856624CB18CE83BABB83A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1032342   (645335) от 07.07.2016
 
 Проекты - VideoHive - Magical Particles Vortex Logo Reveal - 5086083 [AEP]
@@ -620,58 +672,6 @@ Fire Logo - современная, динамичная анимация лог
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A12E97E38F00BE0FE90C789E89DA70F7ADF5D27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229651   (624055) от 07.06.2018
-
-Проекты - VideoHive - Quick Fire Swish Logo - 20355943 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624055.jpg" />
-</div>
-
-
-###  Подробнее
-
-Quick Fire Swish Logo - мощный, кинематографический заголовок. Кинематографический внешний вид и высококачественный огонь, созданный из 3D-приложения, делают его идеальным для ваших эпических интересных проектов.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98504DC667405E8AB7F5C66113416F71181AFD8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036466   (620719) от 20.07.2016
-
-Проекты - VideoHive - Energy Explosion Logo Reveal - 4369042 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620719.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания демонстрации логотипа. Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36BB524B60581239917857B2A6834CA40A552C69
 ```
 
 https://mybot314.ru/tekegram_catalog/

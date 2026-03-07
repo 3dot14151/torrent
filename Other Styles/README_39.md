@@ -1,3 +1,32 @@
+###  Публикация: 1118127   (811083) от 26.03.2017
+
+VA - La La Land / Ла-Ла Ленд - The Complete Musical Experience (2017) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La La Land Cast - Another Day of Sun (with Radios) (04:34)
+02. Justin Hurwitz - Mia Gets Home (00:24)
+03. Justin Hurwitz - Bathroom Mirror / You’re Coming Right? (01:19)
+04. Emma Stone, Callie Hernandez, Sonoya Mizuno & Jessica Rothe - Someone in the Crowd (04:19)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:33:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A218F52D16017FE6FE88E53E4E48527378BB66D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1118129   (811079) от 26.03.2017
 
 VA - La La Land / Ла-Ла Ленд - The Complete Musical Experience (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
@@ -713,35 +742,6 @@ Brian Tyler - Power Rangers / Могучие ренджеры (Original Motion P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB33A94814C5E4C37EB3D9875E028207CC010328
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119731   (805489) от 29.03.2017
-
-Jeff Russo - Legion / Легион (Original Television Series Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Young David (05:06)
-02. David in Clockworks (00:46)
-03. 174 Hours (08:47)
-04. Seeing Things Hearing Things (04:53)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:15:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A3DAB581C31C4FA1B1F9615EE2E45A7BCFB2EAE
 ```
 
 https://mybot314.ru/tekegram_catalog/

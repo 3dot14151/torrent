@@ -1,3 +1,32 @@
+###  Публикация: 1012626   (793557) от 01.05.2016
+
+Roland Romanelli (ex. Space) - Meditations Et Reves (Meditations and Dreams) (1988) [FLAC|Lossless|image + .cue] <New Age, Easy Listening, Electronic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793557.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Melody For A Soul
+02. Love's Memories
+03. Sadness Or Happiness
+04. Liliane's Melody(   Читать дальше...   )Жанр: New Age, Easy Listening, ElectronicПродолжительность: 00:54:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B5067B5AB794EE198CFF130D2CD4B221D495F5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 382808   (793522) от 13.11.2021
 
 Пелагея - Дискография (11 CD) (2003-2010) [FLAC|Lossless]<Ethnic/Folk-Rock>
@@ -716,35 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:477F4856A312FCEBA45343CF0BEF1711C98E653C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201875   (791557) от 26.01.2018
-
-Бузулук - Гордись, Русская Слава! (2008) [MP3|320 Kbps] <Folk, Казачья песня>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791557.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Гордись,гордись, русская слава (4:31)
-02. Вдоль по линии Кавказа (4:50)
-03. На речке Камышинке (4:26)
-04. Со горы горы (2:56)(   Читать дальше...   )Жанр: Folk, Казачья песняПродолжительность: 01:16:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92CA4E4D11752C322E5B43DC2B0D0B9908D6F24D
 ```
 
 https://mybot314.ru/tekegram_catalog/

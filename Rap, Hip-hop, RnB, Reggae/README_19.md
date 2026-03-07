@@ -1,3 +1,90 @@
+###  Публикация: 1240475   (528536) от 11.08.2018
+
+Nicki Minaj - Queen (2018) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_528536.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ganja Burns (4:54)
+ 02. Majesty (feat. Eminem & Labrinth) (4:56)
+ 03. Barbie Dreams (4:40)
+ 04. Rich Sex (feat. Lil Wayne) (3:13)(   Читать дальше...   )Жанр: Rap, Hip-hopПродолжительность: 01:06:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7557DE776FDA9C298F86174162B94C3C300B6342
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1052862   (527130) от 15.09.2016
+
+Die Antwoord - Mount Ninji and Da Nice Time Kid (2016) [MP3|320 Kbps] <Hip-Hop, Electronic>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_527130.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Have Candy
+ 02. Daddy
+ 03. Banana Brain
+ 04. Shit Just Got Real (Feat. Sen Dog)(   Читать дальше...   )Жанр: Hip-Hop, ElectronicПродолжительность: 00:54:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38402119C456D47C0AA112AE9AF9988B20E4D44A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1559477   (524307) от 25.06.2022
+
+Machine Gun Kelly - Mainstream Sellout (2022) life in pink deluxe, Explicit [FLAC 2.0|44/24|WEB-DL|tracks] <Hip-Hop, Pop-Punk>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop, RnB, Reggae (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_524307.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 9 lives (3:01)
+02. more than life (3:16)
+03. why are you here (2:56)
+04. last november (2:55)(   Читать дальше...   )Жанр: Hip-Hop, Pop-PunkПродолжительность: 00:59:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10AE4161343CE960AA35080C3B1FD4EA4DD010A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1559467   (524204) от 25.06.2022
 
 Bob Marley & The Wailers - Exodus (1977) 2CD, 45th Anniversary, Deluxe Edition, 2022, Tuff Gong [FLAC 2.0|96/24|WEB-DL|tracks] <Reggae>
@@ -664,93 +751,6 @@ The Maytals - The Best Of The Maytals (2016) 2CD, Compilation [MP3|320 Kbps] <Re
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DFC6D2FCE00047AC6C6E5EFCA0383371BB6856D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 384779   (478168) от 08.09.2011
-
-25/17 (Иезекииль 25:17, Ант, Бледный) - Зебра (2010) [FLAC|Lossless]<Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Зачем (0:00:41)
-02. Ч.Б. (0:03:32)
-03. Березовая (0:03:04)
-04. Просыпайтесь! (0:02:48)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:55:10
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406388   (473190) от 04.09.2020
-
-Stephan Pie - Не паникуй! (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473190.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Жить правильно [02:05]
-02. Факир [02:52]
-03. Кендрик Ламар (feat. CMH, mediynayablad & N.Masteroff) [02:25]
-04. Мой гэнг (feat. Slava Marlow) [03:25](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:28:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2162F802F49D14382E559DFCA36171DBA7397517
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406387   (473080) от 04.09.2020
-
-DK - SYNONIM (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро [01:42]
-02. По необъятной [02:38]
-03. Буду [02:13]
-04. Всё в порядке [02:34](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:26:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE4F600B94D1986D5D39D45B637F42777E8B8E1A
 ```
 
 https://mybot314.ru/tekegram_catalog/

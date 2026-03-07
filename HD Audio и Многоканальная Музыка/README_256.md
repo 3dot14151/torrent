@@ -1,3 +1,178 @@
+###  Публикация: 1814287   (6239) от 23.08.2025
+
+Heidarlegur - Time Machine to Travel Back to Childhood (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_6239.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Time Machine to Travel Back to Childhood (2:11)
+02.  Dandelion Wine (2:03)
+03.  Girl in a Green Dress (2:43)
+04.  I Stole These Flowers for You. (From the Bottom of My Heart) (2:51)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:21:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:314B3F987DDAB0A506634A4012C26FF3955C8A03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569647   (6182) от 24.08.2025
+
+Iron Savior (Helloween, Gamma Ray, Unisonic) - Studio Albums (16 releases) (1997-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Power/Speed Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_6182.jpg" />
+</div>
+
+
+###  Подробнее
+
+Iron Savior — немецкая группа, играющая в стиле пауэр-метал, созданная в 1996 году Питом Силком, Каем Хансеном, и Томеном Штаухом. Основной темой песен группы является научная фантастика. Большинство их песен повествуют о космическом корабле «Iron Savior» и связаны с исчезнувшим континентом — Атлантидой. В текстах песен также встречаются темы восприятия реальности (   Читать дальше...   )1997 - Iron Savior
+1998 - Unification
+2001 - Dark Assault
+2002 - Condition RedЖанр: Heavy/Power/Speed MetalПродолжительность: 19:28:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81493A1A7BE3C1B091E61510460E3EBDB4F0DDB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1814653   (5953) от 25.08.2025
+
+Holst, Grieg - Herbert von Karajan, Vienna Philharmonic - The Planets, Peer Gynt (1961, 2024) [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Classical, Romantic, Modern>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5953.jpg" />
+</div>
+
+
+###  Подробнее
+
+Holst - The Planets, Op.32
+01. 1. Mars, the Bringer of War (7:05)
+02. 2. Venus, the Bringer of Peace (8:22)
+03. 3. Mercury, the Winged Messenger (4:00)(   Читать дальше...   )Жанр: Classical, Romantic, ModernПродолжительность: 01:14:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDB58F705174315DBEE350E6FF8781837648A0DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1814538   (5934) от 25.08.2025
+
+Incite - Studio Albums (7 releases) (2009-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash/Groove Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5934.jpg" />
+</div>
+
+
+###  Подробнее
+
+Incite — американская метал-группа из Финикса, штат Аризона, основана в 2004 году.
+Фронтмен Ричи Кавалера наиболее известен как пасынок Макса Кавалеры, участника групп Sepultura, Soulfly и Cavalera Conspiracy.2009 - The Slaughter
+2012 - All Out War
+2014 - Up In Hell
+2016 - Oppression(   Читать дальше...   )Жанр: Thrash/Groove MetalПродолжительность: 04:19:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:175E249D13BC8F5201ADCE86A959921A24581ABA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1814805   (5801) от 26.08.2025
+
+The Hives - The Hives Forever Forever The Hives (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Garage Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5801.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. (introduction) (0:28)
+02. Enough Is Enough (2:46)
+03. Hooray Hooray Hooray (2:33)
+04. Bad Call (3:31)(   Читать дальше...   )Жанр: Garage RockПродолжительность: 00:33:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E476E6F9E21CD599266FD66FDCA1BF7623138C06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1814703   (5786) от 26.08.2025
+
+Warmen - Studio Albums (7 releases) (2000-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal, Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5786.jpg" />
+</div>
+
+
+###  Подробнее
+
+Warmen - финская метал-группа, основана в 2000 году клавишником "Children of Bodom" Янне Вирманом.2000 - Unknown Soldier
+2002 - Beyond Abilities
+2005 - Accept The Fact
+2009 - Japanese HospitalityЖанр: Power Metal, Melodic Death MetalПродолжительность: 05:15:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1EA4E8246F039BD4776E82FF769D33F13C97EA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1638527   (5690) от 27.08.2025
 
 Fueled By Fire - Studio Albums (4 releases) (2006-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
@@ -570,180 +745,6 @@ Chuck Schuldiner (Death; Control Denied; Voodoocult; Naphobia) - Studio Albums (
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9AF528BB3CC24792612A6287CD657FECFA3EF7E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800879   (5181) от 30.08.2025
-
-Green Day - Saviors (2024) edition de luxe, 2025, Reprise [FLAC 24/48, 24/96|Lossless|WEB-DL|tracks] <Punk, Alternative Rock, Indie Rock, Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5181.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The American Dream Is Killing Me [3:07]
-02 - Look Ma, No Brains! [2:04]
-03 - Bobby Sox [3:45]
-04 - One Eyed Bastard [2:53](   Читать дальше...   )Жанр: Punk, Alternative Rock, Indie Rock, RockПродолжительность: 01:12:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76C4B5216604E946CE0DF490F6720E3F41E90133
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815440   (5150) от 30.08.2025
-
-Knox Evercrest - Unwritten Game (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5150.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Fractured Kin Sorrow (3:11)
-02.  Born of Blues (3:52)
-03.  Lawless Play (4:11)
-04.  Ticking Fate (3:34)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D05E08AA8436146A279AB98885D13BB794292512
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815430   (5134) от 30.08.2025
-
-Carolyn Jones - All in divine timing (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Stand (4:46)
-02.  Toy (3:29)
-03.  Without you (5:51)
-04.  Bliss (3:38)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCCCFCBDB61B3FEEC5EAB9A866230184D348EBA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815441   (5123) от 30.08.2025
-
-Knox Vortex - Darling I Don’t Mind (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Darling I Don’t Mind (1:43)
-02.  Groove to Become (2:18)
-03.  The Idiot (2:53)
-04.  Azure Moon Evenings (2:18)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:21:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:787709C125B5D96489876950435615A4022BCE7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815436   (5117) от 30.08.2025
-
-David Rose - Be a Gentleman (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz, Vocal Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5117.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Be a Gentleman (3:34)
-02.  I Love It (1:27)
-03.  Blue Silk (3:57)
-04.  Organized Chaos (2:20)(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 00:47:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E13F11288876D9A0C9DFE8BDFACCE935746980A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815438   (5116) от 30.08.2025
-
-Eric Gales - A Tribute To LJK (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5116.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  You Shouldn't Have Left Me (4:50)
-02.  Rockin Horse Ride (feat. Christone "Kingfish" Ingram) (4:05)
-03.  Guitar Man (4:42)
-04.  Don't Wanna Go Home (feat. Joe Bonamassa) (5:23)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:47:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFB01D46797EE232041B678F08F7EECA91DA6E9D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1351473   (1000892) от 15.01.2020
+
+7 часов спустя (Обратный отсчёт) / 7 Hours to Go (Original Motion Picture Soundtrack) - EP (2016) [MP3|128 Kbps] <OST, Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000892.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mohammed Irfan feat. Sarodee Borah & Sugat Shubham - Tere Naina
+02. Nikhil DSouza feat. SugaT, Shubham & Hanif Shaikh - Zinda Hota Mein
+03. Jubin Nautiyal feat. SugaT, Shubham & Hanif Shaikh - Zinda Hota Mein (Reprise)
+04. Hanif Shaikh - Dalinder Dance(   Читать дальше...   )Жанр: OST, SoundtrackПродолжительность: 00:21:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E8328AC2162823F2C45010D643862284D0D468E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1352228   (1000880) от 15.01.2020
 
 Kenneth Hooper - Directions (2020) [MP3|320 Kbps] <New Age>
@@ -840,41 +869,6 @@ Evgeny Grinko - Naive Album (2019) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9F805D4D7DD4D641536183BFB80875FC3B8A8D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 608110   (992170) от 27.01.2013
-
-VA - Country Legends (12CD) (2005) [MP3|320 кб/с]<Country>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992170.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Rawhide01. Johnny Cash - Cry, Cry, Cry
- 02. Charley Pride - Happiness Of Having You
- 03. Frankie Laine - Granada
- 04. Lynn Anderson - Heaven's Just A Sin Away
- 05. Tina Turner - If It's Alright With You
- 06. Jimmie C. Newman - A Fallen Star
- 07. Anne Murray - It's All Over
- 08. Patsy Cline - Hungry For Love
- 09. Jim Reeves - Wind Up Doll
- 10. Jerry Lee Lewis - Your Cheatin' Heart(   Читать дальше...   )Жанр: CountryПродолжительность: 00:39:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBF32E4DE86015100417B04A45DE33682A3A8BEF
 ```
 
 https://mybot314.ru/tekegram_catalog/

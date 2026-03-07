@@ -144,6 +144,64 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854442   (1057295) от 18.02.2026
+
+TLC - Ooooooohhh…On the TLC T (1992) [FLAC|Lossless|tracks + .cue] <R&B, Funk / Soul>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>RnB, Reggae (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1057295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro [0:00:30.58]
+02. Ain’t 2 Proud 2 Beg [0:05:36.42]
+03. Shock Dat Monkey [0:05:08.43]
+04. Intermission I [0:00:19.22](   Читать дальше...   )Жанр: R&B, Funk / SoulПродолжительность: 00:55:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37A3E2FB464D310B9CB0A12F657B89AD8BB1FE6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854430   (1057294) от 18.02.2026
+
+The English Beat - Special Beat Service (1986) [FLAC|Lossless|tracks + .cue] <Reggae Rock, Ska>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1057294.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Beat / I Confess [0:04:33.12]
+02. The Beat / Jeanette [0:02:48.55]
+03. The Beat / Sorry [0:02:33.08]
+04. The Beat / Sole Salvation [0:03:06.45](   Читать дальше...   )Жанр: Reggae Rock, SkaПродолжительность: 00:39:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDBAF4E8F8AE3BE56468728F2022436CC36A9DA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1854067   (1057152) от 15.02.2026
 
 Icegergert - Глаз Бога (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hip-Hop, Rap>
@@ -550,6 +608,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601880   (1046316) от 02.01.2023
+
+Вася Васин - Танец с саблями (2023) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1046316.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Великий Питер
+2. Мания величия
+3. Танец с саблями
+4. Мудрые слова(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:43:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6FCD57656C77BA8C12D1C41F1DC8B5B86885791
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1602264   (1046021) от 06.01.2023
 
 SERPO - Чужие истории (2023) [MP3|320 Kbps] <Rap, Hip Hop>
@@ -659,93 +746,6 @@ Stevie Wonder, настоящее имя которого Stevland Hardaway Morr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E80D26C0C786126CB3C0888AE3A7409675C7398
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607659   (1043944) от 27.01.2023
-
-Twiztid - Glyph (2023) [FLAC|Lossless|WEB-DL|tracks] <Hardcore Rap, Horrorcore Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043944.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Keepin 1 (3:32)
-02. Stab (3:05)
-03. Fallin In <3 With Some1 Who Hates You (2:49)
-04. 360 (feat. Blaze Ya Dead Homie & ABK) (4:15)(   Читать дальше...   )Жанр: Hardcore Rap, Horrorcore Rap, Hip-HopПродолжительность: 00:34:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A13C483EDE6BAA39FA6BD65EDE1E9E44614DEB25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607937   (1043837) от 28.01.2023
-
-Murovei - WINSK I-II (2023) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043837.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Олимп (Intro) [00:01:53]
-02. Выговор [00:02:13]
-03. Звездочки [00:02:36]
-04. Помпеи [00:02:16](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 2 CD, 00:49:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A6D4F29BEBAE316C7226D6E6779EB101265D547
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607711   (1043815) от 28.01.2023
-
-Sam Smith - Gloria (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, R&B, Soul>
-
->>Rap, Hip-hop, RnB, Reggae
->>RnB, Reggae (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Me More [00:03:23]
-02. No God [00:03:17]
-03. Hurting Interlude [00:00:18]
-04. Lose You [00:03:10](   Читать дальше...   )Жанр: Pop, R&B, SoulПродолжительность: 00:33:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC63C866ED0FA08D60D4EF64DD63D0C8BBB569AA
 ```
 
 https://mybot314.ru/tekegram_catalog/

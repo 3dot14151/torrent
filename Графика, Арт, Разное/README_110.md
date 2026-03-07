@@ -1,3 +1,29 @@
+###  Публикация: 578464   (355663) от 20.11.2012
+
+Nature HD Wallpapers (20.11.12) [Wallpapers]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_355663.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F83B3FD3D2C95E150EDB7AF897DFEFAFBF11E6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 577973   (355652) от 20.11.2012
 
 Military Wallpapers (19.11.12) [Wallpapers]
@@ -642,32 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37D9C9E0D214B468BFC62C08F4C7442CC2BF3477
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953478   (349151) от 04.11.2015
-
-Обои - Best Wallpapers Mixed 164 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349151.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красивые обои на различные темы для рабочего стола.Формат: JPGРазрешение файлов: 2560x1440
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69EFB18EA7AD8A97DB11FCC8E78DCB4051FC7B87
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1853073   (1056235) от 11.02.2026
+
+Windows 11 Pro/Ent by OneSmiLe 26H1 build 28000.1575 [Ru]
+
+>>ОС Windows
+>>Сборки Windows 11
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056235.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка сделана из оригинальных образов
+Используется лаунчер от ФБ
+ru-ru_windows_11_business_editions_version_26h1_x64_dvd_b8bdee14
+Установлены обновления по 11.02.2026(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F5AA0C10435DFC207FA57E7517C6A480E55B32D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1852208   (1055812) от 08.02.2026
 
 Windows 10 (v22h2) x64 PRO by KulHunter v29 (esd) [Ru]
@@ -675,35 +704,6 @@ Microsoft® Windows® 10 x64 Ru 22H2 4in1 Upd 01.2026 by OVGorskiy
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F1C9FFB1549E2DCD5D8E01D12621835856A52CED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848391   (1052745) от 17.01.2026
-
-Windows 7 SP1 7601.28117 x64 3in1 by OneSmiLe [17.01.2026] [Ru]
-
->>ОС Windows
->>Сборки Windows 7
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052745.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка сделана из оригинальных образов
-• ru_windows_7_professional_with_sp1_vl_build_x64_dvd_u_677774
-• ru_windows_7_ultimate_with_sp1_x64_dvd_u_677391
-• ru_windows_7_enterprise_with_sp1_x64_dvd_u_677671(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD2B32E9383167054B57F2B795B2BCC0CB2604ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,73 @@
+###  Публикация: 565528   (400072) от 26.10.2012
+
+VA - Global Dance NRJ (2012) [MP3|128 кб/с]<Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_400072.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Arash feat. Sean Paul feat. Ice MC - She Makes Me Go (DJ Amor Remix)
+002. PSY feat. DJ Nejtrino & DJ Baur - Gangnam Style (Vadim Smile & Artem Onyx feat. Madis Mash-Up)
+003. Alex Ferrari - Bara Bara Bere Bere (Giulietto Kronika & Deejay Trip Remix)
+004. Sonny Flame - Sale el Sol (Bodybangers Remix)
+005. Miami Club feat. Nicci - Supernova (R.I.O. Radio Edit)
+006. Calvin Harris feat. Florence Welch - Sweet Nothing
+007. Linkin Park - Burn It Down (Bobina Remix Radio Edit)
+008. Bob Marley & The Wailers - Jammin (Benny Benassi Remix Edit)
+009. Christopher S Feat. Brian - Deymien (Christopher S Radio Mix)
+010. Michel Telo feat. Pitbull - Ai Se Eu Te Pego (If I Get Ya) (Smash Mode Remix Radio Edit)(   Читать дальше...   )Жанр: DanceПродолжительность: 12:14:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79E6A74E9235AB24761231077263ACCC5CA94BD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 565284   (400038) от 26.10.2012
+
+VA - Bravo Hits Vol. 79 (2012) [MP3|320 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_400038.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Psy - Gangnam Style [3:40]
+02. The Wanted - Chasing The Sun (2012 Remaster) [3:14]
+03. Owl City & Carly Rae Jepsen - Good Time [3:23]
+04. Jonas Myrin - Day Of The Battle (Edit) [3:34]
+05. Conor Maynard feat. Ne-Yo - Turn Around [3:53]
+06. Ne-Yo - Let Me Love You (Until You Learn To Love Yourself) [4:14]
+07. Flo Rida - Let It Roll (Album Version) [3:15]
+08. Timbaland feat. Ne-Yo - Hands In The Air [4:02]
+09. Will.I.Am feat. Eva Simons - This Is Love [4:06]
+10. Jay Sean feat. Pitbull - I'm All Yours [3:37]Жанр: PopПродолжительность: 02:42:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F344491EB81AE3929559F7D00C6F03F0D14BAF17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 563217   (400035) от 26.10.2012
 
 VA - Europa Plus: Only Best Hits Осенний 50/50 (2012)  [MP3|128 кб/с]<Pop>
@@ -825,76 +895,6 @@ VA - Взорви Танцпол. Русский Сборник (2012) [MP3|256 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A5A8C568E813DBE292427727CC38FF606694A62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 568910   (393127) от 02.11.2012
-
-VA - Из Каждого Утюга (2012) [MP3|320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393127.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. А расстоянии дыхания - 140 ударов в минуту
-02. Kоролева снежная - Комиссар
-03. Переливы - Рома Жуков
-04. Position 2 (Orchestral Radio Edit) - Кай Метов
-05. По подоконнику дождь - Оксана Почепа
-06. Подождем - Игорек
-07. Какао - Унеснные ветром
-08. Страшная - Алексин
-09. Колян - Евро
-10. Бабочка-луна (Denis Rublev & Natasha Baccardi) - Саша Айвазов(   Читать дальше...   )Жанр: PopПродолжительность: 05:03:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAA334B277E86115BD9396614651703D3D4A5402
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 568913   (392965) от 02.11.2012
-
-VA - Золотой Граммофон Осенний Выпуск (2012) [MP3|128 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392965.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Света - Лондон-Москва
-002. Анна Семенович - Любовь Под Облаками
-003. Reflex - Потому Что Не Было Тебя (Версия 2012)
-004. Тимати и Григорий Лепс - Лондон
-005. Елена Есенина - Синдерелла
-006. Стас Михайлов - Джокер
-007. Павел Воля - Я Танцую!
-008. Вера Брежнева и DJ Smash - Любовь На Расстоянии
-009. Дима Билан и Ева - Малыш
-010. Ёлка - Хочу(   Читать дальше...   )Жанр: PopПродолжительность: 11:51:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:197CA538733177CC20906711D39E8A5817AA748C
 ```
 
 https://mybot314.ru/tekegram_catalog/

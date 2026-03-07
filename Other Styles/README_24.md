@@ -1,3 +1,32 @@
+###  Публикация: 227951   (908465) от 20.03.2020
+
+Алекс Сильванни - Электроорган (1975) Vinyl Rip, Remastered, 2007, Raritet Music [FLAC|Lossless|image + .cue] <Easy Listening, Jazz, Pop>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_908465.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это исключительно мягкий, классический Easy Listening с обилием звуков "Hammond Organ" в весьма интересной интерпретации автора.01. Музыкальный Автомат - Disco Stomp (H. Bohannon) (4:03)
+02. Вечером В Субботу - Sabato Pomeriggio (C. Baglioni - A. Coggio) (4:56)
+03. Чтобы Ты Знала - Para Que No Me Olvides (R. Girado) (3:55)
+04. Какой Он Спокойный - Sereno E ... (E. Riccardi  - L. Albertelli) (4:28)(   Читать дальше...   )Жанр: Easy Listening, Jazz, PopПродолжительность: 00:39:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C086B3FF08AABA85A96486C95E66D4DA72F1FA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 235773   (908437) от 20.03.2020
 
 VA - The Best Of Piano (2009) [FLAC|Lossless|tracks] <New Age, Instrumental, Piano>
@@ -717,35 +746,6 @@ Jamie McMenamy - Oceanlands (2017) [MP3|320 Kbps] <Ambient, Downtempo, Relaxatio
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CDC559B99538010E53478CBF9F7B3DC3C8DB4AB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100093   (901482) от 03.02.2017
-
-VA - Acoustic R&B Chill Playlist. Eighteen Smooth and Chilled Tracks (2017) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Karizma Duo - Cry Me a River
-02. Olivia Keast - Every Breath You Take
-03. Ginnie - I Can't Make You Love Me - Acoustic Version
-04. Hannah Dorman - Hurts(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 01:09:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F2CB32F32045DE2043605D9A013341CB3F47CBE
 ```
 
 https://mybot314.ru/tekegram_catalog/

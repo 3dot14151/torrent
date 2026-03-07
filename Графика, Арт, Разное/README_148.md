@@ -1,3 +1,29 @@
+###  Публикация: 1823004   (104376) от 09.10.2025
+
+Иконки - CraftPix - C Ranks Game Assets Pack [PNG, PSD]
+
+>>Графика, Арт, Разное
+>>Иконки и аватарки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104376.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представляем набор игровых ресурсов C Ranks. Эта коллекция состоит из 22 иконок. Они могут быть использованы в игровых проектах, где игроки получают различные достижения, ранги или уровни. Каждая иконка имеет 5 цветовых вариантов.Формат: PNG, PSDРазрешение файлов: 274x277
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:833811E4035275C8185C32922AECFB581123899F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1822824   (102698) от 08.10.2025
 
 Промты - SevenUnited LLC - 376 Midjourney Prompts For Drawing Styles - 6537481 [TXT, JPG]
@@ -683,36 +709,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D1730E5BB778DB799F6F895D0B56C7DB188AE09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471498   (97369) от 21.03.2012
-
-[Wallpapers] HD Wallpapers Pack 11
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97369.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] HD Wallpapers Pack 11
-Название: HD Wallpapers Pack 11
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:115FE6B2DE37F107702A10CC21AD52CAD20207C4
 ```
 
 https://mybot314.ru/tekegram_catalog/

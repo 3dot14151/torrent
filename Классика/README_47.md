@@ -1,3 +1,32 @@
+###  Публикация: 1270935   (154136) от 21.12.2018
+
+Nino Gurevich - Piano (2018) [FLAC|Lossless|WEB-DL|tracks] <Classical, Piano>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_154136.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Partita No. 1 in B-flat Major, BWV 825
+02 – Piano Sonata No. 30 in E Major, Op. 109: I. Vivace, ma non troppo
+03 – Piano Sonata No. 30 in E Major, Op. 109: II. Prestissimo
+04 – Piano Sonata No. 30 in E Major, Op. 109: III. Andante molto cantabile ed espressivo(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 01:14:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B685EB01507BEDBF583D93C6E6DACAD775208887
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1676918   (152890) от 16.11.2023
 
 Violina Petrychenko - Winter Whispers: Ukrainian Piano Tales (2023) [FLAC|Lossless|WEB-DL|tracks] <Classical>
@@ -736,41 +765,6 @@ Piano Sonata No. 21 in B flat major, D. 960:
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592448   (135191) от 23.12.2012
-
-Gergely Boganyi - Frederic Chopin: The Complete Nocturnes (2008) [DST 2.0 1bit/2822,4kHz |SACD-R] <Classical>
-
->>Классика
->>Классика (HD Audio)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135191.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-1. Nocturne op.9 No.1 Bb minor
-2. Nocturne op.9 No.2 Eb major
-3. Nocturne op.9 No.3 B major
-4. Nocturne op.15 No.1 F major
-5. Nocturne op.15 No.2 F# major
-6. Nocturne op.15 No.3 G minor
-7. Nocturne op.27 No.1 C# minor
-8. Nocturne op.27 No.2 Db major
-9. Nocturne op.32 No.1 B major(   Читать дальше...   )Жанр: ClassicalПродолжительность: 51:56 + 58:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57F95E7449F48BEA48F471747A9DE5C0ADB27A55
 ```
 
 https://mybot314.ru/tekegram_catalog/

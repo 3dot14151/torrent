@@ -1,3 +1,206 @@
+###  Публикация: 1566974   (478341) от 31.07.2022
+
+VA - Новинки С Разных Популярных мп3 Сайтов ver. 121 (2022) [MP3|320 Kbps] <Club, Dance, Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_478341.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dance:
+01. Akon - Right Now (Dj Safiter Remix)
+02. Akon vs. Matroda & Ricci x Butesha & Den - Right Now (Dj Atme Edit).
+03. Alok, Ella Eyre & Kenny Dope feat. Never Dull - Deep Down (Extended Mix)(   Читать дальше...   )Жанр: Club, Dance, Disco, Pop, Rap, RnB, RockПродолжительность: 05:54:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66BEEC36D9DCDCD858970F54E3F7DDD721DF8DF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1160218   (478116) от 23.08.2017
+
+VA - Dance Of Butterfly (2017) [MP3|320 Kbps] <House, Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_478116.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Captain Jack - In The Army Now (Original Mix)  2:30
+002.  Nina Suerte Feat Tess - Stay (Bounce Inc. Remix Edit)  2:36
+003.  50 Cent - Window Shopper (AYL3 Remix)  5:14
+004.  Blasterjaxx feat. Haliene - Revelation  2:45(   Читать дальше...   )Жанр: House, Pop, DanceПродолжительность: 10:19:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:660A8E27360CF6587DED8152545149DDE6B8E8F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 939166   (478027) от 20.09.2015
+
+VA - Goodtime Party Dance (2015) [MP3|320 кб/с]<Club, House, Euro>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_478027.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Casandra - Take Me Away (Birizdo 80S Italo Radiomix) 03:24
+02. Absolom - Remembering The 90'S (Classic Radio Version) 03:33
+03. Kim Kaey - Shake It Up 2Nite (Radio Version) 04:02
+04. Bootleggers International - Jack Your Body (Patricio Amc Remix) 05:10(   Читать дальше...   )Жанр: Club, House, EuroПродолжительность: 01:43:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4327133BA3D1E1069717224A9B72D861C5341CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 939179   (478020) от 20.09.2015
+
+VA - Acoustic Hour - We Are Independent (2015) [MP3|320 кб/с]<Pop, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_478020.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ed Sheeran - Thinking Out Loud 04:42
+02. Passenger - Let Her Go 04:13
+03. Birdy - Wings (Radio Edit) 03:50
+04. Family Of The Year - Hero 03:10(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 02:34:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:493E8741E2D040A58F003BC390DED34642AA5325
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057213   (477609) от 27.09.2016
+
+VA - Dancefloor Workout Empire (2016) [MP3|223-320 Kbps] <Hands Up, Vocal, Eurodance, Indie Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_477609.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lily Allen - Our Time 04:25
+02. Edward Maya Feat. Yohana - Feeling (Radio Version) 02:58
+03. Dj Mns Vs. E-Maxx - Monster Sound 03:21
+04. Clyde Trevor - Aftershock (Radio Edit) 02:40(   Читать дальше...   )Жанр: Hands Up, Vocal, Eurodance, Indie DanceПродолжительность: 06:34:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F66E424F71D2A84B08A51C97C94DE2597AE4C90F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1319855   (477463) от 15.08.2019
+
+VA - не Громкие новинки недели 30 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_477463.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Anastasia Stone - Переадресация (3:04)
+2.Asammuell & Mary Gu - Свежие Раны (3:10)
+3.Brandon Stone - Девочка Смартфон (Brant Remix) (3:36)
+4.Demo & Love T - На Волне (3:27)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:34:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E65270E7C9379CD2A101EF7EF9733FA74C260A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 939170   (477417) от 20.09.2015
+
+VA - Современная музыка от Зайцев.Нет (2015) [MP3|187 - 320 кб/с]<Pop, Dance, Rock, R&B, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_477417.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Matisse & Sadko - Memories (Original Mix) (04:51)
+002. Полина Гагарина - A Million Voices (03:03)
+003. Бурито - Мама (03:10)
+004. Джиган feat. МакSим - Дождь (03:13)(   Читать дальше...   )Жанр: Pop, Dance, Rock, R&B, RapПродолжительность: 06:12:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C53E9598BF235F64F7910D76A59A400FB6B334D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1057025   (477368) от 27.09.2016
 
 VA - Fitness And Workout Mix (2016) [MP3|320 Kbps] <Dance, Club, House, Electro>
@@ -551,215 +754,6 @@ VA - Sexy Mood after Midnight (2015) [MP3|96-320 кб/с]<Downtempo, Chillout, L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FEDC795C617193B7BF3E9D83CFF26DDE4E4F5C3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320338   (471389) от 18.08.2019
-
-VA - The Official UK Top 40 Singles Chart 16.08.2019 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471389.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Shawn Mendes & Camila Cabello - Señorita (3:10)
-2.Ed Sheeran - Beautiful People (feat. Khalid) (3:17)
-3.Dominic Fike - 3 Nights (2:57)
-4.Aitch - Taste (Make It Shake) (3:33)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:09:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:071B3B59F14A7330F116A7945645427AB07A6FEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058019   (471296) от 30.09.2016
-
-VA - Redhead Autumn: Popular Eurodance (2016) [MP3|192-320 Kbps] <EuroDance, Pop, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471296.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Cristina Manzano - Stay With Me (Original Mix) 05:46
-002. Moving Heroes - Angel's Dream 04:12
-003. Yall Feat Gabriela Richardson - Hundred Miles (Tpaul Rmx) 04:29
-004. Kaskade - Disarm You (Easteroute Remix) 04:15(   Читать дальше...   )Жанр: EuroDance, Pop, HouseПродолжительность: 08:06:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F33F6D1D5CD9FD9E8E1FB77B9B68BE5472954966
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058024   (471153) от 30.09.2016
-
-VA - Dance Club Tracks Carnaval (2016) [MP3|222-320 Kbps] <Club, Progressive, Funky, Dance, Euro, Hands Up>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flip Capella - Tricker (Martin Van Lectro Deep Mix) 05:09
-02. Discorocks - One Day In July (Adrian Oblanca Remix) 06:36
-03. M35 - Wipeout (Original Mix) 03:54
-04. James Best - Chain Smoke (Original Mix) 06:35(   Читать дальше...   )Жанр: Club, Progressive, Funky, Dance, Euro, Hands UpПродолжительность: 07:56:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF3FE23FF2F78B6CD6074F7F34579C6302D4C358
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058026   (470962) от 30.09.2016
-
-VA - Top 50 Workout Hits Rhythm (2016) [MP3|175-320 Kbps] <Trance, Euro House, Techno, Dubstep, Bassline, Psy, UK Garage>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470962.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dream Dance Alliance (D.D. Alliance) - Diving (Radio Edit) 03:17
-02. Klaudia Gawlas - In Unison 07:36
-03. Pier Boston Featuring Danny G - Turning Around (Radio Edit) 03:41
-04. Alex Preda - Expansion Of Particles (Original Mix) 07:15(   Читать дальше...   )Жанр: Trance, Euro House, Techno, Dubstep, Bassline, Psy, UK GarageПродолжительность: 04:32:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDD19270CC18A33CDBDE8F17EED12D1D516CC3F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567710   (470192) от 04.08.2022
-
-VA - Glamour Bassline Party (2022) [MP3|320 Kbps] <DnB, Bassline, Dub>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470192.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Hеft - Tоо Muсh
-002. Cilаnd, B-Sсiеnсе - Hоw Dо Yоu Fееl Tоnight
-003. Klеu - Rudу, A Mеssаgе Tо Yоu
-004. Bеnnу Pаgе - Cоmе Fоllоw Wе(   Читать дальше...   )Жанр: DnB, Bassline, DubПродолжительность: 11:30:50 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0A58959CFBED1ACF88C96324A581EB43692A73E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 547911   (469944) от 17.09.2012
-
-VA - Relax FM (15.09.2012) [MP3|320 кб/с]<Relax, Ballads>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469944.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Melody Gardot - Amalia
-02. Christina Aguilera - All I Need
-03. Ed Sheeran - Small Bump
-04. Jason Mraz - In Your Hands
-05. Roxette - Perfect Excuse
-06. Charlene Soraia - Lightyears
-07. Laleh - Big city love
-08. Pet Shop Boys - Invisible
-09. Ren Harvieu - Forever in Blue
-10. Lianne La Havas - Lost  Found(   Читать дальше...   )Жанр: Relax, BalladsПродолжительность: 02:00:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C19AB42DFFED17E375AE6FDD0249CA522EBB5DAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320665   (469289) от 19.08.2019
-
-VA - Singles Chat Pop August 2019 Vol.3 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469289.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Cascada - Like the Way I Do [02:57]
-2. Charli XCX - Cross You Out (feat. Sky Ferreira) [03:28]
-3. Isac Elliot - Waiting Game [03:33]
-4. Miley Cyrus - Slide Away [03:54](   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:43:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C36E1DBD7F3A563A839EE452D44C0CFE3EAD6C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

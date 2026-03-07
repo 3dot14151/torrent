@@ -1,3 +1,73 @@
+###  Публикация: 523338   (617208) от 16.07.2012
+
+VA - Знойный летний хит (2012) [MP3|256-320 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_617208.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Pandora feat. Stacy - Why magistral (3:28)
+2. Вирус - За Тобой (3:11)
+3. Женя Вилль - Странная Любовь (4:06)
+4. Светлана Лобода - Облака (DJ Ozeroff & DJ Sky feat. Lebedev Radio Mix) (3:41)
+5. Alexey Romeo & Euegene Noiz Feat. Alateya - Лето (Bimbo Song) (3:27)
+6. Vilana - Море (3:34)
+7. Dj Cosmo - The Lovesong (3:07)
+8. НеАнгелы - Твоя (DJ Jedy Club Remix) (4:33)
+9. DJ Mikis feat. Нина Богданова - С Обратной Стороны Луны (Radio Edit) (3:11)
+10. Alexandra Stan - Lemonade (3:30)Жанр: PopПродолжительность: 06:01:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC64C79F849B0E749D82D48DFC1B2DFD5468C3D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 523469   (616900) от 16.07.2012
+
+VA - Музыка.ру 19 (2012) [MP3|320 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616900.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Dan Balan - Не любя (3:15)
+2. Бьянка - Весна-Лето 3 (Про Зою) (3:16)
+3. Bobina feat. Винтаж - Нa-нa-нa (3:39)
+4. Инфинити - Другая (3:21)
+5. Стая - Сердце (3:08)
+6. Kristina Si - Начинаю забывать (UnorthodoxX Remix) (3:32)
+7. МакSим - Небо-самолеты (2:51)
+8. Доминик Джокер - Если ты со мной (Paul Vine Remix) (3:09)
+9. Митя Фомин - Хорошая песня (3:03)
+10. Ирина Билык - Мы будем вместе (3:38)Жанр: PopПродолжительность: 01:06:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D0A149BA31018E0CCE7098B211B134D3BF05F4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 523345   (616599) от 16.07.2012
 
 VA - Лучшая русская попса (2012) [MP3|256 кб/с]<Pop>
@@ -720,64 +790,6 @@ VA - Летние хиты за рулем. Русский выпуск (2015) [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4ED9AC1E6AF75DA7E042E3093EF1E6DF00C0F5DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296617   (610123) от 18.04.2019
-
-Spice Girls - The Best (2019) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wannabe
-02. Viva Forever
-03. Let Love Lead The Way
-04. Right Back At Ya(   Читать дальше...   )Жанр: PopПродолжительность: 01:13:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62C4729D6BB3C17EC4E68029E7CCB2E28F0E1368
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147229   (609176) от 02.07.2017
-
-VA - German Top 100 Single Charts 30.06.2017 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609176.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Luis Fonsi – Despacito (feat. Daddy Yankee)
-002. Robin Schulz – OK (feat. James Blunt)
-003. Imagine Dragons – Thunder
-004. DJ Khaled – Wild Thoughts (feat. Rihanna Bryson Tiller)(   Читать дальше...   )Жанр: PopПродолжительность: 05:54:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0333BE904B673B31F30FCE8C8C53B78CC8D3B4B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

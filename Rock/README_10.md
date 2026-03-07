@@ -1,3 +1,32 @@
+###  Публикация: 980580   (956165) от 29.01.2016
+
+Vinnie Moore - Aerial Visions (2015) Japanese Edition [OGG|463-511 кб/с] <Instrumental Hard'n'Heavy Rock, Guitar Virtuoso, Shred>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_956165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mustang Shuffle (4:15)
+02. Now's the Time (4:12)
+03. Faith (4:22)
+04. Slam (4:37)(   Читать дальше...   )Жанр: Instrumental Hard'n'Heavy Rock, Guitar Virtuoso, ShredПродолжительность: 00:52:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9683594D52B09656BC44632A96B0ABBF0F34BA63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 980958   (954596) от 30.01.2016
 
 VA - Now That's What I Call Rock (2016) [MP3|320 кб/с] <Rock>
@@ -718,35 +747,6 @@ Robert Plant - Digging Deep (2020) Singles Collection [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:419B26D469790CEACC019D69B2DF4C99126D285D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094013   (932422) от 16.01.2017
-
-Utopia - Oops! Wrong Planet (1977) Remastered, 1995, Mobile Fidelity Sound Lab [MP3|320 Kbps] <Synth Pop, Prog Rock, Art Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932422.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trapped
-02. Windows
-03. Love In Action
-04. Crazy Lady Blue(   Читать дальше...   )Жанр: Synth Pop, Prog Rock, Art RockПродолжительность: 00:46:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0015859709235DC362C38EED22A489BB2FA46666
 ```
 
 https://mybot314.ru/tekegram_catalog/

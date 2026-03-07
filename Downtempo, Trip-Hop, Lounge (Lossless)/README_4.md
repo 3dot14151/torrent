@@ -1,3 +1,32 @@
+###  Публикация: 1470595   (1015634) от 17.05.2021
+
+VA - Mellow Dreams: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015634.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marga Sol, Digby Jones - What I Need - Instrumental Mix (4:38)
+02. Living Room - The Hippojazz (2:45)
+03. Lounge Groove Avenue - Count the Days (4:21)
+04. Patiotic - Welcome to the Infinite Sense (2:21)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:03:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EA5EA6D35C56BD8628B324EF82534BAAE305259
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1471158   (1015281) от 19.05.2021
 
 Morcheeba - Blackest Blue (2021) [FLAC|Lossless|tracks + .cue] <Electronic, Trip-Hop, Downtempo>
@@ -715,35 +744,6 @@ VA - Secret Room: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balea
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:178594F75C7532EDE2022D2D4E61E5FB5E283915
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487535   (1003618) от 05.08.2021
-
-VA - Amberdelic Space (1996) Dressed To Kill [FLAC|Lossless|tracks+.cue] <Downtempo, Acid, Broken Beat, Techno, Ambient, Breaks>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003618.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Surge - 4.27 Ambience (10110111) (09:38)
- 02. Drum Club - The Illuminated (03:05)
- 03. Sensurreal - Confidential Suite (12:54)
- 04. Nev - Simulated Wood (06:22)(   Читать дальше...   )Тип издания: CDЖанр: Downtempo, Acid, Broken Beat, Techno, Ambient, Breaks •Продолжительность: 04:59:02 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42282225CC29C6A2FE0CCC709E690DC05377C06A
 ```
 
 https://mybot314.ru/tekegram_catalog/

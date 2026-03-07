@@ -1,3 +1,32 @@
+###  Публикация: 1242329   (513972) от 23.08.2018
+
+Brian Kelly - Tomorrow's Daydream (2018) [MP3|320 Kbps] <Piano, Neo-Classical, Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_513972.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tomorrow's Daydream 04:49
+02. Tracing Rainbows 05:16
+03. Dancing with the Moon 04:08
+04. Our Own Window 03:42(   Читать дальше...   )Жанр: Piano, Neo-Classical, InstrumentalПродолжительность: 00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:995426FC52356363FA07E2E48377808F9537DC01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1242536   (513937) от 23.08.2018
 
 DYATHON - Serenity (2017) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, New Ag>
@@ -741,35 +770,6 @@ VA - Cafe del Mar Recommends Music For Dreams (2010) [MP3|320 кб/с]<Lounge, C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6E6D3FF62E6D40FF4A281A31F508C4D93E41A568
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316299   (506824) от 25.07.2019
-
-VA - Salsa Summer Hits 2019 [MP3|320 Kbps] <Kizomba, Merengue, Sonero, Other>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506824.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leo, The 4 – Candela 3:43
-02. The 4, Yosvany – Prisoner 3:37
-03. Sonora Cubana (Los Picaros De La Habana) – What I Do Yo 4:44
-04. Lkm, Katy-A – Hidden 4:28(   Читать дальше...   )Жанр: Kizomba, Merengue, Sonero, OtherПродолжительность: 02:27:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D910AB872AD8FCBF2060A55018CD0B0D1712D21
 ```
 
 https://mybot314.ru/tekegram_catalog/

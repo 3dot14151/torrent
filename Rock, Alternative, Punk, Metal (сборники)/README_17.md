@@ -1,3 +1,32 @@
+###  Публикация: 1280764   (758605) от 04.02.2019
+
+VA - Heavy Metal Collections Vol. 12 (3CD) (2019) [MP3|320 Kbps] <Heavy - Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_758605.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+
+01. Thobbe Englund - Heart of Metal (2018) (0:41)
+02. Stormwitch - The Choir of the Dead (2018) (4:41)(   Читать дальше...   )Жанр: Heavy - MetalПродолжительность: 03:09:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04F2D8FE4A338C8D9CBB822F3263DF9C0AABF397
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1522573   (758384) от 07.01.2022
 
 Joe Cocker - Compilation (2020) [MP3|320 Kbps] <Rock>
@@ -714,35 +743,6 @@ Richard Koechli - Richard Koechli (2022) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:501D49621E96BAF54C3CA5F2C4C50B0C2F1E6527
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127376   (731498) от 21.04.2017
-
-VA - Рок в машину (2015-2017) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731498.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Saving Abel - Addicted (3:43)
-02.	12 Stones - Hey Love (3:53)
-03.	AC/DC - You Shook Me All Night Long (3:30)
-04.	Adelitas Way - Last Stand (3:42)(   Читать дальше...   )Жанр: RockПродолжительность: 06:57:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84E512DE5FDFB3338E1285629BF80C508B81F831
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1387010   (792640) от 31.05.2020
+
+Пара Нормальных - Скандал во время рекламы (2010) [FLAC|Lossless|tracks + .cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792640.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:37:03Трэклист: 01. Не улетай
+02. Поломана
+03. Ты не шаришь
+04. Скандал(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E68FCBD07CCCD1E3189CBFEC8A64437D8C8E731
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509298   (791929) от 15.11.2021
+
+ABBA - Voyage (2021) [FLAC 2.0|96/24|tracks|WEB-DL] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791929.jpg" />
+</div>
+
+
+###  Подробнее
+
+ABBA ушла тихо, без официальных объявлений о распаде, в 1982 году. За несколько десятилетий в Швеции появилось немало звезд мирового уровня, но едва ли кто-то из них смог бы потягаться с легендарной группой в популярности. В сентябре 2021 года коллектив объявил о скором выходе нового, девятого альбома, получившего название Voyage - с десятью ранее неиздававшимися (   Читать дальше...   )01. I Still Have Faith in You (5:09)
+02. When You Danced With Me (2:50)
+03. Little Things (3:08)
+04. Don’t Shut Me Down (3:56)(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD2005842F8DAD83FF6713A7CFCDCC8265F2F499
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510122   (791923) от 15.11.2021
+
+ABBA - Voyage (2021) 2xCD, Japanese Edition [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791923.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1 - Voyage:
+01. I Still Have Faith In You
+02. When You Danced With Me
+03. Little Things(   Читать дальше...   )Жанр: PopПродолжительность: 01:55:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E71C310776BD6FEDD2D51BACEE3836AD1FB70C39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510450   (791455) от 16.11.2021
+
+Shakira - Laundry Service꞉ Washed and Dried (2021) Expanded Edition [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791455.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Objection (Tango) (3:44)
+02. Underneath Your Clothes (3:45)
+03. Whenever, Wherever (3:16)
+04. Rules (3:40)(   Читать дальше...   )Жанр: PopПродолжительность: 01:03:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7C60ED09AAB0BB71A435569370711384F9E227C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1387480   (791109) от 02.06.2020
 
 Michael Jackson - Discography (1967-2009) [FLAC|Lossless|tracks + .cue] <Pop>
@@ -630,122 +746,6 @@ VA - Dreamlover vol.1 (1994) [FLAC|Lossless|image + .cue] <Pop, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7566DB9ACDD176A03D3FC8CF24EBC40A167F024
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277091   (787002) от 19.01.2019
-
-Sarah Brightman - Hymn (2018) Japanese Edition [FLAC|Lossless|image + .cue] <Classical Crossover, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787002.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hymn Overture (1:03)
-02. Hymn (4:28)
-03. Sogni (feat. Vincent Niclo) (4:18)
-04. Sky and Sand (4:12)(   Читать дальше...   )Жанр: Classical Crossover, PopПродолжительность: 00:56:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10B0D265EA12397F7491312A1A01F4887788AB99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388220   (786856) от 05.06.2020
-
-Thomas Anders & Florian Silbereisen - Das Album (2020) [FLAC|Lossless|WEB-DL|tracks] <Europop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786856.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Sie sagte doch sie liebt mich (feat. Florian Silbereisen)
-2. Sie hat es wieder getan (feat. Florian Silbereisen)
-3. Sie ist wieder da
-4. Versuch's nochmal mit mir(   Читать дальше...   )Жанр: EuropopПродолжительность: 01:01:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3C11F2247338F77AF18195100D7F6B695B2D076
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388472   (786721) от 06.06.2020
-
-Lady Gaga - Chromatica (2020) Deluxe Edition, Limited Edition [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786721.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chromatica I (01:00)
-02. Alice (02:57)
-03. Stupid Love (03:13)
-04. Rain On Me (with Ariana Grande) (03:02)(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEC60B15B160B23100E5979C9BBFC6B2579A7396
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123606   (786373) от 08.04.2017
-
-Natalie Imbruglia - Counting Down The Days (2005) [FLAC|Lossless|image + .cue] <Soft Rock, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786373.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Starting Today  (02:56) 
-02. Shiver  (03:44) 
-03. Satisfied  (03:30) 
-04. Countind Down The Days  (04:09) (   Читать дальше...   )Жанр: Soft Rock, Pop RockПродолжительность: 00:43:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD11344249960762D96D9FFE22AD18F80C013013
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1506495   (799812) от 31.10.2021
+
+Шрифты - Creative Fabrica - All Fonts Collection - Mega Typeface Bundle [TTF, OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799812.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коллекция All Fonts - Mega Typeface Bundle с невероятным выбором из +460 шрифтов.Формат: TTF, OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6536A0F87D853852BFBC9CEDB7FA675470EF956C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1113272   (798564) от 04.01.2019
 
 Шрифты - Iconian Fonts by Dan Zadorozny [TTF]
@@ -645,32 +671,6 @@ Laqonic 4F Unicase - Простой и в тоже время интересны
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CDA096B8286425B759547A348AADE2567BAA6758
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275145   (791042) от 10.01.2019
-
-Шрифты - Creative Market - Miletta typeface with ligatures - 313565 [TTF, OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791042.jpg" />
-</div>
-
-
-###  Подробнее
-
-Miletta - красивый рукописный шрифт, написанный настоящей кистью и тушью. Отсканированный с любовью и адаптирован для использования в качестве шрифта. Автор делал много лигатур и альтернатив, поэтому Ваша творческая работа будет веселой и милой.Формат: TTF, OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3963C6A1736F9AAF2A803E432AFF9C638D55BDF0
 ```
 
 https://mybot314.ru/tekegram_catalog/

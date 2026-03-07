@@ -578,35 +578,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267241   (267892) от 05.12.2018
-
-Vane - Black Vengeance (2018) [MP3|320 Kbps] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267892.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Born Again
-2. Edge of the Cutlass
-3. I Am Your Pain
-4. Randy Dandy-O(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:45:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D0D2A3D3F33B1E6F6CD584DBED74AE418A089AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 797837   (266685) от 10.12.2017
 
 Cavalera Conspiracy - 4 Альбома (2008-2017) [MP3|320 кб/с]<Groove Metal, Thrash Metal, Death Metal>
@@ -745,6 +716,35 @@ Clouds - Dor (2018) [MP3|320 Kbps] <Atmospheric Doom Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10FE3022EA7A35E83172E0B23CCA105F915B5C79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1267621   (265799) от 07.12.2018
+
+Opera IX - The Gospel (2018) [MP3|320 Kbps] <Symphonic Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_265799.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Gospel
+2. Chapter II
+3. Chapter III
+4. Moon Goddess(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 00:54:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBA4A5FEFC1438BE9404B2576B3A6EDFF3ED6A4F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1299177   (600030) от 01.05.2019
+
+VA - German Top 100 Single Charts 06.05.2019 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_600030.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lil Nas X - Old Town Road 01:53
+02. Capital Bra - Rolex (feat. Summer Cem & KC Rebell ) 03:56
+03. Rammstein - Deutschland 05:22
+04. Capital Bra - Cherry Lady 02:15(   Читать дальше...   )Жанр: PopПродолжительность: 05:16:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EE8CB9C05300B82DAB842E9CDE2577F371298AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039188   (598072) от 31.07.2016
+
+Another Cynthia - Collection (2006 - 2009) [MP3|256 Kbps] <Indie Pop Rock, Synth Pop, Electronic Rock>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598072.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Little Love
+02. Donkey Kong
+03. One Way Out
+04. Whore(   Читать дальше...   )Жанр: Indie Pop Rock, Synth Pop, Electronic RockПродолжительность: 01:39:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FF0CEEB124785B66CD0FF3184B9806B2B32694A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1232634   (598065) от 25.06.2018
 
 VA - De Top 100 Aller Tijden 1990 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, Rock, World>
@@ -693,64 +751,6 @@ VA - Горячие музыкальные новинки. Сборник 50/50 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D16CF8358B2D01622EA290F4ED0C74C4DC722331
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 180592   (593429) от 05.05.2019
-
-VA - Музыкальные новинки от радио Record 50/50 (2010) [MP3|256 kbps]<Pop | Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593429.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Dj Leonid Rudenko Ft Vicky Fee - Real Life (Radio Edit)
-2. Paul Van Dyk - For An Angel (Dave Darell)
-3. Потап И Н.Каменских - Не Люби Мне Мозги
-4. Bob Taylor & Inna - Deja Vu (Remake)(   Читать дальше...   )Жанр: Pop | DanceПродолжительность: 05:53:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C7C4C16606939A5FFCF54E21AD35509DD69FDE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915336   (592386) от 05.07.2015
-
-In-Grid - Место Встречи на HOROSHEE.FM с Валентином Малюговым (2015) [MP3|128 кб/с]<Pop, Speech>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592386.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Tu es foutou
-2. In-tango
-3. Нежность
-4. La Trompette (Rico Bernasconi Club Mix)(   Читать дальше...   )Жанр: Pop, SpeechПродолжительность: 00:38:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:139967A2599A0AC4EFD0355D3D7AEB526D298BDE
 ```
 
 https://mybot314.ru/tekegram_catalog/

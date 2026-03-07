@@ -1,402 +1,25 @@
-###  Публикация: 1532776   (709105) от 22.02.2022
+###  Публикация: 1401188   (711191) от 09.08.2020
 
-VA - Notes from the Depth, Vol. 14 (2020) [AAC|~315 Kbps] <House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709105.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Israel Vich, Marco Tegui - Tortuga (Original Mix) (6:08)
-02. Foxall, Deaf Can Dance - Babel (Original Mix) (7:37)
-03. Fulltone - Looped (Original Mix) (5:20)
-04. Derrok, Biomigrant - Sueño Profundo (Just Emma Remix) (9:17)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:44:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A36AE3641128A666A29A800511E63CEAA2860132
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532775   (709104) от 22.02.2022
-
-VA - Notes from the Depth, Vol. 13 (2020) [AAC|~316 Kbps] <House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709104.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. JPattersson - Silkwood Shower (Dolph Bees & Bears Remix) (7:02)
-02. David Rausch - Substance (Original Mix) (7:46)
-03. Israel Vich, Tony V, Zufu - Ayahuasca Gift (Original Mix) (5:20)
-04. Fulltone - Cricket Groove (Original Mix) (7:45)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:42:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B6385E2FCDFC0D964474485A0457F494B1647C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532757   (709103) от 22.02.2022
-
-Martin Hiska - Arise (2019) [AAC|~346 Kbps] <Deep House>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_709103.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arise (4:38)
-02. Dust (4:59)
-03. Oriental Moments (6:12)
-04. Hunted (4:59)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:30:42
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532975   (709102) от 22.02.2022
-
-VA - Notes from the Depth, Vol. 16 (2021) [AAC|~326 Kbps] <House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709102.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. PALMFooD - Bogogan (8:00)
-02. Amount - Tripping Octaves (6:04)
-03. Kotelett & Zadak - Sapiens (Original Mix) (7:34)
-04. Renga Weh - Kaleidoscope (Original Mix) (5:52)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:36:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52622C7A7192B5AF1B07553D6020A278E77D387E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532973   (709101) от 22.02.2022
-
-Martin Hiska - Abroad (2020) [AAC|~311 Kbps] <Lounge, Chill Out, Organic House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709101.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shahma (4:30)
-02. One On One (4:54)
-03. Bansi (6:33)
-04. Stepping Stone (5:48)(   Читать дальше...   )Жанр: Lounge, Chill Out, Organic HouseПродолжительность: 01:18:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57F7936C26C9BEDC59A8674A6A78D326172CC77B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532772   (709100) от 22.02.2022
-
-VA - Chill Out Pearls, Vol. 2 (Lazy Chill Out Tunes) (2019) [AAC|~328 Kbps] <Lounge, Leftfield, Downtempo>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_709100.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alwood Johnson - Fly (Original Mix) (5:46)
-02. Danny Hay - Expectations (Original Mix) (7:41)
-03. Chuck Mertens - Moshy (Original Mix) (5:51)
-04. Alec Gonzalez - Lia (Original Mix) (3:39)(   Читать дальше...   )Жанр: Lounge, Leftfield, DowntempoПродолжительность: 03:01:09
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532755   (709099) от 22.02.2022
-
-Martin Hiska - Road to Oase (2019) [AAC|~314 Kbps] <Deep House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709099.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 1001 Desires (6:24)
-02. Stateless (5:31)
-03. Ali (4:10)
-04. Beyond Dreams (5:04)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:19:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD32F01A9FEE78EC44A22BE21ED978569CE1C91D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532777   (709098) от 22.02.2022
-
-VA - Notes from the Depth, Vol. 15 (2020) [AAC|~331 Kbps] <House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709098.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kostakis - The Taking (Original Mix) (9:27)
-02. Moscow Noir, Night Vision - Come Undone (Original Mix) (8:00)
-03. Doyeq - My Hidden Winter (Original Mix) (8:19)
-04. Fat Cosmoe - Andromeda (David Dorad & Sebo Remix) (6:38)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:55:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53BA548D08EC194BF274DAAA5A4BF5FEEE38D6F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532972   (709097) от 22.02.2022
-
-Martin Hiska - Deep Blue Sunset Sessions (2020) [AAC|~343 Kbps] <Lounge, Chill Out, Organic House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709097.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunset Session (5:10)
-02. Lady In Blue (4:41)
-03. Seasides (5:58)
-04. Luna (3:58)(   Читать дальше...   )Жанр: Lounge, Chill Out, Organic HouseПродолжительность: 01:06:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEB225C09C36C770076238EACD33604667122255
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532773   (709096) от 22.02.2022
-
-VA - Chill Out Pearls, Vol. 3 (Lazy Chill Out Tunes) (2019) [AAC|~301 Kbps] <Lounge, Leftfield, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709096.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jonic Elements - Until The Morning (Original Mix) (3:33)
-02. Wet Elements - Young Rebel (Sunrise Mix) (3:33)
-03. Cosmique Beats Ensemble - Grooman (Original Mix) (3:55)
-04. Pianistic Soul - Enchantment (Original Mix) (4:00)(   Читать дальше...   )Жанр: Lounge, Leftfield, DowntempoПродолжительность: 02:28:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E74484B63CBF54A2EE8E13527FF1C2B8905CF664
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532974   (709095) от 22.02.2022
-
-Martin Hiska - Globalearic (2021) [AAC|~341 Kbps] <Lounge, Chill Out, Organic House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Istanbul Lounge (5:23)
-02. Japanese Garden of Bliss (4:09)
-03. Sati (4:14)
-04. Orange (4:51)(   Читать дальше...   )Жанр: Lounge, Chill Out, Organic HouseПродолжительность: 03:05:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2415977EDE9D9FDEF608151E1DF9BF2B56A2E1CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286841   (709094) от 04.03.2019
-
-Bobby van Deusen - The Naked Piano: Trio (2003) Melcome Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709094.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take the 'A' Train [7:18]
-02. All the Things You Are [5:30]
-03. Summer Wind [3:45]
-04. Someone to Watch over Me [7:43](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:01:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A96A7516D913EEF4A8200D5958FF300A6D38C86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286839   (709093) от 04.03.2019
-
-Dinah Washington - Queen Of The Juke Box ''Live'' 1949-1955 (2000) Baldwin Street Music [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709093.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Want to Cry [3:27]
-02. It's Too Soon to Know [3:01]
-03. I'll Never Be Free [1:57]
-04. I Cross My Fingers [2:16](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:13:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E433BAF946E41EE0CB337DEB4162452BEDB5486
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286875   (709092) от 04.03.2019
-
-Desolate Horizons - Every Dream Is a Lifetime (2019) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone>
+Dead Eyes Open - In Times Like These (1991) [MP3|320 Kbps] <Synthpop, New Wave>
 
 >>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
+>>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709092.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711191.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Cosmic Unity (04:33)
-02. Nothing but Stardust (06:15)
-03. Every Dream Is a Lifetime (05:53)
-04. Stellar Essence (05:36)(   Читать дальше...   )Жанр: Ambient, DroneПродолжительность: 00:46:52
+01. No More Future Days [00:03:41]
+02. I Want to Live Tomorrow [00:03:50]
+03. Easy Come, Easy Go [00:05:42]
+04. Normal [00:04:37](   Читать дальше...   )Жанр: Synthpop, DarkwaveПродолжительность: 00:44:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EC785B720182627EE20763CA80B7146CEB443156
+magnet:?xt=urn:btih:E61BF962FCAD1806DBB2FF155D859DF7A5B4C5D9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -404,28 +27,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286914   (709091) от 04.03.2019
+###  Публикация: 995758   (711190) от 11.06.2016
 
-VA - German Top 50 Party Schlager Charts 04.03.2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
+Виктор Мишин | Начало (2016) [FB2]
 
->>Неофициальные сборники
->>Pop (сборники)
+>>Художественная литература
+>>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709091.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711190.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Kerstin Ott - Regenbogenfarben
-02. Maite Kelly - Heute Nacht für immer
-03. Thomas Anders - Sie sagte doch sie liebt mich (feat. Florian Silbereisen)
-04. Andrea Berg - Mosaik(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 03:00:35
+Первый роман цикла «Второй шанс».
+
+Он потерял всё, но получил Второй шанс. Шанс прожить жизнь так, как подобает настоящему честному человеку. Он — Сергей Новиков. Во время перезахоронения останков деда, пропавшего во время Великой Отечественной войны и найденного через семьдесят лет, главный герой случайно гибнет от разрыва гранаты времен войны. Волею случая человек (   Читать дальше...   )Жанр: Историческая фантастика, Боевая фантастика, ПопаданцыФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:75B6E6B788BF2E6E4A04FA9957F6254C21029A9B
+magnet:?xt=urn:btih:4E36573B2B55667FCCA528764010A5505B823EEF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -433,28 +55,106 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286797   (709090) от 04.03.2019
+###  Публикация: 1024870   (711189) от 11.06.2016
 
-Чемпионат мира по лыжным видам спорта 2019. Инсбрук-Зеефельд (Австрия). Лыжное двоеборье. Командный спринт. Эстафета 2х7,5 км (2019) WEB-DL [H.264/720p-LQ]
+AMIDuOS 2 Pro 2.0.7.8268 [Multi/Ru]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711189.jpg" />
+</div>
+
+
+###  Подробнее
+
+AMIDuOS — это новейший продукт от американской фирмы-разработчика American Megatrends, выполняющий функции гипервизора. AMIDuOS позволяет операционную систему Android полноценно эксплуатировать в сфере Windows. Если вы переводите эмулятор (сервис, позволяющий использование вашим компьютером или мобильным устройством других программ, созданных не для вашей операционной (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:470F1E7C2CB5FFABD5F1E2D05909B1EF845C337C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286729   (711188) от 03.03.2019
+
+Toby Keith - How Do You Like Me Now?! (1999) [FLAC|Lossless|tracks + .cue] <Folk, Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711188.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 	How Do You Like Me Now?! 	3:27
+2 	When Love Fades 	3:04
+3 	Blue Bedroom 	3:28
+4 	New Orleans 	4:11(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:40:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C609A47F216293D0BFB79E46304B942B6A66BD9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025129   (711187) от 11.06.2016
+
+Foxford | Информатика. Экспресс-подготовка к ЕГЭ 11 класс (2016) CamRip [H.264/720p]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711187.jpg" />
+</div>
+
+
+###  Подробнее
+
+Производство: Россия / ФоксфордЖанр: ИнформатикаПродолжительность: ~02:00:00 урок
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19EF186962D8FDC80B714B4F631E168F3F39079C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025400   (711186) от 11.06.2016
+
+PreSonus Studio One Professional 3.2.3.38191 [Multi]
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709090.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711186.jpg" />
 </div>
 
 
 ###  Подробнее
 
-24 февраля 2019 года, воскресенье. 15:30 МСК
-Чемпионат мира по лыжным видам спорта 2019. Инсбрук-Зеефельд (Австрия)
-Лыжное двоеборье. Командный спринт
-Лыжная Гонка. Эстафета 2х7,5 км(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:41:29
+Studio One - приложение для создания музыки, которое делает звукозапись, MIDI-секвенсинг и аудио-мастеринг простым, предоставляя пользователю множество профессиональных функций. Программа снабжена не только всеми профессиональными функциями, которые могут встречаться в других аналогичных программах, но также новыми разработками, выделяющих Studio One от других подобных (   Читать дальше...   )Язык интерфейса: Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C0552308B09BD81D63051F4B8AF927A3DAB56E25
+magnet:?xt=urn:btih:4FF24F4812BC8589E754B831138820B995CC6F04
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -462,28 +162,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286867   (709089) от 04.03.2019
+###  Публикация: 1286579   (711185) от 03.03.2019
 
-Angela Bofill - Teaser (1983) Reissue CD, Arista, 1999 [MP3|320 Kbps] <Electronic, Disco, R & B>
+VA - Best of Chillout Ambient Lounge 2019 [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
 
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709089.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711185.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Special Delivery (4:55)
-02. Call Of The Wild (5:01)
-03. Nothin' But A Teaser (4:45)
-04. I'm On Your Side (5:05)(   Читать дальше...   )Жанр: Electronic, Disco, R & BПродолжительность: 00:43:39
+01. Aereospace - Selected
+02. Alfredo Vidal - Every Little Step
+03. Ambient Music - Binomia
+04. Armadinli - The Real Cream(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:29:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F7794425EC377516DA547A7D7F80975B8D8B0A8B
+magnet:?xt=urn:btih:5CE952AB28A55979E83FF5E1D9EEBD233CBB2089
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -491,57 +191,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286906   (709088) от 04.03.2019
+###  Публикация: 1401189   (711184) от 09.08.2020
 
-VA - German Top 100 Single Charts 11.03.2019 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709088.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Shirin David - Gib Ihm
-002. KC Rebell - DNA (feat. Summer Cem Capital Bra)
-003. Capital Bra - Capital Bra je m'appelle
-004. Azet Zuna - Fragen(   Читать дальше...   )Жанр: PopПродолжительность: 05:25:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85275DBA902421778C1C3C73ECDF66A2DB58D0A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286759   (709087) от 04.03.2019
-
-ILUITEQ - Soundtracks For Winter Departures (2019) ...txt [FLAC|Lossless|WEB-DL|tracks] <Ambient>
+Elegant Machinery - Degraded Faces (1991) [MP3|320 Kbps] <Synthpop, New Wave>
 
 >>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
+>>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709087.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711184.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Arrival (04:49)
- 02. Burian (05:05)
- 03. A Prayer For The Departed (05:30)
- 04. In Every Place (05:14)(   Читать дальше...   )Жанр: AmbientПродолжительность: 00:47:11
+01. Safety in Mind [00:03:59]
+02. Strange Behaviour [00:04:02]
+03. A Decade of Thoughts [00:04:09]
+04. State of the Nation [00:04:13](   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 00:42:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:54D2439A07D454E1C184232952790984E6D692A0
+magnet:?xt=urn:btih:03CA17C1008816F47DC76424101E540160C8A751
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -549,25 +220,141 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286701   (709086) от 04.03.2019
+###  Публикация: 1286623   (711183) от 03.03.2019
 
-Е. А. Тучков | Сектантство и его идеология (1955) [DJVU]
+Kenny Rogers - Ruby Don't Take Your Love To Town (Unknown) Compilation [FLAC|Lossless|image + .cue] <Pop, World, Country>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711183.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Ruby Don't Take Your Love To Town
+2.	For The Good Times
+3.	A Stranger In My Place
+4.	Rueben James(   Читать дальше...   )Жанр: Pop, Folk, CountryПродолжительность: 01:01:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:427446A97558438509E862F7F615CA0C50956269
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286596   (711182) от 03.03.2019
+
+Rosie Flores - Simple Case Of The Blues (2019) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711182.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Don't Love Nobody 03:53
+02. Mercy Fell Like Rain 04:46
+03. I Want To Do More 03:35
+04. Simple Case Of The Blues 03:38(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DF992E2566516589652EEA27275FF90CCCCC1A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401171   (711181) от 09.08.2020
+
+Анастасия Сычёва | Грани настоящего (2020) [MP3]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_711181.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Грани настоящего» – фантастический роман Анастасии Сычевой, первая книга цикла «Путешественница во времени», жанр любовное фэнтези, городское фэнтези, детективное фэнтези.
+
+Трудно быть лингвистом. Особенно когда ты работаешь в организации, которая занимается поиском сверхъестественного в нашем мире. Особенно когда ты узнаешь, что магия действительно существует. (   Читать дальше...   )Жанр: Городское фэнтези, Детективное фэнтези, Любовное фэнтезиПродолжительность: 10:56:54
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401175   (711180) от 09.08.2020
+
+VA - Record Super Chart 648 (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711180.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. twocolors - Lovefool (3:10)
+02. DaBro - Юность (3:39)
+03. Topic feat. A7S - Breaking Me (2:46)
+04. Zivert feat. NILETTO - Fly 2 (3:25)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:40:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83B085078FAE2DB0868E7824EC349E0AA67235A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286542   (711179) от 03.03.2019
+
+Фома Кемпийский | Книга о Христове подражании (1647) [PDF]
 
 >>Разное (категория книг)
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709086.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711179.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Слово «секта» происходит от латинского «secta» — учение, школа. Сектой принято называть религиозное течение или группу, отколовшуюся от господствующей церкви. В СССР, где нет никакой господствующей религии, где каждый гражданин может исповедовать любую религию или не исповедовать никакой, название «секты», присвоенное некоторым религиозным организациям, потеряло (   Читать дальше...   )Жанр: История, политология, религиоведениеФормат: DJVU
+«О подражании Христу» (лат. De Imitatio Christi) — католический богословский трактат Фомы Кемпийского. Датой создания считается 1427 г. Иногда также называется 1417 г. Это первое руководство к духовной жизни движения «Нового благочестия», членом которого был Фома Кемпийский.
+«О подражании Христу» — одно из самых широко распространённых после Библии богословских сочинений, (   Читать дальше...   )Жанр: Духовные размышленияФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3B201C9ADF6087A62C12E9FA6320EECA00E160A6
+magnet:?xt=urn:btih:0B3E5DF9BDD631B3EE6D9C2DB6B2F71908B06221
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -575,28 +362,103 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286878   (709085) от 04.03.2019
+###  Публикация: 1401239   (711178) от 09.08.2020
 
-BestReminder v2019.03.04.11 Stable [Multi/Ru]
+Жюльен Сандрель | Комната чудес (2020) [FB2]
+
+>>Художественная литература
+>>Современная поэзия и проза
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711178.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тельма – директор по маркетингу в крупной косметической компании, и карьера для нее важнее всего. Но однажды случается беда – ее двенадцатилетнего сына сбивает на улице грузовик. Мальчик в коме, врачи полагают, что он обречен, и через месяц, если он не очнется, собираются отключить его от аппарата жизнеобеспечения. Однако Тельма чувствует, что он все слышит и что (   Читать дальше...   )Жанр: Современная зарубежная литератураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:649091D2C83923942348583B4EDE6CD90FDF61D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401173   (711176) от 09.08.2020
+
+Анастасия Сычёва | Воспоминания о будущем (2020) [MP3]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_711176.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джейн выживает в аварии, но отныне ее жизнь должна кардинально измениться. Чужой мир, чужое тело, чужие люди, чужие порядки… В этой новой жизни Джейн должна найти свое место, распутать протянувшийся сквозь столетия клубок интриг, встретить старых знакомых, где каждый ведет собственную игру. Ей предстоит столкновение с новыми врагами, и главное – ее ждет новая встреча (   Читать дальше...   )Жанр: Городское фэнтези, детективное фэнтези, любовное фэнтезиПродолжительность: 10:54:21
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286517   (711175) от 03.03.2019
+
+Я - ваш родственник (1982) TVRip
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Отечественные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711175.jpg" />
+</div>
+
+
+###  Подробнее
+
+Из аула к родственникам в город для учебы в математической школе приезжает шестиклассник Толеген. Перепутав адрес, он попадает в семью Рахметовых, принявших его за своего дальнего родственника.Производство: СССР / КазахфильмЖанр: Детский, семейныйРежиссер: Шарип БейсембаевАктеры: Гуля Беркимбаева, Лейла Джумалиева, Гульнара Каймолдина, Ая Болсанбекова, Ануар Кистауов, Рустем Кунгейбаев, Асхат Тажибаев, Раиса Мухамедьярова, Тамара Косубаева, Бикен РимоваСубтитры: ОтсутствуютПродолжительность: 01:05:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A53654CA1CD2789CCD42E33E72332F6895C6EE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 893970   (711173) от 30.04.2015
+
+Tag&Rename 3.9 Portable by PortableAppZ [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709085.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711173.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ну кто из нас не забывал поздравить близких друзей, родственников, сотрудников, знакомых с каким нибудь событием или знаменательной датой!
-Может это день рождения, или юбилей, а может крестины, или может годовщина свадьбы?
-А когда же поздравить? Когда покупать подарки? Какого же числа праздник?
-Эта версия программы - ни что иное, как новый свет от предыдущей Birthday. (   Читать дальше...   )Разработчик: Похилько Д.Ю. aka KilyaЯзык интерфейса: Русский, английский, украинский
+Tag&Rename - это редактор музыкальных файлов, который легко обрабатывает все популярные цифровые аудио форматы. Независимо от того, какой музыкальный компрессор вы предпочитаете, вы можете сохранить вашу музыкальную коллекцию организовав с помощью Tag&Rename. Это единственный редактор тегов и органайзер, который имеет полную встроенную поддержку: mp3 (ID3v1, ID3v2.2, ID3v2.3 и ID3v2.4), Windows Media wma, asf и wmv файлы, Apple iTunes aac (m4a) файлы, включая mp4, lossless m4a и защищенные m4p файлы, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D59D2B90FD7855CC6F01BD9B7AAB8D2146FC0343
+magnet:?xt=urn:btih:EBD53767149EE20C4ABBC89F78D80DF246F8A41C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -604,28 +466,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286892   (709084) от 04.03.2019
+###  Публикация: 893852   (711168) от 30.04.2015
 
-Moebius - Lux Fiat (2019) Mystic Sound Records [FLAC|Lossless|WEB-DL|tracks] <Psybient, Downtempo, Psychill, Ambient>
+Николай Коптев | Земля до и после потопа (2015) [PDF]
 
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
+>>Научная и техническая литература
+>>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709084.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711168.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Amber Star (08:46)
-02. Inner Hollow (07:56)
-03. Black Rain (07:15)
-04. The Mind Traveller (08:13)(   Читать дальше...   )Жанр: Psybient, Downtempo, Psychill, AmbientПродолжительность: 01:15:24
+Неустойчивая погода, бросающая человечество то в жар, то в холод, то под потоки дождя, то в небывалые снегопады заставила поверить всех в бренность своего существования на планете Земля. Наука надёжных прогнозов на будущее не даёт, разные модели климата не работают. Автор предлагаемой книги пытается это сделать, для чего ему пришлось создавать новую модель мироздания, которая более удачно объясняет многое в окружающем нас мире. Homo sapiens не должен исчезнуть из-за Невежества, т.к. сегодня величина средств (   Читать дальше...   )Жанр: Научно-популярная литератураФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:927C4C32D9FF4B7D3A062F8591B37178719ED0BC
+magnet:?xt=urn:btih:E34E7A17121FA54F7F796A11743CE6120D767962
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -633,28 +492,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286402   (709083) от 04.03.2019
+###  Публикация: 893890   (711165) от 30.04.2015
 
-Jim Brickman - Soothe, Vol. 4: Subzero - Sounds That Spark the Senses (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental>
+Wise Care 365 Pro 3.61.321 Final RePack by D!akov [Multi/Ru]
 
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709083.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711165.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Starbeam (4:30)
- 02. Cool Vibes (3:54)
- 03. Poolside Chill (3:49)
- 04. Drive North (3:33)(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:54:30
+Wise Care 365 – программный пакет, предназначенный для оптимизации, настройки и очистки компьютера. Способен быстро и безопасно произвести очистку системного реестра, освободить место на диске, дефрагментировать реестр и жесткий диск, восстановить удаленные файлы, блокировать приложения путем установки пароля на запуск, оптимизировать оперативную память, редактировать список автозагружаемых приложений и многое другое. Имеются дополнительные опции скрытия и шифрования важных файлов или папок, оптимизация компьютера (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D27825A2BF16276605F24D51FF5D2AD0CC908646
+magnet:?xt=urn:btih:AE9C9A86311E3712285FED07FFE4C7A8566DE5E0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -662,28 +518,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286882   (709082) от 04.03.2019
+###  Публикация: 1401218   (711164) от 09.08.2020
 
-Gigi D'Agostino & Friends - The UltraTraxx Remixe 1-3 (2009) [MP3|192 Kbps] <Italo-Dance>
+LitaWolf | Королевский отбор (2020) [MP3]
 
->>Неофициальные сборники
->>Pop (сборники)
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709082.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_711164.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Gigi D'Agostino - La Passion (UltraTraxx Remix) (11:53)
-02. Gigi D'Agostino - Bolero (UltraTraxx Remix) (9:38)
-03. Bon Tino - Der Reiter (UltraTraxx Remix) (8:01)
-04. Elettrogang - Once Upon A Time (UltraTraxx Remix) (8:17)(   Читать дальше...   )Жанр: Italo-DanceПродолжительность: 03:57:01
+Твоя личная жизнь рассыпалась в одночасье? Самое время начать всё с чистого листа. Но… Тебя похищают в другой мир. Плен? Рабство? Нет – теперь ты участвуешь в отборе невесты для короля! Звучит красиво, однако не стоит радоваться. Ведь твоего согласия никто не спрашивал, и вокруг змеиное гнездо: претендентки готовы на любые подлости, лишь бы столкнуть друг друга с (   Читать дальше...   )Жанр: Любовное фэнтези, ПопаданцыПродолжительность: 12:22:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E8246DCD214CFA065325D7978FE2CB1F99A9BA03
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -691,25 +544,106 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286695   (709081) от 04.03.2019
+###  Публикация: 1286567   (711163) от 03.03.2019
 
-Журнал | InfoCity №2 (136) (февраль 2019) [PDF] [Ru,Az]
+Чудо техники с Сергеем Малозёмовым (03.03.2019) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711163.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Чудо техники" и Сергей Малозёмов расскажут об "умных счётчиках" на воду и электричество: помогают или, наоборот, "воруют" наши деньги? Из новой рубрики "За что такие деньги?" зрители узнают, можно ли попасть в больницу, купив дешёвые духи; почему оригиналы стоят так дорого, и стоит ли переплачивать за любимый аромат? Также (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:39:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34961A8C2096F81938B2FA626CB3857ECE2B0E44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 893885   (711161) от 30.04.2015
+
+Wise Care 365 Pro 3.61.321 Final + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711161.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wise Care 365 – программный пакет, предназначенный для оптимизации, настройки и очистки компьютера. Способен быстро и безопасно произвести очистку системного реестра, освободить место на диске, дефрагментировать реестр и жесткий диск, восстановить удаленные файлы, блокировать приложения путем установки пароля на запуск, оптимизировать оперативную память, редактировать список автозагружаемых приложений и многое другое. Имеются дополнительные опции скрытия и шифрования важных файлов или папок, оптимизация компьютера (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:642C0E17DF3CF04180A9C1BAA141C36926772DD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401203   (711160) от 09.08.2020
+
+Футбол. Лига Чемпионов 2019-2020. 1/8 финала.Ответный матч.Бавария (Германия) - Челси (Англия) (08.08.2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_711160.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футбол. Лига Чемпионов 2019-2020.1/8 финала. Ответный матч. Бавария (Германия) - Челси (Англия) (08.08.2020)
+Судья: Хэцеган Овидиу (Арад, Румыния)
+Судья на линии 1: Шовре Октавиан (Румыния)
+Судья на линии 2: Георге Себастьян (Румыния)(   Читать дальше...   )Телекомпания: Матч! Футбол 1Жанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:40:47
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286578   (711159) от 03.03.2019
+
+Газета | Еда для всей семьи. Спецвыпуск №1. Готовим на Пасху! (2019) [PDF]
 
 >>Журналы
->>Компьютерные журналы
+>>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709081.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711159.jpg" />
 </div>
 
 
 ###  Подробнее
 
-InfoCity - Азербайджанский ежемесячный журнал о технике и технологиях выпускается с ноября 2007 г. На страницах журнала InfoCity вы найдете информацию о компьютерах, технике и новых технологиях. Штат журналистов тщательно набирается из лиц, уже публиковавшихся на данную тематику, с высшим техническим и экономическим образованием или имевших опыт работы в маркетинговых (   Читать дальше...   )Жанр: Компьютерные журналыФормат: PDF
+Спецвыпуски журнала «Еда» – это не только красочное издание, ценная кулинарная информация, но еще и приятное, увлекательное чтение, где за каждым рецептом – невыдуманная история его создания, реальный автор. В этом выпуске вы найдете и и праздничные закуски, и заморские угощения, и традиционные рецепты, словом все, для того чтобы встретить праздник достойно.Жанр: КулинарияФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B01842C809B74C7BE215DABEF76BEB9102C4BCB3
+magnet:?xt=urn:btih:54D2BDC00DA86B0D5AF33F6F1C80ECD8AE7CAC99
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -717,25 +651,55 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286894   (709080) от 04.03.2019
+###  Публикация: 1401212   (711156) от 09.08.2020
 
-DiskDigger 1.20.10.2731 [Multi/Ru]
+LitaWolf | Попаданка с секретом (2020) [MP3]
 
->>Архив торрентов
->>Архив Программ
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709080.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_711156.jpg" />
 </div>
 
 
 ###  Подробнее
 
-DiskDigger - маленькая утилита, с которой можно восстановить случайно удаленные фотографии, видео, музыку, документы и другие файлы с любого носителя. Программа может сканировать даже поврежденные или неудачно отформатированные диски, а также пригодится для восстановления файлов и папок, поврежденных в результате вирусной атаки. Может работать со всеми типами внешних (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
+Никогда не знакомьтесь с красавцами! Особенно если у них сумасшедшая харизма, а обаяния хватит, чтобы очаровать королеву – не то что простую студентку. Иначе рискуете вляпаться в историю. А то и оказаться в другом мире.
+А там вас вынудят подменить молодую королеву. Надолго ли – никто не говорит. Пристальное мужское внимание монарших особ, перекрестная ненависть со (   Читать дальше...   )Жанр: Любовное фэнтези, ПопаданцыПродолжительность: 12:11:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:904EA1DBAD7ADB94FD4DE66A0EBFE0085D8D6605
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286708   (711155) от 03.03.2019
+
+Gigi D'Agostino - The Greatest Hits (1996/2007) Compilation, Reissue [MP3|320 Kbps] <Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Noise Maker Theme (8:52)
+02. Sweetly (8:09)
+03. Happily (8:26)
+04. This Song Tears Easily (5:35)(   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 01:18:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F779AB562262ABC12BF742D06FFAF0553F471C5C
 ```
 
 https://mybot314.ru/tekegram_catalog/

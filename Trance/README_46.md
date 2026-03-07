@@ -1,3 +1,90 @@
+###  Публикация: 1268146   (229879) от 09.12.2018
+
+VA - Black Hole Presents: Best of Vocal Trance 2018 Vol.2 (2018) [MP3|320 Kbps] <Trance, Vocal Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_229879.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Myon & Late Night Alumni - Hearts & Silence (Myon Club Mix)
+02. Markus Schulz ft. Nikki Flores - We Are the Light (Original Mix)
+03. Richard Durand & Christina Novelli - The Air I Breathe (Original Mix)
+04. ReOrder - All Comes Back to You (Original Mix)(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting TranceПродолжительность: 01:32:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E28C226CB5E19F074A2EBB16D93C65A4B074166
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649588   (229109) от 28.07.2023
+
+VA - Trance Aliens (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_229109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hyperphycron - Universe Exploration (Extended Mix) [8:56]
+02. Ros Tibler - Blow Me (Original Mix) [5:25]
+03. Sven Nielsen - Dreams Of Infinity (Original Mix) [5:28]
+04. Saphire & weimaR - Learn To Live (DJ Saphire Remix) [6:06](   Читать дальше...   )Жанр: TranceПродолжительность: 03:45:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DB936BFD15DDB52F243966250433759C7EFD281
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1268291   (228179) от 10.12.2018
+
+VA - Redux Presents: The Finest Selection 2018 (Mixed By Rene Ablaze) (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_228179.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Derek Ryan feat. Melissa R. Kaplan - Ripples (Rene Ablaze Remix)
+002. TrancEye - Distant Dream (Brent Rix Remix)
+003. Sven E feat. Zara Taylor - Forgiven (Original Mix)
+004. Kiyoi & Eky - Heritage (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 08:07:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1252E2660787CD3DAF7753D2D78BD646212C11C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1268510   (226552) от 11.12.2018
 
 VA - Grotesque 350 (Mixed by RAM, Alex M.O.R.P.H. & Alex Di Stefano) (2018) [MP3|320 Kbps] <Trance>
@@ -658,93 +745,6 @@ VA - Trance The Annual 2020 (2019) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA22FFC17732DA59959E9CA676124234CC6A66CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343124   (220082) от 05.12.2019
-
-VA - Trance Universe Vol.01 (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220082.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ATB & Markus Schulz - Heartbeat (Original Mix)
-02. Dash Berlin feat. Jonathan Mendelsohn - Locked Out Of Heaven (Dash Berlin 4AM Mix)
-03. Paul Van Dyk & Alex M.O.R.P.H. - Shine (Ibiza Anthem 2019)
-04. The Noble Six - Ocean Planet (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:37:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB73E9DDAFE8D2EEE425B300D0F8748B6D6DB163
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514271   (219486) от 02.12.2021
-
-VA - Best of Progressive Vocal Trance (2021) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219486.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Raz Nitzan & Elara - Paralyzed 3:19
-02. Costa & Cathy Burton - Always 2021 3:45
-03. Zetandel & Tiff Lacey - Higher Ground (Costa & Aurosonic Remix) 3:45
-04. Aurosonic, Spark7 & Sarah Russell - Touched By An Angel 4:09(   Читать дальше...   )Жанр: TranceПродолжительность: 04:11:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF4E4E1FEAAAD3D24624484F295242D52B47D6AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343368   (218638) от 06.12.2019
-
-VA - Suanda Music Radio Top 20 (December) (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218638.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roman Messer & Feel - Reflection (Original Mix)
-02. Ruslan Radriges & Lennard Elliot - A New Age (Extended Mix)
-03. Papulin & Kate Miles - Home (Original Mix)
-04. Maywave & Sodality - Contrast (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:43:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D77A5496B3C05FE92106DE88DD4B9F0B22841EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

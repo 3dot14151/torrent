@@ -1,3 +1,56 @@
+###  Публикация: 1364830   (932954) от 05.03.2020
+
+Windows Server, Version 1903 (10.0.18362.657) - Оригинальные образы от Microsoft MSDN [En/Ru]
+
+>>ОС Windows
+>>Оригинальные версии Windows Server
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932954.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows Server SAC - канал Semi-Annual Channel идеально подходит для клиентов, быстро внедряющих инновации. Он помогает им начать использовать возможности новой операционной системы раньше. Это касается как приложений, особенно основанных на контейнерах и микрослужбах, так и программного гибридного центра обработки данных. В рамках канала Semi-Annual Channel для (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5689933CC6728A98A99B95A1148511B2B916E77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364840   (932951) от 05.03.2020
+
+Microsoft Windows 10.0.18362.657 Version 1903 (February 2020 Update) - Оригинальные образы от Microsoft MSDN [En]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932951.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 1903 Build 18362.657.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9BF5DBBBCD3C4E39B1A10B9CD2509F4CBCC4EB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1364832   (932949) от 05.03.2020
 
 Windows Server, Version 1909 (10.0.18363.657) - Оригинальные образы от Microsoft MSDN [En/Ru]
@@ -630,60 +683,6 @@ Windows Server - это проверенная масштабируемая пл
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4928C0138801610D9BF3B287CEC512D33988A611
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493384   (897107) от 02.09.2021
-
-Microsoft Windows 10 Insider Preview, Version 21H2 [10.0.19044.1165] - Оригинальные образы от Microsoft [En]
-
->>ОС Windows
->>Разное (RC, Beta и Service Packs)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897107.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальные образы - Windows 10 Version 21H2 Build 19044.1165.
-Оригинальные образы EnterpriseVL и Client.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBE8749ACCC0E2DE52A77B936A5244E885ECD1DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370344   (896439) от 27.03.2020
-
-Microsoft Windows 10.0.17763.1098 Version 1809 (March 2020 Update) - Оригинальные образы от Microsoft MSDN [Ru]
-
->>ОС Windows
->>Музей Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896439.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальные образы MSDN - Windows 10 Version 1809 Build 17763.1098.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:101241C3CBA47D982533780485C59AEC9F4F3867
 ```
 
 https://mybot314.ru/tekegram_catalog/

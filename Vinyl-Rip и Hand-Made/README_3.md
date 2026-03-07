@@ -1,3 +1,177 @@
+###  Публикация: 1612507   (1039841) от 17.02.2023
+
+Beyond The Black - Studio Albums (6 releases) (2015 - 2023) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Symphonic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039841.jpg" />
+</div>
+
+
+###  Подробнее
+
+Beyond the Black — немецкая метал-группа, исполняющая музыку в жанрах симфонический метал / пауэр-метал / альтернативный метал, образованная в 2014 году в Мангейме.2015 - Songs Of Love And Death
+2016 - Lost In Forever
+2019 - Heart of the Hurricane
+2020 - HorizonsЖанр: Symphonic MetalПродолжительность: 05:47:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5730B564F27F9B2BA76D1724B4318711BF71FDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1614591   (1038352) от 23.02.2023
+
+Soilwork - Studio Albums (15 releases) (1998 - 2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Melodic Death Metal; Metalcore/Melodic Groove Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1038352.jpg" />
+</div>
+
+
+###  Подробнее
+
+Soilwork (англ.) («Земледелие») — шведская группа из Хельсингборга.
+Группа Soilwork была образована в 1996 году и поначалу своей карьеры носила название Inferior Breed. Как объяснил вокалист группы Бьорн Стрид — их саунд в то время находился под влиянием таких известных коллективов как Pantera, Meshuggah и Carcass. В конце 1996 года коллектив поменял название на (   Читать дальше...   )1998 - Steelbath Suicide
+2000 - The Chainheart Machine
+2001 - A Predator's Portrait
+2002 - Natural Born ChaosЖанр: Melodic Death Metal; Metalcore/Melodic Groove MetalПродолжительность: 14:18:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A848C968B9D76F7EFD0561C5F38E2F3FFE9D44CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1614174   (1038302) от 23.02.2023
+
+Пётр Лещенко - Поёт Петр Лещенко 1-4 (1988-1990) [FLAC 1.0|192/24|image +.cue|Vinyl-Rip] <Folk, Chanson>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1038302.jpg" />
+</div>
+
+
+###  Подробнее
+
+..
+A1 Вернулась Снова Ты
+A2 Марфуша
+A3 Не Уходи(   Читать дальше...   )Жанр: шансонПродолжительность: 03:01:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA2FA90A47B2C7627CD93A4D0A9E2F3119EEE91B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1440918   (1037922) от 20.01.2021
+
+Mark Knopfler - Tracker (2015) [DSD128 2.0|5,6MHz/1bit|tracks|Vinyl-Rip] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037922.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tracker — восьмой сольный студийный альбом британского певца, гитариста и композитора Марка Нопфлера. Альбом выпущен 16 марта 2015 года (в Северной Америке 17 марта).
+
+«Название альбома родилось из моих попыток расставить метки во времени, оглядываясь на людей, места и вещи из моего прошлого. А ещё из трекинга — записи треков в студии», — говорит Нопфлер. Некоторые (   Читать дальше...   )LP1Жанр: RockПродолжительность: 1:00:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FC3415C8A6125F97E81A46578E483192425E70F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615418   (1037581) от 26.02.2023
+
+Catamenia - Studio Albums (10 releases) (1998 - 2012) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Melodic Black Metal, Melodic Death/Gothic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037581.jpg" />
+</div>
+
+
+###  Подробнее
+
+Catamenia — финская мелодик-блэк-метал-группа из Оулу. Группа была образована в 1995 году вокалистом Микой Тённингом, гитаристами Рику Хопеакоски и Сампо Уккола, басистом Тимо Лехтиненом, клавишником Хейди Риихинен и барабанщиком Тони Тервоандом.1998 - Halls Of Frozen North
+1999 - Morning Crimson
+2000 - Eternal Winter's Prophecy
+2002 - EskhataЖанр: Melodic Black Metal, Melodic Death/Gothic MetalПродолжительность: 08:15:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C53D90BBD81CA7A1A40DD2E3D05722F2A0AADC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615691   (1037291) от 27.02.2023
+
+Mist Of Misery - Studio Albums (6 releases) (2013 - 2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Symphonic Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037291.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mist Of Misery - шведская симфоник-блэк-метал группа из Стокгольма, образованная в 2010 году Саймоном Шёландером и Андреасом Мортуцем Бернинге.2013 - Temple of Stilled Voices (EP)
+2016 - Absence
+2017 - Fields of Isolation (EP)
+2017 - Shackles Of Life (EP)Жанр: Symphonic Black MetalПродолжительность: 04:58:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B71D38FAF446F5C82C1CA9DCCF90A8F7B38A8E52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1441372   (1037096) от 23.01.2021
 
 Mark Knopfler - Down The Road Wherever (2018) 2LP [DSD128 2.0|5,6MHz/1bit|tracks|Vinyl-Rip] <Rock>
@@ -569,180 +743,6 @@ A2 Adagio /  Allegro(   Читать дальше...   )Жанр: Classical, Bar
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4708F9F7766C376C67139FD645986D2FFE5259A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461534   (1021712) от 10.04.2021
-
-Органная музыка. Антонио Вивальди - Времена Года (1984) - Евгения Лисицина (переложение для органа Е. Лисициной) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Classical, Baroque>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021712.jpg" />
-</div>
-
-
-###  Подробнее
-
-Concerto E-dur , Op. 8 No.1, RV 269, ''Spring''/ми мажор, RV 269 «Весна»
-A1 Allegro
-A2 Largo
-A3 Allegro(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 00:42:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5236157746BB91CE3AFF3CE651C42D4B7DFA30AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461738   (1021607) от 11.04.2021
-
-Ивао Судзуки - Гитара (1985) 1970, mono (repress) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Classical>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021607.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Шесть Пьес Для Лютни
-A2 Павана
-A3 Матацин (Медленный Испанский Танец)
-A4 Прелюдия Из Сюиты №1 Для Виолончели(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:47:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21480DE1E677ECB37545423534545BAA5F3B1E58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461760   (1021538) от 11.04.2021
-
-Эдвард Григ - Пер Гюнт (1967) БСО Всесоюзного Радио, дир. Г. Рождественский [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Classical>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021538.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пер Гюнт. Сюита N1, соч.46.
-A1 Утро / Dawn
-A2 Смерть Озе / Death Of Ase
-A3 Танец Анитры / Anitras's Dance(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:49:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13A67462BC9BE8EFDE94623495A684805E25CF81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463635   (1020248) от 19.04.2021
-
-Гарри Гродберг, орган - И. С. Бах. Токкаты (1989) 1971 [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Classical, Baroque>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020248.jpg" />
-</div>
-
-
-###  Подробнее
-
-И. С. Бах (1685 - 1750)
-A1 Токката Ре Минор, B.565 / Toccata And Fugue In D Minor, S. 565
-Токката До Мажор, В.564 / Toccata, Adagio And Fugue In C, S. 564
-A2.1 Allegro(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 00:48:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F44E0BE346DD97196F02438510A01DA24385EE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463610   (1020216) от 19.04.2021
-
-И. С. Бах - Искусство Фуги. Московский Камерный Оркестр, дир. Р. Баршай (1984) 1972 [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Classical, Baroque>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020216.jpg" />
-</div>
-
-
-###  Подробнее
-
-И. С. Бах (1685 - 1750)
-A1 Contrapunctus 1 (No. 1)
-A2 Contrapunctus 2 (No. 2)
-A3 Contrapunctus 3 (No. 3)(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 01:33:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E03C8D4C8E31BD6103BB2013F47BB16FDB38C67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463658   (1019903) от 21.04.2021
-
-Кино - 45 (2021) Reissue 1982, AnTrop [FLAC 2.0|48/24|image+.cue|Vinyl-Rip] <New Wave, Post-Punk, Acoustic>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019903.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальная Версия
-01. Время есть, а денег нет (4:12)
-02. Алюминиевые огурцы (3:10)
-03. Бездельник №1 (3:15)(   Читать дальше...   )Жанр: New Wave, Post-Punk, AcousticПродолжительность: 01:28:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88C75194C4C43E1B67A1ECEC93AA87BFF5D0407E
 ```
 
 https://mybot314.ru/tekegram_catalog/

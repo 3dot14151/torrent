@@ -1,3 +1,260 @@
+###  Публикация: 920212   (571734) от 27.07.2015
+
+VA - Sax 'N' Chill (Satin Smooth Jazz Grooves) (2015) [MP3|320 кб/с]<Jazz, Sax, Chillout>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_571734.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Perelandra - On the Box (Smooth Sax Mix) (05:40)
+02. Delectable - Woman in Love (04:42)
+03. Cocktail Groovers - Garden of Sun (Sensual Mix) (05:04)
+04. Wonderphazz - Still Waters (Harmonica Mix) (05:07)(   Читать дальше...   )Производство: RagimusicЖанр: Jazz, Sax, ChilloutПродолжительность: 01:30:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF586E45B27AD3529250BD01790DF9AC5FB86998
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 528482   (571577) от 29.07.2012
+
+Braff Oester Rohrer - The Tide Is In (2001) [FLAC|Lossless]<Bebop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_571577.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Song of Wonderful Things
+02. Mc Braff
+03. Jone's Tones
+04. My Little Suede Shoes
+05. You Don't Know What Love Is
+06. New SongЖанр: BebopПродолжительность: 01:13:57
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 528392   (571483) от 29.07.2012
+
+The Blues Overdrive - The Blues Overdrive (2012) [FLAC|Lossless]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_571483.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Death On the Highway [04:44]
+ 02. Out in the Country [03:42]
+ 03. I Was Wrong [02:33]
+ 04. Ball & Chain [05:07]
+ 05. Mr. 16 Tons (Blues for Thorup) [04:07]
+ 06. Too Blind to See [03:39]
+ 07. I Need Your Lovin' [02:36]
+ 08. Got Myself a Woman [03:09]
+ 09. Big Fat Woman [02:45]
+ 10. Done Tryin' [04:33](   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:32
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 528730   (571480) от 29.07.2012
+
+Acme Blues Company - I Think I Made It (2006) [FLAC|Lossless]<Industrial Strength Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_571480.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Is Love Worth the Cost
+02. Except My Own
+03. Sugar Mama
+04. Easy Money
+05. I Think I Made It
+06. Hey Baby
+07. You Ain't the First (Live)
+08. A Little Somethin' Somethin'
+09. No Shortage of the Blues
+10. Liquor Store(   Читать дальше...   )Жанр: Industrial Strength BluesПродолжительность: 00:50:43
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 528489   (571292) от 29.07.2012
+
+Brecker Brothers - Out of the Loop (1994) [FLAC|Lossless]<Jazz-Funk, Jazz-Fusion, Crossover Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_571292.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slang
+02. Evocations
+03. Scrunch
+04. Secret Heart
+05. African Skies
+06. When It Was
+07. Harpoon
+08. The Nightwalker
+09. And Then She WeptЖанр: Jazz-Funk, Jazz-Fusion, Crossover JazzПродолжительность: 00:54:53
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043578   (571187) от 17.08.2016
+
+Martin Lechner - Somethin' Old & Somethin' New, Somethin' Else! (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_571187.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lullaby Of Birdland
+02. Valerie
+03. The Masquerade Is Over
+04. Ready Or Not(   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 01:04:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A213AEDFF6579E70880A0DA5FCCD76C1636A8CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 528708   (571163) от 29.07.2012
+
+Brian Simpson - Above The Clouds (2007) [APE|Lossless]<Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_571163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What Cha Gonna Do?
+02. Juicy
+03. From the Hip
+04. Let's Get Close
+05. One More Time
+06. The Last Kiss
+07. Fiona's Song
+08. Bali Listen
+09. Above the Clouds
+10. Memories Of You(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:44:06
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234465   (571151) от 05.07.2018
+
+Jimmie Lunceford - 1940 - 1941 (1992) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_571151.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whatcha Know Joe? [2:41]
+02. Red Wagon [2:35]
+03. You Ain't Nowhere [2:56]
+04. Please Say The Word [2:41](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:08:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:867F6CD465C8E98F271CCA5E556F7B7C749BC984
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1234463   (571147) от 05.07.2018
 
 Kenny Barron Quintet - Concentric Circles (2018) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -537,238 +794,6 @@ Pepper Adams - Hollywood Quintet Sessions (1957) 2008, Fresh Sound Records[FLAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6084E9330CC74A44FB1371EEFB8A61056B51B033
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043996   (569263) от 18.08.2016
-
-The Jimmy Giuffre - 3 (1956) Remaster, 2012, Warner[FLAC|Lossless|tracks + .cue] <Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569263.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Gotta Dance [02:36]
- 02.Two Kinds of Blues [05:18]
- 03.The Song Is You [03:59]
- 04.Crazy She Calls Me [04:21](   Читать дальше...   )Жанр: CoolПродолжительность: 00:38:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A18C080B4D6577053109E66546C4967635C74199
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043722   (569262) от 18.08.2016
-
-Egberto Gismonti - Em Familia (1981) EMI[FLAC|Lossless|tracks + .cue] <World Fusion, Ethnic Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569262.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Loro [05:26]
-02.Don Quixote [05:28]
-03.Em Familia [09:37]
-04.Sanfona [04:30](   Читать дальше...   )Жанр: World Fusion, Ethnic JazzПродолжительность: 00:42:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0E3A3853004DB773079D3E9C974029232016BBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043888   (569261) от 18.08.2016
-
-Nora McCarthy & The People Of Peace Quintet - Blessings (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Modern Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569261.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Love Poem For The People
-2. Akara Moi Moi
-3. Nimbus
-4. Into The Middle Of Something(   Читать дальше...   )Жанр: Vocal Jazz, Modern JazzПродолжительность: 01:06:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E7161A407BDB23B5CB944425948A93D4628424E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043885   (569258) от 18.08.2016
-
-Tara Kannangara - Some Version Of The Truth (2015) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Contemporary>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569258.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sound the Alarm
-02. Stand in Line (Intro)
-03. Stand in Line
-04. Atoms for Peace(   Читать дальше...   )Жанр: Vocal Jazz, ContemporaryПродолжительность: 00:48:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC411EDEF1E6C52831CA7604D49E7AB02B16AC9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044013   (569257) от 18.08.2016
-
-Reuben Wilson - The Sweet Life (1974) 2006, Groove Merchant[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569257.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Inner City Blues [04:48]
- 02.Creampuff [05:32]
- 03.Sugar [06:11]
- 04.I'll Take You There [06:27](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:33:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E3CF2A7725691603DACAA28A559D89FAFA83258
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234617   (569246) от 06.07.2018
-
-VA - Summer In Electro And Swing Jazz (2018) [MP3|320 Kbps] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569246.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ukulele Swing - Christian Lisi 02:49
-02. Non Dimenticare - JazzInCase 03:18
-03. Prince of Persia - Minor Swing Quintet 07:27
-04. Toccata - Parma Brass Quintet 02:07(   Читать дальше...   )Жанр: JazzПродолжительность: 01:19:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F72FA8ACBF874BBF1C630453E0214F50DAED4B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043895   (569106) от 18.08.2016
-
-Robin McKelle - The Looking Glass (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Soul, Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569106.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gravity
-02. Stand Up
-03. I’'m the One
-04. Forgive Me(   Читать дальше...   )Жанр: Vocal Jazz, Soul, PopПродолжительность: 00:41:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99E6BFE8DB11474D24C333E2B699D393CCD0D284
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043892   (569102) от 18.08.2016
-
-Simona Parrinello - Con Alma (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569102.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beatrice
-02. Con Alma
-03. Melancholia
-04. Everybody's Song But My Own(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:56:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F1938914094F45B8593F8725D48611C8AC1642E
 ```
 
 https://mybot314.ru/tekegram_catalog/

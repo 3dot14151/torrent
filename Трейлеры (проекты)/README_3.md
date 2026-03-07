@@ -1,3 +1,29 @@
+###  Публикация: 1232791   (596019) от 26.06.2018
+
+Проекты - VideoHive - Insomnia - Thriller / Horror Trailer - 19674854 [AEP]
+
+>>Проекты
+>>Трейлеры (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_596019.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кинематографический проект для создания трейлера к триллеру или фильму ужасов.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EC5B08370AC00DCDDC25211E4CC502AC09255C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1039497   (595543) от 01.08.2016
 
 Проекты - VideoHive - The King's Throne - Cinematic Trailer - 6704233 [AEP]
@@ -645,32 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E6A5482AD3B16A1CAC58E82535A1D1271B1F9DAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928812   (521368) от 17.08.2015
-
-Проекты - Motion Array - B&W Trailer [AEP]
-
->>Проекты
->>Трейлеры (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521368.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания трейлера к фильму. Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D27514C704AC3648B5315DDF666D6387CAEFAA4C
 ```
 
 https://mybot314.ru/tekegram_catalog/

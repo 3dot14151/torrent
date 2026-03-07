@@ -1,22 +1,22 @@
-###  Публикация: 1023964   (474473) от 28.09.2016
+###  Публикация: 547273   (476292) от 14.09.2012
 
-Hearts of Iron IV (2016) [Ru/Multi] (1.2/dlc) License CODEX [Field Marshal Edition]
+Artworks by Jan Brueghel The Elder (1568-1625) [Графика]
 
->>3
->>След.
+>>Графика, Арт, Разное
+>>Классическое искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474473.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_476292.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Hearts of Iron IV позволяет игрокам встать во главе Второй мировой войны, управляя любой из участвующих в конфликте страной. Можно выбрать супердержаву и постараться повести ее к тотальному завоеванию мира, или сыграть за небольшое государство, пытающееся выжить в смутные времена. Глубина стратегии Hearts of Iron IV в том, что для достижения победы нужно не только (   Читать дальше...   )Тип издания: LicenseРазработчик: Paradox Development StudiosЖанр: Strategy (Real-time, Grand strategy), 3DЯзык интерфейса: Русский, Английский и другие
+Artworks by Jan Brueghel The Elder (1568-1625)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8F225E1CB014EC29E07AD290E612E515DFC0E412
+magnet:?xt=urn:btih:5BD7699580270CD8226B278A7F7379AE3F9F0E5A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,211 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1056871   (474471) от 28.09.2016
+###  Публикация: 547023   (476291) от 14.09.2012
 
-Fallout Tactics: Brotherhood of Steel (2001) [Ru/Multi] (1.27) License GOG
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474471.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда отгремела Третья мировая война, выяснилось, что пережить ее смогли совсем немногие - да и те, растеряв большинство накопленных знаний, постепенно скатываются в каменный век. Сильное радиационное излучение убило либо видоизменило практически все формы жизни, породив чудовищных мутантов. Единственная надежда человечества на выживание - посвятившая себя восстановлению (   Читать дальше...   )Тип издания: LicenseРазработчик: Micro Forté, 14 Degrees EastЖанр: Strategy (Turn-based, Tactical), IsometricЯзык озвучки: Русский, Английский, Немецкий, ФранцузскийЯзык субтитров: Русский, Английский, Немецкий, ФранцузскийЯзык интерфейса: Русский, Английский, Немецкий, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD18215376F220AE47673092E81CBFF40740584A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004460   (474469) от 28.09.2016
-
-Enter the Gungeon (2016) [Ru/Multi] (1.0.10/dlc) License GOG [Collector`s Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474469.jpg" />
-</div>
-
-
-###  Подробнее
-
-Enter the Gungeon - это подземное приключение со стрельбой. Банде неудачников с нечистой совестью предстоит палить во все стороны, уворачиваться от пуль и собирать добычу - только так они отыщут легендарное сокровище подземелья Gungeon - оружие, способное уничтожить прошлое. Выберите персонажа и пробейтесь через толпы врагов на самое дно подземелья.Тип издания: LicenseРазработчик: Dodge RollЖанр: Arcade (Shoot'em up), Top-downЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFF1D8B99211DBD4126A7A1C6131AB783EAFCCA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057523   (474467) от 28.09.2016
-
-VA - Самые Лучшие Хиты 80-90-х В Современной Обработке (2016) [MP3|320 Kbps] <Disco, Eurodance, Dance, Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474467.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. C.C. Catch - House Of Mystic Lights (Dj Ikonnikov E.x.c Version)
-02. Modern Talking - Arabian Gold ( Alexduxer Dance mix)
-03. Ane Brun - Big In Japan (DJ Brooklyn Edit)
-04. Modern Talking - Brother Louie (Andrey Po remix)(   Читать дальше...   )Жанр: Disco, Eurodance, Dance, PopПродолжительность: 09:26:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EC2609302D04372867E0B0AB4A0B74198D3E486
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009497   (474465) от 28.09.2016
-
-Bridge! 2 (2016) [En/Ge] (1.0.3) License HI2U
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_474465.jpg" />
-</div>
-
-
-###  Подробнее
-
-Toxtronyx выпустила “Bridge2!” на мощном движке Unity. Более 50 миссий от простого к сложному. Тебе, виртуальный ты наш строитель, дается 20 элементов конструкций из которых придется делать инженерное чудо, НО! строго в рамках бюджета. К слову, Вам придется не только строить что-то новое, но и ремонтировать что-то старое. Ну инженеры вперед, удивите мир своим гением!Тип издания: LicenseРазработчик: ToxTronyx Interactive GmbHЖанр: Logic, 3DЯзык озвучки: -/-Язык субтитров: Английский, НемецкийЯзык интерфейса: Английский, Немецкий
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942211   (474464) от 28.09.2016
-
-Последний человек на Земле / The Last Man on Earth (2015) WEB-DLRip (сезон 2, серии 1-18 из 18) Кубик в Кубе
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_474464.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фил Миллер когда-то был просто обычным парнем, который любил свою семью и ненавидел свою работу в банке — теперь он последняя надежда человечества. Найдет ли он когда-нибудь другого живого человека на планете?Производство: США / Si Fi Company, The, Lord Miller, 20th Century Fox TelevisionЖанр: комедияРежиссер: Джон Соломон, Фил Лорд, Кристофер МиллерАктеры: Уилл Форте, Кристен Шаал, Дженьюэри Джонс, Мэл Родригез, Клеопатра Коулмэн, Мэри Стинберген, Борис Коджо, Александра Даддарио, Патти Форте, Джейсон Судейкис и др.Перевод: Двухголосый закадровый, профессиональный - Кубик в КубеПродолжительность: ~00:22:00 серия
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057356   (474463) от 28.09.2016
-
-Adobe Illustrator CC 2015.3.1 20.1.0 RePack by KpoJIuK [Multi/Ru]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474463.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программное обеспечение Adobe Illustrator CC 2015 управляется новой системой Adobe Mercury Performance System, которая позволяет обрабатывать большие, сложные файлы с высокой скоростью и надежностью. Современный, обновленный интерфейс оптимизирует выполнение повседневных задач. Передовые инструменты для творчества позволяют более эффективно воплощать идеи.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:695B6547562E6B8163DA7769D25E460EC1320DE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 555761   (474461) от 28.09.2016
-
-Пока цветёт папоротник 1 сезон (2012) 1-13 серий из 13 SATRip
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_474461.jpg" />
-</div>
-
-
-###  Подробнее
-
-Всего несколько дней остается до ночи на Ивана Купалу. В эту ночь зацветет волшебный папоротник, цветок которого позволяет видеть клады под землей, читать мысли людей и повелевать духами…
-Всего несколько секунд понадобилось столичному журналисту Кириллу, чтобы оказаться на Алтае. Провалившись в открытый люк в центре Москвы, он вынырнул из колодца в глухой алтайской (   Читать дальше...   )Жанр: Комедия, Приключения, ФэнтезиРежиссер: Евгений БедаревАктеры: Александр Петров (IX), Татьяна Орлова, Павел Крайнов, Роман Курцын, Светлана Суханова, Алла Подчуфарова, Алексей Васильев (II), Юлия Самойленко, Елена Николаева (II), Сергей Майоров (III), Дмитрий Бедарев, Ольга Юрасова, Александр Никольский (II), Софья Ледовских, Константин Адаев, Алексей Лосихин, Александр Шестопалов, Виктор Мютников, Залим Мирзоев, Александр Мезенцев, (   Читать дальше...   )Продолжительность: ~00:48:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 701555   (474460) от 19.09.2013
-
-Векторный клипарт - 2014 год Лошади 4 / 2014 Year of the Horse 4 [EPS]
+Роман Глушков |Проект New Reality|Эксперт по уничтожению [2011] [FB2][TXT][JAVA (jar+jad)] [EPUB]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474460.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_476291.jpg" />
 </div>
 
 
 ###  Подробнее
 
-2014 год ЛошадиФормат: EPS и превью в JPG
+Прибытие на планету Земля инопланетян из глубин космоса может сделать из планеты глобальную бойню. Секретная организация, у которой имеются людей с необычными способностями, и которых обычно называют рефлезианцами, делает из них отряд сопротивления. В секретных лабораториях Гренландии самые лучшие умы рефлезианцев пытаются создать универсального солдата. Российскому художнику Мефодию Ятаганову нужно будет стать ключевой фигурой секретного проекта – экспертом по уничтожению инопланетных тварей.Формат: FB2,TXT,JAVA (jar+jad),EPUB.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4767641DDFE2E9141F282B02589A1C58BF07E49B
+magnet:?xt=urn:btih:18A0C5EE0AD0BA9E1C0D8E15D6871289092E4A92
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -236,25 +50,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057345   (474459) от 28.09.2016
+###  Публикация: 546309   (476288) от 14.09.2012
 
-Уильям Шоттс | Командная строка Linux. Полное руководство (2017) [PDF, EPUB]
+VA - Golden Accordion (2012) [MP3|320 кб/с]<instrumental>
 
->>След.
->>
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474459.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_476288.jpg" />
 </div>
 
 
 ###  Подробнее
 
-От издателя: Уильям Шоттс знакомит вас с истинной философией Linux. Вы уже знакомы с Linux и настала пора нырнуть поглубже и познакомиться с возможностями командной строки. Командная строка - всегда с вами, от первого знакомства до написания полноценных программ в Bash - самой популярной оболочке Linux . Познакомьтесь с основами навигации по файловой системе, настройки (   Читать дальше...   )Жанр: Операционные системыФормат: PDF, EPUB
+01.A Paris (02:21)
+02.Aimable A Moun La (03:13)
+03.Amapola (02:42)
+04.Arrivederchi Roma (02:30)
+05.Bei Mir Bist Du Schon (02:06)
+06.Besame Mucho (03:31)
+07.Dark Night (03:10)
+08.I Just Called To Say I Love Yo (04:19)
+09.I Love Paris (02:39)
+10.Jawa Do Luis (02:53)Жанр: instrumentalПродолжительность: 01:19:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C732E294CA449BD62AA5BA52226879AB64082FE2
+magnet:?xt=urn:btih:CB034ADA9D88F8D983E220F90D213A92D57D5047
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -262,28 +85,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 998840   (474457) от 28.09.2016
+###  Публикация: 546634   (476287) от 14.09.2012
 
-UpdatePack 7 для интеграции обновлений в образ Windows 7 SP1 (x86\64) v. 1.9.6 Stable (28.09.16) [Ru]
+Daum PotPlayer 1.5.34115 Portable by SamLab [Русский]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474457.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_476287.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Пакет включает в себя :
-1. Проверка и интеграция обновлений.
-2. Содержит обновления актуальные на дату выхода пакета.
-3. Обновления сжаты с аддонами в esd(   Читать дальше...   )Язык интерфейса: Русский
+Daum PotPlayer - очень качественный мультимедийный плеер, не уступающий в популярности и качестве известному The KMPlayer(у), вобравший весь его функционал и сходство интерфейса, но значительно улучшенный. Особенно отличается данный мульти-плейер очень высоким качеством воспроизведения, поддержкой абсолютно всех актуальных видео и аудио форматов и наличие встроенных DXVA видео кодеков. Имеет модный дизайн, удобен в настройке, владеет возможностью назначать и изменять горячие клавиши.Название программы: Daum PotPlayerЯзык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4AEE0565CAE37B733B5E6E64210B85AA74C557A0
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -291,112 +111,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 875459   (474456) от 28.09.2016
+###  Публикация: 229887   (476286) от 14.09.2012
 
-NoName Club 0.74 [Ru] (Авторская раздача)
-
->>3
->>13
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474456.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неофициальный клиент к торрент-трекеру NoName Club. На данный момент не все баги устранены, не все выловлены.  Пишите свои замечания, предложения, найденные ошибки.Тип издания: FreeРелиз состоялся: 24.05.2015Разработчик: Автор этой темыПоддерживаемая ОС: Android 4.0+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F178203B35CACD3973AD526115B88237049A07A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 547444   (474454) от 15.09.2012
-
-Журнал | Диетика №9-10 (сентябрь-октябрь 2012)
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474454.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Диетика» — издание для женщин, стремящихся быть в отличной физической форме, нравиться себе и окружающим, заботящихся о своей внешности, здоровье и душевной гармонии. «Диетика» - ключик к твоей стройности.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6C5E845CB3789F96F613FDFC1A484AA18FDE806
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 547590   (474450) от 15.09.2012
-
-Журнал | Tattoo is Pain №№4,5 (Spain) [2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474450.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интернет-издание о мире тату: новости, технологии, инструменты. В каждом номере - галерея тату на различную тематику.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E01C9442448DA70034ED2B234006A33D2A2FFC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 546310   (474446) от 15.09.2012
-
-VA - Осенний Non-Stop (2012) [MP3|320 кб/с]<Pop>
+David Young - 5 albums (1994-2004) [MP3|224, 320 kbps]<Instrumental, New Age, Flute>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474446.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_476286.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. A-Sen - Давай Поженимся (Club Remix)
-02. R.J. feat. Pitbull - Live 4 Die 4 (David May Extended Mix)
-03. Jay-Z feat. Kanye West & Big Sean - Clique
-04. Lil Wayne feat. Nikci Minaj - Mercy
-05. Farruko feat. Daddy Yankee - Guillao
-06. Thya - Fight For Love (Radio Edit)
-07. Alicia Keys feat. Nicki Minaj - Girl On Fire (Inferno Version)
-08. Will.I.Am - Reach For The Stars (Mars Edition)
-09. Тимати и Григорий Лепс - Лондон
-10. Will.I.Am feat. Nicole Scherzinger - Hoola Hoop(   Читать дальше...   )Жанр: PopПродолжительность: 06:04:05
+(7:01) 01. Piano
+(4:20) 02. Solsbury Hill
+(4:28) 03. Don't Be Afraid To Love Me
+(3:55) 04. Lay Down On Me
+(5:41) 05. All My Heart
+(5:55) 06. Trusting The Mystery
+(5:52) 07. Wash Away The Tears
+(5:15) 08. From The Ethers
+(4:21) 09. Tomorrows Dream
+(3:27) 10. The Journey To Freedom(   Читать дальше...   )Жанр: Instrumental, New Age, FluteПродолжительность: 00:58:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:62422DC55154B2CE15CB8483BAAED29939E2691D
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -404,25 +146,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 547611   (474445) от 15.09.2012
+###  Публикация: 547025   (476283) от 14.09.2012
 
-Журнал | Tattoo Life №77 (UK) [июль - август 2012] [PDF] [En]
+Алексей Калугин |Проект New Reality| Снежная слепота [2010] [FB2][TXT][JAVA (jar+jad)] [EPUB]
 
 >>Архив торрентов
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474445.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_476283.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Журнал о современном мире татуировок как искусстве. Содержит информацию о международных выставках, фестивалях тату, а также иллюстрации самих татуировок.Формат: PDF
+Чужой, небезопасный, холодный мир... Чудовищный холод и бескрайняя снежная пустыня... Но и тут тоже живут люди. Не обычные, пугливые, потерявшие память. Каждый, кто более агрессивный, имеет напористый характер, с легкостью сможет стать главарём в этой безвольной человеческой стае и с молчаливого позволения окружающих овладеть комфортным жилищем, самой лакомой пищей, самыми прекрасными девушками. Здесь все так и было, но однажды появился Харп, и ему удалось пронести с собой не только обрывки воспоминаний, но еще вольность и радикальность. Ему мало просто хорошо жить, ему необходимо, во что бы то ни стало разгадать загадку ледяной планеты.Формат: FB2,TXT,JAVA (jar+jad),EPUB.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5741F8C126EE5B4158201B4BCB159EF208447327
+magnet:?xt=urn:btih:14C8C911A00B66C18C2902B9D10EFA27440E3326
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -430,25 +172,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 547581   (474444) от 15.09.2012
+###  Публикация: 546833   (476282) от 14.09.2012
 
-Подборка журналов | Tattoo Romanian News №№3 - 5,8,12 [2011] [PDF]
+Room Arranger 7.1.0.290 [Multi/Rus]
 
 >>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474444.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_476282.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Румынское интернет-издание о мире татуажа. В некоторых номерах представлены репортажи о древних племенах и их традициях татуировок. Представлено большое количество авторских работ.Формат: PDF
+Room Arranger - программа для разработки дизайна помещений и интерьеров. Вы затеяли перестановку в своей квартире и сомневаетесь куда и что передвинуть? Собираетесь сделать перепланировку и перенести стены. Тогда программа Room Arranger для Вас! Она поможет не только двигать, но и вращать, менять раскраску и размеры, и создавать такие элементы гарнитура, которых пока у вас ещё нет и может даже вы о них не думали. А потом, можно посмотреть, как всё это будет выглядеть в 3D варианте.Название программы: Room ArrangerЯзык интерфейса: Multi/Rus
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9B87D1FF5DDEE399DE13F095286CE7AD330AE047
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -456,34 +198,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 547702   (474443) от 15.09.2012
+###  Публикация: 547295   (476281) от 14.09.2012
 
-VA - Lounge de Ibiza Bonita Vol.1 (Glamorous & Luxury Lifestyle) (2012) [MP3|320 кб/с]<Lounge, Chill>
+Картинки сказочных фонов / Fairy tale backgrounds Wallpapers [Графика]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_476281.jpg" />
+</div>
+
+
+###  Подробнее
+
+Картинки сказочных фонов / Fairy tale backgrounds Wallpapers
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9F9AA1BA988D92182897215A212AAB1A3C07DE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1159598   (476279) от 24.08.2017
+
+Футбол. Лига Европы УЕФА 2017-2018. Раунд плей-офф. 1-й матч. БАТЭ (Беларусь) – Александрия (Украина) (17.08.2017) HDTVRip
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474443.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_476279.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Marga Sol - Sunrise
-02. Lemongrass - Reflection
-03. Michiko - No Place Like Home
-04. Smooth Deluxe - El Turco
-05. Five Seasons - Time to Go Back
-06. Claude Chagall - Balearic Waves (Aqua Del Mar Edit)
-07. Beatkonexion - Heart
-08. Aimee Sol - Let Me Know (Cafe Crema Edit)
-09. Marga Sol - Free Your Mind
-10. Stargazer - La Vie Est Belle (Pre Mix)(   Читать дальше...   )Жанр: Lounge, ChillПродолжительность: 02:00:47
+17 августа 2017 года, четверг. 20:00 МСК
+Лига Европы УЕФА 2017 - 2018. Квалификационный Раунд плей-офф. 1-й матч
+БАТЭ (Борисов, Беларусь) – Александрия (Александрия, Украина)
+Стадион: Борисов-Арена (Борисов, Беларусь), вместимость: 13126(   Читать дальше...   )Телекомпания: Беларусь 5Жанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:44:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1F553494285D77E37D20CF4074BD2BB891578393
+magnet:?xt=urn:btih:94B73ED47B779A0833F9C4E613A730D28C11F21C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -491,28 +253,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 547445   (474442) от 15.09.2012
+###  Публикация: 1160329   (476278) от 24.08.2017
 
-Журнал | Лиза. Гороскоп №10 (октябрь 2012)
+Eddie Bert Quartet & Quintet - Crosstown (1955) 2CD, 2006, Fresh Sound Records [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
 
->>Архив торрентов
->>Архив Книг и обучающих материалов
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474442.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_476278.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Лиза Гороскоп» — глянцевый журнал для женщин, которые сверяют свою жизнь со звездами и любят получать положительные эмоции. Как стать хозяйкой своей судьбы? Звезды Вам советуют. Ежемесячные прогнозы для всех знаков Зодиака. Любовь: ее психология и выбор партнера.
-
-
-Скриншоты:Формат: PDF
+CD1:
+01. Fragile [05:34]
+02. Stompin' at the Savoy [03:24]
+03. I Should 'A' Said [04:36](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 01:39:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FB83A13C3E9C5F8E36B1B66D2DF206056E6FD640
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -520,180 +282,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 547004   (474440) от 15.09.2012
+###  Публикация: 1160271   (476277) от 24.08.2017
 
-VA - Kiss FM Dance Radio Chart 3 (2005) [MP3|320 кб/с]<House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474440.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Morales with Lea Lorien - How Would U Feel (Rouhofer Radio Edit) [03:57]
-02. Stonebridge Vs. Ultra Nate - Freek On (Ferry Corsten Radio Edit) [03:26]
-03. Global Deejays - What A Feeling (Clubhouse Radio Version) [03:28]
-04. Sonique - Why (Radio Edit) [03:10]
-05. Dave Mcallen - Bitch (Radio Edit) [03:09]
-06. Tom Novy Feat. Lima - Take It (Video Edit) [03:31]
-07. DJ Sender - What You Need (Original Mix) [04:13]
-08. Bastian Bates - So Much Love (Short Club Mix) [03:27]
-09. Heiko & Meik(O) - Glucklich (French Cut) [03:05]
-10. Uniting Nations - You&Me (Radio Edit) [02:59](   Читать дальше...   )Жанр: HouseПродолжительность: 01:04:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65BA96458B3D23A678D0C2C094E105B23E8AE257
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 547533   (474438) от 15.09.2012
-
-VA - Billboard Hot 100 (08.09.2012) [MP3|219-298 кб/с]<House, Club, Funky, Dance, Vocal>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474438.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Taylor Swift - We Are Never Ever Getting Back Together [03:11]
- 02. Flo Rida - Whistle [03:45]
- 03. Ellie Goulding - Lights [03:31]
- 04. Maroon 5 - One More Night [03:39]
- 05. Fun - Some Nights [04:37]
- 06. Carly Rae Jepsen - Call Me Maybe [03:13]
- 07. Katy Perry - Wide Awake [03:41]
- 08. Maroon 5 ft. Wiz Khalifa - Payphone [03:51]
- 09. Owl City ft. Carly Rae Jepsen - Good Time [03:26]
- 10. Justin Bieber ft. Big Sean - As Long As You Love Me [03:49](   Читать дальше...   )Жанр: House, Club, Funky, Dance, VocalПродолжительность: 06:22:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B07B83537A3722B765D5D3B57186740CBC9C30FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 547592   (474436) от 15.09.2012
-
-[Wallpapers] Абстракции (Часть 2)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474436.jpg" />
-</div>
-
-
-###  Подробнее
-
-Абстракции обои для рабочего стола часть 2.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7FEC29818477D660E514D4CD1D418F9CF58DA5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567299   (474435) от 02.08.2022
-
-VA - Nothing But... Pure Dance Vol. 12 (2022) [MP3|320 Kbps] <Club, Dance, Electro Pop, Groove>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474435.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lukkino Feat. Hecate - Aliens (Vox & Sax Zuli Radio Version)
-02. Fabrizio La Marca - Alone With You
-03. Loving Touch - Take Me
-04. Dino Del Moro - Just Believe(   Читать дальше...   )Жанр: Club, Dance, Electro Pop, GrooveПродолжительность: 01:28:53 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6921CADD13366C02C1067010357B07B894BE7DD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567321   (474434) от 02.08.2022
-
-Easy Markdown 1.9.1 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474434.jpg" />
-</div>
-
-
-###  Подробнее
-
-HTML (от англ. HyperText Markup Language — «язык гипертекстовой разметки») — стандартный язык разметки документов во Всемирной паутине. Язык HTML интерпретируется браузерами и отображается в виде документа в удобной для человека форме.
-Easy Markdown позволяет создавать веб-страницы так же, как запись обычного текста. Easy Markdown поможет улучшить вашу скорость в (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.08.2022Разработчик: © 2012-2022 Ecleti - Roberto PanettaПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75B108C48195C14DAC32914693FC686304DA6652
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567367   (474433) от 02.08.2022
-
-The Mysterines - Reeling (2022) [FLAC|Lossless|tracks + .cue] <Indie Rock>
+Ephel Duath - Phormula (2000) [FLAC|Lossless|image + .cue] <Black Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474433.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_476277.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Life's a Bitch (but I like it so much) (2:51)
-02. Hung Up (3:25)
-03. Reeling (3:09)
-04. Old Friends Die Hard (2:18)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:43:31
+01. 	"Embossed"
+02. 	"The Greyness Grows Already Old"
+03. 	"Danza"
+04. 	"A Flickering Warmth"(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:42:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A5FE884451D2A91758C1584C3AFB06D21AA2C642
+magnet:?xt=urn:btih:1B05DB8AAE4A1DC3E161CFC7A6ED8673D4F2F312
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -701,25 +311,413 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567338   (474432) от 02.08.2022
+###  Публикация: 1160273   (476276) от 24.08.2017
 
-ApolloOne - Photo Video Viewer 3.1.2 [Multi]
+Handful of Hate - You will bleed (2009) [FLAC|Lossless|image + .cue] <Black Metal>
 
->>Архив торрентов
->>Архив 4Apple
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474432.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_476276.jpg" />
 </div>
 
 
 ###  Подробнее
 
-ApolloOne - это разработанное с нуля приложение как быстрый, эффективный и многофункциональный медиа-просмотрщик. ApolloOne использует расширенные функции операционной системы, такие как: многопоточность, Grand Central Dispatch и Core Image для высокой производительности приложения.Тип издания: macOS SoftwareРелиз состоялся: 01.08.2022Разработчик: © 2015-2022 Anogeissus Ltd.Поддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский, Немецкий, Французский и др.
+01.	You Will Bleed
+02.	The Pest' Son
+03.	Bliss Between Thorns
+04.	I Gave You Scars(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:39:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DC015892A851467349D9B9F43FE1A85344C55BB5
+magnet:?xt=urn:btih:6F6B3E6C193B07D75D1B78C4C4B9DFBA0259903F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1160285   (476275) от 24.08.2017
+
+Beastcraft - The Infernal Gospels of Primitive Devil Worship (2017) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_476275.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aapenbaring
+02. Demonic Perversion
+03. Deathcraft and Necromancy
+04. The Fall of the Impotent God(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:39:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:688CF3EA98BEC1658BE2510F47CB787022B0F869
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1160287   (476274) от 24.08.2017
+
+Pyracanda - Thorns (1992) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_476274.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	At The Abyss
+02.	The Dragon's Cult
+03.	Shut Up
+04.	Two Sides Of A Coin(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:43:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57F9D34D1B6D910A2C4D0A9D8040089395E13538
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1160332   (476273) от 24.08.2017
+
+Milton Nascimento - Millennium (2000) 2006, Mercury [FLAC|Lossless|tracks + .cue] <Ethnic Jazz, Latin Jazz, Brazilian Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_476273.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unencounter Cancao da America [03:49]
+02. Raca [02:51]
+03. Cacador de Mim [03:53]
+04. Nos Bailes da Vida [04:13](   Читать дальше...   )Жанр: Ethnic Jazz, Latin Jazz, Brazilian PopПродолжительность: 01:17:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F61A5A0AA5381E1C481AB4F01DCDA57DFE4EBED4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1160281   (476272) от 24.08.2017
+
+Num Skull - Ritually Abused (1988) [FLAC|Lossless|image + .cue] <Thrash Metal, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_476272.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	"The end"
+02.	"Ritually abused"
+03.	"Death and innocence"
+04.	"No morals"(   Читать дальше...   )Жанр: Thrash Metal, Death MetalПродолжительность: 00:44:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E5D67C7A26130E67704D061DC9522F58544EBEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1159718   (476271) от 24.08.2017
+
+М. А. Алпатов | Политические идеи французской буржуазной историографии XIX века (1949) [DJVU, PDF]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_476271.jpg" />
+</div>
+
+
+###  Подробнее
+
+В развернувшейся ныне острейшей борьбе между идеологией социализма и реакционной идеологией капиталистического мира советская историческая наука ставит перед собой задачу - разоблачить сущность буржуазной историографии как прямого орудия в политической борьбе буржуазии, показать реакционную роль буржуазной исторической науки. Важнейшее значение при решении этой задачи (   Читать дальше...   )Жанр: История, политология, философияФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1160359   (476270) от 24.08.2017
+
+Darius - Darius (1969) Reissue, 2001, World In Sound [MP3|320 Kbps] <Psychedelic Rock>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_476270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shades Of Blue
+02. Dawn
+03. Mist-Veiled Garden
+04. I'm The Man(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 00:37:02
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1160322   (476269) от 24.08.2017
+
+Moria Falls - 2 альбома (1995-1997) Discography [FLAC|Lossless|image + .cue] <Prog Rock, Neo-Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_476269.jpg" />
+</div>
+
+
+###  Подробнее
+
+Довольно малоизвестный коллектив из Англии. Играют свой оригинальный стиль, относящийся к Neo Prog. Рекомендуется всем любителям неопрогрессива, а особенно для тех,кто ценит творчество: IQ, Marillion, Clepsydra, Arena, Pendragon etc..Ничего общего у Мориа Фаллс с этими группами нет, но любителям перечисленных групп Мориа Фаллс должны обязательно понравиться..Красиво, (   Читать дальше...   )Список альбомов:
+1995 - The Long Goodbye
+1997 - EmbraceЖанр: Prog Rock, Neo-ProgПродолжительность: 02:01:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:574554EC3912CA276AEA117C4C912D82F2B078A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1160235   (476268) от 24.08.2017
+
+Анри Богдан | Тевтонские рыцари (2008) [FB2, EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_476268.jpg" />
+</div>
+
+
+###  Подробнее
+
+Орден тевтонских рыцарей, воинов-монахов, возник в Святой земле в XII веке, но истинную славу и известность он приобрел в северной Европе, на границе с восточными землями.
+В начале XIII столетия орден призвали сражаться со славянскими племенами на востоке. Император Священной Римской империи Фридрих II Гогенштауфен пожаловал ордену все привилегии князей империи и (   Читать дальше...   )Жанр: ИсторияФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39932A78C6D9198A4783D3AE591371E328CB0130
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 384943   (476267) от 09.09.2011
+
+Задание / The Task (2010) [1080p] BDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_476267.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новое реалити-шоу под названием «Задание» вынуждает шестерых молодых участников выполнять квесты, находясь на территории заброшенной тюрьмы. Понятно, что за большой денежный выигрыш они вскоре будут готовы перегрызть друг другу глотки прямо в прямом эфире, чем искусно пользуется неизвестный, устроивший им ночь ТВ-террора…Жанр: УжасыРежиссер: Алекс ОруэллАктеры: Александра Стаден, Виктор МакГуайр, Адам Рэйнер, Антония Кэмпбелл-Хьюджес, Эшли Мулрон, Амара Каран, Том Пэйн, Марк Пикеринг, Тексас Бэттл, Сэм СтокманПеревод: Профессиональный (многоголосый закадровый)Субтитры: Английские, UTF-8Язык субтитров: АнглийскиеПродолжительность: 01:34:28
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 385876   (476266) от 09.09.2011
+
+VA - Chill n' Soda - A Chill Out Tribute To Soda Stereo (2008) [FLAC|Lossless]<Lounge, Chillout, Latin>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_476266.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Lounge, Chillout, LatinПродолжительность: 00:41:59
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 385506   (476254) от 09.09.2011
+
+Дама с собачкой (1960) DVDRip AVC/H.264
+
+>>Архив торрентов
+>>Архив Классики кино и Старых фильмов до 90-х
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_476254.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дмитрий Дмитриевич Гуров рано женился, жену не любит, детьми скорее тяготится. На отдыхе в Ялте он обращает внимание на даму, прогуливающуюся по набережной с собачкой. Она молода, из хорошего общества, замужем; она замкнута и ни с кем не знакомится. Гурову удается заинтересовать даму, развеселить её и узнать, что её зовут Анной Сергеевной. Через неделю после знакомства они сходятся совсем близко. Анна Сергеевна не похожа ни на одну из предыдущих женщин Гурова - она робка, стыдлива, ей очень неловко за происшедшее, она без конца повторяет, что теперь сам Гуров не будет её уважать. Анна Сергеевна называет себя дурной женщиной, обманувшей не мужа, а себя саму. Наивность её поначалу раздражает Гурова, но они продолжают встречаться. Наконец Анна Сергеевна уезжает к себе в Саратов. Они уверены, что прощаются навсегда. В Москве Гуров возобновляет привычный образ жизни, читает газеты, ездит в клубы, рестораны, на званые вечера, но не может забыть свой ялтинский роман, Анна Сергеевна часто снится ему по ночам, на улицах (   Читать дальше...   )Жанр: Драма, МелодрамаРежиссер: Иосиф ХейфицАктеры: Ия Саввина, Алексей Баталов, Нина Алисова, Пантелеймон Крымов, Юрий Медведев, Владимир Эренберг, Яков Гудкин, Дмитрий Зебров, Мария Сафонова, Галина БарышеваПродолжительность: 01:24:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D4369B2DABE4D34ADC31BEF017B6AED7BC0423E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 823345   (476238) от 20.09.2014
+
+VA - Lounge At The Seashore 17 (2014) [MP3|320 кб/с]<Downtempo, Lounge, Chill Out>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_476238.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 351 Lake Shore Drive - Adorador Del Sol
+002. Orleya - Butterflies
+003. Mirador - Curral das Freiras
+004. Oman Chali - Drifting Along (Feat. Dew)(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 01:04:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E27D3927B163E46217A89A4F856CF61FE2C12500
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 701356   (476237) от 18.09.2013
+
+С.В. Макеев | Формировка, прививка и обрезка деревьев и кустарников (2013) [RTF, FB2]
+
+>>Разное (категория книг)
+>>Сад, огород, животноводство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_476237.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данной книге подробно рассказывается о всевозможных способах и методах формировки, обрезки и прививки деревьев и кустарников. Кроме того, здесь представлена информация об инструментах, с помощью которых максимально удобно осуществлять эти работы. Применив на практике указанные методы, каждый читатель в короткий срок превратит свой сад в райский уголок, радующий (   Читать дальше...   )Формат: RTF, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:964F859F7A2457E0A3F910F7F57C6BF48FE13FDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 700533   (476226) от 18.09.2013
+
+Native Instruments - Transient Master 1.0.0 (R235) VST, VST3 RePack by R2R [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_476226.jpg" />
+</div>
+
+
+###  Подробнее
+
+Transient Master был вдохновлен современным популярным студийным процессором, и предоставляет уникальный и действенный метод для обработки ударных и звуков перкуссионных инструментов, путем формирования огибающей сигнала. С помощью параметров "Attack" и "Sustain", Transient Master может добавить естественную ударность и четкость, или отодвинуть (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8531207235C5EA739346FEFD37A9558C64ED7C23
 ```
 
 https://mybot314.ru/tekegram_catalog/

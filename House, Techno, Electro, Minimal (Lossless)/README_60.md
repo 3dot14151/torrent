@@ -1,3 +1,119 @@
+###  Публикация: 1195572   (142352) от 29.12.2017
+
+VA - Club Sounds The Ultimate Club Dance Collection Best Of 2017 [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_142352.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Kygo & Selena Gomez - It Ain't Me [03:41]
+02 David Guetta & Cedric Gervais & Chris Willis - Would I Lie To You [03:19]
+03 Robin Schulz & David Guetta & Cheat Codes - Shed A Light [03:12]
+04 The Chainsmokers - Paris [03:41](   Читать дальше...   )Жанр: House, DanceПродолжительность: 03:35:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBDB95AEDE15A5AB8A8F3FD18706578439A0BD3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348624   (142061) от 29.12.2019
+
+VA - Schneeweiss 10 (Presented by Oliver Koletzki) (2019) DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_142061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lunar Plane - Jackal (7:17)
+02. Niko Schwind - Prima Lux (Palmfood Remix) (7:31)
+03. Rauschhaus, Peer Kusiv - Drowning (Bebetta Remix) (7:20)
+04. Prismode, Solvane - Alesis (5:36)(   Читать дальше...   )Жанр: Progressive House, Tech HouseПродолжительность: 03:06:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0FFB73C1E9C2B7C9B10BB6318C60B3DED85AAAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348765   (142040) от 29.12.2019
+
+VA - Steyoyoke Gems Solar 08 (2019) Compilation [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_142040.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soul Button & Modeplex – Ardor (07:09)
+02. Clawz SG – Esperanza (08:21)
+03. Ceas – Dome (07:09)
+04. Jaen Paniagua – Butterfly (06:52)(   Читать дальше...   )Жанр: Progressive House, Tech HouseПродолжительность: 01:51:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC9BC893BBB65B9B80021E2B0B4950B683C3113A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348791   (142023) от 29.12.2019
+
+VA - Amnesia Ibiza-Underground 9 (2009) 2CD [FLAC|Lossless|tracks + .cue] <Electro, House, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_142023.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tigerskin - Peter's Secret Weapon
+02. Patrick Specke - Naggin' Me
+03. Cesar Merveille - Crapette ( 3TC Miss Fitz Remix )
+04. Davide Squillace & Phutura - Pig Wings ( Audiofly Remix )(   Читать дальше...   )Жанр: Electro, House, TechnoПродолжительность: 02:36:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB9F9488DBFE014B68E8D1BD9F1FC949348BC44B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1348711   (141999) от 29.12.2019
 
 VA - Ritter Butzke: 10 Years (2019) Compilation [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Downtempo, Minimal>
@@ -621,122 +737,6 @@ Oliver Koletzki - 7 альбомов (2007 - 2023) [FLAC|Lossless]<Tech House, D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E8FD43CEDBB68DFDDD81AEAA6644FFEE1D48392
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681877   (128754) от 10.12.2023
-
-VA - Milk and Sugar Summer Sessions (2023) [FLAC|Lossless|WEB-DL|tracks] <Funky/Club House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128754.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gabriel One & Justin Prins - Sirens (Extended Mix) [6:15]
-02. Chasing Kurt - Let It Run (Momo Khani & Meindel Remake) [4:57]
-03. Milk & Sugar - Has Your Man Got Soul (Chasing Kurt Remix) [4:26]
-04. Karol XVII & MB Valence ft. Lazarusman - Whispers (2022 Retouch) [4:49](   Читать дальше...   )Жанр: Funky/Club HouseПродолжительность: 02:37:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE2CC3C4E5A3143EF842A0327418C7DFC891EA01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683881   (128147) от 13.12.2023
-
-VA - Buddha Luxury 2024 (Compiled by Marga Sol) (2023) [FLAC|Lossless|WEB-DL|tracks] <Organic House, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128147.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Martin Hiska - Shike (5:03)
-02. Coskun Umut Oruc - Istanbulounge (3:48)
-03. Marga Sol - Valley of Lust (4:35)
-04. Martin Hiska - When It Drops (4:59)(   Читать дальше...   )Жанр: Organic House, DowntempoПродолжительность: 01:40:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCB475DFDC6CCC751E5C94712C92CA0BE733095B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684493   (127812) от 15.12.2023
-
-VA - Spreepark (Collected by Oliver Koletzki) - 2023 [FLAC|Lossless|WEB-DL|tracks] <Tech House, Techno, Progressive>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127812.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jan Rene Lai – Little Things Are Lost
-02. Kellerkind – Blue Sky Thinking
-03. Sascha Home & Deckert – They Know
-04. Malandra Jr. – Dangerous Mind(   Читать дальше...   )Жанр: Tech House, Techno, ProgressiveПродолжительность: 01:23:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C161B6F736818D90724D6E35B91DD1702072312
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823717   (125899) от 12.10.2025
-
-VA - Autumn Hits (Deep Strips Records) (2025) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125899.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Fly - Little Time (2:49)
-02. Andrew Ross - Move WIth Me (3:33)
-03. DeepTurco - Memory (3:33)
-04. Sharapov - Keep On Rising (3:19)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:35:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DC63AB179BBC1734D8C1BBD6E9758B2A41A4FB2
 ```
 
 https://mybot314.ru/tekegram_catalog/

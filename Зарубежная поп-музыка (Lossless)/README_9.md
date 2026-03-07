@@ -1,3 +1,119 @@
+###  Публикация: 972802   (980240) от 08.01.2016
+
+New York Gypsy All Stars - Dromomania (2015) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Balkan Pop, Gypsy, Jazz>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_980240.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. G Street
+02. America Cocek
+03. Cloud Nine
+04. Melandia(   Читать дальше...   )Жанр: Contemporary Balkan Pop, Gypsy, JazzПродолжительность: 00:43:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9623CB1B84283332D53E03A3D41EA9DAC5E15315
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973554   (979131) от 09.01.2016
+
+Duran Duran - Astronaut (2004) SACD, 2005 Epic [FLAC|Lossless|tracks + .cue] <Pop Rock, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_979131.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. (Reach Up for the) Sunrise (3:25)
+02. Want You More! (3:37)
+03. What Happens Tomorrow (4:04)
+04. Astronaut (3:24)(   Читать дальше...   )Жанр: Pop Rock, Synth-popПродолжительность: 00:43:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E070568B3EB993DF65E504C7A713C01A0BAA45F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974269   (976616) от 11.01.2016
+
+VA - BRAVO Hits 90 (2015) [FLAC|Lossless|tracks|WEB-DL]<Pop, Electronic, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_976616.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. John Newman - Come And Get It (3:04)
+02. The Weeknd - Can't Feel My Face (3:35)
+03. Avicii - Waiting For Love (3:49)
+04. Lost Frequencies feat. Janieck Devy - Reality (Radio Edit) (2:39)(   Читать дальше...   )Жанр: Top 40, Pop Compilation, Pop, Rock, Electronic, Indie Pop, Europop, R&B, Hip Hop, Pop Rap, House, Euro House, Deep-House, Electro, Synthpop, Pop Rock, Indie RockПродолжительность: 02:40:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:130E9F070A26135D06E67A2047C3996AD166FE8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974348   (975796) от 12.01.2016
+
+Dolcenera - Le stelle non tremano (2015) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_975796.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Niente al mondo
+02. Immenso
+03. Un peccato
+04. Figli del caos(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52FF320B2A8FB4E6810428D4CF1C057F1366DB49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 974453   (975683) от 12.01.2016
 
 Richard Marx - Beautiful Goodbye (2014) Target Exclusive Edition [FLAC|Lossless|image + .cue] <Pop, Soft Rock>
@@ -644,122 +760,6 @@ Tracey Thorn (Everything But The Girl) - Love And Its Opposite (2010) [FLAC|Loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97834C4BF5FD8E09DD2D8FA2D99CAAB906480457
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358139   (969700) от 07.02.2020
-
-Richard Marx - Limitless (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969700.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Another One Down (3:13)
- 02. Limitless (2:58)
- 03. Love Affair That Lasts Forever (3:28)
- 04. Let Go (3:40)(   Читать дальше...   )Жанр: Pop, Pop-RockПродолжительность: 00:41:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BA40933B59414BAB679B56A1338EFD8D27A7B89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976157   (969668) от 17.01.2016
-
-Everything But The Girl - Temperamental (1999) Remastered, 2015, Edsel Records, Deluxe Edition: 2CD [FLAC|Lossless|tracks + .cue] <Downtempo, Deep House, Pop, Drum n Bass>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969668.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Five Fathoms (6:24)
-02. Low Tide Of The Night (4:45)
-03. Blame (6:18)
-04. Hatfield 1980 (5:13)(   Читать дальше...   )Жанр: Downtempo, Deep House, Pop, Drum'n'BassПродолжительность: 02:27:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD677A788A3CD997BAEF0E588DD935531D1B4FBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976378   (969656) от 17.01.2016
-
-Everything But The Girl - Walking Wounded (1996) Remastered, 2015, Edsel Records, Deluxe Edition: 2CD [FLAC|Lossless|tracks + .cue] <Downtempo, House, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Before Today (4:18)
-02. Wrong (4:37)
-03. Single (4:39)
-04. The Heart Remains A Child (3:50)(   Читать дальше...   )Жанр: Downtempo, House, Electro, Drum'n'Bass, PopПродолжительность: 02:33:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95092861A71AD2FDDBD81D1106042E49905499D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358200   (969635) от 07.02.2020
-
-Kovacs - Shades Of Black (2015) 2 CD Limited Dutch Edition [FLAC|Lossless|tracks + .cue] <Indie Pop, Soul, Jazz>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969635.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (02:09)
-02. Whiskey And Fun (04:48)
-03. 50 Shades Of Black (03:17)
-04. Night Of The Nights (03:48)(   Читать дальше...   )Жанр: Indie Pop, Soul, JazzПродолжительность: 01:19:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BD7FD015D95045E6D5E90DFEA7E85825EE45401
 ```
 
 https://mybot314.ru/tekegram_catalog/

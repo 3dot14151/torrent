@@ -1,3 +1,29 @@
+###  Публикация: 1066626   (411221) от 26.10.2016
+
+Проекты - VideoHive - Epic Slideshow I Cinematic Opener - 18443863 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_411221.jpg" />
+</div>
+
+
+###  Подробнее
+
+Epic Slideshow I Cinematic Opener - кинематографическое слайд-шоу.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A61FCA71451752AA5BD2AB1725E7B8644569568B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 948559   (410798) от 20.10.2015
 
 Проекты - VideoHive - Curve Hd Slideshow - 13177151 [AEP]
@@ -655,34 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D73E26EEF9A43B8F8FE8ACDC37176F59CA3A536E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172955   (391760) от 09.10.2017
-
-Проекты - Проект ProShow Producer - Glitch [PSH]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391760.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект выполнен в PSP-6. Cлайдшоу с эффектами переходов Glitch.
-Проект может быть использован в оригинальном исполнении, либо набором стилей и переходов для самостоятельного творчества. Очень простой в редактировании, обычная замена файлов.
-Превью, пакет переходов, пакет звуков к переходам и саундтрек, отреставрированный уважаемым anopymous - в раздаче.Формат: PSH
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE2053DAEE3D90AF3884CE1ABC8B79DEB5138C2E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1271421   (148556) от 24.12.2018
+
+VA - Simply Accordeon (2013) 4CD Box Set [FLAC|Lossless|image + .cue]<Accordion, Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_148556.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. El Gato Montes ( Eric Bouvelle )
+02. Le Plus Beau Tango Du Monde ( Julio Cortazon )
+03. Bucaro ( Jose Caldeiro )
+04. Gallito ( Andre Blot )(   Читать дальше...   )Жанр: Accordion, InstrumentalПродолжительность: 03:12:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:621E88572D85F8019721863D1299492D7CCFC4AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 589862   (148407) от 15.12.2012
 
 Molotohvin Koktaili - Sota-ajan propagandaa levyillä 1940-42 (1940-1942) [MP3|256 кб/с]<Foxtrot / Polka>
@@ -716,35 +745,6 @@ Richard Clayderman - Love Letters Friends & Family (2021) [FLAC|Lossless|WEB-DL|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:07D89C4126B1A9544DCE944EBF0925A2DA5BDD84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087613   (144648) от 28.12.2016
-
-Mark Isham - The Accountant / Расплата (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144648.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. At The Ravenite Social Club (02:13)
-02. Harbor Neuroscience (01:20)
-03. Do You Like Puzzles? (05:43)
-04. The Accountant (03:44)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:07:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBBB807C0AB1B74A41462A2567F539F9F02AA999
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,73 @@
+###  Публикация: 541169   (502573) от 30.08.2012
+
+VA - Молодежный хит осенний. Top 100 (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502573.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Достучаться до небес feat. Анна Плетнева (Винтаж) - Отпусти меня
+ 02. Серебро - Мальчик
+ 03. Женя Вилль - Прячь в позвоночник
+ 04. Елена Терлеева - Просто
+ 05. Марсель - Иди ко мне
+ 06. Milena & Murzin Denis - В эту ночь
+ 07. Настя Задорожная - До дна
+ 08. Dan Balan - Не любя
+ 09. USB (United Sexy Boyz) feat. Сергей Жуков - Скажи зачем
+ 10. Анжелика Агурбаш - Просто Так(   Читать дальше...   )Жанр: PopПродолжительность: 06:00:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B091A15C2643239F2403D0297518BFFFB23BDCCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540792   (502362) от 30.08.2012
+
+VA - Самые Лучшие Хиты радио DFM 50+50 (2012) [MP3|256 кб/с]<Club, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chris Brown - Yeah 3X (Johan K & Eddie Mono Exclusive Organ Mix)
+02. DJ Sandro Escobar & Рэпер СЯВА - Хаваю (Extended)
+03. Martin Solveig - The Night Out (Madeon Remix)
+04. Пьер Нарцисс - Хрустальная Любовь (DJ Riga Remix)
+05. Ivan Gough, Feenixpawl feat. Georgi Kay - In My Mind (Axwell Mix)
+06. Градусы - Заметает (DJ Favorite Remixes)
+07. Pink Fluid feat. Mr. V - We Rock The World (Bastian Van Shield Remix)
+08. Пропаганда feat. DJ Generous - Я рисую мелом (D.J.G. Remix)
+09. Scooter - Fire (Stanislav Shik & Natasha Baccardi Remix)
+10. Тамерлан и Алена Омаргалиевa - Hey Yo (DJ Amor Remix)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 07:15:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73275144C7214E42B0A323357D9FF3E450EA0EB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 933891   (502315) от 05.09.2015
 
 VA - Попсовая соточка MTV. Сборник 3 (2015) [MP3|256 кб/с]<Pop>
@@ -755,64 +825,6 @@ VA - Russian Dance (2016) [MP3|256-320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B932D39A9C93370DBC90E581A69C2DF0842CD3B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404201   (494707) от 24.08.2020
-
-Сборник - Вспоминая СССР. Любимые песни 4 (1980-1989) MP3 от DON Music, 2020 [MP3|320 Kbps] <Ретро>
-
->>След.
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494707.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Машина времени - Поворот (1980)
-002. Алла Пугачева - Звездное лето (1980)
-003. Тынис Мяги - Олимпиада-80 (1980)
-004. Верасы - Белый парус (1980)(   Читать дальше...   )Жанр: РетроПродолжительность: 56:35:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAB3DED570B79D540F3B83C9233463C6CA7E69F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243368   (494103) от 26.08.2018
-
-VA - Dance Club 2018.03 (2018) [MP3|320 Kbps] <Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494103.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. El Profesor - Bella Ciao (Hugel Remix) (2:45)
-02. Axwell /\ Ingrosso, ROMANS, Axel Hedfors, Sebastian Ingrosso - Dancing Alone (4:13)
-03. Jonas Blue, Jack & Jack - Rise (3:12)
-04. Kygo, Imagine Dragons - Born To Be Yours (3:13)(   Читать дальше...   )Жанр: DanceПродолжительность: 01:57:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2773E574E016F92C797C15531693622D57F37600
 ```
 
 https://mybot314.ru/tekegram_catalog/

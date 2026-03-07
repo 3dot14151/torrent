@@ -1,3 +1,61 @@
+###  Публикация: 1181756   (321796) от 08.11.2017
+
+VA - Русская Дискотека ХХ Века от Ovvod7 - 017 (2017) [MP3|320 Kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_321796.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Казанова ( Ирина Белова ) - Запоздалые Цветы ( 1993 )
+02. Шоколад - Завтра ( 1989 )
+03. Женская Гимназия - Я-Не Мисс Европа ( 1994 )
+04. Усланов Вадим - Не Улетай ( 1998 )(   Читать дальше...   )Жанр: PopПродолжительность: ~01:18:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50DDBB42C07469FC503A4794C6E5B2835309FACB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181765   (321795) от 08.11.2017
+
+VA - Русская Дискотека ХХ Века от Ovvod7 - 018 (2017) [MP3|320 Kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_321795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Кидэ Эдуард - Дождь Осенний-Бродяга ( 1995 )
+02. Тридевятое Царство - Город Моей Мечты ( 1990 )
+03. Не Игрушки - Ай-Яй-Яй ( 1999 )
+04. Троица - Неприступные Девчонки ( 1998 )(   Читать дальше...   )Жанр: PopПродолжительность: ~01:17:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25BA82C7C0EFC98B0DF483ECDC31A19EF37858D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1181768   (321794) от 08.11.2017
 
 VA - Русская Дискотека ХХ Века от Ovvod7 - 019 (2017) [MP3|320 Kbps]<Pop>
@@ -705,64 +763,6 @@ C.C. Catch - All Very Best (2012) [MP3|320 кб/с]<Pop,Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2FA5DD9BD7E381E419C2B24A300DB4BECB0A217F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182857   (312074) от 12.11.2017
-
-VA - Unknown 80's (part IX) (2017) [MP3|320 Kbps] <Electronic Pop Rock, Synthpop, New Wave>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312074.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frozen Ghost - Beware The Masque - 1987
-02. Peter Murphy - Cuts You Up - 1989
-03. The Pursuit Of Happiness - I'm An Adult Now - 1988
-04. Noiseworks - Love Somebody - 1987(   Читать дальше...   )Жанр: Electronic Pop Rock, Synthpop, New WaveПродолжительность: 01:27:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A7E1F1F53460AC4BF2F2A34ECC64E5702B9A777
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076506   (312043) от 26.11.2016
-
-VA - German Top 50 Official Dance Charts 25.11. (2016) [MP3|256 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312043.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.David Guetta, Chris Willis & Cedric Gervais - Would I Lie To You 3:18
-02.Calvin Harris - My Way 3:39
-03.Bob Sinclar & Daddy's Groove - Burning 2:51
-04.Galantis & Hook N Sling - Love On Me 3:26(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:02:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A1A91A609D41B43866E782DA90EFD9D351552A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

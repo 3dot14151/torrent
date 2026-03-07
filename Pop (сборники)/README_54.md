@@ -1,3 +1,61 @@
+###  Публикация: 1032169   (647775) от 06.07.2016
+
+VA - Зарубежная Дискотека ХХ Века - 61 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Time - Se ( 1984 )
+02. Sweet Connection - Sweet Job ( Instrumental 1989 )
+03. Sun-La-Shan - Catch ( Dub Version 1982 )
+04. Michael Bolton - Missing You Now ( 1992 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:20:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F3E1122F472578C58A099B64FDC9625DF78C480
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032186   (647766) от 06.07.2016
+
+VA - Зарубежная Дискотека ХХ Века - 69 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647766.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Video Kids - Woodpeckers From Space ( 1985 )
+02. Michael Fortunati - Energyse ( 1987 )
+03. Gazebo - Masterpiece ( 1983 )
+04. Digital Emotion - Humanity ( 1984 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:18:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AE4F29000528C67198DA6A0DB0453DCC06E8577
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031977   (647642) от 06.07.2016
 
 VA - Жаркие танцы. Летние хиты (2016) [MP3|256 Kbps] <Pop>
@@ -711,64 +769,6 @@ VA - Горячая Дискотека 50/50 (2012) [MP3|256 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CBBE79549129E34B3BBE6AA98EE6A7F7D7322493
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032450   (645698) от 07.07.2016
-
-VA - Dance Leto (2016) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645698.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lost Frequencies feat. Sandro Cavazza - Beautiful Life (feat. Sandro Cavazza)
-02. Willy William feat. Cris Cab - Paris (feat. Cris Cab; Radio Edit)
-03. Iyeoka - Breakdown Mode (Dj Antonio Radio Remix)
-04. Freischwimmer feat. Dionne Bromfield - Ain't No Mountain High Enough (feat. Dionne Bromfield; Calvo Edit)(   Читать дальше...   )Жанр: PopПродолжительность: 01:43:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92A7D3A97430C34833A7086B5BE44F77E611EB32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032402   (645568) от 07.07.2016
-
-VA - Самый Хитовый Сборник (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ludacris Feat. Miguel - Good Lovin
-02. Рекиречи - Телепортанец
-03. Lyuba Almann - Делай Мне Хорошо
-04. Вирус - Спасибо Тебе(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C17511ED9F43DCAD7EB44F7F8F7C05C8D0BC3560
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1379404   (838926) от 29.04.2020
+
+VA - Shazam Хит-парад Russia Top 100 Апрель (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_838926.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Intelligency - Август 3:27
+002. El Capon - Shut Up Chicken 2:31
+003. Cream Soda & ХЛЕБ - Плачу на техно 2:40
+004. Hafex - Intihask 2:51(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:17:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A17C573E6947841EF6E9B6DF3B8DE7022877602
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113234   (838635) от 11.03.2017
+
+VA - Молодежный хитовый бум. Выпуск № 6 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_838635.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Март Бабаян - Выходи За Меня 3:57
+002. Kristina Si - Гасим Свет 3:58
+003. Мария Миа - Я Буду 2:50
+004. Вика Воронина - Мое Сердце 3:56(   Читать дальше...   )Жанр: PopПродолжительность: 05:59:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6D73B9C3A8CA2F6C210FF96B66A39C8837C1A6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1113254   (838630) от 11.03.2017
 
 VA - German Top 50 Official Dance Charts 10.03.2017 (2017) [MP3|320 Kbps] <Pop , Dance>
@@ -684,64 +742,6 @@ VA - Pop All Stars (2020) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A1D1CBA3F26CACD06C3298EEB426582C2B5C062A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005652   (832388) от 09.04.2016
-
-VA - Музыка хорошего настроения 7 (2016) [MP3|256 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832388.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lemaitre - Stepping Stone
-002. Слот - Круги На Воде
-003. Remady & Manu-L - Another Day In Paradise
-004. Gaia - Carnation(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AB531344A6D6EC8C762AA68B0D0E051E9EEF79B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501927   (831750) от 12.10.2021
-
-VA - Fresh Pop 3 (2021) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831750.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Unison feat. Isupov - На Чиле (3:04)
-002. SAMURAMI - Ua-Ya (2:42)
-003. BITTUEV - Братик (1:53)
-004. JONY The Limba - Босс (2:58)(   Читать дальше...   )Жанр: PopПродолжительность: 05:35:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC33A5D0776372EB8E083C64BA676B0135EFFDF5
 ```
 
 https://mybot314.ru/tekegram_catalog/

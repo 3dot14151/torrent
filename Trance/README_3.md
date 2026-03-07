@@ -1,3 +1,90 @@
+###  Публикация: 1441332   (1037795) от 21.01.2021
+
+VA - Best Of (2020) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Syntouch pres. Sunsliderz - Relic (Extended Mix)
+02. Luciano F - Sunlight (Extended Mix)
+03. Dalmoori - Cogwheel (Syntouch Remix)
+04. Divaiz & The Avains - Mariposa (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:20:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E39D56C5E5027B9098921F3F1FE204E8802B4A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441326   (1037722) от 21.01.2021
+
+VA - Trance 100 - (Extended Versions) (2021) [MP3|320 Kbps] <Trance, Progressive Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037722.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Armin van Buuren - Euthymia (Extended Mix)
+002. i_o - Castles In The Sky (Extended Mix)
+003. Above & Beyond - Crash (Extended Mix)
+004. Gareth Emery feat. Annabel - You'll Be OK (Extended Mix)(   Читать дальше...   )Жанр: Trance, Progressive Trance, Uplifting TranceПродолжительность: 09:46:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EADCC1677ACAA98A6E3513CDD5209070CBE51CC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1441661   (1037467) от 22.01.2021
+
+VA - Aly & Fila - FSOE Top 20: January (2021) [MP3|320 Kbps] <Trance, UpliftingTrance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037467.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ahmed Romel - Road To Vilna (Extended Mix)
+02. Sam Laxton - Waiting For The Sun (Extended Mix)
+03. David Forbes & Paul Denton - Out Of Order (Extended Mix)
+04. Assaf & Dave Neven - Transcend (Extended Mix)(   Читать дальше...   )Жанр: Trance, UpliftingTranceПродолжительность: 02:21:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:288D7889831C1142E9BB0A6276F777C2B26A76A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1441605   (1037460) от 22.01.2021
 
 VA - Black Hole Trance Music 01-21 (2021) [MP3|320 Kbps] <Trance>
@@ -657,93 +744,6 @@ VA - Uplifting Only Top 15 (2016-2021) (Обновляемая) [MP3|320 Kbps] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA0492273BF8257D8AA059414C1757A26D0A9837
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620722   (1031904) от 21.03.2023
-
-VA - Spirit of Trance, Vol. 2 (2023) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031904.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreamlife & SounEmot - Aun Recuerdo Ese Dia (Extended Mix) [9:41]
-02. Ivan G.M - Arp 299 (Original Mix) [7:45]
-03. D-J. Santos - Dancing In Love (Original Mix) [8:44]
-04. Catchfire - Aaria (Original Mix) [6:07](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:19:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:469C9A113F98CA87598EA869C62509212316312D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447352   (1031853) от 13.02.2021
-
-Victor Special & Elev8 - Cosmic Generation (2021) Singles [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031853.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Victor Special & Elev8 - Cosmic Generation (Original Mix)
-02. Victor Special & Elev8 - Cosmic Generation (Iberian Remix)
-03. Victor Special & Elev8 - Cosmic Generation (Masaru Hinaiji Intro Mix)
-04. Victor Special & Elev8 - Cosmic Generation (Masaru Hinaiji Remix)Жанр: TranceПродолжительность: 00:26:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ACFAE3F2E0A3FA4D2C770C3E611A3D55EB41DC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447348   (1031850) от 13.02.2021
-
-VA - Markus Schulz - Global DJ Broadcast - Top 20 February (2021) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031850.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daxson - While We Wait (Extended Mix)
-02. DJ T.H., Jan Johnston - Stealing Time (Markus Schulz In Search Of Sunrise Extended Rework)
-03. Markus Schulz & HALIENE - Tidal Wave (KhoMha Extended Remix)
-04. Klur - Odysee (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:16:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03A5471FDE6F7D9CED7C5079BBF0AA509AD7BB7F
 ```
 
 https://mybot314.ru/tekegram_catalog/

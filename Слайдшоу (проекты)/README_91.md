@@ -1,3 +1,29 @@
+###  Публикация: 1191164   (264940) от 12.12.2017
+
+Проекты - VideoHive - Photo Slideshow - 20783065 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264940.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания элегантного фото/видео слайдшоу.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19F0972FBD83EB53E0CB5EB469288ABA7074DC7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1267841   (264804) от 08.12.2018
 
 Проекты - VideoHive - Memories IV - Classic & Karaoke Slideshow - 19378361 [AEP]
@@ -653,32 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC187A4F0B5A397FFC34862383B0A1C08D4FC0CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835957   (251755) от 08.11.2025
-
-Проекты - VideoHive - Vertical Photo Slideshow - 60145346 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_251755.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неплохое слайд-шоу для вертикальных экранов.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF4AB4BCCBCDCF2F8635C63C58DD404C6FF2E14E
 ```
 
 https://mybot314.ru/tekegram_catalog/

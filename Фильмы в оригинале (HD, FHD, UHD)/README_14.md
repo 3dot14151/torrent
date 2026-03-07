@@ -1,3 +1,81 @@
+###  Публикация: 1385805   (796580) от 26.05.2020
+
+Несчастье Рона Хоппера / Ron Hopper's Misfortune (2020) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796580.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sara, a beautiful young girl, returns to an old abandoned mechanical workshop in the middle of nowhere to meet her unexpected confidant Ron Hopper; a mysterious being that has been anchored in the same place since always.Производство: США, Испания / La Ira FilmЖанр: фэнтези, драма, детективРежиссер: Jaime FaleroАктеры: Vinnie Jones, Sam Medina, Alyssa Lozovskaya, Franky Lankester, Román Reyes, Luis Dyangani, Biondolillo Pascal, Juan Antonio Estévez, Lou Di Giorgio, Paco AranaПеревод: ОтсутствуетЯзык озвучки: EnglishСубтитры: English (Full, SDH)Продолжительность: 01:33:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFFC7EC1AD8CA16E8797B9EC2976F426E1CC0CD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385818   (796539) от 26.05.2020
+
+Леди водитель / Lady Driver (2020) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796539.jpg" />
+</div>
+
+
+###  Подробнее
+
+When a rebellious teen embarks on a solo summer journey to connect with her roots, she finds herself in a new world, geared up for the ride of her life, and discovers she had the drive in her all along.Производство: США / ESX Entertainment, Forrest FilmsЖанр: спортРежиссер: Shaun Paul PiccininoАктеры: Grace Van Dien, Sean Patrick Flanery, Christina Moore, Casper Van Dien, Amanda Detmer, John Ducey, Matthew Joel Kranyak, David Gridley, Cameron McKendry, Jack KellyПеревод: ОтсутствуетЯзык озвучки: EnglishСубтитры: EnglishПродолжительность: 01:44:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96BF2BAE50A20E74CB2ADDA8BC4AF00CAF370796
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385797   (796505) от 26.05.2020
+
+Приключения Руфуса: Фантастический питомец / Adventures of Rufus: the Fantastic Pet (2020) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796505.jpg" />
+</div>
+
+
+###  Подробнее
+
+Friends Scott and Emily, are at Scott's grandmother's home when they suddenly discover a mysterious creature Rufus and the wizard Abbot in a secret room. They have a mission: with the help of an ancient spell book, they'll gather some ingredients to make a magic dust to save their world, a magical world. However, they encounter several obstacles when three mean servants (   Читать дальше...   )Производство: Франция / Ace EntertainmentЖанр: приключения, семейный, фэнтезиРежиссер: Ryan BellgardtАктеры: Leah N.H. Philpott, Kyler Charles Beck, Erin Herring, Cory Phillips, Evan Assante, Madilyn Kellam, Madelyn Kientz, Mattie Walker, LaRonn Marzett, Lisandro BoccacciПеревод: ОтсутствуетЯзык озвучки: EnglishСубтитры: EnglishПродолжительность: 01:22:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15B5E116298AAF4D308DD4BB4C29ECC24D7D3C1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1508828   (796022) от 10.11.2021
 
 Шан-Чи и легенда десяти колец / Shang-Chi and the Legend of the Ten Rings (2021) BDRip [H.264/1080p] [EN / EN Sub]
@@ -589,84 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8684FDB8E91B31472DD6C2B244A07F90FDE2BC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509894   (792613) от 14.11.2021
-
-Один дома / Home Sweet Home Alone (2021) WEB-DL [H.264/1080p] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792613.jpg" />
-</div>
-
-
-###  Подробнее
-
-Маленький Макс остался дома один, когда вся его семья уехала на каникулы в Японию. И именно в этот момент парочка грабителей решает выкрасть из его дома фамильную реликвию. Макс решает защищать семейную собственность любой ценой.Производство: США / 20th Century Studios, Hutch Parker EntertainmentЖанр: боевик, комедия, семейныйРежиссер: Дэн МазерАктеры: Арчи Йейтс, Элли Кемпер, Роб Делани, Эшлин Би, Кенан Томпсон, Тимоти С. Саймонс, Элли Маки, Пит Холмс Крис Парнелл, Девин РэтрейПеревод: ОтсутствуетЯзык озвучки: английскийСубтитры: английскиеПродолжительность: 01:33:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FD3ACB3A338C78423A2D2F2DDE5A1520DF497A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201733   (791501) от 26.01.2018
-
-Божья земля / God's Own Country (2017) BDRip [H.264/1080p] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791501.jpg" />
-</div>
-
-
-###  Подробнее
-
-Где-то в Йоркшире живет молодой фермер Джонни. Живет обычной жизнью британского захолустья, в которой лишь пьянки и разовый секс. Поняв, что не справляется с хозяйством, он нанимает молодого румынского мигранта Георге. Нанимает и… влюбляется в него — в первый раз в своей жизни.Производство: Великобритания, British Film Institute (BFI), Creative England, Met Film ProductionЖанр: Драма, МелодрамаРежиссер: Френсис ЛиАктеры: Джош О’Коннор, Джемма Джонс, Гарри Смит, Иэн Харт, Алек Секаряну, Мелани Килбёрн, Лайам Томас, Навид Чоудри ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские (Full, SDH)Продолжительность: 01:44:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC0B92693B916DEA26854DF666796A51DB00AA80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201844   (791445) от 26.01.2018
-
-Глупый и бессмысленный жест / A Futile and Stupid Gesture (2018) WEBRip [H.264/1080p-LQ] [EN / EN, FIN, SWE Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791445.jpg" />
-</div>
-
-
-###  Подробнее
-
-История редкого успеха и нелегкой судьбы Дугласа Кенни, одного из основателей журнала National Lampoon, который неоспоримо повлиял на американскую культуру 1970-х годов. Талантливый и остроумный Дуглас создал «новую волну» комедийного жанра, но при этом прожил такую жизнь, о которой сложно говорить с улыбкой.Производство: США, Artists First, Abominable PicturesЖанр: Биография, КомедияРежиссер: Дэвид УэйнАктеры: Эмми Россам, Донал Глисон, Сет Грин, Наташа Лионн, Аннетт О’Тул, Пол Шир, Джо Ло Трульо, Финн Уиттрок, Уилл Форте, Томас Леннон ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские, Финские, ШведскиеПродолжительность: 01:41:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F450C221AAA5AC8B51164327748022E109BFA056
 ```
 
 https://mybot314.ru/tekegram_catalog/

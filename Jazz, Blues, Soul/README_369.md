@@ -1,3 +1,235 @@
+###  Публикация: 1191662   (264185) от 14.12.2017
+
+Lionel Hampton & Friends (1990) Groove Merchant [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264185.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Foolin' 'Round [12:39]
+02. Hamp's Blues [09:39]
+03. Waltz for Bill Evans [06:47]
+04. Vamp (Sundance) [12:29]Жанр: Swing, Mainstream JazzПродолжительность: 00:41:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF99ABF7A84ABAA9AF0E2F164F4AF0A387781E2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191667   (264184) от 14.12.2017
+
+Chris Potter - Pure (1994) Concord Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264184.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Salome's Dance [06:43]
+02. Checking Out [04:03]
+03. Resonance [03:51]
+04. Bad Guys [06:46](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:00:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65AF49D6CBBDE30AB080B6BF312B32B43F39A55D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191497   (264183) от 14.12.2017
+
+George Otsuka Trio - Page 2 (1968) 2014, Nippon Columbia [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264183.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hot Cha [04:49]
+02. On Green Dolphin Street [14:25]
+03. I Fall in Love Too Easily [05:45]
+04. Blues by Five [05:58](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:46:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4065EE6A70C40DDA682C982B037FC8EC9E12561
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191693   (264181) от 14.12.2017
+
+Chris Potter - Moving In (1996) Concord Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264181.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nero's Fiddle [08:07]
+02. Book Of Kells [08:25]
+03. Moving In [06:37]
+04. A Kiss To Build A Dream On [07:28](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:10:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB69E14AAACBB486F10EF77789C745A945704DBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191491   (264177) от 14.12.2017
+
+Wes Montgomery - Dangerous (1961 - 1963) 1999, Milestone Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264177.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. If I Should Lose You (take 2 - alternate) [06:17]
+02. S.O.S. (take 2 - alternate) [04:51]
+03. Yesterday's Child [04:26]
+04. Dangerous [08:16](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:01:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C07F6972EEFDA6E9F700F83146B27A8B6114218A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191670   (264176) от 14.12.2017
+
+George Otsuka Trio - Last Summer: Page 3 (1969) 2014, Nippon Columbia [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264176.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Last Summer [10:54]
+02. The Things We Did Last Summer [06:55]
+03. Over the Rainbow [09:12]
+04. Sea View [05:08](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:43:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C48BE61BF076168D0621CB6B447E835C76A3EDDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191754   (264119) от 14.12.2017
+
+VA - Smooth Christmas (Jazzy Lounge Christmas Relaxing Chill Out) (2017) [MP3|320 Kbps] <Jazz, lounge>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264119.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matteo Brancaleoni – Winter Wonderlan 2:29
+02. Dario Daneluz – This Christmas 3:16
+03. Sugarpie And The Candymen – Waiting for Santa 2:57
+04. Papik – Christmas Snow (feat. Ely Bruna) 3:33(   Читать дальше...   )Жанр: Jazz, loungeПродолжительность: 01:14:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92C5E1804EC29DAE470B458B60638CA431157815
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340503   (264016) от 23.11.2019
+
+Optimystica Orchestra - Полубоги Вина (2005) 2018, Remastered [FLAC|Lossless|tracks + .cue] <Jazz, Smooth Jazz, Alternative Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264016.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Просто ни о чём (Remastered) (3:36)
+02. Море знает (Remastered) (4:12)
+03. Там, где ты танцуешь - ночь (Remastered) (6:08)
+04. Тридцать лет тишины (Remastered) (3:33)(   Читать дальше...   )Производство: Zapal RecordsЖанр: Jazz, Smooth Jazz, Alternative RockПродолжительность: 00:57:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42503F3D2AAF0A92ACFBD3EC14EB8EFFD305593B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1191864   (263918) от 15.12.2017
 
 Chris Potter - Coming Together (2009) Inarhyme Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -514,238 +746,6 @@ Stephane Grappelli - Live 1992 (2002) Disques Dreyfus [FLAC|Lossless|image + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:507731E79CA418056849A77D76C8E80CCF3F4BE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192359   (263252) от 17.12.2017
-
-David Ian - Vintage Christmas Trio (2017) Prescott Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz, Christmas>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263252.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deck the Halls [04:20]
-02. It Came Upon a Midnight Clear [03:51]
-03. Joy to the World [03:08]
-04. White Christmas [03:23](   Читать дальше...   )Жанр: Mainstream Jazz, Piano Jazz, ChristmasПродолжительность: 00:34:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7C320B9E34C74C763F470A1A5D297059EFF9E34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192366   (263247) от 17.12.2017
-
-Mike Moreno - 3 For 3 (2017) Criss Cross Jazz [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Big Push [06:55]
-02. For Those Who Do [06:28]
-03. You Must Believe in Spring [07:11]
-04. Clube da Esquina No. 1 [05:38](   Читать дальше...   )Жанр: Contemporary Jazz, Guitar JazzПродолжительность: 00:55:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CA3E3F12E6F42033FE4B0F3B9EF49D82AEACED0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192298   (263212) от 17.12.2017
-
-Daniel Chia - In The Moment (2017) [MP3|320 Kbps] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263212.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cali Style 04:40
-02. Retro 04:10
-03. Life's A Beach 03:58
-04. Tender 06:13(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:44:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78A68A2CB057540F02A70318256B9A0A3BB80F03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192364   (263180) от 17.12.2017
-
-Esperanza Spalding - Exposure & Undeveloped (2017) 2CD, Concord Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263180.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Exposure:
-01. Swimming Toward the Black Dot [04:53]
-02. Public Trance It [04:35]
-03. Heaven in Pennies (feat. Robert Glasper) [06:20](   Читать дальше...   )Жанр: Jazz Fusion, Contemporary JazzПродолжительность: 01:20:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52539EB067FB404AA4E3F5696B6EE4C10E0F9729
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192463   (263159) от 17.12.2017
-
-Djabe & Steve Hackett - Life Is A Journey: The Sardinia Tapes (2017) [FLAC|Lossless|image + .cue] <Jazz, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263159.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Life Is A Journey
-02. Golden Sand
-03. Castelsardo At Night
-04. What's The News Antonio?(   Читать дальше...   )Жанр: Jazz, FusionПродолжительность: 01:12:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB6E61A295D4B744F985FBA6E6471544E8E8D6DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341011   (262948) от 26.11.2019
-
-Chris Lightcap - SuperBigmouth (2019) Pyroclastic Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262948.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Through Birds, Through Fire [5:52]
-02. Zero Point Five [8:53]
-03. Queenside [5:17]
-04. False Equivalency [4:07](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:48:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F63C8AD6BB0560EAA40CAA079436E1470286A53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340831   (262947) от 26.11.2019
-
-Nat Adderley Quintet - Blue Autumn 1983 (1992) Evidence [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262947.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. For Duke and Cannon [7:05]
-02. The Fifth Labor of Hercules [6:26]
-03. Book's Bossa [9:03]
-04. Blue Autumn [8:30](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 00:40:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D99DA687588D530BE95BF76DA76E603E2DDCA02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340891   (262882) от 26.11.2019
-
-VA - Blues & Lonesome (The Music That Inspired The Rolling Stones) (2017) 2CD [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262882.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. B.B. King – Rock Me Baby
-02. Jimmy Reed – Little Rain
-03. Little Walter – Just Your Fool
-04. Buddy Holly – Not Fade Away(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 01:51:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98B860F8921F841E2663BDFC11FD77279E99449B
 ```
 
 https://mybot314.ru/tekegram_catalog/

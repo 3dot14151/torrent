@@ -1,3 +1,212 @@
+###  Публикация: 1119000   (808545) от 27.03.2017
+
+VA - Дискотека  Dance Club Vol.162 (2017) [MP3|320 Kbps] <Dance, Club, Deep House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_808545.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. MCB 77 - Dangerous Game (Original Mix) 4:03
+002. Higheffect feat. Silvia Dias - Sweet Dreams 3:35
+003. KSHMR & Crossnaders feat. Micky Blue - Back To Me (Extended Mix) 3:56
+004. Светлана Лобода - Случайная 3:53(   Читать дальше...   )Жанр: Dance, Club, Deep HouseПродолжительность: 18:25:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAFFDBEC51FAF85BD972491283F2A0E8499C1535
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009786   (807966) от 22.04.2016
+
+VA - Сто процентов хитов MTV. Часть 8 (2016) [MP3|256 кб/с] <Pop, Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_807966.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Black Fox - Наступит Новый День
+002. Matisse & Sadko - Memories
+003. Enrique Iglesias & Gente De Zona & Descemer Bueno - Bailando
+004. Макс Корж - Не Выдумывай(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 06:06:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A4CB27F8194C3FB4A1078178F6C5ED4A6222278
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009735   (807965) от 22.04.2016
+
+VA - Eagle Song Native American Music (2016) [MP3|256 кб/с] <Folk, New Age, Ethnic>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_807965.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. American Indian Music - Qarwa Yaku
+02. American Indian Music - Runing Horse
+03. Land - Indians Music Wayrapa
+04. Native - Indians Music Sunquiman(   Читать дальше...   )Жанр: Folk, New Age, EthnicПродолжительность: 05:28:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D8463859D0C9A05EB0FD48692A67729A5BB42FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504932   (807944) от 25.10.2021
+
+VA - Зайцев.нет Лучшие новинки Октября (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_807944.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dilara D - Apipya (2:31)
+02. HAUK - Velese (4:58)
+03. IMSTORIE - Грустная песня (3:06)
+04. Namia - Мудак (2:16)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 01:28:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D22DE92D5C2AE4F5DC4AF9309F3A37F8B092B2EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1383732   (807852) от 17.05.2020
+
+VA - Зайцев.нет Лучшие новинки Мая 2020 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_807852.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.6ix9ine - GOOBA (2:12)
+2.Alexandra Stan - Take Me Home (4:45)
+3.Bahh Tee & Turken - Вытри слёзы, дура (3:02)
+4.Camila Cabello feat. Gunna & DaBaby - My Oh My (Remix) (2:59)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:13:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:038E7809601FB983B4C3BFA0C2F9E4B0182C9FFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1383849   (807425) от 17.05.2020
+
+VA - Music News vol.1 (2020) [MP3|320 Kbps] <Pop, Soul, Hip - hop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_807425.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 128 Ударов В Минуту & Джиос - Берега Кайфа (02:45)
+ 002. Albert Brite - Мрамором (02:48)
+ 003. ASSU - Ошо (03:04)
+ 004. BlasterJaxx - Phantasia (03:23)(   Читать дальше...   )Жанр: Pop, Soul, Hip - hopПродолжительность: 05:58:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03D79AF18298F065B67E15E4D83E361D022EDFC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 199359   (806741) от 08.05.2010
+
+VA - Лучшие Хиты Радио MAXIMUM (2010) [MP3|128 kbps]<Poк>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_806741.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Глеб Самойлоff & The Matrixx - Никто не выжил
+002. Natalie Imbruglia - Scars
+003. Truffele и Лена Кауфман - Танцуй
+004. Delphic - Doubt
+005. Хаки - Любовь в кармане
+006. Robbie Williams - Morning Sun
+007. Radio ЧаЧа - Влюбленный металлист
+008. General Fiasco - Ever So Shy
+009. Светотень - ССГМ
+010. Hadouken - Mic Check(   Читать дальше...   )Жанр: PoкПродолжительность: 12:06:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1198725   (806296) от 12.01.2018
 
 VA - Chilltrap Vol.10 (Russian Version) (Compiled by ZeByte) (2018) [MP3|320 Kbps] <Chilltrap>
@@ -542,209 +751,6 @@ VA - Авторадио: Парад ретро-хитов (2018) [MP3|320 Kbps] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13F552173FEF3A316DF9FCCE776BA4D7A39CAA78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010558   (802250) от 25.04.2016
-
-VA - Русский хит на все 100 №3 (2016) [MP3|256-320 кб/с] <Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802250.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Бьянка - Крыша
-002. Серебро - Отпусти меня ( Tony Kart & D&S
-003. Руслан Исаков - Как Жил я Без Тебя
-004. Пропаганда & TRES - Я ухожу от тебя (DJ Evgeny Breeze remix)(   Читать дальше...   )Жанр: PopПродолжительность: 06:12:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4C3EE475E66775A48641C5B7389F59D2CAB0C6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199172   (801699) от 15.01.2018
-
-VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0001  (2018)
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801699.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Etolie Vipe - Cheats For Glory ( 2014 )
-02. Chris Luis - The Heart Of The City ( 1984 )
-03. T.J. Thornberry - Release Yourself ( Original Mix 2016 )
-04. AmbrA - Dream the Summer Back ( Club Mix Version 2005 )(   Читать дальше...   )Жанр: Italo disco, HI-NRG, Eurodance, Disco House, ElectropopПродолжительность: 01:08:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66B0E5B77F908D1EC633B84FF644A61B3CE300A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120603   (801614) от 31.03.2017
-
-VA - Discoteka Dance Club. Best Hits of Year (2017) [MP3|320 Kbps] <Dance , Club House , Electro House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801614.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Turbotronic - Iriwa (Radio Edit) 3:03
-002. Jason Derulo - In My Head (Kr8 x CandyCrash Remix) 3:19
-003. Imad Kotbi Ft. Ryan McTogy - Wild (Original Mix) 3:42
-004. Steven Nicola & Karim Razak feat. Honorebel - Bootyshake 3:13(   Читать дальше...   )Жанр: Dance , Club House , Electro HouseПродолжительность: 07:55:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F863B9CE920A71101298D799F736881AF8CA8683
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120606   (801611) от 31.03.2017
-
-VA - Старые песни по-новому. Русский выпуск (2017) [MP3|320 Kbps] <Pop , Disco , Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801611.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Demo - Солнышко (DJ Jurbas Mix) 3:17
-002. Татьяна Штырёва - Видео (Prod. by Ayur Tsyrenov - Мираж Cover) 3:34
-003. Вирус - Ты меня не ищи (Pavel Velchev & Dmitriy RS Version) 3:47
-004. Евгений Белоусов - Вечерок ( Anton Pavlovsky Cover) 4:18(   Читать дальше...   )Жанр: Pop , Disco , DanceПродолжительность: 10:31:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C80D02801B333D9D93F6A363878DC84C1BA59F57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167419   (801549) от 15.01.2018
-
-VA - Back To The Past To Listen To The Disco From Ovvod7 vol.1-4 (2017)
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801549.jpg" />
-</div>
-
-
-###  Подробнее
-
-Back To The Past To Listen To The Disco From Ovvod7 - 0001
-01. Arabesque - Dance Dance Dance ( 1983 )
-02. Stars On 45 - Beatles Medley ( 1982 )
-03. Boney M - Sunny ( 1976 )(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: ~05:09:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BD51F912A9FE1E344E8F371676EED8601263771
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506281   (801045) от 30.10.2021
-
-VA - Music News vol.145 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801045.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Geo Da Silva feat. Alpha Squad - Love & Desire (02:54)
- 002. A7S - Nirvana (Lum!x & Gabry Ponte Remix) (02:24)
- 003. Abi Shine - Говорил, Что Некрасивая (03:19)
- 004. AIDA - Je T'aime, J'adore (03:14)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 07:10:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:955ADB007F30D6E0F3753ABEB1D33930B8ABD754
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199489   (800799) от 16.01.2018
-
-VA - Зайцев.Нет: Январь (Музыкальные Новинки) (2018) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Kenn Colt F & Nari & Milan  -  Come Back To Me  2:43
-02.  Didrick & Adam Young  -  Ready To Fly  3:10
-03.  SEREBRO  -  Новый год!  4:02
-04.  Enrique Iglesias & Bad Bunny  -  El Bano  3:48(   Читать дальше...   )Жанр: PopПродолжительность: 05:44:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C6AA6D7653A7179BAB610138ECFF10F06826D88
 ```
 
 https://mybot314.ru/tekegram_catalog/

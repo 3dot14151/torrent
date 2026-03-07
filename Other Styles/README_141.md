@@ -1,3 +1,29 @@
+###  Публикация: 499255   (270685) от 01.12.2018
+
+Геннадий Заволокин - Играй, Гармонь! - 12 альбомов (1994 - 2002) [MP3|224 кб/с]<Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_270685.jpg" />
+</div>
+
+
+###  Подробнее
+
+В начале 90-х годов, американский миллионер Джим Роджерс, случайно став свидетелем съёмок передачи "Играй,гармонь!" в Находке, был потрясён этим инструментом и назвал Заволокина "русским Элвисом Пресли". Впоследствии он приезжал к нему и на дачу в Новосибирск, а затем пригласил Заволокина в Америку на фестиваль кантри-музыки в штат Алабама.Жанр: FolkПродолжительность: 13:00:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8263A2D7C966129913B3647B35926F84D07B0FDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1338039   (270637) от 14.11.2019
 
 Brian Tyler - Charlie's Angels / Ангелы Чарли (Original Motion Picture Score) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
@@ -716,35 +742,6 @@ Kartsy Hatakka & Kimmo Kajasto - Max Payne 2: The Fall Of Max Payne (Original So
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09F6B104ABBD96124AA08870AA2E5FD9D63C703B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 299337   (267383) от 05.12.2018
-
-Gregorian - Best Of 1990-2010 (2011) [FLAC (Image+.CUE), lossless]<New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267383.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. So Sad
-02. Nothing Else Matters
-03. Moment Of Peace
-04. Voyage Voyage(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:19:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EAC844C1BDF61496FB5426A2B382104CD888BB9
 ```
 
 https://mybot314.ru/tekegram_catalog/

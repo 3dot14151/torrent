@@ -1,3 +1,32 @@
+###  Публикация: 1247404   (452643) от 15.09.2018
+
+Chris Snelling - Piano Dreams (2018) [FLAC|Lossless|WEB-DL|tracks] <Classical, Piano>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_452643.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Only a Dream
+02 For Stormboy
+03 Pebbles
+04 The Light She Brings(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 00:30:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A274C95ED4B8A452FC02CDB01AC43BDC4CB694A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 942760   (451619) от 02.10.2015
 
 Paganini - Violin Concerto No.6 (Salvatore Accardo & London Philharmonic Orchestra) (1988) [FLAC|image +.cue]<Classical, Romantic Period, Orchestral, Symphonic, Concerto>
@@ -720,35 +749,6 @@ Arianna Savall - Peiwoh (2009) [FLAC|Lossless|tracks + .cue] <Classical, Vocal M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F623ACCF4500821DAF5D9904B9D7B3AFCA3535E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063350   (434291) от 16.10.2016
-
-Wolfgang Amadeus Mozart - Romantic Classic (1999) [FLAC|Lossless|tracks + .cue] <Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434291.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Symphony № 40 in G-minor, K.550 (Molto Allegro) - (07:54)
-02. Serenada № 13 in G-major ''Eine Klein Nacht Musik'', K.525 (Allegro) - (05:40)
-03. Concerto for Piano and Orchestra № 20 in D-minor (''Don Guan''), K.466 (Allegro) - (02:41)
-04. Fantasy in D-minor, K.551 (Fantasy) - (03:43)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:09:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:488BD4A9909E8942BE87372C4D24716E3C29DF50
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1729669   (108021) от 12.06.2024
+
+VA - Nothing But... Trancetopia Vol. 15 (2024) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_108021.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crisy - Astrum (Extended Mix) [6:30]
+02. Pourya Feredi - In The Rain (Original Mix) [3:49]
+03. Rixson - Elevate (Original Mix) [3:06]
+04. Pourya Feredi - Exploration (Extended Mix) [6:34](   Читать дальше...   )Жанр: TranceПродолжительность: 02:16:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51220C98DD01CAA5AEBA42BF63CECD2D7DEE444D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730126   (107965) от 14.06.2024
+
+VA - Black Hole Trance Music 06-24 (2024) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107965.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elysian (UK) feat. Ilan Bluestone, Emma Hewitt & Maor Levi - Now We Are Free (Extended Mix) [7:31]
+02. Markus Schulz & Pretty Poison - Stolen (Extended Mix) [6:03]
+03. Siskin - Let Go (Dennis Sheperd Extended Remix) [4:20]
+04. XiJaro & Pitch with Adara - Goodbye (Extended Mix) [6:06](   Читать дальше...   )Жанр: TranceПродолжительность: 02:33:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DE9B47EAF414B38B2A0277B3AFC4A8CA48C20F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731887   (107542) от 23.06.2024
+
+VA - Global Trance - Summer 2024 (2024) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_107542.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul van Dyk & Sue Mclaren - Love Is Enough (Original Mix) [2:57]
+02. Alex M.O.R.P.H. - Happy (Original Mix) [2:31]
+03. Craig Connelly - Perseverance (Original Mix) [4:21]
+04. Ronski Speed - Trisolaris (Original Mix) [3:48](   Читать дальше...   )Жанр: TranceПродолжительность: 02:12:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79D6CBCFBBDFF52A28C9C7AE65C9B309C3AC70D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1733391   (107367) от 28.06.2024
 
 VA - Vocal Trance Hits 2024 [MP3|320 Kbps] <Trance>
@@ -658,93 +745,6 @@ VA - Black Hole Trance Music 08-24 (2024) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:904C4DE5B1CFD7907EF3FDA4E9904AD2212042C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744575   (105274) от 22.08.2024
-
-VA - Top July 2024 Uplifting Trance (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105274.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Dani - Lay Down Near Me (Intro Mix) (04:53)
-02. Sam Fletcher - Winter Bloom (Original Mix) (06:50)
-03. SounEmot & Elgfrothi - Together in Time (Original Mix) (10:07)
-04. Juan Almiñana Obando - Ana (Original Mix) (06:47)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:08:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1784E41B9A4565D879A56080F9EA4C88596BBCDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744578   (105262) от 22.08.2024
-
-VA - Trance Summer 2024 (2024) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105262.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dmitry Ruman - System Life (07:39)
-02. Afterus - Lost In A Moment (Extended Mix) (07:15)
-03. Mazeev - Spring (05:39)
-04. Nitesonik - Invictus (Extended Mix) (06:03)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:50:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B529513D4D8AD28AF77E3ED58B1DAF7F07EDE746
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746168   (104872) от 01.09.2024
-
-VA - Bodrum Summer Festival (Club Edition) (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104872.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lelio D'Aprile - Istanbul Delight (Radio Edit) (03:15)
-02. Faruk Khaledi - A Sense Of Euphoria (Toamun Remix) (05:54)
-03. Faruk Khaledi - A Sense Of Euphoria (Jordan B Remix) (07:22)
-04. Toamun - Mim (Original Mix) (05:00)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:36:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F52D244597F6D4742F12258CF29D69C3ED332027
 ```
 
 https://mybot314.ru/tekegram_catalog/

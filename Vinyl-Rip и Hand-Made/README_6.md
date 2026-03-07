@@ -1,3 +1,200 @@
+###  Публикация: 972228   (981736) от 06.01.2016
+
+Amadeus Veberzinke/Амадеус Веберзинке - J. S. Bach/И. С. Бах: Mass For Organ/Органная месса (1990) [FLAC 2.0 24/96|image+.cue (Vinyl-Rip)] <Classical, Organ>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_981736.jpg" />
+</div>
+
+
+###  Подробнее
+
+Органная Месса (Фрагменты)
+А1	Praeludium, B. 552
+А2	Kyrie ("Kyrie, Gott Vater In Ewigkeit", B. 669, "Christe, Aller Welt Trost", B. 670, "Kyrie, Gott Heilige Geist", B. 671)
+В1	Gloria ("Allein Gott In Der Höh' Sei Ehr' ", B. 676)(   Читать дальше...   )Жанр: Classical, OrganПродолжительность: 01: 23:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E524E0F0CA3702DC2C129FFD097E0E153AC9E7A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972345   (981733) от 06.01.2016
+
+Мумий Тролль - Икра (1997/2012) [FLAC 2.0 24/96] image + .cue (Vinyl-Rip) <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_981733.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Доля риска
+02 - Шамаманы
+03 - Сиамские сердца
+04 - Не звезда(   Читать дальше...   )Жанр: RockПродолжительность: 00:44:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0CC07C4374A94223E87EBE50F15DBE08B142442
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 614019   (981133) от 05.02.2013
+
+ДДТ - Чёрный пёс Петербург (1992/1994) [APE 2.0 24/96|image + .cue (Vinyl-Rip)]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_981133.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Пролог [4:32]
+02. Новые блокадники [5:22]
+03. Styx [4:29]
+04. Храм [4:27]
+05. Беда [7:57]
+06. Ты не один [5:08]
+07. Я остановил время [5:06]
+08. В это [5:02]
+09. Чёрный пёс Петербург [11:28]
+10. Дождь [3:59](   Читать дальше...   )Жанр: RockПродолжительность: 01:27:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:788853C62705A6DB44C7F01C393D0462E8AF84EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 742624   (978883) от 06.01.2014
+
+Electric Light Orchestra - Discovery (1979) [FLAC 2.0 24/192|traks(Vinil-Rip)]<Prog Rock, Symphonic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_978883.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. Shine A Little Love  4:40
+2. Confusion  3:42
+3. Need Her Love  5:08
+4. The Diary Of Horace Wimp  4:16
+Сторона 2
+1. Last Train To London  4:30
+2. Midnight Blue  4:18
+3. On The Run  3:58
+4. Wishing  4:10(   Читать дальше...   )Жанр: Prog Rock, Symphonic RockПродолжительность: 00:38:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:397EC607483D91CDA4647D23B7448F3D62F88C11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 615136   (978389) от 07.02.2013
+
+Depeche Mode - Playing The Angel (2005) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]<Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_978389.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. A Pain That I'm Used To 4:08
+A2. John The Revelator 3:45
+A3. Suffer Well 3:54
+B1. The Sinner In Me 4:59
+B2. Precious 4:07
+B3. Macro 4:09
+C1. I Want It All 6:11
+C2. Nothing's Impossible 4:22
+C3. Introspectre 1:41
+C4. Damaged People 3:30(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:52:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0043B9363B5FB929FAFA7DCD46C7259F88EF7598
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 614646   (978302) от 07.02.2013
+
+Deep Purple - 9 альбомов (1970-1990) [FLAC 2.0 24/192 |image + .cue (Vinyl-Rip)]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_978302.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. King Of Dreams 5:28
+A2. The Cut Runs Deep 5:42
+A3. Fire In The Basement 4:46
+A4. Fortuneteller 5:48
+B1. Truth Hurts 5:15
+B2. Love Conquers All 3:45
+B3. Breakfast In Bed 5:18
+B4. Too Much Is Not Enough 4:18
+B5. Wicked Ways 6:32Жанр: RockПродолжительность: 00:46:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A46BFC05513E57F36CC3C67C285C0D88061F7D6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 973683   (978127) от 10.01.2016
 
 VA - Blues & Ballads 2 (1996) [FLAC 2.0|16/44,1|image+.cue (MC-Rip)] <Pop, Cover>
@@ -573,180 +770,6 @@ Deep Purple - Burn (1974) 1976, Warner Bros. [FLAC 2.0|192/24|image + .cue|Vinyl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE22D8276D101065D658732D6D027A6762FC244B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089128   (953579) от 02.01.2017
-
-VA - RETROспектива, часть I: Эстрадные оркестры (1932-1960) [FLAC 1.0|48/24|tracks|Vinyl-Rip] <Retro, Instrumental>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953579.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ланни Дэй - Потанцуем (фокстрот)
-02. Ансамбль электромузыкальных инстр. - По набережной (фокстрот)
-03. Концертный ансамбль - Колокола (танец)
-04. Концертный ансамбль п.у. Ф. Криша - Анна (полька)(   Читать дальше...   )Жанр: Retro, InstrumentalПродолжительность: 00:55:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36A37D576E29EFA08FFE94A48F31A609899DA25E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981385   (952709) от 31.01.2016
-
-U.D.O. (UDO) - Mean Machine (1988), RCA [FLAC 2.0|192/24|image + cue|Vinyl-Rip] <Heavy/Speed-Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_952709.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Don't Look Back
-02 - Break The Rules
-03 - We're History
-04 - Painted Love(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B248EEA22ABE092461027C53F75E2B6AEFC4DFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981683   (951243) от 01.02.2016
-
-Deep Purple - Fireball (1971) [FLAC 2.0|96/24|image|Vinyl-Rip]<Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951243.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fireball (3:24)
-02. No No No (6:53)
-03. Strange Kind Of Woman (4:06)
-04. Anyone's Daughter (4:42)(   Читать дальше...   )Производство: Warner Bros. Records / Warner-Pioneer - P-8092WЖанр: Hard RockПродолжительность: 00:39:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36219E842A0EB29653998B21E08677746F611F56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089925   (948933) от 05.01.2017
-
-Triumvirat - 3LP (1975-1978) [FLAC 2.0|192/24|Lossless|image + .cue|Vinyl-Rip] <Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948933.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Watefall
-A2 (Oh I'm) Late Again
-A3 Jo Ann Walker
-A4 For You(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 02:15:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29D411AEF677457DE19BDA8A1EE856D68E0A80C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089742   (948647) от 05.01.2017
-
-Константин Никольский - Иллюзии (2007) [WavPack 2.0|192/24|image + .cue|Vinil-Rip] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948647.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side 1
-01.- Иллюзии (4:22)
-02.- Пред чертой (4:06)
-03.- Только там (4:25)(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5145FF0DE54B82D40ED6154FCFD717424B65EC68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089678   (948575) от 05.01.2017
-
-VA - RETROспектива, часть III: Эстрадные оркестры III (1933-1961) [FLAC 1.0|48/24|tracks|Vinyl-Rip] <Retro, Instrumental>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948575.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Инструментальный октет - Новые приятели
-02. Оркестр п.у. Эмброуза (соло Сэм Браун) - Кукарача (румба)
-03. Джаз-оркестр ВРК п.у. А. Н. Цфасмана - Песенка дятла (полька)
-04. Джаз-оркестр ВРК п.у. А. Н. Цфасмана - Тирольский вальс (вальс)(   Читать дальше...   )Жанр: Retro, InstrumentalПродолжительность: 00:53:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84F4C7F50EB9BAA08B435D8DF13429EF11BEBCB0
 ```
 
 https://mybot314.ru/tekegram_catalog/

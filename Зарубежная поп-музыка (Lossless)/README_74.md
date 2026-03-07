@@ -1,3 +1,119 @@
+###  Публикация: 852251   (222982) от 21.12.2014
+
+Selena Gomez - For You (2014) /Scene/ [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_222982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Heart Wants What It Wants
+02. Come & Get It
+03. Love You Like A Love Song
+04. Tell Me Something I Don’t Know(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FEA03E76998AE9C8FC078F5872AD8235102A465
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425119   (222768) от 20.11.2020
+
+The Beloved - Where It Is (2020) Special Edition, RM.RE. [FLAC|Lossless|WEB-DL|tracks] <Electronic, Indie Rock, New Wave, Synthpop, 80s>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_222768.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Hundred Words (5:17)
+ 02. Slow Drowning (4:27)
+ 03. In Trouble And Shame (7:05)
+ 04. This Means War (3:50)(   Читать дальше...   )Жанр: Electronic, Indie Rock, New Wave, Synthpop, 80sПродолжительность: 02:23:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EA04D5EDC7AE7891A32D1C61BE9D7FD76FBF60A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342576   (222705) от 03.12.2019
+
+VA - MNM Party 2019 Vol.1 (2019) [FLAC|Lossless|tracks + .cue] <Electronic, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_222705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Guetta – When Love Takes Over (feat. Kelly Rowland)
+02. Swedish House Mafia & Tinie Tempah – Miami 2 Ibiza
+03. Moby – Disco Lies
+04. Bingo Players – Rattle(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 02:31:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4F56B248E547C7B2ABB5C4D6C0359B12428D2DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651345   (222288) от 06.08.2023
+
+Bill Wray - Seize The Moment (1983) Reissue, Remastered, 2023, Bad Reputation [FLAC|Lossless|image + .cue] <Pop Rock, AOR, Arena Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_222288.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. (You’re A) Heartbreaker (3:21)
+02. She Loves The Radio (3:19)
+03. Goin’ Down (3:55)
+04. After All These Years (3:38)(   Читать дальше...   )Жанр: Pop Rock, AOR, Arena RockПродолжительность: 00:45:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20F6AA300BE8C2FD61EE3F1843FB51F07740BDBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1651411   (222273) от 06.08.2023
 
 Odds - Crash The Time Machine (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Pop, Pop Rock>
@@ -629,122 +745,6 @@ VA - Blow Up Disco Vol 5: Italo Heaven (A Sexy Selection Of Italodisco!) (2019) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:207A1B3A2B4502E60EBDE29CDA7EF824FF009F57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343214   (218544) от 06.12.2019
-
-Jennifer Paige - Crush: The Best of Jennifer Paige (2013) Compilation [FLAC|Lossless|WEB-DL|tracks] <Electronic, Pop, Pop-Rock, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crush (3:20)
- 02. Always You (4:05)
- 03. Sober (4:06)
- 04. Stranded (3:37)(   Читать дальше...   )Жанр: Electronic, Pop, Pop-Rock, BalladПродолжительность: 00:46:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E59FADF20C513592E1420EFEA84B156051C0AF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084671   (218443) от 19.12.2016
-
-VA - Just The Hits 2016 (2016) [FLAC|Lossless|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218443.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Chainsmokers - Roses (Feat. Rozes)
-02. Flo Rida - My House
-03. Twenty One Pilots - Stressed Out
-04. Coldplay - Adventure Of A Lifetime(   Читать дальше...   )Жанр: PopПродолжительность: 01:09:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1519F81BFD56F85F540887516B4406575305C713
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343452   (218391) от 06.12.2019
-
-VA - 538 Hitzone: Best Of 2019 (2019) Box Set, 2CD [FLAC|Lossless|tracks + .cue] <Pop, Dance, Hip-hop, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218391.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ну вот наконец подоспел итоговый годовой сборник от популярной Нидерландской студии Радио 538. Заключаем в этом году серию ретроспективой свеженьких новинок популярной музыки, вышедших в 2019 году. Как указано на их сайте все хиты с этих дисков должны пополнить вашу коллекцию. Остальные релизы из этой серии вы сможете найти по ссылке внизу.CD1:
-01. Mark Ronson Ft. Miley Cyrus - Nothing Breaks Like A Heart  (3:37)
-02. P!NK - Walk Me Home  (2:54)
-03. Dermot Kennedy - Power Over Me  (3:19)(   Читать дальше...   )Релиз состоялся: 15 ноября 2019 годаЖанр: Pop, Dance, Hip-hop, ElectronicПродолжительность: 02:25:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FF6428AE81DA948A3EF667991C54F5E646BAF31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343454   (218115) от 06.12.2019
-
-VA - The Greatest Xmas Song (2019) Box Set, 2CD [FLAC|Lossless|tracks + .cue] <Jazz, Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_218115.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для тех кто отмечает Рождество по "ихнему" календарю Universal Music выпустила симпатичный сборник из разных жанров. Так что вы найдете обязательно для себя то, что вам захочется послушать и до православного Рождества. Ну а как говорится: тот празднику не рад, кто накануне не пьян! Наслаждайтесь хорошей музыкойCD1:
-01. Queen - Thank God It's Christmas  (4:20)
-02. Coldplay - Christmas Lights  (4:04)
-03. U2 - I Believe In Father Christmas  (3:24)(   Читать дальше...   )Релиз состоялся: 01 ноября 2019 годаЖанр: Jazz, Rock, PopПродолжительность: 02:34:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBDC08F3D2D1FFCCF8524B88DB8CA92F3C13024D
 ```
 
 https://mybot314.ru/tekegram_catalog/

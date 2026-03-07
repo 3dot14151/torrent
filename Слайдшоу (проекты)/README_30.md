@@ -1,3 +1,29 @@
+###  Публикация: 1124191   (785883) от 10.04.2017
+
+Проекты - VideoHive - Fashion Online Shop [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785883.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fashion Online Shop - проект для создания модного слайд-шоу с элегантными текстовыми надписями и подложками для текста. А выноски-указатели акцентируют внимание на различных предметах и деталях.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:026A5CF8EC3E518D96F1D6451D9058502A4BC2B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1124189   (785867) от 10.04.2017
 
 Проекты - VideoHive - Professional Opening Package [AEP]
@@ -654,32 +680,6 @@ Brush Strokes Frame Slideshow это современный шаблон After E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA7D872BDF26E794407ACC195F0744E83DF9069B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210473   (778586) от 03.03.2018
-
-Проекты - VideoHive - Intro - 21151425 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778586.jpg" />
-</div>
-
-
-###  Подробнее
-
-Intro - проект для: Intro Fashion, Fashion week, Fashion show, Fashion work, Fashion story, Fashions, Vogue, корпоративная рекламная акция, деловая акция, корпоративное введение, промо-акции, спортивная реклама, спортивная открывашка, спортивное вступление, музыкальная промо, промо-акции.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0F56E55B73297C6124CACE8E9E6B8C2E48C09B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

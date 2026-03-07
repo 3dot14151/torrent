@@ -1,3 +1,61 @@
+###  Публикация: 1267515   (266731) от 06.12.2018
+
+VA - German Top 100 Single Charts 30.11.2018 (2018) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_266731.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mero - Baller los
+002. Ava Max - Sweet but Psycho
+003. Sido - Tausend Tattoos
+004. Samra - Cataleya(   Читать дальше...   )Жанр: PopПродолжительность: 05:31:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CB411397AD9E769B75F24C1E2D8E1D5CD8B2F73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1190950   (265977) от 11.12.2017
+
+VA - De Top 100 Aller Tijden 1971 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, Rock>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_265977.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jacques Herb - Manuela (5:00)
+002. Mieke Telkamp - Waarheen, Waarvoor (3:48)
+003. Poppys - Non Non Rien N'a Change (3:09)
+004. Peter Maffay - Du (4:59)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 06:01:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F14A3F4B927A787D9125FDA003443130042BA3EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1267537   (265461) от 07.12.2018
 
 VA - Club Dance Ambience Vol.168 (2018) [MP3|320 Kbps] <Dance, Club, House>
@@ -723,64 +781,6 @@ Romantic Dreams - Favorites Collection Part 8 (2025) [MP3|320 Kbps] <Italodisco,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A155683C60A3DDE3157160E4C229781C79BA5752
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837565   (257956) от 17.11.2025
-
-Reyvi - Favorites Collection Part 8 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257956.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - It's Killing Me
- 02 - Amour
- 03 - Endless Sorrow
- 04 - Your Eyes(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 00:47:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AE909AF1AA7307F88C2700BB2CF89523F857004
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837833   (257591) от 19.11.2025
-
-Smtve - Favorites Collection (2025) [MP3|320 Kbps] <Romantic / Cinematic Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257591.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Beautiful Again
- 02 - The Morning
- 03 - Stay
- 04 - Streetlight(   Читать дальше...   )Жанр: Romantic / Cinematic PopПродолжительность: 02:00:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A00685F5EBFC73E94F483E1B37A7E75EDC494DE5
 ```
 
 https://mybot314.ru/tekegram_catalog/

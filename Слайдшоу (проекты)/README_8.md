@@ -1,3 +1,30 @@
+###  Публикация: 985171   (935285) от 11.02.2016
+
+Проекты - VideoBlocks - Media Slideshow [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_935285.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания фото слайдшоу.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CAEE1B4AAF823A1EBFF25551B0B608149A55089
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1093415   (935022) от 14.01.2017
 
 Проекты - Проект ProShow Producer - Badges and Labels [PSH]
@@ -663,32 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:59DD7323340AF7F039CF715FC0856EBE7E0A8012
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094888   (927612) от 19.01.2017
-
-Проекты - VideoHive - Photo World [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927612.jpg" />
-</div>
-
-
-###  Подробнее
-
-Photo World - простое слайд-шоу с 3D-переходами.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFCF22079317E1AE78B80009F32D1001F51570E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

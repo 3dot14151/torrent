@@ -1,3 +1,119 @@
+###  Публикация: 1238862   (544606) от 01.08.2018
+
+VA - Supervara (2018) 2CD [FLAC|Lossless|image + .cue] <Dance, Synth-Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544606.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+01. Inna – Me gusta (3:56)
+02. Manuel Riva feat. Alexandra Stan – Miami (3:34)
+03. Akcent feat REEA – Deep In Your Eyes (3:14)(   Читать дальше...   )Жанр: Dance, Synth-PopПродолжительность: 01:49:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:830677F67A6FF0D6DC35BAA0F1723E99090BDEFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1311013   (544584) от 27.06.2019
+
+Helen Shapiro - 'Tops' With Me / Helen Hits Out! (2000) [FLAC|Lossless|tracks + .cue] <Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544584.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little Devil
+02. Will You Love Me Tomorrow?
+03. Because They're Young
+04. The Day The Rains Came(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 01:08:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4906B09A338BF459967994F5C364F351C29F87F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1310994   (544582) от 27.06.2019
+
+Helen Shapiro - At Abbey Road 1961-1967 (1998) [FLAC|Lossless|tracks + .cue] <Blues, Pop, Soul, Funk>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Treat Me Like A Child (Mono) (02:36)
+02. You Don't Know (Mono) (03:12)
+03. Walkin' Back To Happiness (Take 2 Plus Studio Conversations) (Stereo) (02:51)
+04. Walkin' Back to Happiness (Take 13 Master) (Stereo) (02:34)(   Читать дальше...   )Жанр: Blues, Pop, Soul, FunkПродолжительность: 01:13:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EE4B3F3ECEA801D89EC0057BA363DF844CEC3ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1311024   (544532) от 27.06.2019
+
+Budka Suflera - Zlote Przeboje (Unknown) [FLAC|Lossless|image + .cue] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544532.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Twoje radio (5:16)
+02. Ona przyszla prosto z chmur (4:36)
+03. Samotny noca (3:00)
+04. Martwe morze (4:42)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:19:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02B57C3B8F82DA97E197167076170ADD3303DC60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1311009   (544276) от 27.06.2019
 
 Madonna - Madame X (2019) Japanese Limited Deluxe Edition [FLAC|Lossless|image + .cue] <Pop>
@@ -637,122 +753,6 @@ VA - The Late '50s - The Top 10 Collection (1998) 4CD [FLAC|Lossless]<Pop, Rock>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311755   (536391) от 02.07.2019
-
-Heather Nova - Pearl (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Wounds We Bled [03:50]
-02. All the Rivers [04:00]
-03. Rewild Me [04:13]
-04. Some Things Just Come Undone [03:38](   Читать дальше...   )Жанр: PopПродолжительность: 00:47:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94EEA96A9E5E552F4FAF53DBB64834F9077950FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311636   (536383) от 02.07.2019
-
-VA - Sláger Rádió - Sláger Slágerek. Vol 3 (2000) [FLAC|Lossless|image + .cue] <Pop Rock, Disco, Retro>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536383.jpg" />
-</div>
-
-
-###  Подробнее
-
-A 60-as 70-es évek legnagyobb slágerei  
-
-01. Zorán - Romantika (1978) (3:21)
-02. Koncz Zsuzsa - Rohan az idõ (1966) (3:25)(   Читать дальше...   )Жанр: Pop Rock, Disco, RetroПродолжительность: 01:08:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E78419EEEBF834CB23E5568072F1287406A09405
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050778   (536372) от 09.09.2016
-
-Tarkan - Tarkan (1999) [FLAC|Lossless|tracks + .cue] <Pop, Folk, World, & Country>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536372.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Simarik (3:10)
-02. Olurum Sana (4:05)
-03. Bu Gece (Kir Zincirlerini) (remix 99) (3:49)
-04. Sikidim (Hepsi Senin mi?) (3:16)(   Читать дальше...   )Жанр: Pop, Folk, World, & CountryПродолжительность: 01:05:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0576064A13A00D4E2672E71FE5756091E5F16A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312037   (536319) от 02.07.2019
-
-Mark Ronson - Late Night Feelings (2019) [FLAC|Lossless|tracks + .cue] <Electronic, Soul, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536319.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Late Night Prelude (01:29)
-02. Late Night Feelings (04:11)
-03. Find U Again (02:56)
-04. Pieces of Us (03:26)(   Читать дальше...   )Жанр: Electronic, Soul, PopПродолжительность: 00:43:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79F76508D32DF10786411FDCB5FE349EFDE1233E
 ```
 
 https://mybot314.ru/tekegram_catalog/

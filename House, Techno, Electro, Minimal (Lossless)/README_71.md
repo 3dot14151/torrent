@@ -1,3 +1,119 @@
+###  Публикация: 1812803   (7451) от 16.08.2025
+
+VA - Ibiza Lounge 2025 (Deep Strips Records) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_7451.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. N.E.O.N - One Day (4:16)
+02. Crystal Deeper - Good Flow (2:28)
+03. Lino Tenerife - Give Me a Minute (2:29)
+04. Fly - Easy (Radio Edit) (2:44)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:33:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47C00FC1355551DE17BCFE37066E2AEC4DA0FFC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813156   (7213) от 17.08.2025
+
+VA - Locked Radio: Happy 808 Day (2025) [FLAC|Lossless|Web-DL|tracks] <Electro, Techno, Juke>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_7213.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anderdog – Dubby Dog (4:21)
+02. ICES-003 – Foil Hat (3:58)
+03. Exascale – Headspin (4:41)
+04. Jetelmen – 808 Hype Funk (3:07)(   Читать дальше...   )Жанр: Electro, Techno, Juke, IDM, HouseПродолжительность: 01:15:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE9FE68F30C3C89AD38CC23827EBEB74E2D657E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813332   (7089) от 18.08.2025
+
+VA - Summer Hits 2025 (Deep Strips Records) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_7089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abee Sash - Somebody Special (Radio Edit) (2:48)
+02. Kmoba - For You (4:17)
+03. DeepTurco - The Lake (3:32)
+04. Crystal Deeper - Good Flow (2:28)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:53:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:639480F247CA17169D1584A1848393DAE9977373
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813509   (6905) от 19.08.2025
+
+VA - Summer Beach Music 2025 (Deep Strips Records) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_6905.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kanette - Alone (2:40)
+02. Sharapov - Keep On Rising (5:25)
+03. N.E.O.N - Spirit Flame (Radio Edit) (3:25)
+04. Abee Sash - Somebody Special (Radio Edit) (2:48)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:46:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:158E021FE04082674D05E0FEE3232EF78CB69A69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1813924   (6452) от 22.08.2025
 
 VA - Ibiza Nights (Deep Strips Records) (2025) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>

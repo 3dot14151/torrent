@@ -1,3 +1,29 @@
+###  Публикация: 541732   (498114) от 03.09.2012
+
+Lou Rhodes - 3 альбома (2005-2010) [MP3|320]<folk rock,acoustic,folk>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_498114.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Folk Rock, Acoustic, Folk, Indie RockПродолжительность: 00:40:16
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1318036   (497755) от 04.08.2019
 
 24 Pesos - Flesh & Bones (2019) [MP3|320 Kbps] <Blues Rock>
@@ -718,35 +744,6 @@ Cravinkel - Cravinkel (1970) Reissue, 1998, Repertoire Records [MP3|320 Kbps] <P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3044FE50D43140526BEDDB067A6B8913EB46B996
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1159230   (486250) от 19.08.2017
-
-Guru Guru - Guru Guru (1973) Reissue, 1997, Repertoire Records [MP3|320 Kbps] <Prog Rock, Krautrock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486250.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Samantha's Rabbit
-2. Medley
-3. Woman Drum
-4. Der Elektrolurch(   Читать дальше...   )Жанр: Prog Rock, KrautrockПродолжительность: 00:42:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B177749E1DC389BA99C764547C88C68BA3919787
 ```
 
 https://mybot314.ru/tekegram_catalog/

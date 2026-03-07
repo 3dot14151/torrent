@@ -1,3 +1,32 @@
+###  Публикация: 958354   (323934) от 21.11.2015
+
+Brahms - Symphonies nos.3 & 4 (Carl Schuricht & Orchestra) (2004) [FLAC|image +.cue]<Classical, Romantic Period, Symphony>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323934.jpg" />
+</div>
+
+
+###  Подробнее
+
+Symphony No.3 in F major Op.90
+01. Allegro con brio (08:24)
+02. Andante (08:10)
+03. Poco allegretto (06:34)(   Читать дальше...   )Жанр: Classical, Romantic Period, SymphonyПродолжительность: 01:10:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE031EE1FBE14B14794606BDE9DF1A151E231C6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 958663   (323881) от 21.11.2015
 
 Lena Natalia - Sundays in Paris (2015) [MP3|320 кб/с]<Classical, Neo-Classical, Piano, New Age>
@@ -711,35 +740,6 @@ Piano Novel - Fendre l'ecorce (2017) [FLAC|Lossless|WEB-DL|tracks] <Modern Class
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C872E5EC3A85C6829849F87FBDD1DA9B7B507D81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332660   (311002) от 21.10.2019
-
-Florian Christl - Inspiration (2018) Sony Classical [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Ambient, Piano>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311002.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fly (3:50)
- 02. Close Your Eyes (5:05)
- 03. Moments (3:35)
- 04. Concertino (2:18)(   Читать дальше...   )Жанр: Modern Classical, Ambient, PianoПродолжительность: 00:56:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A25F87FECA44F7F62602C5A4FD1934854CAC19F
 ```
 
 https://mybot314.ru/tekegram_catalog/

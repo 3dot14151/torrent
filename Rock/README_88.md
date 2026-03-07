@@ -1,32 +1,3 @@
-###  Публикация: 1827103   (173430) от 20.10.2025
-
-David Gilmour - The Luck and Strange Concerts (2025) [MP3|320 Kbps] <Rock, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 5 A.M. (Live from the Luck and Strange Concerts) [03:16]
-02. Black Cat (Live from the Luck and Strange Concerts) [02:02]
-03. Luck and Strange (Live from the Luck and Strange Concerts) [05:56]
-04. Breathe (In the Air) (Live from the Luck and Strange Concerts) [03:34](   Читать дальше...   )Жанр: Rock, Progressive RockПродолжительность: 02:16:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED37F47FE8524DF07C434F22691442E3649990AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1668599   (173369) от 13.10.2023
 
 Black Sabbath - Reunion (1998) 25th Anniversary Expanded Edition, 2023, Epic Records [MP3|320 Kbps] <Rock, Hard Rock, Metal>
@@ -744,6 +715,35 @@ Shine On - Occitania Tribute to Pink Floyd (2016) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E29EBB17D1BDC7142FF473CC5B51EAED7189BE50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431804   (165246) от 16.12.2020
+
+Dark Pink Moon - A Chill Out Tribute To Pink Floyd (2002) [MP3|320 Kbps] <Rock, Electro>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_165246.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Happiest Days Of Our Lives (Cover Version)
+02. Another Brick In The Wall, Part 2 (Cover Version)
+03. Hey You (Cover Version)
+04. The Great Gig In The Sky (Cover Version)(   Читать дальше...   )Жанр: Rock, ElectroПродолжительность: 01:07:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D1432A566E1FCD47EE162DBB010796021D3DF87
 ```
 
 https://mybot314.ru/tekegram_catalog/

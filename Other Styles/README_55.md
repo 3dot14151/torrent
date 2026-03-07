@@ -1,3 +1,32 @@
+###  Публикация: 1216419   (750831) от 30.03.2018
+
+Omnia - Reflexions (2018) [FLAC|Lossless|WEB-DL|tracks] <Folk, Celtic, Medieval>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_750831.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shaman of Chaos 04:11
+02. Niivs Cauldron 06:13
+03. JabberMoon 05:20
+04. Alive Until We Die 04:44(   Читать дальше...   )Жанр: Folk, Celtic, MedievalПродолжительность: 01:01:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D31CD3E7A714456CA623FDD70D6AE1951268960
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1019518   (750085) от 23.05.2016
 
 Meav - The Calling (2013) [MP3|320 кб/с] <Folk, Celtic, Female Vocal>
@@ -714,35 +743,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:02FE6339B60A3862143E71559F97D7F57FA65D41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397217   (741333) от 19.07.2020
-
-VA - Smooth Piano for Romantic Lovers (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741333.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Instrumental Jazz Music Ambient - Falling in Love (2:39)
-02. Kenny Bern - Endless Love (2:56)
-03. Daniel Philo - Lovers at Paradise (2:56)
-04. Victor Sommers - Lounge of Desires (2:46)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:22:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C4448CA511E2A22D4B57C6FAC4C0A9B6F37A09C
 ```
 
 https://mybot314.ru/tekegram_catalog/

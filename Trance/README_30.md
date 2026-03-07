@@ -1,3 +1,90 @@
+###  Публикация: 1169122   (402465) от 28.09.2017
+
+VA - Recoverworld Radio 013 (Mixed by Para X) (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_402465.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Daydreamer - Levitation (JP Bates Remix)  6:44
+02.  Obi - Soulmate (Original Mix)  8:07
+03.  Para X - Dream Zone (Original Mix)  7:12
+04.  Greg Dusten - Higher State (Original Mix)  7:36(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:03:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADAB89C2B3C6104DFAB165FAC2DEBC9AD1DAA52A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169814   (399819) от 01.10.2017
+
+VA - 2 Years Suanda True (2017) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_399819.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  LTN & Attila Syah - Padma (Original Mix)  7:18
+02.  CubeTonic & Dilara Gadel - So Strong (Mark W Radio Edit)  3:21
+03.  Aurosonic & Nicol Cache - Tell Me Why (Mhammed El Alami Radio Edit)  3:18
+04.  F.G. Noise & Tom Exo - Skyworld (Radio Edit)  3:50(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:18:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F1BCB645CB6D15859E326EB55286FA7B7E8315B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169821   (399812) от 01.10.2017
+
+VA - Festival Hits (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_399812.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Aly & Fila feat. Paul Thomas - UV (Original Mix)  3:30
+02.  The Thrillseekers - In These Arms (The Thrillseekers pres. Hydra Remix)  3:50
+03.  Dan Stone & Ferry Tayle - Vona (Original Mix)  3:54
+04.  Sam Laxton - Never Alone Again (Original Mix)  3:45(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:00:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75736910F618D64AA0979FD65C45B55E98F717E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1169815   (399804) от 01.10.2017
 
 VA - ADE Trance Anthems (2017) [MP3|320 Kbps] <Vocal Trance>
@@ -658,93 +745,6 @@ VA - Underground Trance Selections Vol.12 (2022) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4614CA467738D70719A21E0F158C83975341B37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 824713   (376874) от 23.10.2015
-
-Sensorica - 6 Albums , 7 Compilations (2007 - 2015) [MP3|320 кб/с]<Trance, Chillout, Ambient, Psy-Trance, Progressive House>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376874.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction (1:25)
-02. The Artifact (7:20)
-03. Sensation (8:17)
-04. Turning Back (8:40)(   Читать дальше...   )Жанр: Trance, Chillout, Ambient, Psy-Trance, Progressive HouseПродолжительность: 00:47:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88C748D269DA37FCCC116300BBF6F193E01E5671
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327275   (376726) от 24.09.2019
-
-Ahmed Romel - RUYA (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376726.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ahmed Romel - Be My Eyes (03:39)
-02. Ahmed Romel - Dystopia (05:13)
-03. Ahmed Romel - Vanya (03:54)
-04. Ahmed Romel & Simon O'Shine - The Love Potion (04:06)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:12:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC9BF3DCF46876ED8D347043F9B5921FC50AEC58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175321   (376270) от 19.10.2017
-
-VA - Armin van Buuren Live At Ultra Mexico 2017 (Highlights) (2017) [MP3|320 Kbps] <Trance, Progressive>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376270.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Armin van Buuren - Live At Ultra Mexico 2017 (Mix Cut) (Intro)  1:33
-02.  ID - ID (Mix Cut)  4:30
-03.  Armin van Buuren feat. Kensington - Heading Up High (Mix Cut) (First State Remix)  4:04
-04.  Super8 & Tab - Cosmo (Mix Cut)  2:02(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 01:18:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47D35ADFDAEAE77D2340A2EC43076037271AE541
 ```
 
 https://mybot314.ru/tekegram_catalog/

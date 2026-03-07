@@ -1,3 +1,61 @@
+###  Публикация: 862714   (928720) от 24.01.2015
+
+VA - Winter Music 2015 (2015) [MP3|320 кб/с]<Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_928720.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robin Schulz - Prayer in C  (3:09)
+02. Nico & Vinz - Am I Wrong  (4:08)
+03. Джиган & Юлия Савичева - Любить больше нечем  (3:24)
+04. ZHU - Faded (Radio Edit)  (2:48)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 01:46:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD396685A8D46394E10262BF88D1C6C02BF8592B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1094105   (927714) от 19.01.2017
+
+VA - Зимний драйв. Зарубежная версия (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927714.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mako & Rat City Feat. Natalola - Run For Your Life 3:20
+002. Attlas - Blood Work 3:07
+003. Yade Lauren - Love & War 3:00
+004. The Chemical Brothers - C-H-E-M-I-C-A-L 3:19(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7791A7557044EC0CDEDAED4AC32E052BD52610F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1365786   (927373) от 09.03.2020
 
 VA - German Top 100 Single Charts 06.03.2020 [MP3|320 Kbps] <Pop>
@@ -681,61 +739,6 @@ VA - Sweet Caramel: Pop Dance Eurobeat (2020) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E91C89890ABE7EA7540CFB2E5B81F9F62C15BC64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988332   (921897) от 19.02.2016
-
-VA - Музыка В Машину. Лучшие Хиты (2016) [MP3|256 kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sonya Feat. Artik - Мой Рай
-02. Номо - Облака
-03. Icona Pop - Emergency
-04. Юджин Feat. Ай-Q - Словно Сон(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92C4921624DAA309180F0543CC48CC8F1103A571
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 288523   (921861) от 29.01.2011
-
-VA - Бомба года  хитов (2011) [MP3|128 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921861.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 11:50:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3256B2B3BDF3317542001E5F13469F89F4A34C5A
 ```
 
 https://mybot314.ru/tekegram_catalog/

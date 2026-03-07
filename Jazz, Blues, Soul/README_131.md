@@ -1,3 +1,235 @@
+###  Публикация: 1123156   (786393) от 08.04.2017
+
+The Red Earth Blues Band - The Red Earth Blues Band (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786393.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rain Song (3:41)
+02. Retro Man (3:28)
+03. No Brew (4:50)
+04. Wild Eyed Gypsy Man (4:15)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:45:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:252643305E0865443DC2317B8C485DF1D8006D57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123688   (786342) от 08.04.2017
+
+Tommi - Trouble (2016) [FLAC|Lossless|WEB-DL|tracks] <Blues, Americana>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786342.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trouble  (04:26) 
+02. In Another World (feat. Laila Av Reyni)  (05:00) 
+03. Straight to Hell  (04:09) 
+04. Leave a Light  (04:46) (   Читать дальше...   )Жанр: Blues, AmericanaПродолжительность: 01:07:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8BC20FFD05643E885CF355AA43C3F7510675908
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123875   (786223) от 09.04.2017
+
+Anita O'Day - Anita O'Day's Finest Hour (1954 - 1962) 2000, Verve [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786223.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Honeysuckle Rose [03:16]
+ 02.Little Girl Blue [03:04]
+ 03.Let Me Off Uptown [03:23]
+ 04.An Occasional Man [02:31](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:57:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE269B03FBD47DAD2EF0CC3863C950EBCDE6D78E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123873   (786221) от 09.04.2017
+
+Valery Ponomarev - Profile (1991) Reservoir [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786221.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.I Was Afraid You'd Never Call Me [06:56]
+ 02.I Concentrate On You [14:07]
+ 03.Time [09:48]
+ 04.High Voltage At Rudy's [09:29](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:58:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0DCC720FF029BD171648B507E808B8FF93300CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123722   (786212) от 09.04.2017
+
+Devon Allman's Honeytribe - Space Age Blues (2010) [FLAC|Lossless|image + .cue] <Blues Rock, Modern Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786212.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Could Get Dangerous  (04:14) 
+02. Space Age Blues  (05:16) 
+03. Salvation  (04:41) 
+04. Sir Duke  (03:47) (   Читать дальше...   )Жанр: Blues Rock, Modern Electric BluesПродолжительность: 00:45:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31A90D9A04195C8503B8C7578B32F6C8565C0A1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123993   (786209) от 09.04.2017
+
+Devon Allman - Turquoise (2013) [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786209.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When I Left Home  (04:05) 
+02. Don't Set Me Free  (03:40) 
+03. Time Machine  (03:39) 
+04. Stop Draggin My Heart Around  (04:46) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDAEBF3B87F48F5C428A4D0007144D232AB6445F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124047   (786207) от 09.04.2017
+
+Jonathan Butler - Do You Love Me? (1997) [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786207.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Song for Elizabeth (04:10)
+02 Do You Love Me? (04:34)
+03 The Other Side of the World (04:33)
+04 Life After You (04:43)(   Читать дальше...   )Жанр: Smooth Jazz, SoulПродолжительность: 00:52:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:181B7B5FB2962E8E117B0DF59893C2227ADBB624
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123870   (786202) от 09.04.2017
+
+Blind 'n' Dangerous - In Flames (1995) 2014, Bnd Music Co. [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786202.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gangster (5:26)
+02. Skippin' On The Edge (3:37)
+03. Splinter (4:53)
+04. I Can't Help It (5:42)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:44:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FC9640FB906DB8632345CDB8D47068E5EF0F41B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1123816   (786197) от 09.04.2017
 
 Wes Jeans - Hands On (2000) [FLAC|Lossless|image + .cue] <Blues-Rock>
@@ -511,238 +743,6 @@ Camera Soul - 3 Album (2013 - 2017) [FLAC|Lossless|image + .cue] <Jazz-Pop, Funk
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D12E8CCC68453A62ED78B02DEED82EAE1B50CCD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124279   (785818) от 11.04.2017
-
-Wynton Marsalis - Standard Time Vol. 3 (The Resolution Of Romance) (1990) [FLAC|Lossless|image + .cue] <Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785818.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In The Court Of King Oliver (4:31)
-02. Never Let Me Go (1:46)
-03. Street Of Dreams (4:07)
-04. Where Or When (2:50)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 01:13:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94995AAA04777817EF7DC73CC5C5EE8275B36EC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124348   (785816) от 11.04.2017
-
-Storm Warning - Something Real (2008) [APE|Lossless|image + .cue] <Blues Rock, Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. On The Road   (07:12) 
-02. Hard To Be A Man   (04:57) 
-03. Charlie's Blues   (05:31) 
-04. Blues 101   (05:09) (   Читать дальше...   )Жанр: Blues Rock, Electric BluesПродолжительность: 00:57:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13DC6A464C17C17F90ECB1D64D00448A6166D37E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124436   (785814) от 11.04.2017
-
-Storm Warning - Breaking Out (2005) [APE|Lossless|image + .cue] <Blues Rock, Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bullets  (06:15) 
-02. The Woman ? or the Blues?  (04:26) 
-03. Dangerous Mood  (06:23) 
-04. Long Grey Mare  (05:42) (   Читать дальше...   )Жанр: Blues Rock, Electric BluesПродолжительность: 00:50:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBA65DAD9514F687C3CC591FD778043B266EE93B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124266   (785813) от 11.04.2017
-
-John Abercrombie, Ralph Towner - Sargasso Sea (1976) [FLAC|Lossless|image + .cue] <Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785813.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fable (8:41)
-02. Avenue (5:19)
-03. Sargasso Sea (4:00)
-04. Over And Gone (2:51)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:41:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D65FD91F4975051B289F85045AEE499BDE7B73A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124364   (785811) от 11.04.2017
-
-Bunny Brunel & Friends - Bass Ball (2017) [FLAC|Lossless|image + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785811.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nothing But The Bass [04:42]
-02. Slap & Tickle [05:21]
-03. Stand Out [05:19]
-04. Lopsy Lu [06:14](   Читать дальше...   )Жанр: JazzПродолжительность: 01:05:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01F516ABEF4238F97AEB899E9450B75F52A3FA37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124377   (785810) от 11.04.2017
-
-Jay Jesse Johnson - Set The Blues On Fire (2015) [FLAC|Lossless|image + .cue] <Blues, Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785810.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hell Or High Water (3:54)
-02. Ghosts In Texas (4:21)
-03. Since My Baby's Gone (4:57)
-04. Wheelhouse Boogie (5:03)(   Читать дальше...   )Жанр: Blues, Blues-RockПродолжительность: 00:56:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC6D70F62265F393524B6A13738C3607915B63FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124545   (785805) от 11.04.2017
-
-Joey Gilmore - Brandon's Blues (2015) [FLAC|Lossless|image + .cue] <Chicago Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785805.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good Thing Go Bad   (04:19) 
-02. Cheaper To Keep Her  (05:18) 
-03. Brandon's Blues  (04:29) 
-04. Somebody Have Mercy  (04:13) (   Читать дальше...   )Жанр: Chicago BluesПродолжительность: 00:52:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16EAC420B00285E721DD08394266E1F94EDCBC87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124372   (785791) от 11.04.2017
-
-The Hot 8 Brass Band - On the Spot (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Funk, New Orleans Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785791.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 8 Kickin' It Live (7:09)
-02. Get It How You Live (6:39)
-03. Bottom Of The Bucket (6:49)
-04. On The Spot (5:32)(   Читать дальше...   )Жанр: Funk, New Orleans JazzПродолжительность: 01:09:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F3BADF876F7D11FC40C1597AA55EEDC4A9020B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

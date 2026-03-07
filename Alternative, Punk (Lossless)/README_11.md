@@ -1,3 +1,32 @@
+###  Публикация: 1002856   (841868) от 04.04.2016
+
+Bootleg Rascal - Asleep In The Machine (2016) [FLAC|Lossless|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_841868.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Head in the Clouds
+02. Oh I Know
+03. Holding On
+04. Asleep in the Machine(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:43:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4C2268D1ACA1424EF7CD549744F7951A1D44116
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1112478   (841535) от 09.03.2017
 
 The Shins - Heartworms (2017) [FLAC|Lossless|tracks + .cue] <Indie Rock>
@@ -716,35 +745,6 @@ Ice Nine Kills - Welcome To Horrorwood: The Silver Scream 2 (2021) [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F29FAB1DE68961BA615482CF64F197C42EF5077
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006722   (825392) от 13.04.2016
-
-Weezer - Weezer (White Album) (2016) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Punk, Power Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. California Kids (3:25)
-02. Wind Of Our Sail (2:53)
-03. Thank God For Girls (3:30)
-04. (Girl We Got A) Good Thing (3:25)(   Читать дальше...   )Жанр: Rock, Alternative Rock, Punk, Adult Alternative, Power PopПродолжительность: 00:34:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D7AEC179C5F206233EDDBAA0E3D3082233B4AD9
 ```
 
 https://mybot314.ru/tekegram_catalog/

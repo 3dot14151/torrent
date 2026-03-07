@@ -1,3 +1,179 @@
+###  Публикация: 1038473   (606196) от 28.07.2016
+
+Bryan Adams - Reckless (1984) 2014, A&M [DTS-HD MA, LPCM, Dolby TrueHD 2.0, 5.1|96/24|Blu-ray] <Rock, Pop Rock, Soft Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Blu-ray Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_606196.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stereo Mix 2014 - Remaster
+  5.1 Mix - Original album
+01. One Night Love Affair
+02. She's Only Happy When She's Dancin'(   Читать дальше...   )Жанр: Rock, Pop Rock, Soft Rock, Hard RockПродолжительность: 01:04:11 + 00:37:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C17EC9358DFC0B9F6F8BB89AE6D7DEE208AD76B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546483   (606113) от 24.04.2022
+
+VA - Старинные вальсы (1983) [FLAC 1.0|96/24|tracks|Vinyl-Rip] <Folk>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_606113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Хор Московских Студентов - Амурские Волны
+(слова народные)
+Худ. рук. В. Соколов
+02. Хор Московского Городского Управление Трудовых Резервов - Березка(   Читать дальше...   )Жанр: FolkПродолжительность: 00:13:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C240B8BDB80E89D342FB1C3A1C4F73B7104DCF9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038340   (606068) от 28.07.2016
+
+Bon Jovi - Slippery When Wet (1986) 2015,  Mercury [DTS-HD MA, Dolby TrueHD 5.1|96/24|BD-Audio] <Hard Rock, Glam Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Blu-ray Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_606068.jpg" />
+</div>
+
+
+###  Подробнее
+
+Slippery When Wet — третий студийный альбом группы Bon Jovi, выпущенный в августе 1986 года на Vertigo Records. Альбом включает в себя песни, которые сейчас считаются самыми известными песнями Bon Jovi, например «You Give Love a Bad Name», «Livin' on a Prayer» и «Wanted Dead Or Alive». Альбом провёл восемь недель на 1 месте The Billboard 200.
+
+Slippery When Wet является (   Читать дальше...   )01. Let It Rock
+02. You Give Love A Bad Name
+03. Livin' On A Prayer
+04. Social Disease(   Читать дальше...   )Жанр: Hard Rock, Glam MetalПродолжительность: 00:46:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DAB18CE42DE92A5A0606CD96ADA91A48D5EA4E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038353   (606058) от 28.07.2016
+
+George Michael - Symphonica (2014) [DTS-HD MA, LPCM, Dolby TrueHD 2.0|96/24|BD-Audio] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Blu-ray Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_606058.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Through
+02. My Baby Just Cares For Me
+03. A Different Corner
+04. Praying For Time(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A66957B1ECBB571D882CEDB7FC5B879B99DD9B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1059832   (605809) от 24.04.2022
+
+Трио Леонида Чижика - Джордж Гершвин: Популярные Мелодии (1978) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Post Bop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_605809.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Лебедь
+02. Не Для Меня
+03. Присмотри За Мной, Мой Пастушок
+04. Будьте Добры(   Читать дальше...   )Жанр: Jazz, Post BopПродолжительность: 00:40:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F8FD220B73130F0574CC2BD6F4AE5083DEE0A4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1059823   (605808) от 24.04.2022
+
+Sy Oliver/Сай Оливер - Только Для Танцоров (1990) Переписи с пластинок 1940-х годов [FLAC 1.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Big Band, Swing>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_605808.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Только Для Танцоров
+02. Четыре Или Пять Раз
+03. Ничего, Кроме Любви
+04. Шарманщик(   Читать дальше...   )Жанр: Jazz, Big Band, SwingПродолжительность: 00:44:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E54A5A8CB9938DBFD862DCBF68C914F74853E951
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1059782   (605675) от 24.04.2022
 
 Олег Газманов, Родион Газманов - Эскадрон (1991) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop>
@@ -571,180 +747,6 @@ A4 Tell Me When The Whistle Blows(   Читать дальше...   )Жанр: C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F52221C668449D2F6388AB942984951CCC20E3AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298844   (601561) от 29.04.2019
-
-Bad Boys Blue - Super 20. Greatest Hits (1995) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Electronic, Synth-pop, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601561.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. You're A Woman
-02. I Wonna Hear Your Heartbeat (Sunday Girl)
-03. A World Without You (Michelle)(   Читать дальше...   )Жанр: Electronic, Synth-pop, DiscoПродолжительность: 01:14:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB03C6BC398D09687432ECC0BED1F22DC13E89E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 686920   (601259) от 06.08.2013
-
-Melody Gardot - 3 Альбома (2008-2012)[FLAC 2.0 24/96|image (Vinyl-Rip)]<Jazz, Easy listening>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601259.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mira
-02. Amalia
-03. So Long
-04. So We Meet Again My Heartache(   Читать дальше...   )Жанр: Jazz, Easy listening |Продолжительность: 00:43:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:842F7247551AACCB6C88176ABB74324705A3A885
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 686820   (601064) от 06.08.2013
-
-БГ - Живьем в Темяшкинхолле (1982) [FLAC 2.0 24/192|image (OpenReel-Rip)]<Singer/Songwriter>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_601064.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Стучаться в Двери Травы (3:06)
-02. Опираться о Платан (4:13)
-03. Десять Прекрасных Дам (4:31)
-04. Сторож Сергеев (2:57)(   Читать дальше...   )Жанр: Singer/SongwriterПродолжительность: 01:13:31
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547993   (601023) от 01.05.2022
-
-Frankie Laine - Frankie Laine's Greatest Hits (1975) Compilation [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601023.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 I Believe
-A2 Your Cheatin' Heart
-A3 Jalousie
-A4 That's My Desire(   Читать дальше...   )Жанр: PopПродолжительность: 00:23:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FF9E1DB1D9DCE6078A9FD746E47BC0C13154C04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152515   (599863) от 02.05.2022
-
-Karat - Schwanenkönig (Schwanenkonig) (1980) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599863.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Tanz Mit Der Sphinx
-A2 Mitternacht-Blues
-A3 Magisches Licht
-A4 Der Boxer(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:44:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C498842D7398C7EAA03C7A1CCE58F37006DACF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150936   (599858) от 02.05.2022
-
-Ольга Пирагс - Спасибо, Музыка, Тебе (1984) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599858.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Два Стрижа
-02. По Коням
-03. Дождевые Кольца
-04. Не Забыть Нам(   Читать дальше...   )Жанр: Jazz, PopПродолжительность: 00:37:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C72EBB761AEF6F73201CE9988F99C5CCB97E8FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

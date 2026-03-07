@@ -1,3 +1,38 @@
+###  Публикация: 573821   (378423) от 11.11.2012
+
+Ariel Pink's Haunted Graffiti - Mature Themes (2012) [MP3|320 кб/с]<Psychedelic>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_378423.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kinski Assassin (2:59)
+02. Is This the Best Spot? (1:47)
+03. Mature Themes (2:47)
+04. Only in My Dreams (3:12)
+05. Driftwood (4:22)
+06. Early Birds of Babylon (5:15)
+07. Schnitzel Boogie (4:35)
+08. Symphony of the Nymph (4:35)
+09. Pink Slime (2:11)
+10. Farewell American Primitive (2:55)(   Читать дальше...   )Жанр: PsychedelicПродолжительность: 00:55:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C570A4DE9E892EB884D12A6A2D822CC073317FFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 949384   (377416) от 23.10.2015
 
 VA - MOJO Presents. Let It Be. Revisited (tribute) (2010) [MP3|320 кб/с]<Classic Rock>
@@ -722,35 +757,6 @@ Rikk Eccent - Black Halo (2020) [MP3|320 Kbps] <Progressive Rock, Crossover Prog
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20FFBD5C39C3E5382C8E89A75A28DBD8698D35A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069583   (371311) от 05.11.2016
-
-Antimatter - Welcome to the Machine / Too Late (2016) [MP3|320 Kbps] <Psychedelic Atmospheric Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371311.jpg" />
-</div>
-
-
-###  Подробнее
-
-01| Welcome to the Machine   (06:40) 
-  02| Killer (Live)   (05:21) 
-  03| Redemption (Live)   (07:26) 
-.Жанр: Psychedelic Atmospheric Rock |Продолжительность: 00:33:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E026C782EADB2BF2574DF9E3869D3B55D5AF2C23
 ```
 
 https://mybot314.ru/tekegram_catalog/

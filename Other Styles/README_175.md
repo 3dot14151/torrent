@@ -1,3 +1,32 @@
+###  Публикация: 1810815   (16840) от 07.08.2025
+
+Alabama - In Pictures (1995) [FLAC|Lossless|tracks + .cue] <Folk, Country Rock, Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_16840.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunday Drive    [0:02:31.68]
+02. She Ain't Your Ordinary Girl    [0:03:08.40]
+03. My Love Belongs to You    [0:03:35.00]
+04. I've Loved a Lot More Than I've Hurt    [0:03:13.32](   Читать дальше...   )Жанр: Folk, Country Rock, RockПродолжительность: 00:38:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63E5DEC3DD07F3C92C5E3E8DAC33E8D8FBE5AD3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1810838   (16723) от 07.08.2025
 
 VA - Pioneer LaserActive - The Art Of Entertainment - Private Music Sampler (1993) [FLAC|Lossless|tracks + .cue] <Jazz, Rock, Funk / Soul, Blues, Pop, Folk>

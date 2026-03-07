@@ -1,3 +1,32 @@
+###  Публикация: 1554452   (575764) от 31.05.2022
+
+Vartra - Basma (2022) [FLAC|Lossless|WEB-DL|tracks] <Dark Folk, Ethereal, Doom Metal>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_575764.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Aina [00:05:54]
+02 - Jerovine [00:06:01]
+03 - Inanna [00:04:41]
+04 - Hajd u Kam [00:05:13](   Читать дальше...   )Жанр: Dark Folk, Ethereal, Doom MetalПродолжительность: 00:46:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB36687E5C7E950E8FC7DFE524A19C431B43A864
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 921210   (575419) от 25.07.2015
 
 Ennio Morricone - Allonsanfan (1978) [FLAC|image+.cue]<OST>
@@ -730,34 +759,6 @@ Angel X (Andy Jonas) - 8 Relises (1993-2021) [FLAC|Lossless|WEB-DL|tracks|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA4F757954FCF4EC42D70BDA43A35BF134467074
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555393   (570244) от 03.06.2022
-
-Olga Stankevich - Дискография (2010-2014) [FLAC|Lossless|WEB-DL|tracks] <Instrumental Pop, Piano>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570244.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inspiration (3:40)
-02. Inspiration (Justin Fry Extended Club Mix) (6:14)
-03. Inspiration (Justin Fry Radio Edit) (4:00)Жанр: Instrumental Pop, PianoПродолжительность: 02:00:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A2F6C47C00312DEEA287EDD248BD55C346DC2A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

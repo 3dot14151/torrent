@@ -1,3 +1,38 @@
+###  Публикация: 591609   (136486) от 19.12.2012
+
+Roberto & Bobby Schnitzer - Lifescapes: Spanish Escape (2012) [MP3|320 кб/с]<Instrumental, Flamenco, Acoustic guitar>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_136486.jpg" />
+</div>
+
+
+###  Подробнее
+
+(4:21) 01. Voice of the Wind
+(5:00) 02. Fly Away
+(4:10) 03. The Travelers Moon
+(5:14) 04. Dreams Of Spain
+(4:51) 05. Passion Flower
+(4:17) 06. Spanish Skies
+(4:35) 07. Sky Dance
+(2:48) 08. Magenta Mornings
+(2:14) 09. Daydream In Madrid
+(4:17) 10. Sunspots(   Читать дальше...   )Жанр: Instrumental, Flamenco, Acoustic guitarПродолжительность: 01:01:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F437E7EC0540DB15FDF8E7CFFC6FD7313B145F10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 591095   (136202) от 20.12.2012
 
 The Simpsons - In The Key Of Springfield (1997) [MP3|320 кб/с] <OST>
@@ -779,35 +814,6 @@ Lauluyhtye Rajaton - Nova (2001) [FLAC|Lossless]<A Capella, Harmonic Voices>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F82F0553C0B0D62161EEA6B09C7DCC58F0BE1C50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684060   (127854) от 15.12.2023
-
-VA - Doggy Style: Sexy Chillout Beats (2023) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127854.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj Chillout Sensation - Unzip My Mind (3:02)
-02. Sexy Chillout Music Cafe - Wicked Desire (1:59)
-03. Dj Chillout Sensation - Doggy Style (2:13)
-04. Sexy Chillout Music Cafe - Ride to Ecstasy (2:39)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:54:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89D0A0431F6559EE968D348E5BA20B748AF8D044
 ```
 
 https://mybot314.ru/tekegram_catalog/

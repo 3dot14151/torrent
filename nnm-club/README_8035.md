@@ -1,25 +1,22 @@
-###  Публикация: 1022420   (729036) от 02.06.2016
+###  Публикация: 1530142   (730777) от 09.02.2022
 
-Футбол. Товарищеский матч. Ирландия - Беларусь (31.05.2016) HDTVRip [H.264/720p-LQ] [EN]
+Haitai Nanafa | Привет Нанафа [ТВ-1] [2012, TV, 13 эп.] BDrip 720p raw 10-bit
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729036.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_730777.jpg" />
 </div>
 
 
 ###  Подробнее
 
-31 мая 2016, вторник. 21:45 МСК
-Товарищеские матчи 1
-
-Стадион: Тернерз Кросс (Корк, Ирландия) , 7 200 зрителей (96 % при вместимости 7 485)(   Читать дальше...   )Телекомпания: Setanta 1 HDЖанр: СпортЯзык озвучки: АнглийскийПродолжительность: 01:55:38
+Главная героиня – ученица средней школы Нанафа Кьян. Она живёт на Окинаве с бабушкой, держащей небольшой ресторанчик, и двумя сёстрами – красавицей-старшеклассницей Нао и младшей Коконой, ученицей начальной школы, которая умеет чувствовать присутствие всякой паранормальщины. В один прекрасный день Нанафа становится свидетельницей того, как с древнего дерева спадает (   Читать дальше...   )Жанр: комедияРежиссер: Кимура Хироси / Kimura Hiroshi / 木村寛Продолжительность: 13 серий по 3 мин.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2AF80D3C8656856F4F808CB0286023E82EEC8AAF
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +24,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022612   (729035) от 02.06.2016
+###  Публикация: 1529997   (730776) от 09.02.2022
 
-Футбол. Товарищеский матч. Польша - Голландия (01.06.2016) HDTVRip [H.264/720p-LQ]
+Madeleine Peyroux – Half The Perfect World (2006) 2008 [DSD128 2.0|tracks|Vinyl-Rip] <Jazz>
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729035.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730776.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 июня 2016, среда. 21:45 МСК
-Товарищеские матчи 1
-
-Стадион: PGE Арена Гданьск (Гданьск, Польша) , вместимость: 43615(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский (Сергей Кривохарченко, Роман Трушечкин) / ИнтершумПродолжительность: 01:32:00
+01. I'm Allright (3:27)
+ 02. Summer Wind (3:56)
+ 03. Blue Alert (4:11)
+ 04. Everybody's Talking (5:10)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:49:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:170316AB299E599BF96065D40DDD715F5510571A
+magnet:?xt=urn:btih:27F1EEF69DD3F4DDE3910F40BFE4D2F86CDE9D9B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,202 +53,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022614   (729034) от 02.06.2016
+###  Публикация: 1529904   (730775) от 09.02.2022
 
-Хоккей. НХЛ 2015-2016. Плей-офф. Кубок Стэнли. Питтсбург - Сан Хосе. 2-й матч (01.06.2016) HDTVRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729034.jpg" />
-</div>
-
-
-###  Подробнее
-
-02 июня 2016, четверг. 03:00 МСК
-Кубок Стэнли. 2-й матч
-
-Стадион: Консоль Энерджи-центр (Питтсбург, США) , 18 655 зрителей (100 % при вместимости 18 656)(   Читать дальше...   )Телекомпания: Игра HDЖанр: СпортЯзык озвучки: Русский (Александр Хаванов, Александр Ткачев)Продолжительность: 02:10:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B53705A12C121644FE68B95D37677B354858A065
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022637   (729033) от 02.06.2016
-
-Muska - Artist Focus 57 (2016) [MP3|320 кб/с] <Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729033.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Muska - Uhne (Original Mix) (07:42)
-02. Muska - Aropax (Original Mix) (07:34)
-03. Muska - From The Block (Original Mix) (06:32)
-04. Muska - Insight (Original Mix) (06:09)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:23:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:816E2355AAA436A72AC35C8BE0BF4841C9B30CC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022512   (729032) от 02.06.2016
-
-VA - Progressive House & Trance Vol 4 (2016) [MP3|320 кб/с] <Trance, Progressive, House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729032.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 12Saturnus - Thats Me (3:24)
-02. Akit_ Lab - Red Sunrise (6:08)
-03. Alex Ch_ - Hurricane (3:04)
-04. Alex Greenhouse - Rain (3:32)(   Читать дальше...   )Жанр: Trance, Progressive, HouseПродолжительность: 02:32:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:699C26A49B1B9DD13007CF606369431DB3B67CCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022401   (729031) от 02.06.2016
-
-Футбол. Чемпионат Европы 1996. Финал. Чехия - Германия (30.06.1996) HDTVRip [H.264/720p-LQ] (2016)
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729031.jpg" />
-</div>
-
-
-###  Подробнее
-
-Телеканал Матч ТВ в преддверии Евро 2016 предлагает вспомнить лучшие матчи прошлых чемпионатов Европы.
-
-30 июня 1996 года.
-Лондон. Стадион "Уэмбли". 73 611 зрителей.(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский (Геннадий Орлов и Олег Жолобов)Продолжительность: 01:57:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB8AFA507D5530AE98E86774447C3EA423B35B4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022526   (729030) от 02.06.2016
-
-Herb Ellis & Joe Pass - Seven, Come Eleven (1973) Remaster, 2014, Universal[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729030.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.In A Mellow Tone [07:35]
- 02.Seven, Come Eleven [05:10]
- 03.Prelude To A Kiss [05:36]
- 04.Perdido [04:53](   Читать дальше...   )Жанр: Mainstream Jazz, BopПродолжительность: 00:41:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1288A03681B6286835E05C05FFBFF6BB3A086FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022613   (729029) от 02.06.2016
-
-Cedar Walton Trio - Cedar Walton (1985) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729029.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Third Street Blues [07:14]
- 02.Magical Lady [07:33]
- 03.Short Comings [05:45]
- 04.Voices Deep Within [08:52](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:41:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C84B0C2E1779DFBB2C81ED39D9D9FE7F8BC1D866
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530541   (729028) от 11.02.2022
-
-VA - Maretimo Chill Radio - Best of Vol. 1 - Positive Summer Vibes (2022) [AAC|~332 Kbps] <Lounge, Chill Out, Downtempo>
+Enigma - Le Roi est mort, vive le Roi! (1996) [AAC|~320 Kbps] <Electronic, Downtempo, Experimental>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729028.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730775.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. In Credo - Siesta Del Sol (Laid Back Summer Remastered Cut) (4:58)
-02. Cafe Americaine - Solitude Charmante (Level One Remastered Mix) (4:21)
-03. Miss Lopez - Jeso Creadu (Paraiso Verda Mix) (5:32)
-04. Vladi Strecker - Over the Sea (Island Sounds Deluxe Remastered Mix) (7:15)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:38:20
+01. Le Roi est mort, vive le Roi! (1:58)
+02. Morphing Thru Time (5:48)
+03. Third of Its Kind (0:19)
+04. Beyond the Invisible (5:00)(   Читать дальше...   )Жанр: Electronic, Downtempo, ExperimentalПродолжительность: 00:45:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AF690E4102D45CCE0F012B17253BFB8F2BC2B1C3
+magnet:?xt=urn:btih:2518CCCFFA6978CC63110F60427847EEE7EE6C33
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -259,27 +82,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530525   (729027) от 11.02.2022
+###  Публикация: 1530139   (730774) от 09.02.2022
 
-Хоккей. НХЛ 2021-2022. Вашингтон Кэпиталз - Монреаль Канадиенс (10.02.2022) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
+VA - Winter Acoustic 2022 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 
->>Спорт и активный отдых
->>Хоккей
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729027.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730774.jpg" />
 </div>
 
 
 ###  Подробнее
 
-11 февраля 2022, пятница. 03:00 МСК
-Стадион: Белл-центр (Монреаль, Канада), 500 зрителей (2% при вместимости 21 302)
-Главный судья: Кайл Реман (Стеттлер, Канада); Главный судья: Грэм Скиллитер (Ла Ронж, Канада)Телекомпания: NBCS-WAЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:41:07
+01. Rhys Lewis - The Sun Will Rise (3:03)
+02. Mipso - Hey, Coyote (3:35)
+03. Bear's Den - Berlin (4:29)
+04. Andrew Bird - Andalucia (3:32)(   Читать дальше...   )Жанр: PopПродолжительность: 02:08:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4466B81F6170809B1CC9FFC8D7C2FD3CFFCF5726
+magnet:?xt=urn:btih:A314187C91A494932EB3772AAF21D9CC21C7A27F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -287,28 +111,310 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530432   (729026) от 11.02.2022
+###  Публикация: 1529905   (730773) от 09.02.2022
 
-Woe Unto Me - Spiral-Shaped Hopewreck (2021) EP [FLAC|Lossless|image + .cue] <Melodic Doom, Death, Progressive Metal>
+Enigma - The Screen Behind the Mirror (2000) [AAC|~317 Kbps] <Electronic, New Age, Ambient>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730773.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Gate (2:04)
+02. Push the Limits (6:27)
+03. Gravity of Love (3:59)
+04. Smell of Desire (4:57)(   Читать дальше...   )Жанр: Electronic, New Age, AmbientПродолжительность: 00:43:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:376B9113309A80D1979F34F4D19412236653E1EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1529895   (730772) от 09.02.2022
+
+Cafe De Anatolia, Stephane Salerno, Jack Essek - Ethno World 2 (2020) [AAC|~313 Kbps] <Chill Out, Downtempo, Organic House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jack Essek, Stéphane Salerno - Yanarim (7:06)
+02. Jack Essek, Stéphane Salerno - Reshetka (7:34)
+03. Jack Essek, Stéphane Salerno - Sajanna (7:34)
+04. Jack Essek, Stéphane Salerno - Nizami (9:05)(   Читать дальше...   )Жанр: Chill Out, Downtempo, Organic HouseПродолжительность: 01:57:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DCC66C9864F42D21EF7B8666FA86048F47B22A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530055   (730771) от 09.02.2022
+
+Наперегонки со временем / Chu Bao / Caught in Time (2020) BDRip [DVO]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730771.jpg" />
+</div>
+
+
+###  Подробнее
+
+Детектив Чжун Чэн руководит оперативной группой по поимке «Орла» - преступной группировки, возглавляемой Чжан Сунем. Раз за разом членам банды удается ускользнуть после ограблений. Десять лет спустя, когда необходимость обезвредить «Орла» становится еще более актуальной, Чжун Чэн узнает, что его время почти на исходе.Производство: Гонконг, Китай, Emperor Movie Group, Lian Ray PicturesЖанр: Криминал, драма, боевикРежиссер: Лау Хо-ЛюнАктеры: Ван Цяньюань, Дэниэл Ву, Чунь Ся, Мишель Вай, Да Ли, Юй Сяо, Ху Цзычэн, Ли Сяочуань, Цзюньцзя Хун, Рок Цзи, Данте Пан, Да ЮвэйПеревод: Двуголосый любительский (Творческое объединение «Храм тысячи струн»)Субтитры: Английские - отдельным файлoмПродолжительность: 01:34:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FD71F2701AE098F7C674C32FB60F1EE9D2D4616
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1529756   (730770) от 09.02.2022
+
+Комбинация - Московская прописка (1991) [AAC|~342 Kbps] <Pop>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_730770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Увертюра (Марш юных "Комбинаторов") (2:17)
+02. Московская прописка (3:42)
+03. Тайное признание комсомолки Зоси (0:37)
+04. Матушка-Россия (4:03)(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:33
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530101   (730769) от 09.02.2022
+
+Kælan Mikla (Kaelan Mikla) - Gloomy Poetry & Darkwave (2016-2021) (Compilation Album) Неофициальный сборник от Yuridar [MP3|320 Kbps] <Darkwave, Gothic Rock, Post-Punk>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730769.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kalt
+02. Glimmer Og Aska
+03. Lítil Dýr
+04. Næturdætur(   Читать дальше...   )Жанр: Darkwave, Gothic Rock, Post-PunkПродолжительность: 00:57:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADDA606581BC786DDC220419D23D0C7647B34727
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530090   (730768) от 09.02.2022
+
+VA - Music News vol.165 (2022) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_730768.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ella Lefterova feat. Katerina Fetisova - Таю-Таю (03:14)
+ 02. Adon Mix - Лунный Яд (02:02)
+ 03. AlbertOG - Траблы (01:41)
+ 04. Alfie Templeman - Broken (03:13)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 03:25:31
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530146   (730767) от 09.02.2022
+
+Mozilla Thunderbird 91.6.0 [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730767.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mozilla Thunderbird –  легкая и безопасная бесплатная программа для работы с электронной почтой. Thunderbird дает большой потенциал для удобной обработки электронных сообщений, позволяет управлять большим списком контактов и производить множество других операций. В Mozilla Thunderbird присутствует мощнейший спам - фильтр, который можно обучать в процессе работы с (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99E0F562D58D5FA61DEDB54EE5E48A237B220DEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530162   (730766) от 09.02.2022
+
+This Ending - Needles Of Rust (2021) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_730766.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Open Wound (3:29)
+02. Annihilate (4:52)
+03. Embraced By The Night (4:46)
+04. Eclipse Of The Dead (4:42)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:42:29
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530141   (730765) от 09.02.2022
+
+SyncBackFree 10.2.4.0 [Multi/Ru]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_730765.jpg" />
+</div>
+
+
+###  Подробнее
+
+SyncBackFree - мощный многофункциональный инструмент для выполнения резервного копирования целых каталогов и папок с возможностью их синхронизации. При этом Вы не ограничены только жесткими дисками компьютера: поддерживается работа с USB-накопителями, оптическими дисками, сетевыми каталогами и даже FTP-серверами.
+В программу встроен планировщик, где расписав удобное (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1529884   (730764) от 09.02.2022
+
+Vysotsky - Vysotsky Sings His Favorites (1982) [AAC|~321 Kbps] <Pop, Chanson, Ballad>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730764.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It Is Not Evening Yet (2:44)
+02. Black Gold (2:48)
+03. Moving Of Souls (2:09)
+04. 07 (2:33)(   Читать дальше...   )Жанр: Pop, Chanson, BalladПродолжительность: 00:51:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5211B680406C6B9246F53793CFD4B004D601BF38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530116   (730763) от 09.02.2022
+
+VA - Трибьют Сергею "Чиж" Чигракову, Vol. 2 (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729026.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730763.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. And every piece of a being was washed away by the (1:11)
-02. Spiral-Shaped Hopewreck (11:31)
-03. Dissolving and then forming a new image, so (0:51)
-04. Sad and Slow (6:07)(   Читать дальше...   )Жанр: Melodic Doom, Death, Progressive MetalПродолжительность: 00:30:14
+1. Несчастный Случай - Hoochie Coochie Man
+2. Cinematic Lady - Пароль
+3. Гансэлло - Глазами и душой
+4. ФОЛАЙФ - Динамовский вальс(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B28FB30587346EAEA56E6B2A4937D9513112A5D9
+magnet:?xt=urn:btih:7175D2974D377F64964BC3B29DAA679BB3F70870
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -316,27 +422,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530518   (729025) от 11.02.2022
+###  Публикация: 1284083   (730762) от 19.02.2019
 
-Хоккей. НХЛ 2021-2022. Питтсбург Пингвинз - Оттава Сенаторз (10.02.2022) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
+Виктория Шваб | Город призраков (2019) [FB2]
 
->>Спорт и активный отдых
->>Хоккей
+>>Художественная литература
+>>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729025.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730762.jpg" />
 </div>
 
 
 ###  Подробнее
 
-11 февраля 2022, пятница. 03:00 МСК
-Стадион: Канадиен Тайр-центр (Оттава, Канада), 500 зрителей (2% при вместимости 20 500)
-Главный судья: Ти Джей Люксмор (Тимминс, Канада); Главный судья: Гарретт Рэнк (Эльмира, Канада)Телекомпания: AT&TЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:50:10
+Первый роман цикла о Кэссиди Блейк.
+
+После того, как Кэссиди чуть не утонула, она научилась приоткрывать завесу, отделяющую мир живых от мира мертвых. Ее лучший друг – призрак. В ее жизни все и так уже непросто, но станет гораздо сложнее, когда ее родители примут участие в телешоу о самых известных местах в мире, связанных со сверхъестественными явлениями.
+(   Читать дальше...   )Жанр: Зарубежное фэнтезиФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E14D49B980569A20F67560AD5BF4FC0E5203D001
+magnet:?xt=urn:btih:02087DA5AD52F543ACD5875E333087499C26C45C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -344,28 +451,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530543   (729024) от 11.02.2022
+###  Публикация: 1284066   (730761) от 19.02.2019
 
-VA - The Soundgarden Winter Collection 2022 (2022) [AAC|~341 Kbps] <Organic House / Downtempo, Progressive House, Melodic House & Techno>
+Виктор Шунков | Военная авиация России (2018) [PDF]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Научная и техническая литература
+>>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729024.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730761.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Bodaishin, RYAN (AR) - Fates (8:12)
-02. Berni Mora - The Forgiveness Garden (8:14)
-03. Larrosa & Gardoqui - Isolation (8:00)
-04. Seiji Niizawa - Konbanwa (8:06)(   Читать дальше...   )Жанр: Organic House / Downtempo, Progressive House, Melodic House & TechnoПродолжительность: 03:11:32
+Подарочное издание, посвященное более чем 100-летней истории русской военной авиации. В книге подробно описывается весь путь развития Военно-воздушных сил России, от создания первых воздухоплавательных и авиационных отрядов до современных Воздушно-космических сил.
+
+Рассмотрены конструкции отечественных и некоторых зарубежных самолетов, на которых сражались русские (   Читать дальше...   )Жанр: Военная авиацияФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8B547F633942EDC3FB5DEB68D63F98927DE92308
+magnet:?xt=urn:btih:DE8AE68374325975BED167BF075CE55BD9EEC870
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -373,28 +479,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530478   (729023) от 11.02.2022
+###  Публикация: 1283878   (730760) от 19.02.2019
 
-VA - Oriental India Chill Lounge - Mystic Buddha Ethnic Cafe Moods (2019) [AAC|~335 Kbps] <Lounge, Chill Out, Downtempo, Ethnic, World>
+Крид 2 / Creed II (2018) WEB-DLRip [H.264] [UKR, EN / Eng Sub]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное кино
+>>Фильмы с переводом на др. языках
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729023.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730760.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Banghra Lounge Voices - Kamasutra in Heaven (5:09)
-02. Buddha Vibes - Summer Breeze in India (Goa Beach Extended Mix) (10:12)
-03. Lahore Dhol Xpress - Ceylon Blend (Singh Style Mix) (4:51)
-04. Bedroom Buddha - Mumbai Nights (Bar Del Mar Cafe Mix) (5:31)(   Читать дальше...   )Жанр: Lounge, Chill Out, Downtempo, Ethnic, WorldПродолжительность: 01:34:19
+Жизнь Адониса Крида превратилась в череду компромиссов. Пока он разрывается между долгом и тренировками к следующему большому бою, судьба готовит ему новую невыполнимую миссию. Будущий противник тесно связан с историей его семьи, что лишь повышает ставки перед предстоящим выходом на ринг. Рокки Бальбоа всегда будет на стороне Крида, и вместе они выйдут на битву с (   Читать дальше...   )Производство: США, Metro-Goldwyn-Mayer (MGM), Warner Bros., New Line CinemaЖанр: Драма, СпортРежиссер: Стивен Кейпл мл.Актеры: Майкл Б. Джордан, Сильвестр Сталлоне, Тесса Томпсон, Филисия Рашад, Дольф Лундгрен, Флориан Мунтяну, Расселл Хорнсби, Вуд Харрис, Майло Вентимилья, Робби ДжонсПеревод: ОтсутствуетЯзык озвучки: Украинский, английский (оригинал)Субтитры: английскиеПродолжительность: 02:09:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8654C81D64A6B1FD3CA9D43D8A577622D13A8D28
+magnet:?xt=urn:btih:FD6C771811A76D34EF7C83AA6602E22FD9DA7C8D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -402,28 +505,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530491   (729022) от 11.02.2022
+###  Публикация: 1284067   (730759) от 19.02.2019
 
-MORTEN - DJ Mag Italy Radioshow (2022-02-02) [MP3|~245 Kbps (V0)] <Electro House>
+Семен Федосеев | Сто и один образец индивидуального боевого оружия. Пистолеты-пулеметы, автоматы, штурмовые винтовки (2017) [PDF]
 
->>Electronic
->>Radioshow, Live Mixes
+>>Научная и техническая литература
+>>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729022.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730759.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. David Guetta & MORTEN - Permanence
-02. Anyma ft. Meg Myers - Running
-03. ARTBAT & Pete Tong ft. Jules Buckley - Age Of Love (ARTBAT Rave Mix)
-04. David Guetta & MORTEN & Roland Clark - Alive Again(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 00:59:04
+Новая стрелковая энциклопедия! Все о лучших образцах индивидуального боевого оружия. Из всего разнообразия образцов в книге представлены, с одной стороны, те, которые сыграли роль этапных в развитии боевого оружия или нашли наиболее широкое применение, с другой – позволяющие оценить разнообразие сфер применения и конструктивных решений оружия.
+
+Рассказ об основных (   Читать дальше...   )Жанр: Военное дело. ОружиеФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D0E24C72BE5153EBB7B357619C10EF060A14862B
+magnet:?xt=urn:btih:AC85A7277759A80540BF34B1C5814CAE121177CF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -431,28 +533,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530546   (729021) от 11.02.2022
+###  Публикация: 1284027   (730756) от 19.02.2019
 
-VA - Urban Grooves (Urban Funk Breaks Dub Hip Hop Beats) (2022) [AAC|~311 Kbps] <Jazz, Nu Jazz, Funk, Electronic, Broken Beat, Dub>
+Питер Джеймс | Абсолютное доказательство (2019) [FB2]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729021.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730756.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. LTJ XPerience, Anduze - Infiltrator (5:26)
-02. DOUT.D - Mathematic (2:28)
-03. Vito Lalinga (Vi Mode inc project) - Get It (4:34)
-04. Anduze - How To Love A Good Man (3:33)(   Читать дальше...   )Жанр: Jazz, Nu Jazz, Funk, Electronic, Broken Beat, DubПродолжительность: 01:58:19
+Всемирно признанный мастер острого сюжета Питер Джеймс писал этот роман почти 30 лет. Потому что это не просто триллер. Это попытка ответа на один из самых важных вопросов в жизни человека. Как изменит нашу жизнь пришествие реального Бога? Ведь быть верующим – это одно, а АБСОЛЮТНО точно знать, что Бог есть, – совсем другое…
+
+А ведь журналист Росс Хантер чуть было (   Читать дальше...   )Жанр: Зарубежные детективы, Мистика, ТриллерыПеревод: Наталья ХолмогороваФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:55BAA83A29490794DC3B31342E50592D0C5E55B3
+magnet:?xt=urn:btih:32C4D890F5BC318D9DD5DD9C9AB5403A8888A3B1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -460,28 +561,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530210   (729020) от 11.02.2022
+###  Публикация: 1283938   (730754) от 19.02.2019
 
-Bireli Lagrene - Electric Side (2008) Dreyfus Jazz [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
+И.Ю. Булкин | Лестницы и перила (2002) [DJVU]
 
->>
->>
+>>Разное (категория книг)
+>>Строительство и ремонт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_729020.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730754.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Hips [5:41]
-02. Incertitude [4:55]
-03. Thimothee [9:21]
-04. Jack Rabbit [2:33](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:57:54
+В этой книге рассказывается о лестницах и перилах - неотъемлемом архитектурном элементе любого современного дома. Подробно и доступно описывается процесс их создания, начиная с выбора материала, подбора инструментов и кончая отделкой и элементами декора. Наряду с уже хорошо зарекомендовавшими себя конструкциями, авторы предлагают читателю нетрадиционные решения, (   Читать дальше...   )Жанр: Строительство, ремонтФормат: DJVU
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:2DAC53FE3D635079ED748B8EDCAE0C282685424D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -489,28 +587,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530373   (729019) от 11.02.2022
+###  Публикация: 1284057   (730752) от 19.02.2019
 
-VA - Latin Flavors, Vol. 1 (Latin Chill Music) (2013) [AAC|~349 Kbps] <Lounge, Chill Out, Bossa Nova>
+Конфуз (2017) WEBRip
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729019.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730752.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Leo de la Rosa - Camino Del Sol (3:38)
-02. Scat - Que Vengo (4:25)
-03. La Estación Del Mar - Qué Bonito (3:59)
-04. Florito - Nambuco (7:15)(   Читать дальше...   )Жанр: Lounge, Chill Out, Bossa NovaПродолжительность: 01:09:30
+История молодого режиссера, которому очень сложно даются съемки постельной сцены.Производство: Россия / CinePromoЖанр: Короткометражный, комедияРежиссер: Ирина БасАктеры: Кирилл Плетнёв, Кристина Казинская, Кирилл Комаров, Елена Караджова, Наталья Иохвидова, Сергей КлимковСубтитры: ОтсутствуютПродолжительность: 00:12:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:745EAE1D6B2C6883FBD2168FA4ACDB6F2A94EA94
+magnet:?xt=urn:btih:E982163393F6B850DA7C4985C5A9DEBFF9C1D08E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -518,25 +613,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530420   (729018) от 11.02.2022
+###  Публикация: 1283929   (730750) от 19.02.2019
 
-Meganebu! | Клуб очкариков [2013, TV, 12 эп.] WEBRip 1080p raw
+Борис Батыршин | К повороту стоять! (2019) [FB2]
 
->>Аниме с субтитрами
->>Аниме (FullHD)
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729018.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730750.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Они – не такие, как все, и таинственное устройство с дужками и стеклами для них вовсе не оптический инструмент, не модный аксессуар и даже не фетиш массовой культуры. Это - знак Пути, высокого предназначения и принадлежности к новому, совершенному человечеству! Именно так думает 17-летний Акира Сома, создавший в Гималайской технической школе «клуб очкариков», который (   Читать дальше...   )Производство: Студия Studio Deen / スタジオディーンЖанр: повседневность, комедияРежиссер: Ямамото СобиПеревод: Наталия ИшоваЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
+Альтернативный вариант Балканской войны 1877-18 годов на море. Британская эскадра на Балтике, попытка прорыва Королевского Флота через занятый русскими Босфор, крейсерская война на просторах мирового океана. Главный герой книги - выпускник Морского Корпуса, мичман с русского монитора «Стрелец» оказывается в самой гуще событий...Жанр: Альтернативная история, Боевая фантастика, ПриключенияФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AD926067D4697C0571913718E3BFAE19061C9FCE
+magnet:?xt=urn:btih:3AABF832726F76F7AEEC312AEB4993896F5981E4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -544,28 +639,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530374   (729017) от 11.02.2022
+###  Публикация: 1283719   (730748) от 19.02.2019
 
-VA - Latin Flavors, Vol. 2 (Latin Chill Music) (2016) [AAC|~340 Kbps] <Lounge, Chill Out, Bossa Nova>
+Я люблю неприятности / I Love Trouble (1994) BDRip [H.264/720p]
 
->>
->>
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_729017.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730748.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dj Pantelis - That Summer (The Balearica Anthem) (4:15)
-02. Leo de la Rosa - Te Pienso (Marga Sol'S Balearic RMX) (4:14)
-03. Zaranda - Blanco (4:52)
-04. Pep Lladó - Vai Vedere (5:47)(   Читать дальше...   )Жанр: Lounge, Chill Out, Bossa NovaПродолжительность: 01:07:28
+Главные герои — конкурирующие журналисты, которые постоянно гоняются за сенсациями и также постоянно нарываются на неприятности. Пытаясь избавиться друг от друга в расследовании таинственной железнодорожной катастрофы, они случайно натыкаются на страшную правду, которая бросает их в объятия страха и … в объятия друг друга. Никогда любовь не была так опасна!Производство: США, Touchstone Pictures, Caravan PicturesЖанр: Боевик, мелодрама, комедияРежиссер: Чарльз ШайерАктеры: Ник Нолти, Джулия Робертс, Сол Рубинек, Джеймс Ребхорн, Роберт Лоджа, Келли Разерфорд, Олимпия Дукакис, Марша Мейсон, Юджин Леви, Чарльз Мартин СмитПеревод: Дублированный, многоголосый, двуголосыйСубтитры: Русские, английскиеПродолжительность: 02:02:52
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:EA7FA84072CFCB6639C89EE5A1CFC2D9F8FE0A62
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -573,28 +665,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530379   (729016) от 11.02.2022
+###  Публикация: 1284058   (730746) от 19.02.2019
 
-VA - Latin Flavors, Vol. 4 (Latin Chill Music) (2020) [AAC|~324 Kbps] <Lounge, Chill Out, Bossa Nova>
+Газета| Азбука вязания №01 (69) (январь 2019) [PDF]
 
->>
->>
+>>Журналы
+>>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_729016.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730746.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Michael e - Mallorcan Soul (Original Mix) (5:19)
-02. Raquel Silva Joly - Dindi (Original Mix) (4:02)
-03. Raquel Silva Joly - Preciso Aprender a Ser So (Original Mix) (6:22)
-04. Artur Bayramgalin - Tangerine Coast (Original Mix) (3:25)(   Читать дальше...   )Жанр: Lounge, Chill Out, Bossa NovaПродолжительность: 01:04:15
+Женщины всегда стремятся быть элегантными и привлекательными. Холодный сезон этому вовсе не помеха. Чтобы образ смотрелся безупречно, важно правильно подобрать каждую деталь, например, модный шарф или бактус.
+Новые модели вязаного гардероба создают не только дизайнеры. Для умеющих держать в руках спицы, связать самостоятельно модный аксессуар не составит большого (   Читать дальше...   )Жанр: вязаниеФормат: PDF
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:AFD2BC3BABC900233E6D777E0CC06EA85468F692
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -602,135 +692,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530377   (729015) от 11.02.2022
+###  Публикация: 1284059   (730744) от 19.02.2019
 
-VA - Latin Flavors, Vol. 3 (Latin Chill Music) (2018) [AAC|~340 Kbps] <Lounge, Chill Out, Bossa Nova>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_729015.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ignacio Fernández - Magic (Original Mix) (4:13)
-02. Nicholas Gunn - Fiesta Patria (Original Mix) (3:14)
-03. Ignacio Fernández - Por Otro Mundo (Original Mix) (3:17)
-04. Groove Gauchos - The Bossa Saloon (Laid Back Mix) (4:37)(   Читать дальше...   )Жанр: Lounge, Chill Out, Bossa NovaПродолжительность: 01:07:37
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530380   (729014) от 11.02.2022
-
-VA - Latin Flavors, Vol. 5 (Latin Chill Music) (2021) [AAC|~336 Kbps] <Lounge, Chill Out, Bossa Nova>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_729014.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bruno Patinho - Minha Namorada (2:59)
-02. Brazil Beat - Walk on By (2:51)
-03. Flor De Lis, Gabrielle Chiararo - La Barca (3:34)
-04. Pierpaolo Borgia Quartet - Pepe (2:58)(   Читать дальше...   )Жанр: Lounge, Chill Out, Bossa NovaПродолжительность: 01:18:11
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022505   (729013) от 02.06.2016
-
-Открытая студия. «Америка хочет войны?»  (01.06.2016) SATRip
+CCleaner Professional 5.53.7034 (Repack & Portable) by elchupacabra [Multi/Ru]
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729013.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730744.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Пентагон снова играет мускулами. Генералы с гордостью докладывают – в США успешно испытали сразу несколько видов нового мощного оружия. Американцы уверены – «Рельсотрон», беспилотный корабль «Морской охотник» и лазерные установки смогут навсегда изменить ход боевых действий. Но вот каких? Ведь принять новинки на вооружение в Штатах надеются в ближайшие 10 лет. Генералы (   Читать дальше...   )Телекомпания: 5 канал, РоссияЖанр: общественно-политическое ток-шоуПродолжительность: 01:12:17
+CCleaner – это программа для ухода за операционной системой. С ее помощью вы сможете удалить все ненужные системные файлы, очистить реестр ОС от накопившегося мусора, следить за автозагрузкой и точками восстановления. CCleaner поможет сделать вашу работу на компьютере эффективнее и быстрее, а также освободить дисковое пространство от временных, поврежденных и просто (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский, Белорусский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7742058E23580316735AA28054F3733667B43EFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022596   (729012) от 02.06.2016
-
-Реваз Инанишвили | Смерть волка (1998) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729012.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказы известного грузинского прозаика остросовременны, посвящены взаимоотношениям человека и природы. Реваз Константинович Инанишвили считает, что основная задача писателя - пробуждать добрые чувства, сеять семена добра. В его рассказах живут мечтатели и мудрецы, смельчаки и балагуры - взрослые и дети,- тонко чувствующие и понимающие наших "братьев меньших".Жанр: Детская прозаПеревод: Александр Эбаноидзе, Аида Абуашвили, Людмила Кравченко и др.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:380920BA92CC24B9B0A289CBD2DD32A46767FA1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022587   (729011) от 02.06.2016
-
-Сергей Баруздин | Тринадцать лет (1968) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729011.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказы для младшего и среднего школьного возраста.Жанр: Детская прозаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D9D1E0E3D461732ECA87C424646986523438701
+magnet:?xt=urn:btih:435FD50046711B683FC776CC95461180D90B7A01
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,5 +1,5 @@
 https://t.me/izofen
-###  Публикация: 1856672   (1059018) от 
+###  Публикация: 1856672   (1059018) от 01.03.2026
 
 Paul Mauriat - Les grandes musiques de films (1973) [FLAC 24/192|Lossless|WEB-DL|tracks] <Instrumental>
 
@@ -28,7 +28,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856699   (1058998) от 
+###  Публикация: 1856699   (1058998) от 01.03.2026
 
 Paul Mauriat - Plays The Beatles (1972) [FLAC 24/192|Lossless|WEB-DL|tracks] <Instrumental>
 
@@ -57,7 +57,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856526   (1058980) от 
+###  Публикация: 1856526   (1058980) от 01.03.2026
 
 Phil Vassar - Shaken Not Stirred (2004) [FLAC|Lossless|tracks + .cue] <Folk, World, & Country>
 
@@ -166,6 +166,35 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:123F85C0DAD948063B1312016D0F18521000534A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854432   (1057296) от 18.02.2026
+
+VA - The Greatest Love Songs From The Musicals (1995) [FLAC|Lossless|tracks + .cue] <Stage & Screen, Musical>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1057296.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. John Barrowman - Love Changes Everything (Aspects Of Love) (3:03)
+02. Valerie Masterson - Hello Young Lovers (King And I) (3:15)
+03. Henry Wickham - On The Street Where You Live (My Fair Lady) (2:29)
+04. Josephine Barstow - As Long As He Needs Me (Oliver) (4:18)(   Читать дальше...   )Жанр: Stage & Screen, MusicalПродолжительность: 00:42:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A28901FA4C5FE66327657E260BC8D8C1FE51B886
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -712,35 +741,6 @@ Era - The Very Best Of (2004) [OGG Vorbis|480 Kbps] <Rock, Pop, Classical>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97B6CFB194865C537A764E426E974E68A23FB07D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607598   (1043899) от 27.01.2023
-
-Земфира & Дмитрий Емельянов - CACTUS (2023) [MP3|320 Kbps] <OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043899.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Земфира - Cказка.начало
-2. Земфира - Превращение
-3. Дмитрий Емельянов - Минус
-4. Дмитрий Емельянов - Радио(   Читать дальше...   )Жанр: OSTПродолжительность: 00:23:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F37EB59B9AD5F7E74541ACC01553196C91C0D01
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1221867   (691264) от 26.04.2018
+
+Foreigner - With the 21st Century Symphony Orchestra & Chorus (2018) Live [MP3|320 Kbps] <Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_691264.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Overture (Live)
+2. Blue Morning, Blue Day (Live)
+3. Cold as Ice (Live)
+4. Waiting for a Girl Like You (Live)(   Читать дальше...   )Жанр: Rock, AORПродолжительность: 01:19:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DBE0E74D660094523CD9DCEFD6B5059316BA60D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1221872   (691263) от 26.04.2018
 
 God Is an Astronaut - Epitaph (2018) [MP3|320 Kbps] <Post-Rock>
@@ -722,41 +751,6 @@ Bryan Adams - So Happy It Hurts (2022) [MP3|320 Kbps] <Pop Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5EDC4231D12336703823C5526EAA3871365D060
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 508302   (677184) от 11.06.2012
-
-VA - Absolute Rock (2012) [MP3|320 кб/с]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_677184.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Coldplay - Paradise
-2. Nickelback - Lullaby
-3. Dead By April - Mystery
-4. Takida - You Learn
-5. Walk Off The Earth - Somebody That I Used To Know
-6. Sons Of Midnight - The Fire
-7. Train - Drive By
-8. Daughtry - Crawling Back To You
-9. The Fray - Heartbeat
-10. Seether - Tonight(   Читать дальше...   )2012Жанр: RockПродолжительность: 01:17:08
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

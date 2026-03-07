@@ -1,3 +1,32 @@
+###  Публикация: 1668634   (173341) от 13.10.2023
+
+VA - Love & Passion: The Sexiest Tantric Sensual Music for Sex (2023) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Easy Listening, Jazz>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_173341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Neo Tantra - Sensual Mood (4:05)
+02. Erotic Massage Music Ensemble - Slow Hands (3:14)
+03. Erotic Music Zone - Temple of Love (3:14)
+04. Neo Tantra - Into Ecstasy (3:00)(   Читать дальше...   )Жанр: Instrumental, Easy Listening, JazzПродолжительность: 00:54:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB45D998F78F0223C2DD5EDDF34989013969BC7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1668923   (172829) от 16.10.2023
 
 Nytt Land - Torem (2023) [FLAC|Lossless|WEB-DL|tracks] <Dark Folk, Ambient>
@@ -715,35 +744,6 @@ Shinnobu - The Enigma VI (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Relax>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA7DA0708B56CE47E74DAF567A53A0ECA55DCFA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344634   (167218) от 14.12.2019
-
-Shinnobu - The Enigma VII (Star Seeds) (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Neo-Classical>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167218.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Indigo (5:14)
-02. By Peace (5:05)
-03. Awakening Within Me (5:57)
-04. Like a Shadow (6:10)(   Читать дальше...   )Жанр: New Age, Neo-ClassicalПродолжительность: 01:03:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4A2B34A9C564413EA20B53CE2BBAAFD57069002
 ```
 
 https://mybot314.ru/tekegram_catalog/

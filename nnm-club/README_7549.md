@@ -1,167 +1,25 @@
-###  Публикация: 1281486   (750012) от 09.02.2019
+###  Публикация: 1018999   (752331) от 22.05.2016
 
-Tobias Sammet's Avantasia - More Moonglow - The Rock Hard EP (2019) [FLAC|Lossless|image + .cue] <Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750012.jpg" />
-</div>
-
-
-###  Подробнее
-
-[3:56] 01 - Moonglow
-[11:12] 02 - The Raven Child
-[11:32] 03 - The Scarecrow (Live At Wacken 2014)
-[7:12] 04 - Babylon Vampyres (Demo Version 2015)(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:45:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAFF40DED694C9D6C63BBC3E9B3E776E3A425421
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281654   (750011) от 09.02.2019
-
-Morph Age 4.3.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750011.jpg" />
-</div>
-
-
-###  Подробнее
-
-Morph Age Pro мощный инструмент для высококачественного морфинга и варпинга(деформации) цифровых изображений и видеофрагментов для Mac OS X.
-Результаты работы с программой могут быть сохранены в виде видеоролика. Программа позволяет плавно регулировать изменения изображения с помощью направляющих кривых. Версия PRO может работать с видео, в то время как стандартная (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.02.2019Разработчик: Creaceed SPRLПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAD53621A598515624CCF072341908E9324073D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281522   (750010) от 09.02.2019
-
-Ernesto Cortazar - Concertos Vol. I (2012) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Modern Classical, Romantic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750010.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sol'itude (Concerto) (11:01)
- 02. Leaves In The Wind (Concerto) (9:30)
- 03. Beethoven's Silence (Concerto) (9:54)
- 04. Nights Of Silk And Tears (Concerto) (10:10)(   Читать дальше...   )Жанр: New Age, Piano, Modern Classical, RomanticПродолжительность: 00:55:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED7ECC697C43058CAA94B02BD778348B7F50A7CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281751   (750009) от 09.02.2019
-
-John Diva & The Rockets Of Love - Mama Said Rock Is Dead (2019) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750009.jpg" />
-</div>
-
-
-###  Подробнее
-
-[3:31] 1 - Whiplash
-[3:48] 2 - Lolita
-[4:02] 3 - Rock'n'roll Heaven
-[3:58] 4 - Wild Life(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED3150175A0BCDE53AF141FA67FFA88288363E30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998287   (750008) от 09.02.2019
-
-Solar Bears - Discography 8 Releases (2010-2016) Planet Mu, Sunday Best [FLAC|Lossless|tracks+.cue, tracks] <IDM, Downtempo, Electro, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750008.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Separate From The Arc (Andrew Weatherall Mix 1) (04:45)
- 02. Separate From The Arc (Andrew Weatherall Mix 2) (05:42)
- 03. Separate From The Arc (04:41)Тип издания: CD, WEBЖанр: IDMПродолжительность: 00:15:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACEC855C5B0CACCC107DA17437F2E7D7B639E85D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281729   (750007) от 09.02.2019
-
-VA - Direct Ministry Tracks Dance 2019 (2019) [MP3|320 Kbps] <Dance, Hands Up>
+VA - Sun Revelation: Relax Edition (2016) [MP3|320 кб/с] <Chillout, Downtempo, Lounge>
 
 >>Неофициальные сборники
->>Pop (сборники)
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750007.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_752331.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ynkkx Feat. Cammie Robinson - Happy Ending (Original Mix)
-02. Will G. Feat. A. Voltage - Celebrate (Radio Mix)
-03. Yuhniversia - Dark (Flemming Dalum Remix)
-04. Zhr And Batl - Rain (Original Mix)(   Читать дальше...   )Жанр: Dance, Hands UpПродолжительность: 05:56:56
+001. Gjc - On the Floor - Chill Version
+002. Sun & Sadness - On a Beach - Sexy Sunset del Mar Mix
+003. Jarome Adam - Apue (Chilling Mix)
+004. Amy More - Brighton Beach Dreams(   Читать дальше...   )Жанр: Chillout, Downtempo, LoungeПродолжительность: 08:11:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4BADD8CC6FF193D6DEC43E1148956B4C5E5A4E83
+magnet:?xt=urn:btih:CFF7AFCB036FC71A528D41B32292EBD2065C908F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -169,28 +27,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523559   (750006) от 12.01.2022
+###  Публикация: 1019123   (752330) от 22.05.2016
 
-VA - Wunderwerk 1 Connected Souls (2021) [AAC|~336 Kbps] <Deep House>
+Валентина Чаплина | Знакомая варежка (1981) [FB2]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750006.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_752330.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Nadja Lind - Limbus (Hernan Cattaneo & Soundexile Remix 1) (7:29)
-02. Helmut Ebritsch - Das Ermoeglichen (8:00)
-03. Klartraum, Nadja Lind, Helmut Ebritsch - Manifestation (Dapayk Solo Remix) (6:34)
-04. Klartraum, Nadja Lind, Giuliano Rodrigues - I Can't Believe (Klartraum Remix) (8:02)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:23:34
+Удивительные приключения были у героев книги «Знакомая варежка». Они попадают в трудные, порой смешные положения, но наблюдательность и находчивость выручают их всюду.Жанр: Детская проза, сказкаФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CC8E4EB48F27D61291A4B9A37F3A219A3963B7CC
+magnet:?xt=urn:btih:D8C6B2B163C357DBC1AB94E9CA01850838689F57
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -198,28 +53,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523562   (750005) от 12.01.2022
+###  Публикация: 1019216   (752329) от 22.05.2016
 
-VA - Melodica 2021 (2021) [AAC|~324 Kbps] <Chill Out, Downtempo, Organic House>
+VA - Five Star Chill Out Vol 1 (Luxury Beach Lounge Resort Relaxation) (2016) [MP3|320 кб/с] <Lounge, Chill Out>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750005.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_752329.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Andrew Holt - Marrakech Dreaming (Stephane Salerno Remix) (7:40)
-02. Marga Sol - Sacred Passage (Jack Essek Remix) (7:31)
-03. Jose Solano - Jangal (8:02)
-04. Stefan Alexander Thomas - Ozone (Majed Salih Remix) (7:34)(   Читать дальше...   )Жанр: Chill Out, Downtempo, Organic HouseПродолжительность: 02:24:58
+01. Chilhouette - The Way You Look At Me (Extended Mix) (05:46)
+02. Polyopia - In My Mind (Beach Bar Instrumental) (04:51)
+03. Soleil Fisher - Midnight Swim (05:37)
+04. Once Upon A Time - Another Way (04:30)(   Читать дальше...   )Производство: RagimusicЖанр: Lounge, Chill OutПродолжительность: 01:44:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1A44C2AE236F933F405E121704D2C6A023AE4405
+magnet:?xt=urn:btih:CB0F3BE679C9166A4870B7E561A6C1D97D923FFB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -227,25 +82,138 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523581   (750004) от 12.01.2022
+###  Публикация: 1019025   (752328) от 22.05.2016
 
-Smooze Pro 2.0.8 [En]
+VA - Electroshock Vol. 07 (2016) [MP3|320 кб/с] <House, Electro House, Trance, Electrorock>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_752328.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. VNV Nation - Lost Horizon 5:17
+02. Solitary Experiments - Delight 4:49
+03. SITD - Purgatorium 5:54
+04. Nachtmahr - Tanzt Fur Mich 4:34(   Читать дальше...   )Жанр: House, Electro House, Trance, ElectrorockПродолжительность: 03:10:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B18EA39CAC6EBEAA46C640E1DDECFB67CFE33422
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019094   (752327) от 22.05.2016
+
+Евгений Ильин | По законам чести (1979) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_752327.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказ для младшего и среднего школьного возраста.Жанр: Детская прозаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49120CE017AACEE1418F2FE5BDD336344ECFCE93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019027   (752326) от 22.05.2016
+
+Н. В. Романовский | Критика фальсификаций роли ленинской партии в трёх революциях (1979) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_752326.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга написана на тему, актуальную в современных условиях острой идеологической борьбы на международной арене. В монографии дается критический анализ буржуазной историографии (США, Англия, ФРГ, Франция и др.) роли большевистской партии в трех революциях в России. Особое внимание уделяется современному этапу эволюции лживых концепций идеологов буржуазии. В книге аргументированно, (   Читать дальше...   )Жанр: История, политологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F371A9CE582F07D00116EFFBCBDDA87CB105B2E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 322371   (752317) от 12.04.2011
+
+R.I.O. - Shine On (2008) [FLAC|Lossless]<House / Electro>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_752317.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shine On (Radio Mix) (03:23)
+02. Shine On (Spencer & Hill Radio Edit) (03:02)
+03. Shine On (Soft House Radio Mix) (03:21)
+04. Shine On (Mondo Radio Edit) (03:22)(   Читать дальше...   )Жанр: House / ElectroПродолжительность: 00:46:28
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 499260   (752291) от 30.04.2014
+
+BBC: Гений Чарльза Дарвина [3 серии] / The Genius of Charles Darwin (2008) DVDRip
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750004.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_752291.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Smooze одушевляет ваш скролл и добавляет функциональность к вашей не оригинальной Apple мыши (прокрутки колеса мыши).Тип издания: macOS SoftwareРелиз состоялся: 12.01.2022Разработчик: © 2017 Segev SherryПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+В этом увлекательном сериале Ричард Докинз, автор бестселлера "Бог как иллюзия", объясняет теорию эволюции и её вклад в наше понимание жизни на Земле.
+Теория Чарльза Дарвина о развитии жизни опубликована в 1859 году в "Происхождении видов" и продолжает быть предметом обсуждений до сих пор, несмотря на то, что в каждой найденной окаменелости мы получаем новые доказательства идей Дарвина.
+Теория эволюции часто неправильно понималась и неправильно истолковывалась для оправдания расизма. Ричард Докинз рассматривает моральные аспекты, поднятые теорией эволюции и утверждает что самоотверженное поведение и альтруизм являются неотъемлемой стратегией выживания человечества и частью самой эволюции.
+Этот фильм рекомендуется смотреть всем кто хочет понять теорию эволюции.Жанр: ДокументальныйПеревод: Двуголосый закадровый, любительский студия (LAFOX)Продолжительность: 3 x ~ 00:48:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BFC5F164638DB8D2E9649DCCE0240CA911BEDE47
+magnet:?xt=urn:btih:208ADE73DA290AAABA3A154134894D33EE384D5A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -253,28 +221,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523533   (750003) от 12.01.2022
+###  Публикация: 498672   (752288) от 30.04.2014
 
-VA - Travel & Living Lounge, Vol. 3 (2018) [AAC|~314 Kbps] <Lounge, Chill Out, Downtempo>
+BBC: Вырастая во Вселенной [5 из 5] / Growing Up in the Universe (1991-1992) DVDRip
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежные TV-бренды
+>>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750003.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_752288.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Prana Tones - Lost in Japan (Original Mix) (4:51)
-02. Sami Sivananda - Kundalini (Original Mix) (2:45)
-03. Airstream - Electra (Religion Cut) (6:12)
-04. Island Sun - Loosing Again (Boombastic Cut) (5:43)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:22:23
+Вырастая во Вселенной (Growing Up in the Universe) — серия из пяти научно-популярных лекций Ричарда Докинза, данных в рамках Рождественских лекций Королевского Общества в 1991—1992 годах и заснятых Би-би-си. В 1996 году Докинз написал книгу «Поднимаясь на Пик Невероятного», которая, по его выражению в предисловии, выросла из этих лекций. В 2007 году серия лекций выпущена на DVD.
+Это замечательные лекции о происхожении и смысле жизни, впервые озвучены на русском языке.
+Список серий:Жанр: ДокументальныйПеревод: Одноголосый закадровый, любительский студия (LAFOX)Продолжительность: 5x~00:58:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F645E2D0A46E67FE41DAB70B09CDBD0401238F02
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -282,28 +249,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523530   (750002) от 12.01.2022
+###  Публикация: 1395530   (752285) от 12.07.2020
 
-VA - Travel & Living Lounge, Vol. 2 (2016) [AAC|~327 Kbps] <Lounge, Chill Out, Downtempo>
+Журнал | Classic Car Weekly The Way We Were №1 (2020) [PDF] [En]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Автомобили
+>>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750002.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_752285.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Alexander Muratovsky - External World (3:53)
-02. Cj Rcm - Serenity (5:46)
-03. Philip Aniskin - Rainy Fairy Tale (5:16)
-04. Alex Field, Natune - Wake Me (Bryan Milton Remix) (5:31)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:41:36
+Classic Car Weekly - британская классическая газета, которую обязательно нужно прочитать. Каждую неделю в ней продаются тысячи классических автомобилей и запчастей, а также новости, которые важны для настоящих любителей классических автомобилей. Каждую неделю наша команда опытных журналистов освещает последние новости из области классического автопрома, анализ рынка, (   Читать дальше...   )Жанр: Автомобильный журналФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BDB416B58304466145BB2D6BF27EB160D9C8B2CD
+magnet:?xt=urn:btih:0A04EED247A120D3A0EAC0672694EB5E7809BDA5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -311,225 +275,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523536   (750000) от 12.01.2022
+###  Публикация: 1395809   (752284) от 12.07.2020
 
-VA - Travel & Living Lounge, Vol. 5 (2020) [AAC|~325 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750000.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marga Sol - I've Been Waiting (Original Mix) (5:53)
-02. Triangle Sun - Summer of Our Love (Original Mix) (4:16)
-03. The Soul Crusaders - Share My Song (4:39)
-04. Schwarz & Funk - Ease (Original Mix) (5:47)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:09:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBC5E508A02DC8931FB1719C243E18C9C2D9D600
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523574   (749999) от 12.01.2022
-
-GarageSale 8 v8.4.1 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749999.jpg" />
-</div>
-
-
-###  Подробнее
-
-Управлять своими аукционами на всемирно известной торговой площадке EBay теперь проще простого. Приложение GarageSale для Mac OS открывает пользователю доступ ко всем необходимым функциям этого популярного сайта. Теперь не нужно проходить через все утомительные процедуры на сайте, чтобы начать аукцион. Все, что вам нужно – это приобрести новую версию приложения и (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.01.2022Разработчик: © 2022 iwascoding GmbHПоддерживаемая ОС: OS X 10.12 +Язык интерфейса: Английский, Немецкий, Французский и Итальянский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DE7685A33D7197E4AAA040982B98EED36F20834
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523535   (749998) от 12.01.2022
-
-VA - Travel & Living Lounge, Vol. 4 (2019) [AAC|~319 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eskadet - Un Songe (Original Mix) (6:30)
-02. DMTunes - Ser Mio (Original MIx) (4:42)
-03. Gary B - All I Long For (Original Mix) (4:00)
-04. Weathertunes - Long Beach (Original Mix) (5:22)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:24:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E201C201D94641DD7956BDF5D5A4D4756CC45DF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523537   (749997) от 12.01.2022
-
-VA - Travel & Living Lounge, Vol. 6 (2021) [AAC|~328 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749997.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beamy - Twisted Soul (M-Sol Project Laidback Mix) (4:51)
-02. Digby Jones, Funkdust - Ah Negresco (3:27)
-03. Living Room - Brasil Sunset (2:34)
-04. Ibiza Chilled - Naked Nova (Original Mix) (6:32)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:11:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4E74115E15323562EDAFA8192D5AE2AFB6C5842
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523565   (749996) от 12.01.2022
-
-VA - Winter Lofi Chill (2022) [AAC|~305 Kbps] <Lo-Fi, Lounge, Chill Out>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749996.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hybro, Chillmob, Christoph Israel, Swonderful Orchestra, Catherine Larsen-Maguire - Have Yourself A Merry Little Christmas (Lofi Edit) (2:21)
-02. Pueblo Vista - The Beginning Of The End (2:06)
-03. Sam Cross, Pueblo Vista - Dream In Motion (1:45)
-04. Lamar Azul, Pueblo Vista - Slowheal (2:08)(   Читать дальше...   )Жанр: Lo-Fi, Lounge, Chill OutПродолжительность: 02:14:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A662ADDE33B53FA702ED202B26E58B86A76492C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523583   (749995) от 12.01.2022
-
-System Toolkit 5.2.1 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749995.jpg" />
-</div>
-
-
-###  Подробнее
-
-System Toolkit - приложение «все-в-одном» для мониторинга информации и профилактики, разработанное для macOS.Тип издания: macOS SoftwareРелиз состоялся: 11.01.2022Разработчик: © 2017-2022 Sascha SimonПоддерживаемая ОС: macOS 11.5 +Язык интерфейса: Английский, Немецкий, Упрощенный Китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E0193463858A94D2D383BE486D2D0A193EC0061
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523529   (749994) от 12.01.2022
-
-VA - Travel & Living Lounge, Vol. 1 (2014) [AAC|~323 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Project Blue Sun - All I Need (Original Mix) (5:24)
-02. Eriq Johnson & AVO - Mistical Desire (3:09)
-03. Triangle Sun - Secret Letter (Original Mix) (4:55)
-04. Wav-E - Invisible Oasis (4:19)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:46:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E43C0B990B187D72149E94522C60103DCACC5F30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523560   (749993) от 12.01.2022
-
-Xenos - The Dawn Of Ares (2021) [FLAC|Lossless|image + .cue] <Thrash Metal>
+Michael Grant & The Assassins - Always the Villain (2020) [MP3|320 Kbps] <Hard Rock , Glam Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Hard Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749993.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_752284.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. I Am the Machine
-2. All Shall Fall
-3. The Dawn Of Ares
-4. Circle of Lies(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:44:48
+01. Barrel of a Gun (03:36)
+ 02. Always the Villian (04:51)
+ 03. Killing Me Slowly (04:55)
+ 04. Nightmares (05:26)(   Читать дальше...   )Жанр: Hard Rock , Glam MetalПродолжительность: 00:49:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:29EE7BB9AEF34DF93549FEFCCEA8FC8F76196AAE
+magnet:?xt=urn:btih:C9E9C939EB47B27F4E53F76C3C82DEA31646FB07
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -537,26 +304,80 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523647   (749992) от 12.01.2022
+###  Публикация: 1395532   (752283) от 12.07.2020
 
-Dropshare 5.19 [En]
+Журнал | Bus & Coach Preservation №8 (август 2020) [PDF] [En]
+
+>>Автомобили
+>>Автомобильные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_752283.jpg" />
+</div>
+
+
+###  Подробнее
+
+В нем представлены все последние новости и мнения о восстановлении транспортных средств, старых микроавтобусах и автобусах, которые необходимо сохранить для потомков, новости музеев, групп и отдельных защитников природы, а также освещение событий. Это форум для обсуждения всех вопросов, стоящих перед миром автобусов. Сохраненных сегодня. Мы также рассмотрим старые (   Читать дальше...   )Жанр: Автомобильный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ECF2C49D6FDD7BD5A7F0EDED4C77296C13A52F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1395942   (752282) от 12.07.2020
+
+VA - Etui Winter Camp Series (2013-2020) ETUI Records [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Techno, Ambient>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_752282.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Submoon - Winter Rain (04:17)
+ 02. 3voice & Cynic_Al - Lost Path (Live Dub Mix) (06:08)
+ 03. Salzinger - Le Plsdfj (07:50)
+ 04. Frank Hellmond - Drawn (07:36)(   Читать дальше...   )Тип издания: WebЖанр: Dub Techno, Techno, Ambient •Продолжительность: 06:20:17 •
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1395755   (752281) от 12.07.2020
+
+Гоночная серия АРКА-2020. 6-й Этап. Кентукки 150. Гонка / ARCA Menards Series 2020. Round 6. General Tire 150. Race WEB-DL [H.264/720p-LQ]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749992.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_752281.jpg" />
 </div>
 
 
 ###  Подробнее
 
-DropShare позволяет быстро передавать файлы больших объемов через интернет. Отправитель просто перетягивает его на значок программы, и файл выгружается на сервер. Остается сообщить ссылку получателю, чтобы он мог открыть ее в своем браузере.
-Dropshare - приложение строки меню для Drag & Drop загрузки файлов, снимков экрана и даже каталогов на собственный сервер, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.12.2021Разработчик: DropshareПоддерживаемая ОС: OS X 10.10 или вышеЯзык интерфейса: Английский
+6 этап ARCA Menards Series, General Tire 150, Kentucky Speedway (100 Laps, 150 Miles).Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортЯзык озвучки: Русский (Сергей Сухоруков)Продолжительность: 02:06:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6E0853A765485B10AA71DF6130806D061CDA73A0
+magnet:?xt=urn:btih:1ADF6E7AFBE2884D086A74E82E4747275589C829
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -564,28 +385,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523634   (749991) от 12.01.2022
+###  Публикация: 1395877   (752280) от 12.07.2020
 
-Charlie Ventura - East Of Suez (1945, 1947) 2000, Savoy [FLAC|Lossless|tracks + .cue] <Swing, Bop>
+Форт Росъ - Корни в огне (2020) [MP3|320 Kbps] <Pagan Metal, Folk Metal>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749991.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_752280.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Synthesis [2:52]
-02. Blue Champagne [3:02]
-03. Stop 'n' Go [2:44]
-04. Soothe Me [3:03](   Читать дальше...   )Жанр: Swing, BopПродолжительность: 00:35:40
+01. В тени креста (04:50)
+ 02. Конец легенды (03:55)
+ 03. Сын своего отца (03:58)
+ 04. Рожденный в крови (03:53)(   Читать дальше...   )Жанр: Pagan Metal, Folk MetalПродолжительность: 00:41:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BA4239E0A9D1719CF69668CBD30352C40E6D21D7
+magnet:?xt=urn:btih:1353808C2F54D38D498FE950AADC752367AF374C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -593,28 +414,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523527   (749990) от 12.01.2022
+###  Публикация: 1395782   (752279) от 12.07.2020
 
-Michel Le Fleur - Isla Del Mar (Ibiza Sunset) (2022) [AAC|~342 Kbps] <Lo-Fi, Lounge, Chill Out>
+Города у моря. Как живут в Дакаре / Cities by the Sea (2017) HDTV [H.264/1080i]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749990.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_752279.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. For love (4:46)
-02. Isla Del Mar (6:33)
-03. So Good (4:39)
-04. Red Moon (3:29)(   Читать дальше...   )Жанр: Lo-Fi, Lounge, Chill OutПродолжительность: 01:13:30
+Дакар - столица Сенегала, расположен на побережье Атлантического океана, на полуострове Зелёный мыс. Дакар является самым западным городом Африканского континента..Производство: EU, Albatross, ARTE G.E.I.EЖанр: Документальный, познавательный, путешествияРежиссер: Рольф ЛамбертПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:44:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:88C7528CF379401766AA8F270AA059ABC9100DD8
+magnet:?xt=urn:btih:8C858A5593FCDCABFB38B9F18F609D9EC1EA3F39
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -622,25 +440,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523668   (749989) от 12.01.2022
+###  Публикация: 1395900   (752278) от 12.07.2020
 
-TinkerTool System 7 v7.8 [Multi]
+The Modern Jazz Quartet - Jazz Masters: 100 Ans de Jazz (1997) Mandarim Records [FLAC|Lossless|tracks + .cue] <Cool>
 
->>Архив торрентов
->>Архив 4Apple
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749989.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_752278.jpg" />
 </div>
 
 
 ###  Подробнее
 
-TinkerTool System - утилита для управления скрытыми настройками операционной системы Mac OS X. Приложение позволяет выполнять циклические сценарии администрирования нажатием одной кнопки, восстанавливать права системных файлов, повторять процесс оптимизации системной производительности по окончании инсталляции приложений, удалять содержимое кэша популярных веб-браузеров (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.01.2022Разработчик: © 2022 Marcel BresinkПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский и др.
+01. Animal Dance [4:38]
+02. Django [4:07]
+03. Bluesology [2:14]
+04. Midsummer [5:36](   Читать дальше...   )Жанр: CoolПродолжительность: 00:45:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CDAAEB9BB7DA160487F5225D492A096753361255
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -648,25 +469,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 889462   (749978) от 17.04.2015
+###  Публикация: 1395811   (752277) от 12.07.2020
 
-Vivaldi 1.0.156.2 Technical Preview [Multi/Ru]
+Любимец публики (1937) TVRip [H.264] [hand made colored]
 
->>Архив торрентов
->>Архив Программ
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749978.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_752277.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Интернет-браузер, созданный компанией Vivaldi Technologies на основе свободного браузера Chromium и движка Blink. Ряд функций, такие как боковая панель, режим отображения картинок на веб-странице, заметки, визуальные вкладки, корзина с закрытыми вкладками и многие другие были перенесены из последней версии браузера Opera 12, сделанного на движке Presto. Внешний вид браузера Vivaldi также напоминает Opera 12.Язык интерфейса: Русский, Английский, др.
+Пропаганда подлинно народного искусства вместо халтурных псевдоцыганских мотивов и фокстротов. Цветной.Производство: СССР, СоюзмультфильмЖанр: Рисованная анимация, ДетскийРежиссер: Александр Иванов (II)Субтитры: отсутствуютПродолжительность: 00:09:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B33E73BB7535986F0450732011ADA2869480AA66
+magnet:?xt=urn:btih:E4901FEF8363B2E0B2F192A6EDEF1FFC5E3F8808
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -674,25 +495,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 889358   (749969) от 17.04.2015
+###  Публикация: 1395778   (752276) от 12.07.2020
 
-Demon Archive: The Adventure of Derek (2015) [En] Unofficial
+Города у моря. Как живут в Копенгагене (Дания) / Cities by the Sea (2017) HDTV [H.264/1080i]
 
->>Win Игры
->>Adventure/Quest (Casual)
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749969.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_752276.jpg" />
 </div>
 
 
 ###  Подробнее
 
-18 век, Франция. Известного детектива вызвали для расследования загадочной смерти графа Энтони. Будьте готовы к жутким видениям, напоминающим литературного персонажа, созданного Кристофером Марло - Доктора Фауста. Следуйте за своим инстинктом и отправляйтесь в мистическое приключение, где Вас ждут великолепные локации, сложные мини-игры и каверзные головоломки. Будьте осторожны - Вас поджидают Монстры с уникальными способностями прятаться в самых неожиданных местах! Сможете ли Вы спасти графиню Меллису от Демона (   Читать дальше...   )Тип издания: Неофициальное изданиеРазработчик: TwinСatsЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+Копенгаген - одна из самых маленьких столиц Европы. Некогда рыбацкая деревенька у реки превратилась в маленький прибрежный мегаполис с широкими взглядами, который строит себе зелёное будущее в том числе благодаря - творческому, прогрессивному и при этом лёгкому стилю жизни его жителей.Производство: EU, Albatross, ARTE G.E.I.EЖанр: Документальный, познавательный, путешествияРежиссер: Себастьян ЛиндеманПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:38:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CB97A89AEF25951F1A80D1A34309543A0CB45FD9
+magnet:?xt=urn:btih:EFD0EB475D3DD7A1BA558EC38A7D2677E1DFA928
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -700,25 +521,190 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019625   (749968) от 23.05.2016
+###  Публикация: 1395886   (752275) от 12.07.2020
 
-Проекты - VideoHive - FireString Logo [AEP]
+Первая передача на НТВ. Автомобильная передача (12.07.2020) WEBRip [H.264/1080p-LQ]
 
->>Проекты
->>Логотипы (проекты)
+>>Документалистика и Телепередачи
+>>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749968.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_752275.jpg" />
 </div>
 
 
 ###  Подробнее
 
-FireString Logo - современный и элегантный проект для демонстрации логотипа.Формат: AEP
+04:16 Осторожно, отбойник! Почему ограждение оказалось посреди дороги?
+13:27 Полный назад: в каких случаях включение задней передачи грозит штрафом?
+17:50 Могут ли эвакуировать машину, которая заблокировала другие автомобили на парковке?
+19:18 Натереть до блеска: как привести в порядок кожаные сидения? Какие средства могут испортить кожу?(   Читать дальше...   )Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:25:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:59142B0CE6F93AED1FF7F1E801D97AEDD1868420
+magnet:?xt=urn:btih:90A77D29E8C33255976472B0B73D72AF78BBD881
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1395789   (752274) от 12.07.2020
+
+Город на берегу. Картахена (Колумбия) / Waterfront Cities Of The World (2014) HDTV [H.264/1080i]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_752274.jpg" />
+</div>
+
+
+###  Подробнее
+
+Картахена находится на севере Колумбии, на берегу Карибского моря. Город раскинулся на огромной площади, в его территорию входят острова, перешейки и полуострова. Великолепные берега бирюзовых лагун и заливов, каждый год привлекают и завораживают романтических туристов. Благодаря своим живописным дворцам, церквям и крепостным сооружениям 16-18 веков, Картахена получила (   Читать дальше...   )Производство: Канада, TV5Жанр: Документальный, познавательный, путешествияРежиссер: Николя Буше, Этиен ДесирэПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:45:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:568B83C7F6325379561ADD9F488AAA5D4A02FB81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1395904   (752273) от 12.07.2020
+
+Комната 406 - Комната 406 (2020) [MP3|320 Kbps] <Rock, Pop-Rock>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_752273.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - По вершинам
+02 - Я помню день. Посвящается Евгении Иваницкой
+03 - Видим сны
+04 - Десять минут до рассвета(   Читать дальше...   )Жанр: Rock, Pop-RockПродолжительность: 00:41:32
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1395779   (752272) от 12.07.2020
+
+Города у моря. Как живут в Амстердаме (Нидерланды) / Cities by the Sea (2019) HDTV [H.264/1080i]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_752272.jpg" />
+</div>
+
+
+###  Подробнее
+
+Амстердам - это портовый город, который стоит на воде. Система каналов является основой его жизни: вдоль водных путей проходят важные торговые улицы, расположено множество музеев, университет, жители этого города празднуют фестивали на каналах, проводят свой обеденный перерыв у воды, а также живут вдоль воды или на ней в плавучих домах.Производство: EU, Albatross, ARTE G.E.I.EЖанр: Документальный, познавательный, путешествияРежиссер: Рольф ЛамбертПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:42:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DCD2A28C860B564A96FE4253FD917C0140B4BAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1395848   (752271) от 12.07.2020
+
+Формула-3. Сезон 2020. 2-й Этап. Гран-при Штирии. Гонка 1 (11.07.2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_752271.jpg" />
+</div>
+
+
+###  Подробнее
+
+2-й чемпионат ФИА Формула-3. Сезон 2020 года
+11 июля 2020, суббота. 11:25 МСК
+2-й Этап. Гран-при Штирии. Шпильберг (Австрия)
+Гонка 1(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:50:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E75D7DC41EE025FEE6D5D11CBDEB2BB2CEABEA4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019097   (752270) от 22.05.2016
+
+Чудо техники (2016.05.22) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_752270.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Чудо техники» — это доходчивый и интересный рассказ о новейших научных разработках, которые способны поменять или уже меняют нашу повседневную жизнь. Автор проекта — Сергей Малозёмов — хорошо знаком зрителям НТВ по репортажам программы «Сегодня», касающимся новых технологий, гаджетов, медицины. Он в курсе последних научных разработок и одним из первых узнает о значимых (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаСубтитры: ОтсутствуютПродолжительность: ~ 00:39:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:468911307708D44FA43AFA86D422F331C059577E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019099   (752269) от 22.05.2016
+
+Алексей Логунов | Домашнее тепло (1989) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_752269.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга об удивительных русских людях, хлебных мастерах. Через все рассказы и сказки проходят образы Житного Деда, доброго, затейливого старичка-полевичка, помощникахлебороба, и молодого шофера Сёмушки, большого выдумщика и чудодея.Жанр: Детская прозаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5438B99E030E26F22892D0BB1AA38941B1A372A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

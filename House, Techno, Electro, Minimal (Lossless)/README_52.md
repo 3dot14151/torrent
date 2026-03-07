@@ -1,3 +1,119 @@
+###  Публикация: 1338067   (270661) от 14.11.2019
+
+VA - Total Disco House, Vol. 1 (2019) [FLAC|Lossless|WEB-DL|tracks] <House, Nu-Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_270661.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Discotron - Play That Funky Music (Original Mix) (5:48)
+02. Disko Junkie - Paradise (Original Mix) (5:36)
+03. Jack Le Funk - Vibin' (La Da Da) (Original Mix) (4:45)
+04. Discotron - Let's Get This Straight (Original Mix) (6:05)(   Читать дальше...   )Жанр: House, Nu-DiscoПродолжительность: 01:09:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06B7F42DF38810C9796D4700B5799E82E62A5B1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189537   (270421) от 06.12.2017
+
+Tale of Us - Endless Remixes (2017) Deutsche Grammophon [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient, Dub Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_270421.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Definizione dell'impossibile (Monoloc Remix) (05:16)
+02. Alla sera (Kettenkarussell's Triangle Player Rework) (06:56)
+03. Ricordi (Rødhåd Remix) (06:40)
+04. Oltre la vita (SCB Introspection) (10:49)(   Читать дальше...   )Жанр: Techno, Ambient, Dub TechnoПродолжительность: 01:30:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11340B7E20CF9B4396F872B825D224E3981772EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189501   (270409) от 06.12.2017
+
+Fingers In The Noise - 11 Releases (2011-2017) [FLAC|Lossless|tracks+.cue, tracks] <Dub Techno, Ambient, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_270409.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Monday (06:25)
+ 02. Black Water (05:24)
+ 03. Black Hole (04:18)
+ 04. Black Coffee (06:30)(   Читать дальше...   )Тип издания: CD, WebЖанр: Ambient/Glitch/Dub Techno/DowntempoПродолжительность: 00:28:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F482C3017643BB7911520753B9932C586DBC397
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189414   (270280) от 06.12.2017
+
+Orbital - Live At the Eventim Hammersmith Apollo (02-12-2017) (2017) Live Here Now [FLAC|Lossless|WEB-DL|tracks] <Techno, Electro, Breakbeat, House, Techno Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_270280.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lush 3 (07:58)
+ 02. Impact (The Earth Is Burning) Pt1 (06:28)
+ 03. Impact (The Earth Is Burning) Pt2 (01:32)
+ 04. Copenhagen (05:25)(   Читать дальше...   )Жанр: Techno, Electro, Breakbeat, House, Techno AmbientПродолжительность: 01:43:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:554261542AB415E804A7BE6CE7339AF051C81964
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1266956   (268428) от 04.12.2018
 
 Prequel - Without You (2018) Distant Hawaii [FLAC|Lossless|WEB-DL|tracks] <Detroit House, Deep House>
@@ -627,128 +743,6 @@ VA - Twelve Inch Nineties: Feels Like Heaven (2017) [FLAC|Lossless|WEB-DL|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB3C896D3DB964448A293190588FA6EE106E4E9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193887   (261800) от 23.12.2017
-
-Marla Singer - Center Of Subconscious (2017) Nachtstrom Schallplatten [FLAC|Lossless|WEB-DL|tracks] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261800.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Complex Chemistry (06:15)
- 02. Morning Rain (06:18)
- 03. Lost In The Jungle (07:03)
- 04. Low Center Of Gravity (06:56)(   Читать дальше...   )Жанр: TechnoПродолжительность: 01:31:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7117753AFC579D5D39A3150890FA000F21FB5C5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838935   (261606) от 25.11.2025
-
-VA - Autum Hits 2025 (Deep Strips) (2025) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261606.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DominiNiobe - I'm Not Afraid (4:02)
-02. Kanette - Real Life (5:17)
-03. Gorbunoff - Somebody To Love (2:12)
-04. Nikita Marasey - Lost Tonight (Radio Edit) (2:28)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:38:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E43A7AD956D139A9E4B5DF8E53967F0E500DC67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838019   (257741) от 20.11.2025
-
-VA - Ibiza Winter Island 2026 (The Melodic Techno Edition) (2025) [FLAC|Lossless|WEB-DL|tracks] <Techno, Progressive House, Melodic House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257741.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sarrdo Carocci - It's About Love 02:54
-02. Steen Thottrup & Kaia Mainz - Dreamers (Stefano Martiago Remix) 05:03
-03. Chris Le Blanc, Wolfgang Filz & Karmaloft - Enjoy Your Life (Wolfgang Filz Remix) 03:47
-04. Mafo - Focus Is You (Extended Mix) 03:27(   Читать дальше...   )Жанр: Techno, Progressive House, Melodic HouseПродолжительность: 02:08:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0712D104F3E63C6058CC8C8813294A62563DF1E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 499447   (256445) от 21.05.2012
-
-VA - Century Groove Innovation Vol. 1 (Mixed by Hiroshi Watanabe) - 2012 [FLAC|Lossless]<Tech House, Deep House, Minimal Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256445.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Synethesys - Hope
-02. Martin Schulte - Liquid (P. Laoss Bottom Shaking Remix)
-03. No'mad - Pulsar
-04. Temma-Teje - Run
-05. Ney Faustini - Free My Soul
-06. Luis Gaviria - Black Man
-07. Low Orbit Satellite - Synchrotation
-08. Life Recorder - Falling Drops (Original Mix)
-09. Foog & Temma-Teje - Dumb
-10. Alveol - Sensual(   Читать дальше...   )2012Жанр: Tech House, Deep House, Minimal TechnoПродолжительность: 01:19:22
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

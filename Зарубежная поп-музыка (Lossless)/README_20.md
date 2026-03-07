@@ -1,3 +1,119 @@
+###  Публикация: 1112474   (843306) от 08.03.2017
+
+Luigi Tenco - Tenco (1966) [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_843306.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lontano, Lontano
+02. Io Sono Uno
+03. Uno Di Questi Giorni Ti Sposerò
+04. Come Tanti Altri(   Читать дальше...   )Жанр: PopПродолжительность: 00:31:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A0529F16A5BA4064E09D052941BDC7F7E88336C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378965   (843042) от 27.04.2020
+
+a-ha - Scoundrel Club (1987) EP, Compilation [FLAC|Lossless|tracks + .cue] <Electronic, Pop-Rock, New Wave, Synthpop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_843042.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cry Wolf (Extended Version) (8:14)
+ 02. We're Looking For The Whales (Live) (3:51)
+ 03. I've Been Losing You (Dub) (4:29)
+ 04. Manhattan Skyline (Extended Remix) (6:50)(   Читать дальше...   )Жанр: Electronic, Pop-Rock, New Wave, SynthpopПродолжительность: 00:29:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44EE0EC5DA55EB6311D7F0CC72533D6F9AB4FB91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378815   (843035) от 27.04.2020
+
+Noémie Wolfs (ex.Hooverphonic) - Lonely Boy’s Paradise (2020) [FLAC|Lossless|tracks + .cue] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_843035.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Notorious [04:51]
+02. On The Run [02:55]
+03. Drive [03:56]
+04. Wake Me Up [04:13](   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:45:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83A531C8CE2D92BC7B211FA2B342963CE90C99F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378823   (842976) от 27.04.2020
+
+Noémie Wolfs (ex.Hooverphonic) - Hunt You (2016) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_842976.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Night [03:13]
+02. All You Ever Wanted [03:55]
+03. Sleeper [03:04]
+04. Burning [03:12](   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:00.35.10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:566775920D2F08A680AF640C4D4A07280039EB0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1378820   (842910) от 27.04.2020
 
 a-ha - Hunting High And Low (1985) 2015, Rhino, 4CD, 30th Anniversary Edition, Dlx. Ltd. RM. [FLAC|Lossless|tracks + .cue] <Electronic, Pop-Rock, New Wave, Synthpop>
@@ -627,119 +743,6 @@ Monkey See - Monkey Do - Album No. 1 (1988) [FLAC|Lossless|image + .cue] <Electr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE003B9FEFA4880DE95866970869273E540F6AE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380531   (831451) от 04.05.2020
-
-VA - NOW Love Classics (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831451.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. UB40 - (I Can't Help) Falling In Love With You (3:24)
-02. Bryan Ferry - Slave To Love (4:18)
-03. Cat Stevens - Wild World (3:20)
-04. Carpenters - We've Only Just Begun (3:04)(   Читать дальше...   )Жанр: Pop, Rock, BalladПродолжительность: 02:04:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:881E026BE3B2BD874CF17E14F5EE8E01F38B9258
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380767   (831360) от 04.05.2020
-
-VA - NOW That's What I Call Music! 73 (2020) USA version[FLAC|Lossless|tracks + .cue] <Pop, Rock, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831360.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый выпуск нового десятилетия состоялся в январе 2020 г. Очередной сборник новинок из топов США (и немножко Великобритании) получился несколько более спокойным и "приглушенным" по сравнению с общим тоном предыдущих выпусков. Пожалуй, энергия на короткое время дает всплеск на 11 и 12 треках с дивами следующей волны Camila Cabello и Dua Lipa, но в остальном (   Читать дальше...   )01. Maroon 5 - Memories  (3:05)
-02. Taylor Swift feat. Shawn Mendes - Lover (Remix)  (3:39)
-03. Halsey - Graveyard  (3:01)
-04. Shaed & Zayn - Trampoline  (3:02)(   Читать дальше...   )Релиз состоялся: 24 января 2020Жанр: Pop, Rock, DanceПродолжительность: 01:07:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35D15955FCB7FE75CBAD1724A5FEBF44FEE80D42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 133754   (830999) от 15.03.2017
-
-Supermax - The Box (10 CD) (2009) [FLAC|lossless]<Soul, Reggae / Electronic, Funk>
-
->>След.
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830999.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курт ХАУНСТЕЙН родился в Вене и еще в юности увлекся музыкой. Однако, поняв, что в Австрии особого успеха на этом поприще не добьешься, он решил перебраться в Германию. Там Курт познакомился с Фрэнком ФАРИАНОМ, продюсером BONEY M, и какое-то время поработал с ним. Также ХАУНСТЕЙН участвовал в различных танцевальных и фанк-проектах. Особенно ему нравились выступления (   Читать дальше...   )Жанр: Soul, Reggae / Electronic, Funk
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005871   (830808) от 10.04.2016
-
-All Saints - Red Flag (2016) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830808.jpg" />
-</div>
-
-
-###  Подробнее
-
-Четвёртый альбом выпущенный с промежутком в 10 лет.01. One Strike (03:34)
-02. One Woman Man (04:01)
-03. Make U Love Me (03:46)
-04. Summer Rain (03:44)(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C49B615B8D234EB76E132734A425B3AF4D06786
 ```
 
 https://mybot314.ru/tekegram_catalog/

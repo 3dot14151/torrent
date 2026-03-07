@@ -1,22 +1,22 @@
-###  Публикация: 1176538   (364680) от 24.10.2017
+###  Публикация: 1070285   (366404) от 07.11.2016
 
-Nintendo 3DS ROMPack (2011-2017) [3DS] [ALL] [Decrypted] [Unofficial] [Multi] (1051-1200)
+Каменное сердце (2016) SATRip [H.264] (сезон 1, серии 1-4 из 4)
 
->>Консольные Игры
->>Ромы
+>>Архив торрентов
+>>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364680.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366404.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сборник расшифрованных игр для Nintendo 3DS. Может использоваться для эмуляторов или CFW.Тип издания: UnofficialРазработчик: Nintendo и другиеЯзык интерфейса: разные
+Галина возглавляет редакцию крупной газеты. Пережив тяжелый развод, она перестает верить в существование любви, – в ее жизни остается только работа. Но когда ее издание публикует сенсационное расследование о махинациях бизнесмена Вячеслава Андреева, карьера тоже может вот-вот рухнуть: один из источников информации оказывается непроверенным, и Андреев подает иск о (   Читать дальше...   )Производство: Россия / Кинокомпания "Марс Медиа Энтертеймент"Жанр: Драма, ДетективРежиссер: Александр АравинАктеры: Екатерина Волкова, Владимир Кошевой, Саша Вельнер, Екатерина Долгова, Наталья Гриншпун, Марта Дроздова, Ирина Бякова, Антон Афанасьев, Александр АндриенкоПродолжительность: ~00:46:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:489EC7FDBCE4344A044F7A57E3715C01D8F7CBDE
+magnet:?xt=urn:btih:242850DE03E2079C6ED525BDA53EA0CD38777514
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,302 +24,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176888   (364679) от 24.10.2017
+###  Публикация: 1327960   (366385) от 29.09.2019
 
-Атомная школа / Class of Nuke 'Em High (1986) BDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364679.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие разворачивается в Тромовилле — маленьком городке с повышенной радиацией. В результате радиоактивного заражения прилежные ученики в местной школе мутировали в суперхулиганов, обьединившихся в банду «Кретины» (Cretins).
-Целых полгода «Кретины» издевались над однокласниками, грабили старушек и распространяли наркотики причем не простые, а зараженные радиацией). (   Читать дальше...   )Производство: США / Troma FilmsЖанр: Ужасы, КомедияРежиссер: Ричард В. Хайнс, Ллойд КауфманАктеры: Джанелл Брэйди, Джил Брентон, Роберт Причард, Пэт Райан, Джеймс Наджент Вернон, Брэд Данкер, Гари Шнайдер, Тео Кохан, Гари Розенблатт, Мэри ТейлорПеревод: Одноголосый закадровый, любительскийСубтитры: АнглийскиеПродолжительность: 01:25:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C28A0BED7120E560AFCC729AEC17FB8C3170BDE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1177124   (364678) от 24.10.2017
-
-Windows 7 Ultimate SP1 x64 By Vladios13 v.24.10 [Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364678.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка сделана на основе оригинального образа ru_windows_7_ultimate_with_sp1_x64_dvd_u_677391. Установлены все важные и рекомендуемые обновления на момент создания сборки 24 октября 2017 года. Интегрирован Internet Explorer 11. Более подробно о сборке читайте ниже.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:020D36BF637B8AC66BC3BD098DF59A3C854D95A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994992   (364677) от 24.10.2017
-
-XCOM 2 (2016) [Ru/Multi] (29.08.2017/dlc) License CODEX [Digital Deluxe Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364677.jpg" />
-</div>
-
-
-###  Подробнее
-
-XCOM 2 – это продолжение полюбившейся игрокам и критикам стратегии XCOM: Enemy Unknown, получившей в 2012 году титул «Игра года». Земля изменилась. Двадцать лет прошло, с тех пор как мировые лидеры подписали акт о безоговорочной капитуляции перед пришельцами. Организация XCOM, последний рубеж обороны Земли, уничтожена, а её остатки рассеяны по миру.Тип издания: LicenseРазработчик: Firaxis Games, Feral InteractiveЖанр: Strategy (Real-time, Turn-based, Tactical), 3DЯзык озвучки: Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F33CD503B0AAD120B9BD0E027C93AA762022B473
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013580   (364676) от 24.10.2017
-
-Евгений Карташов | Photoshop для фотографа 3.0 (2016) HDTV [H.264/1080p]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364676.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание 2016 года курса «Photoshop для фотографа 3.0» от известного фотографа Санкт-Петербурга — Евгения Карташова. Вас ждут 130 видеоуроков по всем аспектам обработки фотографий в Adobe Photoshop и Camera Raw, а также более 140 исходных фотографий для ваших тренировок и наработки практики. Работают только те знания, которые получены в результате практики.
-
-Так же (   Читать дальше...   )Жанр: Ретушь фотоПродолжительность: 24:12:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83A4CE2471CF0512CF41108F88807D81A86326ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 294573   (364675) от 24.10.2017
-
-Видеоуроки Adobe Photoshop CS3-CS5 от Зинаиды Лукьяновой и Евгения Попова [2007-2013][SWF][Обновление 11.05.2015]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364675.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все уроки в формате SWF и находятся на одной странице навигации в файле (index.html) - это очень удобно.  Просматривать эти уроки можно через браузер Opera или Mozilla Firefox, если у Вас установлен PlugIn для браузера.Жанр: Обучающие материалыПродолжительность: 32:50:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85D1C0B8A513D9F833BA5B58B9E520BBD25F1ECF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070877   (364674) от 08.11.2016
-
-VA - Additional Deephouse (2016) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364674.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Simplex Sensus - Right Behind (07:14)
-02. Flash Is Fast - Clean Your Desk (07:11)
-03. Circuito Zeta - Step Down (07:18)
-04. Dan Rubell - My Love (DJ Fopp Mix) (06:12)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:17:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25D3DAF2E48E121FC596477D62433EA7CC629E9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070761   (364673) от 08.11.2016
-
-VA - Sense Of Deephouse (2016) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364673.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lab of Music - The Fall (5:30)
-02. Simplex Sensus - Rhyme Master (6:16)
-03. H.a.n.t. - You Give Me (5:12)
-04. Chiffre 100 - Backshore (6:49)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:41:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6ED13B19DC4BCD755695D9153D122EF5F1BE568
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070962   (364672) от 08.11.2016
-
-Э. Фиммен | Буржуазная и пролетарская Европа [«Акционерное Общество Европа» и Всеевропейский Совет Профессиональных Союзов] (1924) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364672.jpg" />
-</div>
-
-
-###  Подробнее
-
-В своей книжке автор пытается установить главные черты новейшего развития капиталистической организации и указать на национальные и международные проблемы, вытекающие отсюда для профессионального движения.Жанр: История, политология, экономикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:639D6390A63D9F2A718F09E9148D0CE62113E00B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070959   (364671) от 08.11.2016
-
-Nice Clipboard - a cloud synced clipboard manager 1.3.6 [En]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_364671.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отличная реализация менеджера буфера обмена
-Чистый, привлекательный, простой в использовании. Нет-установки-ICloud синхронизация  с другими компьютерами Mac и c IOS устройствами.
-
-Nice Clipboard - менеджер буфера обмена, который всегда ждет вас под значком Menubar на вашем Mac или на главном экране на вашем iPhone. Он синхронизируется с помощью ICloud между вашими (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 08 ноября 2016Разработчик: Jedrzej GronekПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070755   (364670) от 08.11.2016
-
-VA - Amsterdam Dance Essentials 2016: Deep House (2016) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364670.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. KIWAMU - Life Style (Original Mix) (6:36)
-02. Tim Bell - Oceans (Original Mix) (6:10)
-03. Daemon Carter - Panorax (Original Mix) (5:26)
-04. Vinicius Valis - Dark Basement (Original Mix) (5:40)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:38:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F72B4101B4846D35E0735CF2BEB2E4E6A5997DC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070863   (364669) от 08.11.2016
-
-PaintCode 3.0.2 [En]
+Elmedia Player Pro 7.51(1825) [Multi/Ru]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364669.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366385.jpg" />
 </div>
 
 
 ###  Подробнее
 
-PaintCode является отличным приложением для создания графических элементов, как в Photoshop . Но в этом случае эта программа генерирует не изображение, а Core Graphics код.
-Причины уникальности этого приложения заключаются в следующем:
-- Экономия времени разработки. Если бы Вы стали писать код для Core Graphics в ручную, то это заняло бы очень много времени, чем (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 07 ноября 2016Разработчик: PixelCut s.r.oПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
+Elmedia Player - мультимедийный плеер для воспроизведения практически всех видео форматов: (FLV, SWF, MOV, MP4, DIVX, RV, RM и даже Silverlight). Это удобный и простой в настройке плеер, который проигрывает медиа файлы локально, а также имеет встроенный веб-браузер, позволяющий заходить на любой сайт и выбирать понравившееся видео для просмотра.
+
+Elmedia Player PRO (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.09.2019Разработчик: Eltima LLCПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EF9D3B22E786DDAAAEA3D6508E06251D8FA98004
+magnet:?xt=urn:btih:4846BD489F7EF42F6F6B218970F46BD0F3410B7E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -327,28 +52,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070715   (364668) от 08.11.2016
+###  Публикация: 1327955   (366384) от 29.09.2019
 
-VA - Deephouse After Dusk (2016) [MP3|320 Kbps] <Deep House>
+BetterTouchTool 3 v3.202 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366384.jpg" />
+</div>
+
+
+###  Подробнее
+
+BetterTouchTool удобное приложение, которое позволяет в продвинутом режиме настроить режимы сенсорной панели, многие другие жесты, не предусмотренные инженерами Apple, но отлично распознаваемые самими устройствами. BetterTouchTool-позволяет настраивать множество различных жестов для MagicMouse и MagicTrackpad, дает возможность настраивать действия на тапы в углах (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Andreas HegenbergПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2CCA85AA83BE31D71B7C7B3E4709FEB95FF1F04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328233   (366382) от 29.09.2019
+
+VA - Mental Asylum Contrast (Mixed By Indecent Noise) (2019) [MP3|320 Kbps] <Trance, Tech Trance>
 
 >>Electronic
->>House
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364668.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366382.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Diazar - Frequencies (5:07)
-02. Spiced Boogie - Lifestyle (5:40)
-03. Didier Beydts - Sheridan (6:28)
-04. Starbud - Need You (6:24)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:32:03
+01. Activa & Lostly - Positive Reflections (Extended Mix) (6:08)
+02. Indecent Noise - Neurofunk (Extended Mix) (7:04)
+03. Matt Bowdidge - Still By Your Side (Mike Sanders Extended Remix) (6:36)
+04. Warren Parnell - Faster (Extended Mix) (6:57)(   Читать дальше...   )Жанр: Trance, Tech TranceПродолжительность: 03:19:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D2DF165FA0745CF7A911F488CD37553FE46AB443
+magnet:?xt=urn:btih:3D2BB6A4E51971F45309CCB13902F739E4EA5C81
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -356,315 +107,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070706   (364667) от 08.11.2016
+###  Публикация: 1328266   (366381) от 29.09.2019
 
-VA - Feeling Lounge: Essential Selection (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_364667.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don Gorda Project - Observations
-02. Enrico Donner - Ocean Breathes
-03. Cane Garden Quartet - Drops of Remembrance
-04. Baghira - Nightbeat(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:25:21
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070763   (364666) от 08.11.2016
-
-VA - Заключительная осенняя дискотека 6 (2016) [MP3|256 Kbps] <Pop>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_364666.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.N.A.O.M.I. - Ты Скажи 3:28
-002.Timbaland Feat. Mila J - Don't Get No Betta 3:35
-003.Элемент - Музыка 3:33
-004.Медойти - Поймав Мелодию 3:32(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:57
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070766   (364665) от 08.11.2016
-
-VA - Осенняя дискотека по-русски 2 (2016) [MP3|256 Kbps] <Pop>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_364665.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Kristina Dux - Стираю Границы 2:36
-002.Алексей Завьялов Feat. Олеся Слукина - Ты Не Придешь 3:18
-003.Дима Масюченко Feat. Энвер Каримов - Ты Такая Разная 4:16
-004.Светлана Винник - Идиллия 3:05(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:42
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070800   (364664) от 08.11.2016
-
-VA - Whatpeopleplay Top 100 Topseller Tracks October (2016) [MP3|320 Kbps] <House, Deep House, Electronica>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_364664.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.KiNK - Chorus 6:14
-002.Herbert - See You On Monday (Linkwood Remix) 8:42
-003.Shadowdrum - Ishara 8:10
-004.Soulphiction - Sky So High (Original Mix) 5:50(   Читать дальше...   )Жанр: House, Deep House, ElectronicaПродолжительность: 12:10:49
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070835   (364663) от 08.11.2016
-
-VA - Deep House Republic (2016) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364663.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Liam Van Dyke - Still Dre - Skydiver Edit
-02. Eric Delgado - Breaking Free
-03. Chloe Van Doren - Shades of Blue - Lust Mix
-04. Merrick Lowell - Groovejet(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:05:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AAC23C7BD3F1A6A55C33DA2E4B5C6BA6E9719BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070806   (364662) от 08.11.2016
-
-VA - Endless Wide - Acousitc Session Alaska (2016) [MP3|320 Kbps] <Acousitc, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jenifer Brening - Asap (Acoustic Version) (2:55)
-02. Manchester Snow - Stranger (3:30)
-03. Isabel Soares - Deserve an Award (Unplugged) (3:03)
-04. A19 - 10 Years After (Aerial Mix) (5:16)(   Читать дальше...   )Жанр: Acousitc, PopПродолжительность: 01:28:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6915D02B4D90B1822682C91331E4BE5813D8C4A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070714   (364661) от 08.11.2016
-
-VA - Sensual Beach Lounge Vol. 2 (2016) [MP3|320 Kbps] <Chillwave, Downtempo, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364661.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Charly Mclion - Open Sky (Feat Julita Elmas & Susannah Mavis - Original Mix) 03:56
-02. Twentyeight - Sunday Morning (Original Version) 05:40
-03. Mindel - Heart Beat (Original Mix) 04:16
-04. Sangar - So Beautiful (Original Mix) 04:13(   Читать дальше...   )Жанр: Chillwave, Downtempo, Lounge, Smooth JazzПродолжительность: 02:01:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7ADAE8FB16EB9B9947BC4E6D827B6D0F700E574
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070925   (364660) от 08.11.2016
-
-Bill Evans With Jeremy Steig - What's New (1969) Remaster, 2014, Universal[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364660.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Straight No Chaser [05:45]
- 02.Lover Man [06:24]
- 03.What's New [04:54]
- 04.Autumn Leaves [06:18](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:44:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94B2A5A2343C7DF1286E59D14EDEB85D93244A6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070747   (364659) от 08.11.2016
-
-VA - Too Deep To Sleep Vol.1 (2016) [MP3|320 Kbps] <Deep House>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_364659.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Danny L. - Phenom A Str. (Original Raw Mix) (7:18)
-02. Cox & Pulse - Satisfy Me (Marc Cox & Tom Pulse Tech House Edit) (3:33)
-03. Alex Cle - Frog Orchestra (6:07)
-04. Bildertal - Playa De Barceloneta (Fullruhm Remix) (6:08)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:11:01
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070813   (364658) от 08.11.2016
-
-Н. Тюшевский | Национально-колониальный вопрос (1929) [PDF]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_364658.jpg" />
-</div>
-
-
-###  Подробнее
-
-Марксистско-ленинская теория есть теория революционно-освободительного движения пролетариата. Всякий политический и социальный вопрос она ставит и разрешает не с точки зрения какого-либо отвлеченного нравственного принципа вроде «свобода», «справедливость», не с точки зрения интересов «всего народа», а с точки зрения исторически-конкретных интересов классовой борьбы (   Читать дальше...   )Жанр: История, политологияФормат: PDF
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070677   (364657) от 08.11.2016
-
-Changing Yesterday - Alive (2016) [MP3|320 Kbps] <Alternative Metal, Hard Rock>
+Baroness - Gold & Grey (2019) [FLAC|Lossless|tracks + .cue] <Stoner Rock, Progressive Metal, Sludge Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364657.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366381.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Alive 04:28
-02. Regrets 04:12
-03. Denial 04:05
-04. Empty Life 04:30(   Читать дальше...   )Жанр: Alternative Metal, Hard RockПродолжительность: 00:50:42
+01. Front Toward Enemy (03:45)
+02. I'm Already Gone (03:51)
+03. Seasons (04:27)
+04. Sevens (02:05)(   Читать дальше...   )Жанр: Stoner Rock, Progressive Metal, Sludge MetalПродолжительность: 01:00:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5F656F3BAF2160A92B37D11C85E27D846CFC4800
+magnet:?xt=urn:btih:3A8A6F0C3C289B4DF4C086AED14C4BDBFD100ED2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -672,25 +136,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071001   (364656) от 08.11.2016
+###  Публикация: 1328128   (366380) от 29.09.2019
 
-Место встречи. Мряка?! (08.11.2016) SATRip
+Devious Machines - Duck 1.0.11 VST, VST3, AAX RePack by VR [En]
 
->>Документалистика и Телепередачи
->>Телешоу
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364656.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366380.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Каждый день по будням гости в студии вместе с ведущими будут в прямом эфире разбирать наиболее актуальные темы, которые подбрасывает сама жизнь. Все, что волнует зрителей, — от сезонных эпидемий до военной операции в Сирии — может стать поводом для обсуждения.Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 01:33:00
+Ducking, или сайдчейн компрессия, является одним из определяющих факторов современной музыки. От классического хауса до современного EDM. Duck в считанные секунды поможет сделать ваш трек качающим или ломаным.
+Duck позволяет легко создавать пользовательскую форму волны, которая повторяется со скоростью и глубиной по вашему выбору, или использовать один из 58 пресетов (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AD66CDF1CD3F629104AAF5F7ECF0B11D435F1E4D
+magnet:?xt=urn:btih:370D50779D9C09B68A49493D8196ECD7D6743C9E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -698,28 +163,552 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070936   (364655) от 08.11.2016
+###  Публикация: 1328340   (366379) от 29.09.2019
 
-Weather Report - Live In Offenbach 1978 (2011) 2CD, WDR[FLAC|Lossless|tracks + .cue] <Jazz Fusion>
+Amadeus Pro 2.6.1 (2197) [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366379.jpg" />
+</div>
+
+
+###  Подробнее
+
+Amadeus Pro - многотрековый музыкальный редактор, который будет интересен как любителям, так и профессионалам. Приложение поддерживает работу с несколькими звуковыми дорожками, каждую из которых можно редактировать абсолютно независимо от других - изменять ее уровень громкости, накладывать различные фильтры, вставлять дополнительные фрагменты и т.д. Помимо этого (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.08.2019Разработчик: HairerSoftПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский, Немецкий, Итальянский, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3C5DB3024BD268511EB577D3F814EF7234D860E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328299   (366378) от 29.09.2019
+
+VA - Have A Good Time: Electropop Compilation (2019) [MP3|320 Kbps] <Synyhpop, Electropop>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366378.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Veil Of Light - So Hard
+002. Doubts - Worries
+003. Team Rush Hour - Way Up
+004. Erasure - Am I Right(   Читать дальше...   )Жанр: Synyhpop, ElectropopПродолжительность: 10:46:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:654B469F09DC30F5E318694021F5034655251AFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1327840   (366377) от 29.09.2019
+
+MacX Video Converter Pro 6.4.4 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366377.jpg" />
+</div>
+
+
+###  Подробнее
+
+MacX Video Converter Pro — скачивайте и конвертируйте видео в формат iPhone и iPad
+MacX Video Converter Pro — приложение, которое автоматически конвертирует видеофайлы в нужный конкретному устройству формат. Пользователь вправе выбирать из более чем 350 вариантов настроек, соответствующих самым разным гаджетам, включая даже смартфоны и планшеты не самой первой «свежести». (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.09.2019Разработчик: Digiarty Software, Inc.Поддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4CBA8AEE465C6CC977DAC0D6E910F1DE42B4A28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328158   (366376) от 29.09.2019
+
+Neuton Mouse - Dogmatica (2012) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366376.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Night Talk (04:16)
+02. Planet Of The Capes (04:53)
+03. Dedicated (04:28)
+04. A Knights Tale (04:41)(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 01:03:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22721A639D9AE01EBDC4D308440940DC990AB09C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328222   (366375) от 29.09.2019
+
+Ricardo Donoso - Re_Calibrate (2019) Denovali Records [FLAC|Lossless|WEB-DL|tracks] <Experimental, Ambient, Techno, Drone>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366375.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Neutral-Beam Injection (04:56)
+ 02. Prevention And Control (06:31)
+ 03. Forced Perspective (04:48)
+ 04. Running Counter To (04:48)(   Читать дальше...   )Жанр: Experimental, Ambient, Techno, DroneПродолжительность: 00:36:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EEE3D35969389CCEDF79E495995944E9E612AD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328303   (366374) от 29.09.2019
+
+VA - Subculture (Mixed by Craig Connelly & Factor B) (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366374.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Craig Connelly - One Equals Atmosphere Squared (Intro Mix) (1:47)
+02. Craig Connelly - Solstice (3:37)
+03. Craig Connelly & Alex Holmes - Waterfall (Extended Mix) (8:09)
+04. Cold Blue - Simplicity (3:34)(   Читать дальше...   )Жанр: TranceПродолжительность: 05:22:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05825CA5628441A25F98B7735E4E93A2CED4BB06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328298   (366373) от 29.09.2019
+
+VA - Hedkandi: Summer Trance Set (2019) [MP3|320 Kbps] <Trance, Electro, Compilation>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366373.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Miroslav Vrlik - Rise (Extended Mix)
+002. Dj 156 Bpm - Bring It Up!
+003. Harry Square - Affinity (Extended Mix)
+004. Paul Courbet - Isolation (Extended Mix)(   Читать дальше...   )Жанр: Trance, Electro, CompilationПродолжительность: 13:04:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39E313DC7CD82392FEB2D1D252C874F8B448EBB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328242   (366372) от 29.09.2019
+
+Artstudio Pro 2.2.11 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366372.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представляем Artstudio Pro, самое мощное приложение для рисования и редактирования фотографий, доступное как для MacOS, так и для iOS. Преемник нашего знаменитого приложения ArtStudio был переработан, благодаря чему многие новые функции и улучшения в полной мере используют новейшие технологии Metal, iCloud Drive и оптимизированы для 64-битных многоядерных процессоров (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.08.2019Разработчик: Lucky ClanПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD44378E61167FF58290AC407F136D79C1B90100
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1327836   (366371) от 29.09.2019
+
+iSkysoft Video Converter Ultimate 11.5.0 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366371.jpg" />
+</div>
+
+
+###  Подробнее
+
+iSkysoft Converter  для Mac. Сделайте все это - конвертируйте, загружайте, редактируйте видео и записывайте. Копируйте, скачивайте, конвертируйте и записывайте в одном пакете. Converter предоставляет универсальное решение для управления мультимедиа. В дополнение к предоставлению всех функций iSkysoft Converter, он предлагает возможность копировать диск, создавать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.09.2019Разработчик: iSkysoft StudioПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AD8275B137CD7F8DFDAF7A2B89FF8EBED824072
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328231   (366370) от 29.09.2019
+
+Chet Baker - The Pacific Jazz Collection (1953 - 1958) 4CD, 2016, Enlightenment [FLAC|Lossless|tracks + .cue] <Cool, Bop, Mainstream Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364655.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366370.jpg" />
 </div>
 
 
 ###  Подробнее
 
 CD1:
-01.Black Market [11:14]
-02.Scarlet Woman [09:25]
-03.Young And Fine [06:47](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 02:09:00
+01. Long Ago (And Far Away) [2:16]
+02. Band Aid [2:48]
+03. The Thrill Is Gone [2:47](   Читать дальше...   )Жанр: Cool, Bop, Mainstream JazzПродолжительность: 05:14:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AC68FF01129F942648A04397E9309A2E7C2C2860
+magnet:?xt=urn:btih:B23C26F9D01B9FAC1731D6F0C3273E1F3031C4C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1327760   (366369) от 29.09.2019
+
+Geekbench 5 v5.0.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366369.jpg" />
+</div>
+
+
+###  Подробнее
+
+Geekbench 5 – бенчмарк для измерения производительности в реальных задачах
+Когда мы покупаем Mac или когда мы хотим быть уверены, что все компоненты нашей системы работают хорошо, мы, как правило, используем программы для выполнения тестов.
+
+Geekbench 5 предлагает обновленный интерфейс и ряд новых бенчмарков, которые созданы специально для измерения быстродействия (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.09.2019Разработчик: Primate Labs Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48F72A4D436A13876666DAA154F41580CAA2BC3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328115   (366368) от 29.09.2019
+
+Leaf 5.1.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366368.jpg" />
+</div>
+
+
+###  Подробнее
+
+Leaf интуитивно понятная читалка для RSS новостей
+Leaf является удивительным для чтения новостей для вашего Mac. Читайте, делитесь и пользуйтесь поиском новости на всех ваших любимых веб-сайтов.
+
+Leaf проще как по функциям, так и по внешнему виду. В читалке появилась поддержка  Feedly, так что теперь без проблем можно переключаться между Leaf, ReadKit и Reeder с синхронизацией (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.09.2019Разработчик: Rocky Sand StudioПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4AD79A91736D388EB3DEB39DF5FF514108B4348
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1327892   (366367) от 29.09.2019
+
+Elasty 2.0.3 [En]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366367.jpg" />
+</div>
+
+
+###  Подробнее
+
+Elasty - панель инструментов для того, чтобы настроить фильмы на Mac OS X со многими расширенными функциями. Можете импортировать различные форматы фильма из любого источника, включая прямой доступ к iPhoto и носителям iMovie. Можете также использовать iSight непосредственно, из Elasty, чтобы импортировать изображение или анимацию.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: CreaceedПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84A7919C269D6C48EDFC08A0987342D3E29A2FD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328338   (366366) от 29.09.2019
+
+Rodriguez Jr. - Totally Mobilee - Rodriguez Jr. Collection, Vol. 1-2 (2013-2015) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366366.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bittersweet (6:29)
+02. Massilia (6:41)
+03. Muppet Anthem (8:02)
+04. Music Don't Lie (7:35)(   Читать дальше...   )Жанр: Tech House, Deep House |Продолжительность: 03:50:17 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:225EA0866DE4BA756A02B5E8D95A583D455CD8C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1327869   (366365) от 29.09.2019
+
+Джон Беллэрс | Силуэт в тени (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366365.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приключения Льюиса продолжаются! Открыв сундук, принадлежавший дедушке Барнавельту, Льюис находит загадочную монету. Она выглядит совершенно обычной, но мальчик почему-то не хочет с ней расставаться. Вскоре начинают происходить события, которым сложно найти объяснение: приходят таинственные открытки с исчезающими чернилами, в темноте виднеются пугающие тени… Неужели (   Читать дальше...   )Жанр: Героическое фэнтези, Городское фэнтези, МистикаПродолжительность: 04:06:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4913594A3CFBCB757D0D9AC2720D5D1ED4913A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255254   (366364) от 17.10.2018
+
+WonderPen 1.5.3 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366364.jpg" />
+</div>
+
+
+###  Подробнее
+
+WonderPen - приложение для как для профессиональных, так и для писателей любителей.
+
+WonderPen - простой в использовании текстовый редактор с поддержкой Markdown с поддержкой полноэкранного режима. Документы могут быть экспортированы в качестве Image, PDF, HTML и т.д. WonderPen поддерживает автоматическое сохранение при редактировании, возможность добавления заметок (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.10.2018Разработчик: Yingjie WuПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Английский, Упрощенный китайский, Традиционный китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2927723DDE20FE9F11AE45F7030BADFCB80800D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255372   (366363) от 17.10.2018
+
+Secrets - Secrets (2018) [FLAC|Lossless|tracks + .cue] <Punk>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366363.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sixteen (3:45)
+ 02. Fourteen (3:26)
+ 03. Incredible (3:43)
+ 04. Strangers (4:22)(   Читать дальше...   )Жанр: PunkПродолжительность: 00:46:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3ACE87EEA48F30D74CC8242846CA7D88E521BDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255276   (366362) от 17.10.2018
+
+MarsEdit 4 v4.2.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366362.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первое, на что обычно обращаешь внимание, выбирая программу для написания в блог - это количество сервисов, которые она поддерживает, с этим параметром у MarsEdit все отлично. Клиент умеет работать с WordPress, Blogger, Tumblr, Squarespace, TypePad, Movable Type, LiveJournal, Drupal, Vox и еще с множеством менее популярных блог-платформ.Тип издания: macOS SoftwareРелиз состоялся: 13.10.2018Разработчик: Red SweaterПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B2F2579324E0875F595303C8E0509B368597B33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576556   (366361) от 14.09.2022
+
+Vivaldi 5.4.2753.51 + Автономная версия (standalone) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366361.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интернет-браузер, созданный компанией Vivaldi Technologies на основе свободного браузера Chromium и движка Blink. Ряд функций, такие как боковая панель, режим отображения картинок на веб-странице, заметки, визуальные вкладки, корзина с закрытыми вкладками и многие другие были перенесены из последней версии браузера Opera 12, сделанного на движке Presto.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0182CCCD697CCB4DF61F25BB88677BFD37BF7B4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576463   (366360) от 14.09.2022
+
+Экспедиция: Глубочайшая Пещера / Explorer: The Deepest Cave (2022) WEB-DL [H.264/1080p] [VO]
+
+>>Документалистика и Телепередачи
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366360.jpg" />
+</div>
+
+
+###  Подробнее
+
+Известный спелеолог Билл Стоун всю жизнь пытается спуститься под землю так глубоко, как не осмеливался ещё ни один человек. В неизведанных глубинах пещеры Чеве в Мексике он намерен установить новый мировой рекорд - найти проход на глубине более двух километров, раз и навсегда доказав свою теорию о том, что Чеве - самая глубокая пещера в мире. Данную экспедицию сравнивают (   Читать дальше...   )Телекомпания: ABC Studios, СШАЖанр: документальныйРежиссер: Pablo Durana, Дрю ПуллиПеревод: Одноголосый профессиональный (Jaskier)Субтитры: Английские, испанские, португальские, греческие, норвежские, датские, турецкие, китайские, финские, шведские, японскиеПродолжительность: 00:50:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D96A6D5D069AF3EE45AAD6980A56ABEC991082AC
 ```
 
 https://mybot314.ru/tekegram_catalog/

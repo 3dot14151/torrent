@@ -1,3 +1,32 @@
+###  Публикация: 927249   (528636) от 13.08.2015
+
+Ketama - Antologa De Ketama (2015) 2 CD [MP3|320 кб/с]<Spanish, Nuevo Flamenco>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_528636.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Verdadero
+02. Problema
+03. Se Dejaba Llevar Por Ti
+04. Ketama & Khaled – El Oasis De Los Dioses(   Читать дальше...   )Жанр: Spanish, Nuevo Flamenco |Продолжительность: 01:54:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E429E89B2F2F3DF5F75F23C74BE80AC882F1982
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1052618   (528075) от 14.09.2016
 
 Jim Brickman - Pure Cinema (2016) [MP3|320 Kbps] <New Age, Piano>
@@ -716,35 +745,6 @@ Dexter Britain - Impression (2015) [MP3|320 кб/с]<Electronic, Neoclassical, A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA5773C3A9DFFB8FF8F00734F73EC5353952905B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314122   (521322) от 12.07.2019
-
-Deva Epica - Freedom (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Awakening (8:59)
-02. Freedom (4:40)
-03. Follow the Heart (3:37)
-04. Eternal Deva (5:45)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:15:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D15D40470BC68EC4B0A4B78EEAF472FA3DC37280
 ```
 
 https://mybot314.ru/tekegram_catalog/

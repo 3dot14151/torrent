@@ -1,22 +1,25 @@
-###  Публикация: 886481   (769908) от 09.04.2015
+###  Публикация: 1213109   (772010) от 16.03.2018
 
-Заложница 3 / Taken 3 (2014) BDRip [720p] ATV
+DJ Nikolaevv - Melody Of Leaving Summer (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
 
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769908.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_772010.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жизнь бывшего правительственного агента Брайана Миллса рушится, когда его обвиняют в убийстве, которого он не совершал. Преследуемый опытным инспектором полиции, Миллс пытается отследить настоящего убийцу…Производство: Франция / © 2015 Twentieth Century Fox Film Corporation. All rights reserved.Жанр: боевик, триллерРежиссер: Оливье МегатонАктеры: Лиам Нисон, Мэгги Грэйс, Форест Уитакер, Сэм Спруэлл, Фамке Янссен, Дугрей Скотт, Дон Харви, Дилан Бруно, Лиленд Орсер, Дэвид Уоршофски, Джон Грайз, Джонни УэстонПеревод: ДублированныйОзвучка / Автор перевода: (iTunes)Язык субтитров: Русский, АнглийскийПродолжительность: 01:48:57
+01.  Dream In Trance (Original Mix)  5:20
+02.  Melody Of Leaving Summer (Original Mix)  5:25
+03.  You I Lose (Original Mix)  4:12
+04.  Summer Time. (Original Mix)  4:28(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 00:27:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:07CC39F00B7BDD77E112019C8D73B23B642612A4
+magnet:?xt=urn:btih:0FFB40DCF976EED70AF6782EB01B42ABFDD74953
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +27,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 886520   (769907) от 09.04.2015
+###  Публикация: 1213355   (772009) от 16.03.2018
 
-Чем дальше в лес... / Into the Woods (2014) BDRip [576p] iPad
+Eyephone - Discography 7 Releases (1995-2016) [FLAC|Lossless|tracks+.cue, tracks] <IDM, Electro, Downtempo, Experimental, Ambient>
 
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
+>>Electronic
+>>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769907.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_772009.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Золушка мечтает попасть на бал, Пекарь, когда-то проклятый Ведьмой, и его Жена горюют о том, что у них нет ребенка, Джек хочет, чтобы его корова Беляночка наконец-то дала молоко, его Мать мечтает быть богатой, а Красной Шапочке очень нужен каравай хлеба — гостинец для Бабушки, которая живет в лесу… и, может быть, немного сластей для себя лично.Производство: СШАЖанр: Мюзикл, фэнтези, комедия, семейныйРежиссер: Роб МаршаллАктеры: Мэрил Стрип, Эмили Блант, Джеймс Корден, Анна Кендрик, Крис Пайн, Джонни Депп, Дэниэл Хаттлстоун, Кристин Барански, Тэмми Бланчард, Люси ПанчПеревод: Дублированный (iTunes Russia)Язык субтитров: Русский, АнглийскийПродолжительность: 02:04:45
+01. I’m Woozy From My Leaky Mufflers (09:22)Тип издания: CD, WEBЖанр: IDM/Future Jazz/ExperimentalПродолжительность: 00:09:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D0A1F23B3604F8F4F32AF54B412BF5A4454B52FB
+magnet:?xt=urn:btih:036CD5D61EFB01BCE19169E8E817D09829D4EBF0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,25 +53,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 886721   (769902) от 09.04.2015
+###  Публикация: 1213420   (772008) от 16.03.2018
 
-Л. Калугина | Мультиварка. Блюда на любой вкус (2014) [FB2]
+The BBC Big Band - Harlem Nocturne (2004) Galaxy Music [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
 
->>Разное (категория книг)
->>Кулинария
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769902.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_772008.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мультиварка довольно проста в эксплуатации, режим приготовления контролируется электроникой, температура приготовления блюда не превышает 100 °C, также не требуется контроль за сроком приготовления блюда: прибор сам отключится в нужное время. В этом замечательном приборе можно приготовить много разнообразных блюд от супов до выпечки. Кроме того, мультиварка выполняет функцию термоса, сохраняя блюда горячими в течение 12 часов.Жанр: КулинарияФормат: FB2
+01. I'm Getting Sentimental Over You [03:35]
+02. Harlem Nocturne [02:50]
+03. Leave Us Leap [03:30]
+04. You Made Me Love You [03:19](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 00:52:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:479566EB70C0FFC334CEF02F575B4D667D9A4AC0
+magnet:?xt=urn:btih:2153D6FF0D87F316DF4524ADC96AB99F0D88C7DB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -76,25 +82,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 886664   (769899) от 09.04.2015
+###  Публикация: 1213386   (772007) от 16.03.2018
 
-Icecream PDF Split and Merge Pro 2.04 [Multi/Ru]
+D. Batistatos - Sides (2018) Cosmicleaf Records [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Dub>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769899.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_772007.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Icecream PDF Split&Merge позволяет просто и быстро разделить или объединить PDF файлы. Программа предлагает несколько вариантов разделения PDF: постраничное разбиение PDF файла, удаление конкретных страниц и др. Вы можете объединить или разбить любые PDF файлы без ограничения по количеству страниц, а также файлы под паролем. Программа имеет встроенную читалку PDF файлов для Вашего удобства.Язык интерфейса: Русский, Английский и другие
+01. Sides (03:54)
+ 02. Work It Out (03:53)
+ 03. For All I Know (04:22)Жанр: Downtempo, DubПродолжительность: 00:12:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FB10C3E20D4464F1963BCCC90EA4F01DC62EF3E9
+magnet:?xt=urn:btih:ED8C4AA4760B4E173D0A5014FB880CF0D5F8C6EF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -102,193 +110,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392081   (769894) от 24.06.2020
+###  Публикация: 1213342   (772006) от 16.03.2018
 
-Sports Team - Deep Down Happy (2020) [MP3|320 Kbps] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769894.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lander (02:36)
- 02. Here It Comes Again (02:17)
- 03. Going Soft (03:23)
- 04. Camel Crew (03:34)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:36:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6104E6F9DFCC2D0AEC5972ECFB411C8919A6A97D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392114   (769893) от 24.06.2020
-
-Протоиерей Дмитрий Шишкин | Негасимый свет (2018) [FB2, EPUB]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769893.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге протоиерея Дмитрия Шишкина «Негасимый свет» собраны рассказы и очерки, написанные автором в разные годы. Отец Дмитрий искренне и глубоко рассказывает о своих духовных исканиях, о неутолимой жажде Бога, которая с самого детства побуждала его во всем находить отблески Божественной красоты. Он позволяет читателю заглянуть в потаённые уголки своего сердца, начиная (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBCCDE8EF4DC6DD59ABBE7290D638DA07F70C828
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392195   (769892) от 24.06.2020
-
-Omar Rodriguez-Lopez - The Clouds Hill Tapes, Pt. I (2020) [MP3|320 Kbps] <Psychedelic Rock, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769892.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Roman Lips (02:35)
- 2. Fishtank (03:15)
- 3. Bitter Tears (04:52)
- 4. Houses Full Of Hurt (03:22)(   Читать дальше...   )Жанр: Psychedelic Rock, Progressive RockПродолжительность: 00:31:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9931EFF8894025C255BDEE6E778127E160F6F981
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392122   (769891) от 24.06.2020
-
-Book Collector Pro 20.1.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769891.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборщик книг позволяет автоматически каталогизировать ваши книги в базе данных, просто напечатав название книги или отсканировав штрих-код ISBN, чтобы загрузить все данные из различных источников в Интернете. Просматривайте свою коллекцию по ряду организационных факторов или используйте представление миниатюр для просмотра изображений обложки.Тип издания: macOS SoftwareРелиз состоялся: 23.06..2020Разработчик: CollectorzПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07905884B70DAEB3FD03C31E9215EE8B9BA6AAAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392121   (769890) от 24.06.2020
-
-Blocs 3.5.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769890.jpg" />
-</div>
-
-
-###  Подробнее
-
-Blocs - простой способ создания красивых сайтов, который избавляет вас от необходимости написания кода вручную. Blocs генерирует хорошее качество кода без лишнего "мусора" и обеспечивает новый уровень работы, помогая Вам сосредоточиться на визуальном создании своего эксклюзивного дизайна.
-
-Кодирование без программирования - Вам не нужно понимать или использовать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.06.2020Разработчик: BlocsAppПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C211ABC227A95CBCA999504EEC4715056EC915C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392262   (769889) от 24.06.2020
-
-Wondershare DVD Creator 6.1.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769889.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wondershare DVD Creator - программа для создания нового DVD из всех популярных видео-форматов.
-Основные возможности: создание DVD с полноценными меню и субтитрами; выбор из имеющихся пред настроек или собственная настройка параметров видео - битрейта, фреймрейда, качества и других параметров DVD, поддержка NTSC и PAL, поддержка соотношений картинки 4:3 и 16:9, предварительный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.06.2020Разработчик: Wondershare Software Co., LtdПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11B63FB617A9E80920600739551697465DFB2FF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392185   (769888) от 24.06.2020
-
-VA - Beatport Bassline: Electro Sound Pack #112 (2020) [MP3|320 Kbps] <D&B, Bassline>
+VA - Neotrance Selected Works [Compiled by ZeByte] (2018) [MP3|320 Kbps] <Neotrance>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769888.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_772006.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Max Shandula - Energy Driver
-002. Drumsound & Bassline Smith - Can You Feel It
-003. Minor Science - Balconies
-004. Ntro Ref - Virtual Reality(   Читать дальше...   )Жанр: D&B, BasslineПродолжительность: 08:17:38
+01. Synasthesie - Lotus (Clawz Sg Remix) [07:19]
+02. Nick Devon - Skyline (Mallone's City Lights Remix) [07:25]
+03. Frankye Lova, Stephan Seddel - Unstable [08:15]
+04. Jos & Eli, Sean Doron, Jenia Tarsol - Amore [08:27](   Читать дальше...   )Жанр: NeotranceПродолжительность: 04:59:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0192C78617AA598B31A905AE8B57A46178090D92
+magnet:?xt=urn:btih:876E9994534FC2E3C2CD6B3E5AACE69ED1E228F0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -296,53 +139,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392231   (769887) от 24.06.2020
+###  Публикация: 1213221   (772005) от 16.03.2018
 
-Чарльз Мартин | Там, где кончается река (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769887.jpg" />
-</div>
-
-
-###  Подробнее
-
-Судьбы художника из маленького провинциального города и дочери влиятельного политика должны были сложиться иначе. Доссу и Эбби, выходцам из разных социальных слоев, не стоило встречаться и уж тем более любить друг друга. Казалось, весь мир против их союза. Но что есть мнение ропщущей толпы для тех, кто поклялся любить друг друга до самой смерти? Вот только разлука (   Читать дальше...   )Жанр: Зарубежная прозаПродолжительность: 09:19:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6961DD5574E8C28FC1698545D893477D4035434F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392260   (769886) от 24.06.2020
-
-Downie 4 v4.0.15 (Build 4122) [Multi/Ru]
+KCNcrew Pack 15.03.2018 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769886.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_772005.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Downie – это простейший видео-загрузчик.
-Downie поддерживает более 1,000 популярных сайтов, таких как YouTube (в том числе 4K видео), Vimeo, MetaCafe, iView, Facebook и многие другие.
-Выберите качество и формат скачиваемого файла и наслаждайтесь любимыми видео.Тип издания: macOS SoftwareРелиз состоялся: 24.06.2020Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: OS X 10.12 и вышеЯзык интерфейса: Русский, Английский и другие
+KCNcrew Pack - это огромнейший сборник серийников на софт под MacOS X с удобной оболочкой для просмотра и поиска. Существует уже очень давно и регулярно обновляется!
+
+База серийных номеров проекта KCNcrew по состоянию на середину марта 2018 годаТип издания: macOS SoftwareРелиз состоялся: 03.2018Разработчик: KCNcrewПоддерживаемая ОС: OS X 10.4 или вышеЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AFF8CEC171EE059E8BF1000380F328F1ABDC9270
+magnet:?xt=urn:btih:D8972D687D53EC3EB195D25D4BF9EEC977F2D05A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -350,28 +167,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392184   (769885) от 24.06.2020
+###  Публикация: 1213299   (772004) от 16.03.2018
 
-VA - Beatport Chillout: Electro Sound Pack #111 (2020) [MP3|320 Kbps] <Chillout, Downtempo>
+Станислав Романовский | Семейный экипаж (1984) [PDF]
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769885.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_772004.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Miss Kittin - #Metoo
-002. Rocio Starry - Cruzados (Original Mix)
-003. Roberto Sol feat. Ines Prados - Tu (El Sur Jazz Mix)
-004. Abbe Prism - Dark Matter(   Читать дальше...   )Жанр: Chillout, DowntempoПродолжительность: 08:07:09
+Повесть о дружной крестьянской семье, выращивающей хлеб.Жанр: Детская прозаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AAE3D29B4ABFE07E1EAFF93B979BCBEDB0BEFCFE
+magnet:?xt=urn:btih:F0BF10C0681645BD6CEEFD021EAE8B368AE440C1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -379,26 +193,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392130   (769884) от 24.06.2020
+###  Публикация: 1213161   (772003) от 16.03.2018
 
-Детский КВН (2020) WEBRip [H.264/1080p-LQ] (сезон 2, выпуск 3)
+VA - Easter Chilling Breakfast (2018) [MP3|320 Kbps] <Balearic, Downtempo>
 
->>Архив торрентов
->>Архив Юмора
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769884.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_772003.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Детский КВН» — это телевизионная игра, в которой команды юных ребят будут соревноваться в остроумии, находчивости и, конечно же, чувстве юмора.
-Участники игры в возрасте от 4 до 16 лет, покажут юмористические зарисовки, а жюри, в составе которого известные артисты и звезды Высшей лиги КВН — решит, кто из них достоин дойти до финала. Впервые в истории игры жюри отказалось (   Читать дальше...   )Производство: Россия | Канал «СТС», «АМиК»Жанр: Юмор, играРежиссер: Константин Куц, Вадим КиселёвСубтитры: ОтсутствуютПродолжительность: 00:45:26
+01. Sweetadelic - Cool Confidence 05:51
+02. Loungeside - Coffeemaker 07:40
+03. Chillelektro - Oland 06:48
+04. Oscar Stringz - Hawaii 05 04:56(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 02:49:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:84D8CECC10C0CFCCF2E7CA75731DC7E1E911E9B8
+magnet:?xt=urn:btih:712CCBA3117057D200B1A11DF44EBDCABB97048F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -406,28 +222,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392076   (769883) от 24.06.2020
+###  Публикация: 1213177   (772002) от 16.03.2018
 
-Bishop Of Hexen - The Death Masquerade (2020) [MP3|320 Kbps] <Symphonic, Black Metal>
+Swingle Singers - Best Of The Classic Years (1963 - 1968) 2003, Helicon [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Classical Crossover>
 
->>
->>
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_769883.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_772002.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Catacumba Essentia (01:47)
- 2. A Witch King Reborn (06:48)
- 3. Of Shuttering Harps & Shadow Hounds (07:56)
- 4. Death Masks (07:32)(   Читать дальше...   )Жанр: Symphonic, Black MetalПродолжительность: 00:50:21
+01. Sinfonia [03:36]
+02. Choral No. 1 [02:40]
+03. Waltz [03:15]
+04. Choral [03:22](   Читать дальше...   )Жанр: Vocal Jazz, Classical CrossoverПродолжительность: 00:42:48
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:0826A2BE089BFFA6D2417FAEF8123C68C35886AA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -435,26 +251,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392145   (769882) от 24.06.2020
+###  Публикация: 1213266   (772001) от 16.03.2018
 
-Privacy Eraser Free 5.0 Build 3532 + Portable [Multi/Ru]
+Maxthon Browser 5.2.0.1400 beta + Portable [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769882.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_772001.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Privacy Eraser Free - комплексный инструмент для защиты приватности путем удаления истории вашей активности в Интернете и других следов деятельности на ПК. Поддерживает основные параметры системы Windows, популярные браузеры и приложения. Ускоряет интернет-серфинг, повышает производительность и стабильность ПК.
-Буквально одним щелчком мыши Privacy Eraser стирает (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+Maxthon (официально называется Облачный браузер Maxthon, изначально известный как MyIE2) — это бесплатный веб-браузер для Windows, Linux и OS X, разработанный в Китае компанией Maxthon Ltd.
+MX5 - новая версия веб-браузера от Maxthon для Windows наглядно показывает прогресс продукта, который превратился из классического браузера в персонального ассистента для всех (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AB8F4ADD297987B842A560621558A1963ABBAC34
+magnet:?xt=urn:btih:4F5F4C0F8692F3DD146DC3B6EB5529FCB5D4E5B1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -462,26 +278,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392134   (769881) от 24.06.2020
+###  Публикация: 1213300   (772000) от 16.03.2018
 
-Детский КВН (2020) WEBRip [H.264/1080p-LQ] (сезон 2, выпуск 4)
+Тоне Селишкар | Экипаж «Синей чайки» (1961) [FB2]
 
->>Архив торрентов
->>Архив Юмора
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769881.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_772000.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Детский КВН» — это телевизионная игра, в которой команды юных ребят будут соревноваться в остроумии, находчивости и, конечно же, чувстве юмора.
-Участники игры в возрасте от 4 до 16 лет, покажут юмористические зарисовки, а жюри, в составе которого известные артисты и звезды Высшей лиги КВН — решит, кто из них достоин дойти до финала. Впервые в истории игры жюри отказалось (   Читать дальше...   )Производство: Россия | Канал «СТС», «АМиК»Жанр: Юмор, играРежиссер: Константин Куц, Вадим КиселёвСубтитры: ОтсутствуютПродолжительность: 00:45:18
+Повесть известного современного словенского писателя Тоне Селишкара рассказывает о ребятах, совершивших далёкое морское путешествие к южным берегам Адриатического моря.
+
+Путешествие требует от ребят мужества, выдержки, сноровки, но они смело идут навстречу опасностям и выходят победителями из самых трудных испытаний.
+(   Читать дальше...   )Жанр: Детская прозаПеревод: Ирина МакаровскаяФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6D21C9C31E90B9D098C6B5282E9E8A3BAAADB64E
+magnet:?xt=urn:btih:629256B5DBED9296CECBC49B3354FE6B52CC1466
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -489,27 +307,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392118   (769880) от 24.06.2020
+###  Публикация: 1213365   (771999) от 16.03.2018
 
-BetterZip 5 v5.0.1 [Multi]
+Alapastel - Hidden For The Eyes (2018) Slowcraft Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Acoustic, Experimental, Modern Classical>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_771999.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Encounter (05:30)
+ 02. Seashell (04:27)
+ 03. Bride Of The Mountains (07:04)
+ 04. Frozen Lakes, Fog And Snow (05:54)(   Читать дальше...   )Жанр: Ambient, Acoustic, Experimental, Modern ClassicalПродолжительность: 00:51:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:149AF7BD0D07A6BC0C6F9ED9D13796B5E76395C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213304   (771998) от 16.03.2018
+
+Transmit 5.1 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769880.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_771998.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Если на жестком диске есть данные, которые используются редко, в целях экономии дискового пространства имеет смысл упаковать такие файлы и папки в архивы. Для этой цели необходимо воспользоваться программой-архиватором, например, утилитой BetterZip.
-
-Приложение позволяет сжимать данные, используя разные алгоритмы упаковки, уменьшая при этом исходный размер файлов. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.06.2020Разработчик: MacItBetterПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Немецкий и др.
+Transmit представляет собой отличный FTP (File Transfer Protocol), SFTP, S3 (Amazon.com файл-хостинг) и iDisk / WebDAV клиент, который позволяет загружать, выгружать и удалять файлы через Интернет, с продуманным, простым и интуитивно-понятным интерфейсом, высокой скоростью передачи/приема файлов, прекрасной стабильностью. Теперь Transmit подключается к 10 новым облачным (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.03.2018Разработчик: Panic IncПоддерживаемая ОС: macOS 10.11 или вышеЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5AF74E1640FB039D56DE67723D662475A858E27B
+magnet:?xt=urn:btih:276988FCBFB1CBFDAFC036B1936B112FA82FC327
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -517,25 +362,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392159   (769879) от 24.06.2020
+###  Публикация: 1213255   (771997) от 16.03.2018
 
-Анна Бердичевская (сост.) | Битов, или Новые сведения о человеке [сборник] (2019) [FB2]
+Graeme Keavney, Geoff McGarvey - Dawn (2018) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Ambient, New Age>
 
->>Разное (категория книг)
->>Публицистика
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769879.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_771997.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мы собрали воспоминания родных, друзей и товарищей Андрея Георгиевича Битова, преследуя цель найти и зафиксировать новую информацию о прославленном писателе, ту, что еще не была представлена в журнальных статьях или литературоведческих работах. Ширвиндт и Жванецкий, Рост и Великанов, Габриадзе и Фагот – все они поделились своими воспоминаниями о самом Битове, о его (   Читать дальше...   )Жанр: Биографии и мемуарыФормат: FB2
+1. McGarvey - Pebble Beach
+2. McGarvey - Blue Mountain
+3. Keavney - Newport
+4. McGarvey - Salvation Creek(   Читать дальше...   )Жанр: Modern Classical, Ambient, New AgeПродолжительность: 01:04:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:20693249439C62394A83F3E8F7AE9D6E424E1B0C
+magnet:?xt=urn:btih:0A081BFFD14C28D7B5DE9F5BD1DA0BEA66A51B7C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -543,26 +391,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392127   (769878) от 24.06.2020
+###  Публикация: 1213296   (771996) от 16.03.2018
 
-Детский КВН (2020) WEBRip [H.264/1080p-LQ] (сезон 2, выпуск 2)
+PrivaZer 3.0.43 Donors version + Portable [Multi/Ru]
 
 >>Архив торрентов
->>Архив Юмора
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769878.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_771996.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Детский КВН» — это телевизионная игра, в которой команды юных ребят будут соревноваться в остроумии, находчивости и, конечно же, чувстве юмора.
-Участники игры в возрасте от 4 до 16 лет, покажут юмористические зарисовки, а жюри, в составе которого известные артисты и звезды Высшей лиги КВН — решит, кто из них достоин дойти до финала. Впервые в истории игры жюри отказалось (   Читать дальше...   )Производство: Россия | Канал «СТС», «АМиК»Жанр: Юмор, играРежиссер: Константин Куц, Вадим КиселёвСубтитры: ОтсутствуютПродолжительность: 00:47:33
+PrivaZer - полезная утилита, которая поможет вам очистить компьютер от следов конфиденциальной информации. Она подготовит детальный отчет со списком всех обнаруженных следов, обнаруженных в реестре, истории посещений сайтов, cookies и т.п. Также PrivaZer предоставит вам возможность удалить все обнаруженные или выбранные объекты при помощи специальных алгоритмов. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4FC6FB37896F32F9F2D5FA00F5DAC86DBA4D0F5F
+magnet:?xt=urn:btih:34C51ABB595087743369F1FCC256054E0591F4B1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -570,84 +417,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391960   (769877) от 24.06.2020
+###  Публикация: 1278529   (771995) от 25.01.2019
 
-Phoebe Bridgers - Punisher (2020) [MP3|320 Kbps] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769877.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DVD Menu (01:10)
- 02. Garden Song (03:40)
- 03. Kyoto (03:05)
- 04. Punisher (03:10)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:40:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A7ABCBAFD87C1210FFD456BA10187579BDAC372
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392135   (769876) от 24.06.2020
-
-Детский КВН (2020) WEBRip [H.264/1080p-LQ] (сезон 2, выпуск 5)
-
->>Архив торрентов
->>Архив Юмора
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769876.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Детский КВН» — это телевизионная игра, в которой команды юных ребят будут соревноваться в остроумии, находчивости и, конечно же, чувстве юмора.
-Участники игры в возрасте от 4 до 16 лет, покажут юмористические зарисовки, а жюри, в составе которого известные артисты и звезды Высшей лиги КВН — решит, кто из них достоин дойти до финала. Впервые в истории игры жюри отказалось (   Читать дальше...   )Производство: Россия | Канал «СТС», «АМиК»Жанр: Юмор, играРежиссер: Константин Куц, Вадим КиселёвСубтитры: ОтсутствуютПродолжительность: 00:47:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1477B0868E7DFF40D0156C1F667AC3B87E83334F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392141   (769875) от 24.06.2020
-
-Hum - Inlet (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+Sufferer - Sufferer (2017) Limited Edition [FLAC|Lossless|tracks + .cue] <Post-Hardcore, Hard Rock, Alternative Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769875.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_771995.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Waves (05:31)
-02. In the Den (06:45)
-03. Desert Rambler (09:02)
-04. Step Into You (04:04)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:55:30
+01. Chapter I (1:23)
+ 02. Chapter II (2:28)
+ 03. Chapter III (4:25)
+ 04. Chapter IV (3:25)(   Читать дальше...   )Жанр: Post-Hardcore, Hard Rock, Alternative RockПродолжительность: 00:36:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DDC6CC5BD69B06118168DF674CBAD73D8072923A
+magnet:?xt=urn:btih:F9C754C2B07B6257ECE23349FC7CA9BB654CE337
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -655,25 +446,227 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 886804   (769859) от 09.04.2015
+###  Публикация: 1278310   (771994) от 25.01.2019
 
-HyperSnap 8.05.01 Final Portable by PortableAppZ [Ru]
+Lingon X 6.5.6 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_771994.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lingon X позволяет визуально создавать файлы автозагрузки, которые используются для запуска приложений и скриптов автоматически при загрузке macOS. Список всех программ выносится в таблицу, где его удобно редактировать. Тут же отображается статус каждой программы: чем она занимается, работает ли в данный момент и т.п.
+
+Всю конфигурацию можно проводить и вручную, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.01.2019Разработчик: Peter Borg Apps ABПоддерживаемая ОС: macOS 10.13 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:924998AC405CB3F0EB9BDE94D67AE015D4EB8EDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278433   (771993) от 25.01.2019
+
+Kazutoki Umezu - Diva (1988) NEC Avenue [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_771993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Diva [3:56]
+02. Nishibi no Ataru Heya [8:12]
+03. Hinobashi no Tamoto [3:23]
+04. Poi [7:25](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:46:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03AE2DD05074E78F513CA5DF77A3DE0945C9B4D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278527   (771992) от 25.01.2019
+
+Citay - Little Kingdom (2007) [FLAC|Lossless|tracks + .cue] <Acoustic, Psychedelic Rock, Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_771992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. First Fantasy (6:45)
+ 02. Little Kingdom (6:40)
+ 03. A Riot of Color (5:27)
+ 04. On the Wings (7:49)(   Читать дальше...   )Жанр: Acoustic, Psychedelic Rock, Prog RockПродолжительность: 00:44:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0C7C88037F9B02838C06DA5D607B59CF91E35C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278535   (771991) от 25.01.2019
+
+Oval - Ovalprocess (2000) [FLAC|Lossless|tracks + .cue] <Glitch, Abstract, Experimental>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_771991.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Untitled (4:44)
+ 02. Untitled (4:38)
+ 03. Untitled (4:55)
+ 04. Untitled (5:55)(   Читать дальше...   )Жанр: Glitch, Abstract, ExperimentalПродолжительность: 01:19:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E7B75D76B8C079932687346AB683EC235A32E84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278426   (771990) от 25.01.2019
+
+Better Oblivion Community Center - Better Oblivion Community Center (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_771990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Didn't Know What I Was in For (04:03)
+02. Sleepwalkin' (03:12)
+03. Dylan Thomas (03:36)
+04. Service Road (03:44)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:37:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECB45922EF2DFC9FFCA628A88375D68D7CCB9CC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278412   (771989) от 25.01.2019
+
+VA - Markus Schulz - Kyau & Albert - Global DJ Broadcast (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_771989.jpg" />
+</div>
+
+
+###  Подробнее
+
+Markus Schulz:
+01. Mike EFEX - BX8
+02. Alex Kunnari featuring Mike Schmid - This Fire
+03. Markus Schulz featuring Justine Suissa - Perception (Johan Gielen Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD97B86167953EDE9BDE45C16F8CE835CA5263EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278411   (771988) от 25.01.2019
+
+VA - Dirkie Coetzee - Reverie (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_771988.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Dirkie Coetzee & Amy Kirkpatrick - You'll Find Me There (Original Mix)
+02.Dirkie Coetzee & Jan Johnston - Only the Beginning (Original Mix)
+03.Dirkie Coetzee - Nymeria (Original Mix)
+04.Dirkie Coetzee & Adip Kiyoi - Aurora (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:54:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36CFF1FC2F28B583237C849490F25B5398B74C38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278488   (771987) от 25.01.2019
+
+Wise Program Uninstaller 2.3.2.133 + Portable [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769859.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_771987.jpg" />
 </div>
 
 
 ###  Подробнее
 
-HyperSnap 8 предлагает быстрый и простой способ для захвата с экрана Windows изображений, позволяющий скопировать не только окна стандартных программ, но и не выделяющиеся тексты, игры, скринсейверы и видеофильмы, работающих в режимах DirectX и 3Dfx Glide, видео- и DVD-фильмов, и сохранить их в более чем 20-и форматах, включая BMP, GIF и JPEG.Язык интерфейса: Русский
+Утилита для удаления установленных в системе программ. Позволяет воспользоваться для удаления как стандартными средствами системы, так и собственными инструментами. Имеется инструмент удаления записей об уже деинсталлированных программах, возможность быстрого доступа к записи выбранной программы в реестре, а также поиск подробностей о приложении в Google.Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:63E8719BF1A058770BB546A7ADEE5B5FC051A315
+magnet:?xt=urn:btih:F141F0ADFB18FACEC0EF3A5785609A6F99BEA383
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -681,25 +674,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 856917   (769857) от 09.04.2015
+###  Публикация: 1278570   (771986) от 25.01.2019
 
-Джей Арс | Вещает мертвая голова [Сборник. Авторский релиз] (2014) [MP3]
+Sonovac - Raw (2000) [FLAC|Lossless|tracks + .cue] <Abstract, Electro, Broken Beat>
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769857.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_771986.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Внимание, вещает мертвая голова: "Существует ли на самом деле такая радиостанция? Если существует, то каким же образом, некто представляющийся "мертвой головой" вмешивается в отдельный радиоэфир, и наперед предсказывает судьбу?"Жанр: мистика, ужасы, фантастика, городское фэнтезиПродолжительность: 02:50:45
+01. It Happens (0:52)
+ 02. Human Fly (2:07)
+ 03. Maybe Baby (0:53)
+ 04. I Don't Want Nobody Else But You (4:56)(   Читать дальше...   )Жанр: Abstract, Electro, Broken BeatПродолжительность: 00:42:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:987546A745FDB6448A2A6BA5ACD4B35C75F9BDC8
+magnet:?xt=urn:btih:2560B32720AA1D6D8ED1B993634E6124320361BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278456   (771985) от 25.01.2019
+
+Bohren & Der Club Of Gore - Piano Nights (2014) [FLAC|Lossless|tracks + .cue] <Dark Jazz, Downtempo, Dark Ambient>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_771985.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Im Rauch (5:29)
+02. Bei Rosarotem Licht (6:41)
+03. Fahr Zur Hölle (5:35)
+04. Irrwege (3:39)(   Читать дальше...   )Производство: Ipecac Recordings – IPC155Жанр: Electronic, Dark Jazz, Downtempo, Dark Ambient, Contemporary JazzПродолжительность: 01:01:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A3112F065FE397ABA3F54E37782F341599F2EB4
 ```
 
 https://mybot314.ru/tekegram_catalog/

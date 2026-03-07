@@ -1,3 +1,32 @@
+###  Публикация: 1445890   (1033312) от 07.02.2021
+
+The 5th Galaxy Orchestra - The Land of Forgotten Tales (2016) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Chillout, Dream Pop>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033312.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Open Road Ahead (5:13)
+02. My Shiny Old Space Car (4:01)
+03. Dreaming Telescopes (5:08)
+04. Morning View (5:46)(   Читать дальше...   )Жанр: Balearic, Chillout, Dream PopПродолжительность: 00:58:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77BB8C0132206EFEAA6B4C8A22EA73C7CDDB8C80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1445889   (1033300) от 07.02.2021
 
 The 5th Galaxy Orchestra - From Venus to Mars (2016) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Chillout, Nu-Disco>
@@ -713,35 +742,6 @@ VA - Feeling Warm & Cozy: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81834B82985423446A18070CB3DE1D1DCE97C780
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451131   (1028354) от 02.03.2021
-
-VA - My Cat Loves to Chill: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028354.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Schwarz & Funk - Phil Me (Original Mix)
-02. Lounge Groove Avenue - Hold You Tight
-03. Soul Trend - Before It Gets Too Late
-04. Peter Mac - Waste No Time(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:21:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C9B0DBEB077703C40F83486B27FB0EBED5FB655
 ```
 
 https://mybot314.ru/tekegram_catalog/

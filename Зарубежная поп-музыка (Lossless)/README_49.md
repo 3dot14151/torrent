@@ -1,3 +1,119 @@
+###  Публикация: 1311755   (536391) от 02.07.2019
+
+Heather Nova - Pearl (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_536391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Wounds We Bled [03:50]
+02. All the Rivers [04:00]
+03. Rewild Me [04:13]
+04. Some Things Just Come Undone [03:38](   Читать дальше...   )Жанр: PopПродолжительность: 00:47:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94EEA96A9E5E552F4FAF53DBB64834F9077950FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1311636   (536383) от 02.07.2019
+
+VA - Sláger Rádió - Sláger Slágerek. Vol 3 (2000) [FLAC|Lossless|image + .cue] <Pop Rock, Disco, Retro>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_536383.jpg" />
+</div>
+
+
+###  Подробнее
+
+A 60-as 70-es évek legnagyobb slágerei  
+
+01. Zorán - Romantika (1978) (3:21)
+02. Koncz Zsuzsa - Rohan az idõ (1966) (3:25)(   Читать дальше...   )Жанр: Pop Rock, Disco, RetroПродолжительность: 01:08:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E78419EEEBF834CB23E5568072F1287406A09405
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050778   (536372) от 09.09.2016
+
+Tarkan - Tarkan (1999) [FLAC|Lossless|tracks + .cue] <Pop, Folk, World, & Country>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_536372.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Simarik (3:10)
+02. Olurum Sana (4:05)
+03. Bu Gece (Kir Zincirlerini) (remix 99) (3:49)
+04. Sikidim (Hepsi Senin mi?) (3:16)(   Читать дальше...   )Жанр: Pop, Folk, World, & CountryПродолжительность: 01:05:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0576064A13A00D4E2672E71FE5756091E5F16A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312037   (536319) от 02.07.2019
+
+Mark Ronson - Late Night Feelings (2019) [FLAC|Lossless|tracks + .cue] <Electronic, Soul, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_536319.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Late Night Prelude (01:29)
+02. Late Night Feelings (04:11)
+03. Find U Again (02:56)
+04. Pieces of Us (03:26)(   Читать дальше...   )Жанр: Electronic, Soul, PopПродолжительность: 00:43:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79F76508D32DF10786411FDCB5FE349EFDE1233E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1311652   (536310) от 02.07.2019
 
 VA - Sláger Rádió - Sláger Slágerek. Vol 2 (1999) [FLAC|Lossless|image + .cue] <Pop Rock, Disco, Retro>
@@ -636,122 +752,6 @@ VA - Top Of The Pops '1984 (2017) Box Set, 3CD [FLAC|Lossless|tracks + .cue] <Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF4F66040D374319A3D08E378561B83F2EDD3889
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558887   (527745) от 23.06.2022
-
-Vanessa Mai - No Hard Feelings (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527745.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Hard Feelings (2:38)
-02. Schwarze Herzen (2:24)
-03. Melatonin (2:19)
-04. Happy End (feat. Sido) (2:17)(   Читать дальше...   )Жанр: PopПродолжительность: 00:12:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F187E0A98438A047F092C5CBE82D955C191FCB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 810741   (527595) от 07.08.2017
-
-VA - The Best Projects Of Dieter Bohlen (1989) [APE|Lossless]<Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527595.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sheree - Ronnie Talk To Russia ! 5:36
-02. The Clock-Work Toys - No 1 Hit Medley 6:28
-03. Copy-Right - You Can Win If You Want (Adult Mix) 9:49
-04. Heaven Knows - Lucky Guy 6:27(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:12:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B30AB3B9334D6F1D9D837AA8E4C17EE19228644C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559276   (527062) от 24.06.2022
-
-Madonna - Finally Enough Love (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527062.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Everybody (You Can Dance Remix Edit)
-02 - Into The Groove (You Can Dance Remix Edit)
-03 - Like A Prayer (7" Remix Edit)
-04 - Express Yourself (Remix Edit)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:17:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33657F2BB2C56DC504CB11CD72C5D84BB7039F5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156667   (526963) от 08.08.2017
-
-Supermax - Dont Stop The Music (1976) Remastered, 2005, CD-Maximum <Electronic, Pop, Funk, Reggae>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526963.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dance Dance Dance
-02. Push Push (Sexy Chocolate Girl)
-03. Watch Out South Africa, Here We Come
-04. Don't Stop The Music(   Читать дальше...   )Жанр: Electronic, Pop, Funk, ReggaeПродолжительность: 00:55:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBED198A8B507183DCF4F63E9D69709EFD4D57A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

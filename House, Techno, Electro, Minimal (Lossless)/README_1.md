@@ -1,3 +1,119 @@
+###  Публикация: 1608704   (1043555) от 31.01.2023
+
+VA - FG Top10: January 2023 (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Melodic House & Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043555.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Max Freegrant, Slow Fish -  The Climb (Extended Mix)  (6:58)
+02.  Kamilo Sanclemente, Zalvador -  Hypnotized (Extended Mix)  (8:29)
+03.  JUNIOR (SL) -  Normative Truth  (7:21)
+04.  Axel Giova -  Scorpio (Zoo Brazil Remix)  (6:25)(   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 01:06:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5103C1592E7D314205CDDBB5AB167E37A5B0B864
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609205   (1043366) от 02.02.2023
+
+Stanisha - Slow (2023) [FLAC|Lossless|WEB-DL|tracks] <Deep Techno, Organic House, Downbeat, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043366.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bakuta (Original) (9:19)
+ 02. Coco (Original) (6:33)
+ 03. Crnilo (Original) (7:42)
+ 04. Dolak (Original) (6:59)(   Читать дальше...   )Жанр: Deep Techno, Organic House, Downbeat, MinimalПродолжительность: 02:31:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88FCA4C79AC73B84CA5ECC576A3D35D5DC7AB223
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609500   (1043242) от 03.02.2023
+
+Marsh - Endless (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic House & Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pneuma (4:18)
+ 02. Blue (feat Leo Wood) (4:11)
+ 03. Reminiscent (4:28)
+ 04. Touch The Sky (feat Simon Doty) (4:31)(   Читать дальше...   )Жанр: Melodic House & TechnoПродолжительность: 00:49:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:433342E8B149B599F037140EB2B27DF65DFC314C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436674   (1042995) от 01.01.2021
+
+Jean-Michel Jarre - Welcome To The Other Side (2020) [FLAC|Lossless|WEB-DL|tracks] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042995.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Opening (VR Live)
+02. Oxygene 2 (JMJ Rework of Kosinski Remix)
+03. The Architect (VR Live)
+04. Oxygene 19 (VR Live)(   Читать дальше...   )Жанр: TechnoПродолжительность: 00:45:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52EDC5C4BBF812C1F283A8E94C0E4143154510C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1436919   (1042818) от 02.01.2021
 
 VA - Nine Years Of Techno: Selected by Greencross (2019) [FLAC|Lossless|WEB-DL|tracks] <Techno>
@@ -620,122 +736,6 @@ VA - Guy Mantzur - Goodbye 2020 Hello 2021 (2020) [FLAC|Lossless|WEB-DL|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3897896774F3C465A1C28784DAA9F57C4D22AD08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442381   (1036618) от 25.01.2021
-
-ZHU, Tame Impala - My Life (Remixes) (2018) [FLAC|Lossless|WEB-DL|tracks] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036618.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Life (Kyle Watson remix) (05:44)
-02. My Life (Blond:ish remix) (07:00)
-03. My Life (Brian Cid remix) (07:12)
-04. My Life (Finnebassen remix) (05:13)(   Читать дальше...   )Жанр: HouseПродолжительность: 00:37:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3EA6A3DD078CC82938417F52CA477BEBFAE060A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442379   (1036609) от 25.01.2021
-
-Bob Moses, ZHU - Desire (Remixes) (2021) [FLAC|Lossless|WEB-DL|tracks] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036609.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Desire (Vintage Culture & Kiko Franco Remix) (05:46)
-02. Desire (Vintage Culture & Kiko Franco Remix Edit) (03:46)
-03. Desire (Charlotte de Witte Remix) (07:52)
-04. Desire (Solomun Remix) (06:17)(   Читать дальше...   )Жанр: HouseПродолжительность: 00:31:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F081E866EDD5FCBCD0DE4D6128F6B2FD6DBF4111
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442820   (1036348) от 26.01.2021
-
-VA - Kirill Matveev pres. 25 MixCult Dancefloor Booms (2020) MixCult Records [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Deep Tech, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036348.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Etzu Mahkayah - Don't Dribble (06:40)
-02. Artyom Kozlov - Clouds (06:24)
-03. Dima Kovadloff - HD (Deepkomplekt Remix) (06:04)
-04. COR100 - Micro Lab (08:42)(   Читать дальше...   )Жанр: Tech House, Deep House, Deep Tech, MinimalПродолжительность: 02:53:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDDE05D302A13284DA3BB6F8128EF0E3BEEFFFEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198968   (1036094) от 03.03.2023
-
-Late Night Alumni - The B-Sides (2012) Compilation [FLAC|Lossless|tracks + .cue] <Deep House, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036094.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Golden (Acoustic) (2:49)
- 02. Hope (5:03)
- 03. A Whole New World (3:01)
- 04. You Can Be The One (Live) (3:10)(   Читать дальше...   )Жанр: Deep House, DowntempoПродолжительность: 00:48:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03AEDF2C5E080732770ECEA5BA962D8EEA03C6BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

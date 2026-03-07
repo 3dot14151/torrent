@@ -1,3 +1,32 @@
+###  Публикация: 957122   (327503) от 17.11.2015
+
+VA - TANGO. selected by Eduardo Makaroff (2007) / Wagram Music [FLAC|image+cue]<tango>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_327503.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Quintento Real / Canaro En Paris    [0:02:50.59]
+02. Melingo / Noche Trasfigurada    [0:01:31.10]
+03. Ramiro Gallo Quinteto / Al Amiga Pablo Rago    [0:04:21.01]
+04. Carlos Gardel / Anclao En Paris    [0:02:07.12](   Читать дальше...   )Жанр: tangoПродолжительность: 01:04:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66C9F667DB7402B9E9CC074C1DABA4BCFD15131D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 957522   (327338) от 17.11.2015
 
 Deep Forest - La Selection: Best Of Deep Forest (2014) 3CD, Box Set, Limited Edition [FLAC|tracks+.cue]<World, New Age>
@@ -720,35 +749,6 @@ Kevin Kern - 8 альбомов (1996 - 2005) [APE|Lossless|image + .cue] <New A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BCE60C49FFDDA24CE055FCF84A4CC7174EE1405F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181787   (321208) от 08.11.2017
-
-VA - Где-то на белом свете... (1996) [FLAC|Lossless|image + .cue] <Retro, Soundtrack, Pop>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321208.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Нина Бродская - Звенит Январская Вьюга (Иван Васильевич Меняет Профессию) (3:04)
-02. Лев Полосин - Кап-Кап-Кап (Иван Васильевич Меняет Профессию) (2:24)
-03. Эстрадный Оркестр П-У В.Людвиковского - Погоня (Иван Васильевич Меняет Профессию) (1:43)
-04. Валерий Золотухин - Разговор Со Счастьем (Иван Васильевич Меняет Профессию) (2:40)(   Читать дальше...   )Жанр: Retro, Soundtrack, PopПродолжительность: 01:04:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA80E65F6D9B7089D06B2CCE94C6EFD0E8B434DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

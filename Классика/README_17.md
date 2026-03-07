@@ -1,3 +1,32 @@
+###  Публикация: 1506102   (800830) от 30.10.2021
+
+VA - Best of Classical Music (2021) [FLAC|Lossless|WEB-DL|tracks] <Classical, Instrumental>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. London Philharmonic Choir - Carmina Burana, Fortuna Imperatrix Mundi No. 1, O Fortuna (2:42)
+02. London Philharmonic Orchestra - Orchestral Suite No. 3 in D Major, BWV 1068 II. Air (4:14)
+03. Finghin Collins - Piano Sonata No. 14 in C-Sharp Minor, Op. 27 No. 2 Moonlight I. Adagio sostenuto (5:36)
+04. SWR Symphony Orchestra - Symphony No. 41 in C Major, K. 551 (   Читать дальше...   )Жанр: Classical, InstrumentalПродолжительность: 08:20:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CE039306EA458C00B994C0AA3F6865201229F5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1199761   (800142) от 17.01.2018
 
 Riccardo Muti & Wiener Philharmoniker - New Year's Concert 2018 (2018) 2CD [FLAC|Lossless|tracks + .cue] <Classical, Orchestral>
@@ -714,35 +743,6 @@ Concerto No. 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0ED3AC30438511152F62343156AF34CE27B50DF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391496   (781016) от 20.06.2020
-
-Andrew Jasinski - Embracing the Universe (2017) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Neo-Classical, Instrumental, Piano>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_781016.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Embracing the Universe (6:22)
-02. Transforming Fire (13:24)
-03. Moon Bear (14:10)
-04. Immersion (3:54)Жанр: Modern Classical, Neo-Classical, Instrumental, PianoПродолжительность: 00:37:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98C19181F0487815A9E0062DED546570E38A11D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

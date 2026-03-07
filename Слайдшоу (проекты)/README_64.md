@@ -1,3 +1,29 @@
+###  Публикация: 930062   (517267) от 21.08.2015
+
+Проекты - VideoHive - Glamour [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_517267.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания слайд шоу. Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DC6D84F6BF1BB6FAF34E2F39F92FF1FE13E7BD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 929860   (517256) от 21.08.2015
 
 Проекты - Motion Array - Mosaic Picture Slideshow [AEP]
@@ -645,32 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5665D12B9977EE6A862F29765C92EA4FC0BB1F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932040   (509940) от 28.08.2015
-
-Проекты - 3D DYNAMIC CUBES PROMO [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509940.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания слайд шоу. Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FDE87A73D3DD922BE08D29D482A673268403794
 ```
 
 https://mybot314.ru/tekegram_catalog/

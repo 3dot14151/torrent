@@ -1,3 +1,32 @@
+###  Публикация: 1316299   (506824) от 25.07.2019
+
+VA - Salsa Summer Hits 2019 [MP3|320 Kbps] <Kizomba, Merengue, Sonero, Other>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_506824.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leo, The 4 – Candela 3:43
+02. The 4, Yosvany – Prisoner 3:37
+03. Sonora Cubana (Los Picaros De La Habana) – What I Do Yo 4:44
+04. Lkm, Katy-A – Hidden 4:28(   Читать дальше...   )Жанр: Kizomba, Merengue, Sonero, OtherПродолжительность: 02:27:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D910AB872AD8FCBF2060A55018CD0B0D1712D21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 232993   (506102) от 03.09.2010
 
 Nino Rota & Carmine Coppola & Al Martino - OST - Крестный отец / The Godfather - Part I/II/III (1972 / 1974 / 1990) [MP3|320 kbps]<OST>
@@ -777,35 +806,6 @@ Bodhi - Trans Ukraine (2006) [MP3|320 kbps]<New age, Flute, Electronic>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563804   (500499) от 18.07.2022
-
-VA - Teenage Mutant Ninja Turtles: Shredder's Revenge (Original Game Soundtrack) (2022) [MP3|~249-288 Kbps] <OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500499.jpg" />
-</div>
-
-
-###  Подробнее
-
-Официальный саундтрек игры01. Teenage Mutant Ninja Turtles Theme
-02. The Wrecking Crew
-03. Jaw-Breaking News!
-04. Big Apple, 3 PM(   Читать дальше...   )Жанр: OSTПродолжительность: 00:52:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79A55F34E7851D276DDB99B7D04EBF1686248F03
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1524455   (743627) от 16.01.2022
+
+Paul Mauriat And His Orchestra – Gone Is Love (1970) [DSD128 2.0|tracks|Vinyl-Rip] <Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743627.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gone is Love (2:33)
+ 02. Home Again (3:04)
+ 03. My House And The River (2:56)
+ 04. Could This Be Me (3:36)(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 00:34:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B6E43B331867D0BA3FC1D0AEDE3B06D1F0B71CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216829   (743124) от 04.04.2018
+
+Наталья Гулькина - Дискотека (1989) [DSD2.0|5,64MHz/1bit|image+.cue|Tape-Rip] <Pop, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743124.jpg" />
+</div>
+
+
+###  Подробнее
+
+[1:42] 01. Наташа Гулькина - Интро
+[4:40] 02. Наташа Гулькина - Дискотека
+[4:10] 03. Наташа Гулькина - Ветер, скажи
+[4:44] 04. Наташа Гулькина - Зима(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:47:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C85E45CB0746064ABBBAC8DF74572FBA2AD9E98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216678   (742980) от 04.04.2018
+
+Imagine Dragons - Evolve (2017) [DSD 2.0|5.6448/1|tracks|Vinyl-Rip] <Rock, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_742980.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. I Don't Know Why
+2. Whatever It Takes
+3. Believer
+4. Walking The Wire(   Читать дальше...   )Жанр: Rock/PopПродолжительность: 00:39:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EC6EF873D8750BC59803B59868FF5D4E2CC0C2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524431   (741879) от 17.01.2022
+
+Комиссар - Наше Время Пришло (1991) Питон, со вставками Звук [DSD2.0|11,28MHz/1bit|image+.cue|Tape-Rip] <Pop, Disco, Dance, Techno>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741879.jpg" />
+</div>
+
+
+###  Подробнее
+
+[0:35] 01. Студия ПИТОН представляет!
+[5:05] 02. Ты уйдешь
+[3:51] 03. Наше время пришло
+[4:56] 04. Всё изменится(   Читать дальше...   )Жанр: Pop, Disco, Dance, TechnoПродолжительность: 00:33:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F9152FEA6FA7194A80CEAA962B55981D0CC2995
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 665781   (741424) от 08.06.2013
+
+Slayer - 13 альбомов (1983-2009) 14LP [FLAC 2.0 24/192 | image (Vinyl-Rip)]<Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741424.jpg" />
+</div>
+
+
+###  Подробнее
+
+Slayer — американская метал-группа. Коллектив был основан в 1981 году гитаристами Джеффом Ханнеманом и Керри Кингом в Хаунтингтон Парк, Калифорния. Slayer возглавила музыкальное движение американского трэш-метала после выпуска своего альбома Reign in Blood (1986), который считается лучшим достижением группы и «классикой трэш-метала». Вместе с группами Metallica, (   Читать дальше...   )1. Procession
+2. Sacrifice
+3. Made In Belfast
+4. Warriors Of The Road(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:39:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DD796BA825238F446AACC471E3AC304C20DB4E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397404   (740451) от 20.07.2020
+
+VA - Пулсиращи Ноти 3 (1985) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Rock, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_740451.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Ryan Simmons - Lucky Guy
+A2 Commodores - Nighshift
+A3 Bachman-Turner Overdrive - My Sugaree
+A4 Vegvari Adam, Csepregi Eva - Elso Szerelem(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:46:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8EFA58768DB0371AAB8611CE71AAF0E67C9359E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1397417   (740426) от 20.07.2020
 
 Sky - Masterpieces - The Very Best Of Sky (1984) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Prog Rock, Instrumental>
@@ -567,177 +741,6 @@ A4 Hungry For You (J'Aurais Toujours Faim De Toi)(   Читать дальше..
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F7A5903F929D891E628816CC7600C2B8BA038A22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399102   (734306) от 29.07.2020
-
-Modern Soul Band - Meeting (1979) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734306.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Motorrennerrock
-A2 Der Kater
-A3 Heut' Spielt Hier 'Ne Soul-Band
-A4 Gemeinsamkeit(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:37:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95553D0626A4F5B61519836C45250F8DF0861824
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127521   (731843) от 21.04.2017
-
-The Alan Parsons Project - Gaudi (1987) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731843.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. La Sagrada Familia (8:47)
-A2. Too Late (4:32)
-A3. Closer To Heaven (5:53)
-B1. Standing On Higher Ground (5:04)(   Читать дальше...   )Производство: Arista - 206 084Жанр: Progressive RockПродолжительность: 00:38:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FF8849ABAC2433115C8AA00E867F70C52A6B7F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 666321   (731394) от 09.06.2013
-
-VA - Red Wave - 4 Underground Bands From The USSR (1986) 2LP [FLAC 2.0 24/96 | image (Vinyl-Rip)<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731394.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Red Wave» - это первый официальный релиз на Западе 4-х рок-групп СССР, которые официально были практически запрещены в России. Чтобы издать эту музыку на Западе, американская энтузиастка Джоанна Стингрей, влюбившаяся в Россию и прожившая здесь более 15 лет, вывезла записи групп из СССР и в 1986 году на фирме "Big Time Records" (Калифорния) тиражом 10 тыс.экз. (   Читать дальше...   )Жанр: RockПродолжительность: 00:20:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D258B93B68CDDE11AC870264B3455F73AFD0778
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529997   (730776) от 09.02.2022
-
-Madeleine Peyroux – Half The Perfect World (2006) 2008 [DSD128 2.0|tracks|Vinyl-Rip] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730776.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Allright (3:27)
- 02. Summer Wind (3:56)
- 03. Blue Alert (4:11)
- 04. Everybody's Talking (5:10)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:49:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27F1EEF69DD3F4DDE3910F40BFE4D2F86CDE9D9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530107   (730642) от 09.02.2022
-
-Telarc Heads Up SACD Sampler - Sound&Vision (2006) [DTS 5.1 CD-Audio|44.1/16|image+.cue|SACD] <demos/samplers>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730642.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один из релизов, который должен был доказать превосходство сигма-дельты перед писиэм во время так называемой "войны форматов" (SACD против DVD-Audio)01. Los Angeles Guitar Quartet - Icarus 3:35
-02. Al Di Meola - Flesh On Flesh 5:56
-03. Eric Bibb / Rory Block / Maria Muldaur - Don't Ever Let Nobody Drag Your Spirit Down 3:25
-04. Ladysmith Black Mambazo - Wenyukela (Raise Your Spirit Higher) 4:50(   Читать дальше...   )Жанр: VariousПродолжительность: 01:06:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50B0E4708338C09DCABD3442743935B3EB87E5B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 666864   (730294) от 10.06.2013
-
-Secret Service - Collection (7 LP) (1979-1987) [FLAC 2.0 24/192|image(Vinyl-Rip)]<Electronic, Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730294.jpg" />
-</div>
-
-
-###  Подробнее
-
-1979 - Oh Susie
-1981 - Ye Si Ca
-1982 - Cutting Corners
-1984 - Jupiter Sign(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 04:23:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:206AB242BB408334705B6533E3C25AE56E6033B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

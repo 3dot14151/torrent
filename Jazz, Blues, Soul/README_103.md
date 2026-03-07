@@ -1,3 +1,235 @@
+###  Публикация: 1501265   (836676) от 09.10.2021
+
+Charles Mingus - The Clown (1957) 2004, Atlantic [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836676.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Haitian Fight Song [12:03]
+02. Blue Cee [7:58]
+03. Reincarnation of a Lovebird [8:35]
+04. The Clown [12:24](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:56:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:342F4B0D291ECA1EFF70A760EB74DEE00199B2D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004740   (836669) от 07.04.2016
+
+Jane Lee Hooker - No B! (2016) [MP3|320 кб/с] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836669.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Wade In The Water (4:31)
+2. Mean Town Blues (5:08)
+3. I Believe To My Soul (5:20)
+4. Bumble Bee (4:57)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:51:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A39F1810E56A4E098C141C5D6F82BB1C3C2EFC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113769   (836613) от 12.03.2017
+
+The Jeff Healey Band - Live At Grossman's (1994) Live, 2011, Eagle Records [FLAC|Lossless|image + .cue] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836613.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  I'm Going Home  (05:49) 
+02|  Killing Floor  (05:58) 
+03|  As The Years Go Passing By  (07:02) 
+04|  Ain't That Just Like A Woman  (04:52) (   Читать дальше...   )Жанр: BluesПродолжительность: 01:00:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6629162A607A6638EF1D1CC5ECAEF515052A4449
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113996   (835345) от 13.03.2017
+
+Freddie Hubbard - Back To Birdland (1982) 1994, Drive Archive [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835345.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Shaw Nuff [05:20]
+ 02.Star Eyes [06:06]
+ 03.Lover Man [05:40]
+ 04.For B.P. [06:59](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:35:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CA95678E202A282CB43286440D491B69CC1161B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114001   (835344) от 13.03.2017
+
+Trisha O'Brien - Out Of A Dream (2010) Azica [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835344.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Darling, Je Vous Aime Beaucoup [04:04]
+ 02.Taking A Chance On Love [04:02]
+ 03.I Had The Craziest Dream / You Stepped Out Of A Dream [05:46]
+ 04.It Might Be You [05:11](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:03:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66C9C950BB85D06B5E171AA42772F5E40269EDC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113719   (835342) от 13.03.2017
+
+Dayme Arocena - Cubafonia (2017) Beat Records [FLAC|Lossless|tracks + .cue] <Afro-Cuban Jazz, Latin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835342.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Eleggua [03:09]
+ 02.La Rumba Me Llamo Yo [04:25]
+ 03.Lo Que Fue [03:50]
+ 04.Maybe Tomorrow [02:57](   Читать дальше...   )Жанр: Afro-Cuban Jazz, Latin JazzПродолжительность: 00:43:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:127735C5BC73CB5DAB678D76000EA72759829A00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113942   (835340) от 13.03.2017
+
+Lane Mack - Lane Mack (2015) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835340.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blues Is Coming (4:21)
+02. High And Tight (3:48)
+03. Jesus' Cadillac (4:13)
+04. Be You (2:49)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:27:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65E736A95E2888409F9A584C5681FC249EEBEFCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501529   (835311) от 10.10.2021
+
+Pete Johnson - 1947 - 1949 (2000) Classics [FLAC|Lossless|tracks + .cue] <Boogie-Woogie, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Margie [3:04]
+02. Minuet Boogie [2:38]
+03. 66 Stomp [2:46]
+04. Pete Kay Boogie [3:01](   Читать дальше...   )Жанр: Boogie-Woogie, Piano JazzПродолжительность: 00:59:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F08BFF8E3219A89FC6AB9D44BD03E2DFF35B73A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1114071   (835305) от 13.03.2017
 
 Jeff Healey - Mess Of Blues (2008) Compilation [FLAC|Lossless|tracks + .cue] <Blues Rock, Rock & Roll>
@@ -513,238 +745,6 @@ Coen Wolters Band - As The Crow Flies (2006) [FLAC|Lossless|tracks + .cue] <Blue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97BA8F6E51DB2B2998E0696781F336F9E4D1412D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114113   (833613) от 14.03.2017
-
-Big Mama Montse Band - Seed Of Love (2017) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833613.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|  Seed Of Love  (05:01) 
-02|  Act Right  (03:34) 
-03|  Howlin' On The Ground  (02:53) 
-04|  Sex Appeal  (05:18) (   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:45:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA6DD9679AF0A34AAE9EFA681DBC549372075526
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114306   (833606) от 14.03.2017
-
-Claude Bolling - Jazzgang Amadeus Mozart (1965) 2007, Philips [FLAC|Lossless|tracks + .cue] <Dixieland, Third Stream>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833606.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Eine Kleine Nachtmusik Allegro [03:24]
- 02.Eine Kleine Nachtmusik Romance [03:08]
- 03.Eine Kleine Nachtmusik Minuetto [02:09]
- 04.Eine Kleine Nachtmusik Rondo [02:44](   Читать дальше...   )Жанр: Dixieland, Third StreamПродолжительность: 00:29:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2178C5A9F874D75D30383CD8DCA1E5779B4E7F88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114091   (833605) от 14.03.2017
-
-Lisa Ekdahl - Nar alla vagar leder hem (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833605.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nar Alla Vagar Leder Hem (3:23)
-02. Din Sloserska (3:13)
-03. Ryggradslos Varld (3:36)
-04. Famna Jorden (2:43)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:51:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BCB783ABEF739AA17C516B936FD6605691E8108
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501716   (833533) от 11.10.2021
-
-David Gogo - Silver Cup (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833533.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Never Gonna Change (3:12)
-02. Whatever I Need To Do (3:27)
-03. It Takes A Lot To Laugh, It Takes A Train To Cry (3:19)
-04. Morning Light (3:37)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:32:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25D4874D0D32CB512C02D9EECE3F1FBFCC3F59DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501719   (833531) от 11.10.2021
-
-Kt Conlon Alive in Blue - Twelve (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833531.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lovin' Man (3:21)
-02. Cotton Picking (3:13)
-03. Another Blue Morning (4:35)
-04. Don't Give Me No Jive (2:56)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB7BAFD78724CD1A09284FBFA273F2F51B458F87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501718   (833468) от 11.10.2021
-
-"Chicago" Carl Snyder & Friends - Blue Streak (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833468.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Born into the Blues (3:15)
-02. The Thrill Is Gone (6:01)
-03. Ain't That Bad Luck (2:26)
-04. Funny (5:42)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:59:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B992E45ADE965CF5CB1727FD846A58D311744EFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501726   (833467) от 11.10.2021
-
-David Edwin Townson - Modality (2021) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833467.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Charger (04:14)
- 02. Where Have You Been (03:46)
- 03. Through The Night (03:42)
- 04. Lydia (04:40)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA504816CEB85C04D8EDC145BA8E0F57650703D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380475   (833323) от 03.05.2020
-
-Sidney Bechet - Five Classic Albums Plus: Second Set 1952 - 1955 (2017) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Dixieland, Revival, New Orleans Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833323.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Le Marchand De Poissons [2:47]
-02. Si Tu Vois Ma Mere [3:15]
-03. Wabash Blues [3:08](   Читать дальше...   )Жанр: Dixieland, Revival, New Orleans JazzПродолжительность: 02:37:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08489E53B2FCD3EF53A2300CCCD8159AC683DEFD
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,38 @@
+###  Публикация: 233622   (934182) от 20.01.2015
+
+Prem Joshua - 18 альбомов (1991 - 2014) [MP3|160-320 kbps]<World, New age, Ethnic, Fusion>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_934182.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы:
+
+2014 - Kashi. Songs From the India Within (with Chintan) --- добавлен 18.01.2015
+2010 - Luminous Secrets (with Band)
+2008 - In Concert (with Band)
+2006 - Taranga
+2006 - Ahir (with Chintan)
+2005 - Yatri - Mystics of Sound
+2003 - Water Down the Ganges (with Manish Vyas)
+2003 - Shiva Moon (Remixed by Maneesh De Moor)(   Читать дальше...   )Жанр: World, New age, Ethnic, FusionПродолжительность: 17:26:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FB1091317CB88BBEEE2A7B584D1820F8A1A6DD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 984916   (934092) от 12.02.2016
 
 VA - Lo Mejor Del Folklore Canario (2008) [FLAC|Lossless|tracks + .cue] <Folklore, Latino>
@@ -716,35 +751,6 @@ Liquid Mind - Liquid Mind XI. Deep Sleep (2016) [MP3|320 кб/с] <New Age, Ambi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF9A50CDC8DEF696383F017EB34BCB581FDA1C94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366095   (925662) от 10.03.2020
-
-Nick Skachkov - Baba Yaga: Terror of the Dark Forest / Яга. Кошмар тёмного леса (Original Motion Picture Soundtrack) (2020) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925662.jpg" />
-</div>
-
-
-###  Подробнее
-
-|01:29| 01. The Legend
-|01:46| 02. Bad Dream
-|03:33| 03. Beginning of Strange Things
-|01:19| 04. Everything Is Great(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:46:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFCA2F8F835CBDD57ABBCADAF4E55D00C52C1C42
 ```
 
 https://mybot314.ru/tekegram_catalog/

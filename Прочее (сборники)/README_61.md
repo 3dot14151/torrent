@@ -1,3 +1,206 @@
+###  Публикация: 1129187   (724219) от 27.04.2017
+
+VA - Need For Speed Vol.5 (2017) [MP3|320 Kbps] <Dance , Hands Up>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724219.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kris Mctwain - Stuck on replay (Radio Edit) 3:54
+002. Bloodhound Gang - The Bad Touch (Michele Pletto Bootleg) 3:31
+003. MKH - You can run You can hide (Alari Remix Edit) 4:05
+004. Sunbase Inc - Next to You (Radio Cut) 3:50(   Читать дальше...   )Жанр: Dance , Hands UpПродолжительность: 06:56:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1C4C4027C3FAB4DFF6EE2CFFCFC172ED8F89D3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129050   (724096) от 27.04.2017
+
+Bad Boys Blue - The Best (By Reloaded) (2017) [MP3|320 Kbps] <Eurodance, Europop, Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724096.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Jungle In My Heart (Reloaded)  3:28
+02.  Come Back And Stay (Reloaded)  4:04
+03.  Hungry For Love (Reloaded)  4:10
+04.  Kiss You All Over, Baby (Reloaded)  4:07(   Читать дальше...   )Жанр: Eurodance, Europop, DiscoПродолжительность: 01:23:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5119F5FD7DEFF773C3C90CE83CBD17D8E5D7FE3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128932   (723708) от 27.04.2017
+
+VA - Discoteka 2017 Dance Club. The Best and  Newest Hits  [MP3|320 Kbps] <Dance, Club House, Electro House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_723708.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Feder - Blame Me (Denis First Radio Remix)
+002. Cascada - Playground
+003. Stereo Palma feat. Myra - Because The Night (Roberto Rios X Dan Sparks Remix)
+004. Sal De Sol - Happy Ending (Short Mix)(   Читать дальше...   )Жанр: Dance, Club House, Electro HouseПродолжительность: 08:11:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17FAB6BDC5FF242FF069106752ED8E3D5C84B112
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023533   (723337) от 05.06.2016
+
+VA - Space Synth Disco 80s (2016) [MP3|320 кб/с] <Space Disco, Synth Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_723337.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Vanello - Planet Synth
+002. Laid Back - Elevator Boy
+003. Oblivion - Return To Home Planet
+004. Nordika - Illumination(   Читать дальше...   )Жанр: Space Disco, Synth DiscoПродолжительность: 08 :58 :03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:599770FACF4DC3032BEB0DF2333C04A8E20AC782
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218498   (723222) от 09.04.2018
+
+VA - Cocktail new music №31 (2018) [MP3|320 Kbps] <Pop, Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_723222.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. John Newman - Fire In Me (Martin Jensen Remix)
+002. Hush - Fired Up (Alex Shik & Duck Radio Edit)
+003. Tristan Garner - Give Love (John Reyton Remix)
+004. Basada feat. Camden Cox - Good Vibes(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 06:10:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4571F7638853ED5F901DF999C789E363DCB3BFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218353   (723123) от 09.04.2018
+
+VA - Зайцев.нет Музыкальные новинки Апрель 2018 (2018) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_723123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Татьяна Буланова и Алексей Черфас - С любимыми не расставайтесь 3:43
+02. Lx24 - Ночь-Луна 3:53
+03. Тома Полак - Поговори со мной 4:00
+04. Arty - Rain 3:23(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:37:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5045E0C004A2411BBFCF10C35053CC164371EAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1531353   (722483) от 15.02.2022
+
+VA - 30(10) Новые Песни (2022) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_722483.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bukatara - Статус нелюбовь (2:56)
+02. Аль Виноградов - Ангел Моей Любви (4:06)
+03. Канги - 1+1 (2:35)
+04. GAYAZOV$ BROTHER$ - СИНИЙ ИНЕЙ (3:14)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 01:26:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D60AED332F2E8B65E631FB2F907B6C09F503874
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1023806   (722359) от 06.06.2016
 
 VA - Keep Original - Deep Tech Vocals & Electronica (2016) [MP3|222-320 кб/с] <Indie Dance, Club, Deep, Tech, Tribalm Nu Disco>
@@ -540,209 +743,6 @@ VA - Nostalgia Collection (Volume One) (2017) [MP3|320 Kbps] <Pop, Rock, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E912F2350EEED93428E62175E7ABF41CFEC12C6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129954   (717868) от 30.04.2017
-
-VA - Дискотека 80-90 годов по - новому (Зарубежный выпуск # 44) (2017) [MP3|256-320 Kbps] <Eurodance, Disco, Italo Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717868.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Bad Boys Blue - I Totally Miss You (DJ X-KZ & DJ Anatolevich Remix 2015) (Eurodance Version)  5:38
-02.  Joy - Touch By Touch   (DJ Arkadiy Gabana & DJ Alex Dolce Remix Radio)  4:07
-03.  Pulsedriver & Andrew Spencer - Тouch Мe (Topmodelz Remix)  4:38
-04.  F.R. David - Taxi (Dance Remix)  3:46(   Читать дальше...   )Жанр: Eurodance, Disco, Italo DiscoПродолжительность: 04:52:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B215EFE86112E2E8C335E41EBEA31506A54317F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218965   (717527) от 12.04.2018
-
-VA - For Your Disco Pleasure (2018) [MP3|320 Kbps] <Italo Disco, Pop, New Generation>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717527.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Atlanta - Romantic Break
-002. Brooklyn Guy - Cold Stuff (Original Mix)
-003. Eucariontes - Tell Me More (Original Mix)
-004. The Fans - M.A.F.I.A.(   Читать дальше...   )Жанр: Italo Disco, Pop, New GenerationПродолжительность: 10:11:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1590A0DE51C8D9CF71D46DF83164E0CBCC292A1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219108   (717405) от 12.04.2018
-
-VA - Salsa Fiesta 2018 [MP3|256-320 Kbps] <Salsa, Bachata, Kizomba, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717405.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Los 4 - Tu de Que Vas
-02. Ciclon Cubano - Echale Salsa
-03. Damian/Los Desiguales/El Principe - Eso Es Bola (Salsa Version)
-04. El Pequeno De La Salsa - Te Quiero(   Читать дальше...   )Жанр: Salsa, Bachata, Kizomba, OtherПродолжительность: 04:18:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EFF8390FBDB78AF095553B7C757291351765EB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219029   (717402) от 12.04.2018
-
-VA - 50 Big Bachata Romantica Hits (2018) [MP3|256-320 Kbps] <Bachata, Reggaeton, Kuduro, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717402.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Grupo Extra - Lejos de Ti
-02. Oub LCK - Alma Desnuda
-03. Grupo Extra - Te Vas
-04. ROMY/El Chacal/Dj Conds - Sin Tus Besos(   Читать дальше...   )Жанр: Bachata, Reggaeton, Kuduro, OtherПродолжительность: 03:13:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:551A9D88C614B2AA51DA464DC7FA31D1246010C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218977   (717310) от 12.04.2018
-
-VA - 100 Хитов Любимой Музыки (2014) [MP3|256 - 320Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717310.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Zip92 feat. Archi - M - Не Забуду
-002. Инь - Янь - Круто
-003. НашеVremя - Кино О Нас (Dance Version)
-004. ВИА Гра - Перемирие(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:06:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E6C0789424479BF5764C89ED89BDE2DB7785704
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400555   (716987) от 06.08.2020
-
-VA - 80 Tracks Alternative 80s Playlist Spotify (2020) [MP3|320 Kbps] <Alternative, Power Pop, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716987.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Cure - A Forest - 2006 Remaster 5:54
-02. Billy Bragg - A New England 1:48
-03. The Sugarcubes - Birthday 3:58
-04. Violent Femmes - Blister In The Sun 2:26(   Читать дальше...   )Жанр: Alternative, Power Pop, OtherПродолжительность: 05:10:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B34899C57BFB5B3FBB480C7AF12F1869F5DFD192
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286037   (716807) от 28.02.2019
-
-VA - не Громкие новинки недели 2 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716807.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hayden James - Better Together
-02. Alon - Миллионы Вариантов
-03. Bright Sparks, Denis First, Reznikov - Shameless
-04. Broken Back - Breathe Slow(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:59:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7012A4A68290AE24E1F611E0A8C5B601C342E065
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1789287   (68339) от 03.04.2025
+
+The Black Dog - Live at the ICA (London 2024) (2025) [FLAC|Lossless|WEB-DL|tracks] <Braindance, Darkwave, Edm>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68339.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Voices Through The Cracks (Live) [00:02:20]
+02. Sleep Deprivation 05: The Slow Cancelation Of The Future (Live) [00:02:57]
+03. She Never Wrote Back (Live) [00:02:19]
+04. It's Happening Now (Live) [00:02:37](   Читать дальше...   )Жанр: Braindance, Darkwave, EdmПродолжительность: 01:02:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29ABF9C3C1E543AE27F5B35A11FD2A51024DA578
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790344   (68133) от 08.04.2025
+
+Orbital - Radiccio (2025) [FLAC|Lossless|WEB-DL|tracks] <Techno, Electronic>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68133.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Deepest (feat. Tilda Swinton)
+02 – Halcyon
+03 – The Naked And The Dead
+04 – Sunday(   Читать дальше...   )Жанр: Techno, ElectronicПродолжительность: 00:43:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C58D228655000B17C4AF509F8C7394484535487
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790258   (68123) от 08.04.2025
+
+VA - Sports Club Charts 2025 [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paffendorf - Without Me (2:48)
+02. The Disco Boys - Surface Surfer (3:32)
+03. Apollo - Dance (Anniversary Mix) (2:53)
+04. KeinKlang - Deep Down (2:59)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:30:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02515E742B324C2FECC0194A317AC183222D2D41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789918   (68091) от 08.04.2025
+
+DJ Koze - Music Can Hear Us (2025) [FLAC|Lossless|WEB-DL|tracks] <House, Deep>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68091.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – The Universe in a Nutshell
+02 – Pure Love
+03 – Der Fall
+04 – Wie sch”n du bist(   Читать дальше...   )Жанр: House, DeepПродолжительность: 01:05:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E410F42D7E29211162F978FF10FDC269C00BE77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1790681   (68045) от 10.04.2025
 
 Bob Sinclar - Born in 69 (2009) Remixed, 2024, Yellow productions [FLAC|Lossless|WEB-DL|tracks] <House, Electro House, Dance-pop>
@@ -626,119 +742,6 @@ Folamour - Movement Therapy (2025) [FLAC|Lossless|WEB-DL|tracks] <House, Nu Disc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7093A165E2CA7A902587467181E574201C9FDAED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809831   (64671) от 01.08.2025
-
-VA - Summer Jam 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Dance, Club, House, Electronic>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64671.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tom Enzy & Mikkel Solnado - Get Up 03:36
-02. Diego Miranda & Liliana Almeida - Ibiza For Dreams 03:40
-03. Pete Tha Zouk, Abigail Bailey & Mastercris - I Am Back Again 03:35
-04. Keemo, Cosmo Klein & Tim Royko - Beautiful Lie 03:52(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:39:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:128CC744A00657C062BA2AB7793C28F335C4C9DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708820   (62115) от 22.03.2024
-
-Scooter - Open Your Mind And Your Trousers (2024) [FLAC|Lossless|WEB-DL|tracks] <Techno, Hardstyle, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62115.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thirty, Rough And Dirty
-02. Rave & Shout (feat. Harris & Ford)
-03. Posse Reloaded (feat. FiNCH)
-04. Techno Is Back (feat. Harris & Ford)(   Читать дальше...   )Жанр: Techno, Hardstyle, DanceПродолжительность: 00:42:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C9EFAEC4878DF3C98060C2A688C9643BDEEFEB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714697   (60128) от 10.04.2024
-
-VA - Dance Covers 2024 - The Best Party Hits Only! [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60128.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. French Fri3S - Call on Me (4:30)
-02. nari - Sunshine Day (Original Mix) (5:05)
-03. Jay-Are - China Girl (Original Mix) (4:21)
-04. Lissat - Forget Me Nots (Nu Disco Mix) (5:06)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 02:14:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:612ADF48A35ACC344ED4307D01C785B3F560A480
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725798   (55301) от 26.05.2024
-
-Vintage Culture - Promised Land (2024) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Жанр: Tech House, Deep House, ProgressiveПродолжительность: 00:58:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96281DE4FC39AA3443A6F18A47C060A611FE71A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

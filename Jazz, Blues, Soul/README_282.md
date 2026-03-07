@@ -1,3 +1,247 @@
+###  Публикация: 546354   (476067) от 14.09.2012
+
+VA - Jazz Audiophile Voices (2010) [FLAC|Lossless]<Vocal jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_476067.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lyle Ritz & Rebecca Kilgore - Sway [03:48]
+02. Pamela Luss with Houston Person - You Belong To Me [05:31]
+03. Niki King - The Very Thought  Of You [04:07]
+04. Janet Seidel - Spanish Harlem [04:30]
+05. Saskia Bruin - Estate [04:27]
+06. Lisa Lauren - And I Love Him [05:25]
+07. Todd Gordon & Jacqui Dankworth - If You Could Read My Mind [04:32]
+08. Joe Fagan Quartet - My Foolish Heart [05:00]
+09. Sarah Morrau - Both Sides Now [04:54]
+10. Alison Burns - Cry Me A River [04:59](   Читать дальше...   )Жанр: Vocal jazzПродолжительность: 01:12:49
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 939190   (476035) от 21.09.2015
+
+Kat Reinhert - Spark (2015) [FLAC|image+.cue]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_476035.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walk Into The Rain
+02. Heavy
+03. Spark
+04. Paper Bag(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:02:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CCED15038814C3709FDBF3FE7767C105447438F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 939386   (476032) от 21.09.2015
+
+Thomas Chapin - I've Got Your Number (1993) /Arabesque Jazz/[APE|tracks+.cue]<Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_476032.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.I've Got Your Number [05:48]
+02.Drinkin' [07:42]
+03.Time Waits [07:34]
+04.Moon Ray [07:47](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:56:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F0F2FC70027442B987A168B85825F33C64CE8C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 546340   (475892) от 14.09.2012
+
+VA - Acoustic Audiophile Voices (2004) [FLAC|Lossless]<Vocal jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_475892.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rhonda Vincent - When I Close My Eyes [03:26]
+02. Alison Krauss & Union Station - Looking In The Eyes Of Love [04:18]
+03. Claire Lynch - I Don't Have To Dream [03:25]
+04. Cheryl Wheeler - Frequently Wrong But Never In Doubt [03:58]
+05. Nanci Griffith - Once In A Very Blue Moon [02:35]
+06. The Wayfaring Strangers - Wayfaring Stranger [06:22]
+07. Alison Krauss & Union Station - I'm Gone [03:26]
+08. Claire Lynch - These Flowers [03:16]
+09. Cheryl Wheeler - Howl At The Moon [03:26]
+10. Tish Hinojosa - Roses Around My Feet [04:57](   Читать дальше...   )Жанр: Vocal jazzПродолжительность: 00:55:02
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057370   (475481) от 28.09.2016
+
+The Tony Lustig Quintet - Taking Flight (2016) Bimperl Entertainment & Media[FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_475481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Change Is Comin' [05:56]
+ 02.Fraytown [08:52]
+ 03.Prometheus [08:37]
+ 04.For Wayne [06:02](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:56:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D97613106C4274BE3485DD6ADA2FD5C89FE80310
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057366   (475476) от 28.09.2016
+
+John Surman - Morning Glory (1973) 2016, Fledg'ling Records[FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_475476.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Cloudless Sky [08:15]
+ 02.Iron Man [13:03]
+ 03.Norwegian Steel - Septimus [09:33]
+ 04.Hinc Illae Lacrimae - For Us All [12:33]Жанр: Avant-Garde Jazz, Post-BopПродолжительность: 00:43:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3962251F96B7CCF8928D93C17C1ED79F0BC9112E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057305   (475349) от 28.09.2016
+
+The Wicked Mercy - The Wicked Mercy (2013) [FLAC|Lossless|tracks] <Blues Rock, Southern Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_475349.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. God Knows   (04:08)
+02. River Run Dry   (03:16)
+03. Gypsy Jazz   (03:40)
+04. Wanted Man   (03:54)(   Читать дальше...   )Жанр: Blues Rock, Southern RockПродолжительность: 00:37:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF13CC7E328E11061A3AAAF6EBFAE3D1E94C08A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057375   (475242) от 28.09.2016
+
+VA - Smooth Jazz Best of Sax (2016) [MP3|320 Kbps] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_475242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. LeBron - Groove City
+02. Randy Scott - Woodward Avenue
+03. Elizabeth Mis - Slow Burn
+04. Michael Lington - The Serenade(   Читать дальше...   )Жанр: JazzПродолжительность: 01:56:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65404665F97C8C654D80466D57052F542875DFBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1406493   (474909) от 03.09.2020
 
 Howlin' Wolf, Muddy Waters, Bo Diddley - The Super Super Blues Band (2018) [MP3|320 Kbps] <Blues, Blues Rock>
@@ -513,238 +757,6 @@ Rick Gibson Band - Junkyard Son (2016) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A2AA6DCFC0FF7ACEE750291DCBDEEA9DA1A7F09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406619   (473205) от 04.09.2020
-
-Lionel Hampton - Priceless Jazz Collection (1942 - 1964) 1999, GRP Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473205.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flying Home [3:12]
-02. Evil Gal Blues [3:17]
-03. Red Cross [3:46]
-04. Hamp's Boogie Woogie [3:24](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:57:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A901702146E56CC2352AACFFF3267C5320CE510D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406620   (473197) от 04.09.2020
-
-Joe Williams, Carmen McRae & Friends - Blues In My Heart (1979) 2002, Past Perfect [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Bop, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473197.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Suivez le Chef [3:08]
-02. Work Song [2:59]
-03. Blues in My Heart [3:11]
-04. Just the Way You Are [6:42](   Читать дальше...   )Жанр: Vocal Jazz, Bop, SwingПродолжительность: 01:02:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECA7CE5168F38D204879E1CFBE90DB8E22A17B54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057830   (473175) от 29.09.2016
-
-Sabrina Weeks & Swing Cat Bounce - Got My Eye On You (2013) [MP3|320 Kbps] <Swing, Boogie Blues, Jazz>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473175.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Got My Eye On You   (03:13)
-02. Burn That Boogie   (02:46)
-03. I'll Never Let You Go   (02:35)
-04. This Lady Sings The Blues   (04:20)(   Читать дальше...   )Жанр: Swing, Boogie Blues, JazzПродолжительность: 00:34:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:039E6EF37427F38CF37C8A513A21F0766DC95FD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406703   (472922) от 04.09.2020
-
-Savoy Brown - Ain't Done Yet (2020) [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472922.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Gone Wrong (04:14)
-02. Devil's Highway (06:09)
-03. River On The Rise (05:02)
-04. Borrowed Time (04:15)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:47:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D6EDC771CD419FD0F2AF0D5CE242103B9B4497E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1051399   (472764) от 04.09.2020
-
-VA - Dave Grusin, Lee Ritenour, Diane Schuur, Dave Valentin: GRP Live In Session (1985) GRP Records[FLAC|Lossless|tracks + .cue] <Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472764.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Mountain Dance [06:11]
- 02.Oasis [07:26]
- 03.The Rit Variations [06:19]
- 04.Reverend Lee [04:54](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:41:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C42062A03E6399A972D4065688A9A7638E322510
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567474   (472466) от 03.08.2022
-
-Mulberry Sky - Who's There? (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472466.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Light in the Distance (6:04)
-02. Second Face (4:17)
-03. The Fuckening (4:00)
-04. Hot Hot Thunder (3:50)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:51:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55762957020FBA0B2616F7097F63C5F1FBC40D05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567489   (472465) от 03.08.2022
-
-James Morrison - On The Edge (2003) Morrison Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472465.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Still Dangerous [7:43]
-02. Da Speech [9:33]
-03. Self Portrait [8:24]
-04. Even Seiben [13:04](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 01:12:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04E929BB5F29D99862E7F70E1CB62213E4003834
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567480   (472388) от 03.08.2022
-
-The Blue Tide - Plague Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472388.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Right Time (To Sing the Blues) (4:26)
-02. Together We Die (3:56)
-03. Let the Light In (4:13)
-04. Front Porch Breeze (2:22)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3FF7CD7E621BF5723458BDC04AA066838B7B7D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

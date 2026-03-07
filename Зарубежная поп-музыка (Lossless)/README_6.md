@@ -1,3 +1,119 @@
+###  Публикация: 1468278   (1017105) от 08.05.2021
+
+Wilson Phillips - Wilson Phillips (2016) 2CD [FLAC|Lossless|image + .cue] <  Pop, Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1017105.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Release Me (Single Edit) (03:54)
+02. Hold On (Single Fade) (03:40)
+03. Impulsive (AOR Mix) (04:35)
+04. Impulsive (Single Edit) (digitally remastered 2000) (03:57)(   Читать дальше...   )Жанр: Pop, VocalПродолжительность: 01:50:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38831761F61E25ED0656824E8C1046F273396DFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468553   (1017097) от 08.05.2021
+
+Bay City Rollers - Gold (2019) 3xCD [FLAC|Lossless|image + .cue] <Pop, Pop Rock, Rock & Roll>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1017097.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. Remember (Sha La La La) (2:34)
+02. Shang-A-Lang (3:06)
+03. Angel Angel (2:26)(   Читать дальше...   )Жанр: Pop, Pop Rock, Rock & RollПродолжительность: 02:47:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADE5DCE1E5F6360D0B1C43C9483BE989191C240E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468499   (1017077) от 08.05.2021
+
+VA - Greatest Covers Ever (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1017077.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Creedence Clearwater Revival - I Heard It Through The Grapevine (Edit) (03:53)
+02. Musical Youth - Pass The Dutchie (03:23)
+03. Toots and The Maytals - Take Me Home, Country Roads (03:21)
+04. Bahamas - Don't You Want Me (03:19)(   Читать дальше...   )Жанр: PopПродолжительность: 01:49:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:358ACC57AF569D96D2C252ADF651DB34370853DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468818   (1016738) от 10.05.2021
+
+Paul Mauriat & His Orchestra, Duke Ellington & His Orchestra - Songs That Define a City; Paris, Volume 3 (2021) [FLAC|Lossless|WEB-DL|tracks] <Soul-Jazz, Big Band, Soul, Easy Listening>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016738.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sous Le Ciel De Paris, Padam Padam (Medley Remastered) [00:02:47]
+02. La Vie En Rose (Remastered) [00:02:32]
+03. C'est Si Bon (Remastered) [00:01:47]
+04. I Love Paris, Paname (Medley Remastered) [00:03:17](   Читать дальше...   )Жанр: Soul-Jazz, Big Band, Soul, Easy ListeningПродолжительность: 01:20:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C7999405C20FA0475812FC5A84A7F42B8E418C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1468783   (1016716) от 10.05.2021
 
 Paul Mauriat & His Orchestra - Paul Mauriat plays the Beatles & Mamy Blue (2014) Compilation, Remastered [FLAC|Lossless|image + .cue] <Instrumental Pop, Easy Listening>
@@ -630,122 +746,6 @@ VA - Acoustic 10s and 20s Covers (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:050EF2820DF47712D0E735C0EF6FCAD7B16D2257
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479073   (1009857) от 22.06.2021
-
-Percy Faith - Columbia Singles Volume III 1959-1967 (2005) [FLAC|Lossless|image + .cue] <Easy Listening>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009857.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Theme From "Advise And Consent" 2:42
-02 Theme From "Lawrence Of Arabia" 2:35
-03 Kurt Weill's Melody From "Mahoganny" 2:38
-04 Love Me Now 2:26(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 01:07:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C975D6D2112222C3DC73673FBA9AC179542C7FD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479410   (1009720) от 23.06.2021
-
-VA - Acoustic Pop 2021 [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009720.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sam Smith - Stay With Me - Live At Abbey Road Studios (3:46)
-02. Katy Perry - The One That Got Away - Acoustic (4:19)
-03. Sarah Jarosz - I Still Haven't Found What I'm Looking For (3:32)
-04. Milo Meskens - Daddy Issues - Acoustic Version (3:41)(   Читать дальше...   )Жанр: PopПродолжительность: 01:43:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37DE311485477A0D300A34A41150651B9E08BB04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479524   (1009600) от 24.06.2021
-
-Melanie C - In And Out Of Love (Acoustic) (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009600.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In And Out Of Love (Acoustic)
-02. Who I Am (Acoustic)
-03. Never Be The Same Again (Acoustic)
-04. Too Much (Acoustic)(   Читать дальше...   )Жанр: PopПродолжительность: 00:20:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:881360CD3407F5280DDF17F0D7D616CEAA3FE235
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479490   (1009586) от 24.06.2021
-
-VA - You're In My Heart: Acoustic Love Ballads (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009586.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rod Stewart - You're In My Heart (The Final Acclaim)
-02. Tamia - Officially Missing You
-03. Jess Glynne - I'll Be There (Acoustic)
-04. Donna Lewis - I Could Be the One(   Читать дальше...   )Жанр: PopПродолжительность: 01:39:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0E4D548DFCBC86E8270840F7BD4C4186B297238
 ```
 
 https://mybot314.ru/tekegram_catalog/

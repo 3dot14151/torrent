@@ -1,3 +1,32 @@
+###  Публикация: 1304483   (563984) от 26.05.2019
+
+Michele McLaughlin - Memoirs (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_563984.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Thankful
+02 Pure Joy
+03 Dark Moon
+04 Triumph(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:44:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D1F4540FFD130A90827233666B1F51AE188C669
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1152193   (563145) от 24.07.2017
 
 Joel Kanning - Ubiquitous Frequency Oscillation (UFO) Vol.1,2 (2009-2017) [FLAC|Lossless|tracks + .cue] <Electronic, New Age, Downtempo>
@@ -732,35 +761,6 @@ Bob Dylan - The Best Of Bob Dylan (1997) [FLAC|Lossless|tracks + .cue] <Rock, fo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44435EE5A0BBC654427FCA3BABC16B03D82CC1F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045533   (557724) от 24.08.2016
-
-VA - Grease (The Original Soundtrack From The Motion Picture) (1998) [FLAC|Lossless|tracks + .cue] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557724.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Grease [03:25]
- 2. Summer Nights [03:36]
- 3. Hopelessly Devoted To You [03:05]
- 4. You're The One That I Want [02:49](   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:03:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45E24E99EAA00853259C73ECA49CCD26E488434C
 ```
 
 https://mybot314.ru/tekegram_catalog/

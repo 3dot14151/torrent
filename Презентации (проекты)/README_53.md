@@ -1,3 +1,81 @@
+###  Публикация: 1835146   (250568) от 05.11.2025
+
+Проекты - VideoHive - Phone 17 Pro Max 3D Mockups - 59600334 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_250568.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шаблон семнадцатого айфона для ваших творческих задач.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE621716F0F6121E9C424888A7D3A2B8C7F53CC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1835136   (250564) от 05.11.2025
+
+Проекты - VideoHive - Urban Hype - Street Style Promo - 59600334 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_250564.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шаблон для ваших творческих задач в урбанистическом стиле.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ACE17EF754AE410501B63B6593EE56E489B8699
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1834550   (250395) от 03.11.2025
+
+Проекты - VideoHive - Award Ceremony - 58999175 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_250395.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шаблон для презентации церемоний и вручения наград разного рода.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB621E6AAA45140BD7AD6B7917D9B171168ECC0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1833995   (247824) от 02.11.2025
 
 Проекты - VideoHive - Award Ceremony - 31332882 [AEP]
@@ -603,84 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6FE80264D1F0AF5E8867CAC38317F063D2EC7B1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086763   (149238) от 25.12.2016
-
-Проекты - VideoHive - Social Media Bundle - 16974172 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149238.jpg" />
-</div>
-
-
-###  Подробнее
-
-Social Media Bundle - пакет анимации, отображающий работу социальных сетей.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F5EBC6F90BD0B2CCDBC05DE2D434C66B19119CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087110   (147781) от 26.12.2016
-
-Проекты - VideoHive - Crazy Event - 16126412 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147781.jpg" />
-</div>
-
-
-###  Подробнее
-
-Crazy Event - проект для создания ритмичного вступительного видеоролика.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48B299BEA2DF2059E82E8B05F9716032E7BB2265
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087107   (147756) от 26.12.2016
-
-Проекты - VideoHive - Dynamic Opener 2 - 18977792 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147756.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dynamic Opener 2 - проект для создания вступительного ролика в основное видео.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9637E4E36C141D54D84B16339719BE7181A78A19
 ```
 
 https://mybot314.ru/tekegram_catalog/

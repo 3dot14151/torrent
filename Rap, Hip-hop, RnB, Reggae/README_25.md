@@ -1,3 +1,90 @@
+###  Публикация: 1266702   (269181) от 03.12.2018
+
+VA - Chillhop Essentials - Spring (2018) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Chillhop, Jazz Fusion>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_269181.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cap Kendricks – The One (3:29)
+02. j'san. – good morning sunshine (2:29)
+03. Juan RIOS – Azahar (2:25)
+04. HM Surf – Swix (1:55)(   Читать дальше...   )Жанр: Hip-Hop, Chillhop, Jazz Fusion, Trip HopПродолжительность: 00:59:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CB415FE9EBDE99FEC629E82252B3DC1739F451A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189968   (268722) от 08.12.2017
+
+Wu-Tang Clan - The Saga Continues (2017) [FLAC|Lossless|tracks + .cue] <Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_268722.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wu-Tang The Saga Continues Intro (feat. Rza)
+02. Lesson Learn'd (feat. Inspectah Deck And Redman)
+03. Fast And Furious (feat. Hue Hef And Raekwon)
+04. Famous Fighters (Skit)(   Читать дальше...   )Жанр: Hip-HopПродолжительность: 00:51:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C74C6BC8C0E6067833F4BD16BB584AC0EF642B4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189851   (268570) от 08.12.2017
+
+Карандаш - Ролевая модель (2017) [MP3|320 Kbps] <Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_268570.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. $.O.$.
+02. Розетка
+03. Ролевая Модель
+04. Времена(   Читать дальше...   )Жанр: RapПродолжительность: 00:51:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB7091F545543B277B10BE15CB0243F32635CB4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1267089   (267810) от 05.12.2018
 
 Freddie Gibbs - Freddie (2018) Mixtape [FLAC|Lossless|Web-DL|tracks] <Hip-Hop>
@@ -655,93 +742,6 @@ Eminem - Curtain Call 2 (Explicit) (2022) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F202B414EDD76284E09D32970BE0AB899D4A33B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624526   (242092) от 06.04.2023
-
-L'One - Дом (2023) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242092.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Я готов ко всему
-2. Летать
-3. Она одна
-4. Верну до темноты(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:45:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19C1E3C94C6D4E4C5B1EB20E514E48022F5C58BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372032   (242064) от 03.04.2020
-
-ГАМОРА - THE BAD (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242064.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вставляет нормально [04:55]
-02. Лови [06:07]
-03. Убойный камень [03:22]
-04. Решай неспеша [03:39](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:23:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:650E2E51CF6796034EA89698BEA34B6D564A00EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544516   (241976) от 16.04.2022
-
-Sagath - Страшные сказки (2022) [MP3|320 Kbps] <Alternative, Hip-Hop, Horrorcore>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241976.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Страшные сказки [00:02:07]
-02 - Крампус [00:04:07]
-03 - Доска Уиджи [00:03:33]
-04 - Метель [00:02:34](   Читать дальше...   )Жанр: Alternative, Hip-Hop, HorrorcoreПродолжительность: 00:21:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FBF13066A5AE808A7DA962CDD579A90BA0EF9A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

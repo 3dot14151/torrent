@@ -1,3 +1,32 @@
+###  Публикация: 954422   (339829) от 08.11.2015
+
+Tchaikovsky - Symphonies Nos. 4, 5 & 6 (Pierre Monteux & Boston Symphony Orchestra) (2010) [FLAC|image +.cue]<Classical. Romantic Period, Symphony>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_339829.jpg" />
+</div>
+
+
+###  Подробнее
+
+Symphony No. 5 in E minor, Op. 64
+01. Valse- Allegro moderato (06:07)
+02. Finale- Andante maestoso (12:12)
+Symphony No. 6 in B minor ("Pathtique"), Op. 74(   Читать дальше...   )Жанр: Classical. Romantic Period, SymphonyПродолжительность: 02:08:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:283E8A684BA7137EC72D3399CE5A7F0FB6AE6592
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 954566   (339705) от 08.11.2015
 
 Schubert - Piano Works for Four Hands, Vol. 5 (John Humphreys & Allan Schiller) (2008) [FLAC|image +.cue]<Classical, Chamber Music, Recitals, Romantic Period, Sonata, Variations, March, Duet ...
@@ -709,35 +738,6 @@ Piano Sonata No. 2 in B flat minor, Op. 35, CT. 202
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18D2989DE7F3B22D92818571CE29915A33705067
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958354   (323934) от 21.11.2015
-
-Brahms - Symphonies nos.3 & 4 (Carl Schuricht & Orchestra) (2004) [FLAC|image +.cue]<Classical, Romantic Period, Symphony>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323934.jpg" />
-</div>
-
-
-###  Подробнее
-
-Symphony No.3 in F major Op.90
-01. Allegro con brio (08:24)
-02. Andante (08:10)
-03. Poco allegretto (06:34)(   Читать дальше...   )Жанр: Classical, Romantic Period, SymphonyПродолжительность: 01:10:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE031EE1FBE14B14794606BDE9DF1A151E231C6F
 ```
 
 https://mybot314.ru/tekegram_catalog/

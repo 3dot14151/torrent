@@ -1,3 +1,61 @@
+###  Публикация: 1252558   (409082) от 05.10.2018
+
+Eros Ramazzotti - Next Steps (2018) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_409082.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Canzone Per Lei (3:40)
+02. Ci Parliamo Da Grandi (4:34)
+03. Controvento (3:46)
+04. Cose Che Ho Visto (4:11)(   Читать дальше...   )Жанр: PopПродолжительность: 01:42:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A7B7F7FD831D1FEBCC04655C1E7918E10ABEC47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252390   (408989) от 05.10.2018
+
+VA - 200 Hits Of The Pops (2018) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408989.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ini Kamoze - Here Comes The Hotstepper
+002. Vozquez Sounds - Eco
+003. Samantha Jade - Never Can Say Goodbye
+004. Chris De Burgh - The Lady In Red(   Читать дальше...   )Жанр: PopПродолжительность: 12:04:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6AB8272696B2F170B01190262AB43E092EB2803
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 559505   (408491) от 13.10.2012
 
 VA - Радио Шторм - Русский Шторм - 73 (2012) [MP3|320 кб/с]<Pop, Dance>
@@ -783,64 +841,6 @@ C.C. Catch - 25 Best Songs (2012) [MP3|256 кб/с]<Eurodisco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6B405B225CD3DAB4204CD9CC638F845ECBF508A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 712606   (403223) от 19.10.2013
-
-Modern Talking - 25 Best Songs (2012) [MP3|228 - 267 кб/с]<Eurodisco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403223.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You're My Heart, You're My Soul 1985-1
-02. Cheri Cheri Lady 1985-2
-03. Lady Lai 1986-1
-04. China In Her Eyes 2000(   Читать дальше...   )Жанр: EurodiscoПродолжительность: 01:36:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14F20322017E2F19599C41F9ACB1B215701289F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 712580   (403166) от 19.10.2013
-
-Michael Jackson - 25 Best Songs (2012) [MP3|235 - 272 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403166.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Billie Jean 1982
-02. Beat It 1982
-03. Wanna Be Startin' Somethin' 1982
-04. Human Nature 1982(   Читать дальше...   )Жанр: PopПродолжительность: 01:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E54FC3C64C056711886B83104617C8B30639B95F
 ```
 
 https://mybot314.ru/tekegram_catalog/

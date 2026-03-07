@@ -1,3 +1,176 @@
+###  Публикация: 1039325   (597369) от 31.07.2016
+
+Uriah Heep - Innocent Victim (1977) Reissue, 1978, Bronze [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_597369.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Keep On Ridin' (3:43)
+02. Flyin' High (3:20)
+03. Roller (4:41)
+04. Free 'n' Easy (3:06)(   Читать дальше...   )Производство: Bronze Records, EMI-Toshiba - WBS-71017Жанр: Hard RockПродолжительность: 00:39:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBDFFC492D13357BC3A0CEF1CB27C731BA894362
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1299572   (595897) от 03.05.2019
+
+ZZ Top - Hit Collection 2000 (2000) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Blues Rock, Texas Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_595897.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. My Mind is Gone
+02. Just Got PaidЖанр: Blues Rock, Texas BluesПродолжительность: 01:17:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA9BC1DE0C466BC3F64B5398EDB5229BC15D7852
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039541   (594676) от 02.08.2016
+
+VA - Famous Jazz Pianists/Знаменити Джаз Пианисти (1978) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594676.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Bill Evans - Време За Любов (Time For Love)
+A2 Art Tatum - Блус В Сърцето Ми (Blues In My Heart)
+A3 Bill Evans - Среднощно Настроение (Midnight Mood)
+A4 Art Tatum - Хумореска (Humoresque)(   Читать дальше...   )Жанр: Jazz, Easy ListeningПродолжительность: 00:38:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DABD8BC7D5A01F33BC91F52D3EAD1DEA6C0C8E2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210967   (594606) от 05.05.2022
+
+Bing Crosby (Бинг Кросби) - Play A Simple Melody (1985) [FLAC 1.0|96/24|image+.cue|Vinyl-Rip] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594606.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я напишу письмо
+02. Играйте простую мелодию
+03. Однажды летним днем
+(И. Берлин)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:42:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7F86F31BAD4CA4FF98182D16A2AAECF9E6E33FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039533   (594577) от 02.08.2016
+
+VA - Famous Jazz Singers/Знаменитые Джазовые Вокалистки (1978) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Soul-Jazz, Smooth Jazz, Jazz-Funk>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594577.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Dinah Washington - Willow, Weep For Me
+A2 Ella Fitzgerald - April In Paris
+A3 Nancy Wilson - The Boy From Ipanema
+A4 Carmen McRae - Exactly Like You(   Читать дальше...   )Жанр: Soul-Jazz, Smooth Jazz, Jazz-FunkПродолжительность: 00:35:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC26ADCA15833D7CA36C185E8FAB32048C1FE669
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039535   (594568) от 02.08.2016
+
+VA - Famous Jazz Singers/Знаменитые Джазовые Вокалисты (1977) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Smooth Jazz, Jazz-Funk, Swing>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594568.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Louis Armstrong - I Get A Kick Out Of You
+A2 Nat King Cole - Stardust
+A3 Frank Sinatra - I've Got You Under My Skin
+A4 Tony Bennett - I've Grown Accustomed To Her Face(   Читать дальше...   )Жанр: Smooth Jazz, Jazz-Funk, SwingПродолжительность: 00:36:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C9C3382778439949BC6EDAB0034DD6BE31F43BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1039556   (594516) от 02.08.2016
 
 Московский Диксиленд "Капелла Дикси" (1984) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Dixieland>
@@ -578,191 +751,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04180D0FFEEB4A4F830CFF26E91B74A9F63BA69A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040839   (584266) от 07.08.2016
-
-C.C. Catch - Diamonds: Her Greatest Hits (1988) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Euro Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584266.jpg" />
-</div>
-
-
-###  Подробнее
-
-sideA
-A1 House Of Mystic Lights (Long Version - Dance Mix)
-A2 Are You Man Enough
-A3 'Cause You Are Young(   Читать дальше...   )Жанр: Euro DiscoПродолжительность: 00:36:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74EE639E50570487C1163D810A3F99B680BA2D18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301234   (584015) от 12.05.2019
-
-VA - Rock'n'Roll (1977) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Rock & Roll>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584015.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1.a Shakin' Stevens And The Sunsets - It's Rock'N'Roll
-A1.b Shakin' Stevens And The Sunsets - I Told You So
-A2 Chas And Dave And Various - That's Alright Mama
-A3 Freddie "Fingers" Lee - Down On The Farm(   Читать дальше...   )Жанр: Rock & RollПродолжительность: 00:37:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EB95A32E2486E3A6FA6DFC163170B0380014B35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 810810   (582453) от 06.08.2014
-
-Bad Company - 10 From 6 (1985)  [FLAC 2.0 24/192|image (Vinyl-Rip)]<Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582453.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Can't Get Enough (4:18)
-A2. Feel Like Makin' Love (5:12)
-A3. Run With The Pack (5:25)
-A4. Shooting Star (6:17)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5DCA37F860681E62F864175C74038B3DA628726
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 359638   (581771) от 06.07.2011
-
-Billy Idol - Rebel Yell (1983) [APE 2.0 24/192|image (Vinyl-Rip)]<Pop Rock/Synth-Рop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581771.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side 1
-A1 Rebel Yell [04:47]
-A2 Daytime Drama [04:04]
-A3 Eyes Without A Face [04:58]
-A4 Blue Highway [05:08]
-Side 2
-B1 Flesh For Fantasy [04:37]
-B2 Catch My Fall [03:43]
-B3 Crank Call [04:00]
-B4 (Do Not) Stand In The Shadows [03:12](   Читать дальше...   )1983Жанр: Pop Rock/Synth-РopПродолжительность: 00:38:19
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 360094   (580828) от 07.07.2011
-
-Sandra - Into A Secret Land (1988) [APE 2.0 24/96|image (Vinyl-Rip)]<Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580828.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Secret Land [04:42]
- 02.  We'll Be Together [04:09]
- 03.  Heaven Can Wait [04:02]
- 04.  Just Like Diamonds [05:28]
- 05.  Around My Heart [03:16]
- 06.  Crazy Joliet [04:09]
- 07.  La Vista De Luna [03:43]
- 08.  Celebrate Your Life [03:26]
- 09.  Children of England [03:51]Жанр: Synth-popПродолжительность: 00:36:46
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042170   (580390) от 11.08.2016
-
-Uriah Heep - Firefly (1977) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580390.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Hanging Tree (3:43)
-02. Been Away Too Long (5:04)
-03. Who Needs Me (3:39)
-04. Wise Man (4:43)(   Читать дальше...   )Производство: Bronze Records - 28 520 XOTЖанр: Hard RockПродолжительность: 00:37:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A18598CB474D2996289B3A154775FAF9A1859A05
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1522169   (760225) от 06.01.2022
+
+VA - Route Music: Disco Night (2021) [MP3|320 Kbps] <Disco, Funky, Nu Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_760225.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вашему вниманию самый качающий диско-микс прошедшего года. В этой подборке представлены самые яркие ремиксы на хиты 80-х годов которые, как иногда кажется, звучат даже лучше оригинала.001. Jordi Cabrera - Infinity
+002. Alex Guittini - All Over Again
+003. Soul Divers - The Mystery Of Universe
+004. Pina.Nikolada - She's A Beauty(   Читать дальше...   )Жанр: Disco, Funky, Nu DiscoПродолжительность: 10:41:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E3FB1674B2F4221F9A71F4601EDF14E9F3488EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1017957   (759274) от 18.05.2016
+
+VA - Созвездие весеннее - 7 (2016) [MP3|256 кб/с] <Pop, Dance, Club>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_759274.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ladyhawke - A Love Song
+002. The Jigits - В Эту Ночь
+003. Shakira - Try Everything
+004. Артем Пивоваров - Стихия(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 06:06:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D433EBD7BED32F59B92E57F4B94DFD71CE4FB1BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1018002   (759017) от 18.05.2016
 
 VA - Авто хит. Топ Europa Plus (2016) [MP3|256 кб/с] <Pop>
@@ -687,64 +745,6 @@ VA - Зарубежная Дискотека ХХ Века - 5 (2016) [MP3|320 �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC845507DDEC6CC59BF12CCF398D4D2CD1ECCCC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019576   (748454) от 24.05.2016
-
-VA - Зарубежная Дискотека ХХ Века - 4 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748454.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Baltimora - Tarzan Boy ( Extended Version 1984 )
-02. Gazebo - Lunatic ( 1984 )
-03. Dschinghis Khan - Samurai ( 1979 )
-04. Bad Boys Blue - I Live ( 1985 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:833BA4759159BE53DA7832D8E2E4B04BB32BF016
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019608   (748452) от 24.05.2016
-
-VA - Зарубежная Дискотека ХХ Века - 9 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748452.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eddy Huntington - U.S.S.R. ( 12'' Version 1986 )
-02. Fun Fun - Give Me Your Love ( 1984 )
-03. Monte Kristo - The Girl Of Lucifer ( 1985 )
-04. Beloved - Your Love Takes Me Higher ( 1990 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:20:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5456F54AD141F0521E8235BA6E9F1F5B75C310B
 ```
 
 https://mybot314.ru/tekegram_catalog/

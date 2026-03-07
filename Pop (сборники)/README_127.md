@@ -1,3 +1,61 @@
+###  Публикация: 1784307   (25098) от 10.03.2025
+
+Texas - Compilation (1989-2021) [MP3|320 Kbps] <Pop rock>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_25098.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zero Zero (The Hush 1999)
+02. Telephone X (Careful What You Wish For 2003)
+03. Summer Son (The Hush 1999)
+04. The Conversation (The Conversation 2013)(   Читать дальше...   )Жанр: Pop rockПродолжительность: 03:25:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22AFD170266F917E863F47824AB1C4603C5524AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784363   (24951) от 12.03.2025
+
+VA - Песни Юмор (2025) [MP3|320 Kbps] <Pop, Юмор>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_24951.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Перепесня - Это Инфобизнес
+02. Игорь Малинин - Перископ
+03. Перепесня - Барсучий Случай (Квадроберы)
+04. Игорь Малинин - Рога(   Читать дальше...   )Жанр: Pop, ЮморПродолжительность: 00:13:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD40502DD41DA4F246B241914526E359BFBA8802
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1785358   (24594) от 15.03.2025
 
 Pupo - Compilation (2025) [MP3|320 Kbps] <Pop, ItaloDisco>
@@ -688,64 +746,6 @@ Emin - Compilation (2006-2025) [MP3|320 Kbps] <Soul, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FCFFA089E5E8BAF43EEE80DE4FB009ECCAE95598
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1814229   (4303) от 05.09.2025
-
-Reyvi - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4303.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Amore
-02 - Te Busco
-03 - Amore Mio
-04 - Reste Un Peu(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 00:20:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A3C96500EE2A7241E96742C90B1ECDEA91EF65C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817596   (3309) от 11.09.2025
-
-Reyvi - Favorites Collection Part 4 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3309.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Heartbeat
- 02 - Why Did You Say Goodbye
- 03 - My Love
- 04 - L’amour Nous(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 00:18:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCB41EBD1B81797DC9E55727DAA70786AD3DB524
 ```
 
 https://mybot314.ru/tekegram_catalog/

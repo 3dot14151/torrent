@@ -1,3 +1,212 @@
+###  Публикация: 1168957   (405041) от 25.09.2017
+
+Maniac Cyberpriest: Synthpop Lives By Various Artist (2017) [MP3|269-320 Kbps] <Synthpop, Synthwave, Electronic>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_405041.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. ARCADISE - Tabula Rasa
+002. Ice Choir - Let's Music
+003. Maniac Lover - Mantra Generator
+004. Robot FM - Sun Mega Drive(   Читать дальше...   )Жанр: Synthpop, Synthwave, ElectronicПродолжительность: 10:10:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18681AA932AC77E39ED3587DFACE50959E6C846E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168736   (405038) от 25.09.2017
+
+VA - A Song For You Dance Europarty (2017) [MP3|320 Kbps] <Dance, Pop, Shlager>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_405038.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Noel Terhorst - Traumpilot
+002. Luis Fonsi - Despacito
+003. Lena - If I Wasn't Your Daughter (Acoustic Version)
+004. Margaret - What You Dp(   Читать дальше...   )Жанр: Dance, Pop, ShlagerПродолжительность: 08:49:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15BFFC3E52C5C551A3D087391AB63942D911977F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168798   (404994) от 25.09.2017
+
+VA - European Dance House (2017) [MP3|254-320 Kbps] <Club, Dance, Electro House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_404994.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. David Guetta (Feat. Sia) - Titanium
+002. Skrillex & Diplo With Justin Bieber - Where Are U Now
+003. Calvin Harris & Disciples - How Deep Is Your Love
+004. Swedish House Mafia Feat. Pharrell - One (Your Name)(   Читать дальше...   )Жанр: Club, Dance, Electro HouseПродолжительность: 13:09:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2598E1092872AEFAE0802D7DB2A220774A95CAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 562860   (404870) от 21.10.2012
+
+VA - Three Rooms. Acoustics, Chill, Relax Vol. 1-2 (2012) [MP3|320 кб/с]<Acoustics, Chill, Relax>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_404870.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD.1:CD.1:Жанр: Acoustics, Chill, RelaxПродолжительность: 01:07:26
+01. Merge Of Equals — Take You There
+02. Mindprint Traveller — Waterland
+03. Bob Holroyd — Journeyman
+04. Santic Ft. Vera Hall — Death, Have Mercy (Mks Mix)
+05. Akmusique — Le Temp (Rouge Mix)
+06. Nighthawks — The Secret Loneliness
+07. Yira — Villurca
+08. Mystic Diversions — The Love Dance (Spirit Of Life Mix)
+09. Deepak Chopra Ft. Demi Moore — Desire(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57E1E3252D4082FE178750EEC69AD38C80D4BFFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169086   (403818) от 26.09.2017
+
+VA - 90's Eurodance #3 (2017) [MP3|320 Kbps] <Eurodance, Euro-House, Techno, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_403818.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Cappella - U & Me (Short Sharp Mix)  3:12
+002.  Tn't Party Zone - Das Omen (Teil 1) '94 (Tn't Radio Edit)  3:56
+003.  Culture Beat - Anything  3:57
+004.  M.C. Sar & The Real Mccoy - Automatic Lover (Call For Love) (Trans Euro Mix)  5:29(   Читать дальше...   )Жанр: Eurodance, Euro-House, Techno, DanceПродолжительность: 08:34:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:935703F0A701F954BF8D03ADE9D93B98B7BE452D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169178   (403661) от 26.09.2017
+
+VA - Top 100 Зайцев.Нет Август (Русский выпуск) (2017) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_403661.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Serebro - Между нами любовь  3:11
+002.  Вера Брежнева - Близкие люди  3:16
+003.  Burito - По волнам  3:19
+004.  Лолита - На титанике  3:54(   Читать дальше...   )Жанр: PopПродолжительность: 05:59:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3911DA8567B89DD8F2C01B6B81BB380DCD1272A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169477   (403150) от 27.09.2017
+
+VA - Empire Records: Classic Disco (2017) [MP3|320 Kbps] <Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_403150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aeroplane, Tawatha Agee — Love On Hold (Extended Mix)
+02. Shawn Christopher — You Can Make It (Ron Carrolls Mix)
+03. Miguel Campbell feat. Benjamin Diamond — Gold Rush
+04. Angela Puxi — Housing to Jazz (Sinan Mercenk's Radio Edit)(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:46:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:994794FC3874B27AAEA37430DB2EA4E937C4B81E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1169725   (402469) от 28.09.2017
 
 VA - Empire Records - Disco Chill Out (2017) [MP3|320 Kbps] <Dance, Club>
@@ -587,215 +796,6 @@ CD1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4CCC9D919CD6C52FA054CF3133D487009C234DD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173299   (390648) от 11.10.2017
-
-VA - Empire Records - House Clinic (2017) [MP3|320 Kbps] <Dance, Club, Electro House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390648.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Breathe Carolina, Dropgun, Kaleena Zanders - Rhythm Is A Dancer (Extended Mix)
-02. Mike Williams, Brezy - Don't Hurt (Extended Mix)
-03. Azealia Banks - The Big Big Beat (Kostya Rhino Rmx)
-04. Runge - Coloured Squares (Original Mix)(   Читать дальше...   )Жанр: Dance, Club, Electro HouseПродолжительность: 01:47:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:065643983D55B2F811605F06A1FC7CD63D160154
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173462   (390161) от 11.10.2017
-
-VA - Vocal Electro Dance Music (2017) [MP3|320 Kbps] <EDM, Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390161.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ace of Base - Beautiful Life (Scorpio & Scrooge Rework)
-002. Akade & Krimsonn ft. Bibiane Z - Life Goes On
-003. Alex Adair - Casual (Thomas Gold Remix)
-004. Fenry Hord - My Love (Fitness Mix)(   Читать дальше...   )Жанр: EDM, Dance, ClubПродолжительность: 08:42:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B562C7F08064C98C1AC06F446F406BB68C4B2B94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 564649   (389732) от 05.11.2012
-
-VA - Metal-Hard Rock Covers 1-550 (2005-2012) [MP3|128-320 кб/с]<Metal, Hard, Punk, Alternative>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_389732.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andr? Matos - At Least A Chance (Viper)
-02. ShadYBlonde - Poker Face (Lady Gaga)
-03. King Hobo - Running (Curtis Mayfield)
-04. The Atomic Bomb Audition - Laura's Theme (Angelo Badalamenti)
-05. Vick LeCar - Tie Your Mother Down (Queen)
-06. Caliban - High Hopes (Pink Floyd)
-07. FPS - Come Together (The Beatles)
-08. Tragedy  - Hot Stuff (Donna Summer)
-09. Powergod - Esper (Loudness)
-10. Night Shift - Sign Your Name (Terence Trent D'arby)(   Читать дальше...   )Жанр: Metal, Hard, Punk, AlternativeПродолжительность: 01:21:22
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173727   (389709) от 12.10.2017
-
-VA - Brazilian Rio Carnival (2017) [MP3|320 Kbps] <House, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389709.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Camaro - Flu
-02. Don Raul - Samba del Sol (Original Mix)
-03. Funkerman - Speed Up (Tom Swoon Remix)
-04. Denny Berland - El Chango (Original Mix)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 04:36:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED9373ADD1FB89348A2800600F000E7B7B3EDB42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173512   (389703) от 12.10.2017
-
-VA - HGM The Beach Party (2017) [MP3|320 Kbps] <House, Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389703.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ambassadeurs - Looking At You (Moods Remix)
-002. Frankie - Feel What You Want (Original Mix)
-003. Pulsedriver, Chris Deelay - Geiles Gefuhl (Short mix)
-004. James Curd - Now I Believe (feat. Shaun J. Wright)(   Читать дальше...   )Жанр: House, Dance, ClubПродолжительность: 09:24:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6922F727C47693BF4004ADFF4149CFD53CB6DB14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173773   (388767) от 13.10.2017
-
-VA - 100 Лучших хитов в стиле Европа Плюс (Часть 2) (2017) [MP3|320 Kbps] <House, Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388767.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Dimitri Vegas & Like Mike vs. David Guetta feat. Kiiara - Complicated (R3hab Remix)  2:28
-002.  R3HAB & Quintino - I Just Can't (Original Mix)  2:36
-003.  Mari Ferrari feat. Miss Mary - Maria Maria  3:31
-004.  W&W vs. Vini Vici - Chakra  3:22(   Читать дальше...   )Жанр: House, Pop, DanceПродолжительность: 06:48:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D98AC7F220FA740A833AFDF7D92DE0527C621ED2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1174000   (388612) от 13.10.2017
-
-VA - Зайцев.Нет: Лучшие новинки октября (2017) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388612.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ramin Djawadi - Game Of Thrones (KSHMR & The Golden Army Remix)  4:19
-02.  Лев Валерьяныч - Диско  3:28
-03.  Marilyn Manson - Kill4Me  3:59
-04.  Paul van Dyk - I Am Alive (Original Mix)  4:38(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:38:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C958E527EEFB29411DE69C3399D9178003E021DB
 ```
 
 https://mybot314.ru/tekegram_catalog/

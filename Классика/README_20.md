@@ -1,3 +1,32 @@
+###  Публикация: 1283323   (731953) от 18.02.2019
+
+Julien Marchal - INSIGHT IV (2019) [FLAC|Lossless|WEB-DL|tracks] <Neoclassical, Piano, Minimal>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731953.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Insight XXXIV (3:31)
+ 02. Insight XXXV (3:20)
+ 03. Insight XXXVI (2:04)
+ 04. Insight XXXVII (3:27)(   Читать дальше...   )Жанр: Neoclassical, Piano, MinimalПродолжительность: 00:34:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA87ABC711FA207FC5FF62BBD9EF2BFA6FF5A32A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1283278   (731940) от 18.02.2019
 
 Yann Tiersen - ALL (2019) Mute Artists Ltd. [FLAC|Lossless|WEB-DL|tracks] <Neoclassical, Ambient, Contemporary>
@@ -716,35 +745,6 @@ Sonata for violin & piano No. 1 in G major ("Regen"), Op. 78
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:391F6DDCF7D58373D8C7659D58E36673C00AE999
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288452   (695548) от 11.03.2019
-
-Ilyin - Lie (2019) [MP3|320 Kbps] <Neo-Classical, Baroque>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ilyin - RF Constitution. Art. 21. Dignity
-02. Ilyin - RF Constitution. Art. 23. Personal immunity
-03. Ilyin - RF Constitution. Art. 45. The defence of rights
-04. Ilyin - RF Constitution. Art. 25. The house is untouchable(   Читать дальше...   )Жанр: Neo-Classical, BaroqueПродолжительность: 00:33:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8456A10349F0C5959AAF0EA5642B3E56BE5BF025
 ```
 
 https://mybot314.ru/tekegram_catalog/

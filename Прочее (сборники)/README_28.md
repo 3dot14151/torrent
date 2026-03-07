@@ -1,3 +1,206 @@
+###  Публикация: 994386   (891436) от 07.03.2016
+
+VA - Дискотека на 8 марта (2016) [MP3|256 кб/с-320 кб/с] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891436.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Стас Михайлов- Ты только для меня (radio edit).mp3
+002.  МакSим- Я Буду Жить.mp3
+003.  Марсель feat Artik- Моя любовь.mp3
+004.  Макс Барских- Кровь-вода.mp3(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:18:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE47F599498E7D35D2B1309D34E4AFBDAAA05EF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1102323   (890337) от 09.02.2017
+
+VA - 100 Gold Classic Music Vol.2 (2017) [MP3|320 Kbps] <Classical>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_890337.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Johann Sebastian Bach - Badinerie  1:25
+002.  Johann Sebastian Bach - Menuett  1:20
+003.  Franz von Suppe - O du mein Osterreich  2:06
+004.  Franz von Suppe - Leichte Kavallerie  6:48(   Читать дальше...   )Жанр: ClassicalПродолжительность: 06:07:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2254188FDB592D006A327C306B9A0DEB91B1CD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1102353   (890331) от 09.02.2017
+
+VA - 100 Gold Classic Music (2016) [MP3|320 Kbps] <Classical>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_890331.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Giacomo Puccini - O Mio Babbino Caro (Gianni Schicchi)  2:09
+002.  Antonio Vivaldi - Le Quattro Stagioni  3:43
+003.  Giuseppe Verdi - La Donna E Mobile  2:23
+004.  Felix Mendelssohn - O For The Wings Of A Dove Hear My Prayer  6:11(   Читать дальше...   )Жанр: ClassicalПродолжительность: 07:34:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7A68D79233681CD17B657A84EF1E0965F86FC79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371559   (890099) от 31.03.2020
+
+VA - не Громкие новинки недели 61 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_890099.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Adam - Дурманит (3:05)
+2.Bahh Tee & Turken - Люби Меня (3:11)
+3.Danya - Пума (2:23)
+4.Darrem - Ласковая Ночь (2:43)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:44:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B517BE065CDAFA17A8C8E98F1DAD2F4CD3041156
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994227   (889848) от 08.03.2016
+
+VA - Тебе любимая! (2016) [MP3|320 кб/с] <Pop, Шансон>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_889848.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Катерина Голицына - Что случилось с солнцем
+02. Эмин Арас оглы Агаларов - Я нравлюсь женщинам
+03. Алла Пугачёва - Тянет сердце руки
+04. Стас Михайлов - Сон, где мы вдвоём(   Читать дальше...   )Жанр: Pop, ШансонПродолжительность: 02:42:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A8D01610857E237DFE184C69C17C70973229302
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994462   (889823) от 08.03.2016
+
+VA - Clubничка №100 (2016) [MP3|256 кб/с] <Club , Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_889823.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Damn - R - Butterfly (Radio Edit)
+002. Ahzee - My Passion (Radio Edit)
+003. Mark Wagner Feat. Jasmine Chloe - Better Off Alone (Extended Version)
+004. Randy Garcia & Ruben Moran & Dani Vars - High Energy (Energy Sax Mix)(   Читать дальше...   )Жанр: Club , DanceПродолжительность: 09:20:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F713E3063F0BB1264EB28E55639216ECEE0F778A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994551   (889780) от 08.03.2016
+
+Va - Подарок любимой женщине (2016) [MP3|320 кб/с] <Поп, Танцевальный>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_889780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Алла Пугачёва - Тянет сердце руки 04:05
+ 02. Григорий Викторович Лепс - Одиноко 03:55
+ 03. Стас Михайлов - Золотое сердце 03:48
+ 04. Андрей Бандера - Любимая 03:53(   Читать дальше...   )Жанр: Поп, ТанцевальныйПродолжительность: 03:08:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B4F61B6B5BCBAC7B4C98AE303F99C92C8535AF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 994782   (889627) от 08.03.2016
 
 VA - 80-90th Discotheque In A New Way Vol.24 (2016) [MP3|320 кб/с] <Dance>
@@ -542,206 +745,6 @@ VA - Billboard Hot 100 (2016-03-05) (2016) [MP3|320 кб/с] <Pop, Euro, Indie, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A7C82FC1708F5D92CBC83EEA8433290337047D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495223   (882369) от 11.09.2021
-
-VA - Music of the Night (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882369.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Doja Cat - Streets (3:47)
-02. Color Me Badd - I Wanna Sex You Up - Single Mix (3:56)
-03. PARTYNEXTDOOR, Drake - Recognize (5:11)
-04. Pop Smoke, Lil Tjay - Mood Swings (3:33)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:35:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61E2D38DC5D07D32A6CCB675B685C9AC603887D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495031   (882262) от 11.09.2021
-
-VA - Remix NNM 3 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882262.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yeah Yeah Yeahs - Heads Will Roll (Kubi Remix) (4:15)
-02. The Black Eyed Peas - Don39t Phunk With My Heart (Sulim Dj Chicago Extended Remix) (4:46)
-03. La Bouche - Sweet Dreams (Struzhkin Vitto Remix) (3:37)
-04. Oceana - Cry Cry (Layer Bootleg) (4:31)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:13:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18EA3E7E0530F1074E5637BFD6DB0F49421B5F42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372769   (882148) от 05.04.2020
-
-VA - The Official UK Top 40 Singles Chart 03.04.2020 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882148.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Weeknd - Blinding Lights
-02. SAINt JHN - Roses (Imanbek Remix)
-03. Dua Lipa - Physical
-04. Dua Lipa - Don't Start Now(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:11:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C30BE7FB8E6194A6FEA7C2A8BB1B4050B1BF411A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373245   (882027) от 05.04.2020
-
-VA - не Громкие новинки недели 62 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882027.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.2 ОКеана - Аэропорты (3:27)
-2.2VINA - Город Грехов (2:47)
-3.Anthony El Mejor feat. Bulavkina - Летняя Песня Про Любовь (3:50)
-4.ARSI - Птицами (3:20)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:43:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4F0A51D80E16997BF9FEF0137B7B79DA433BE0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372869   (881811) от 05.04.2020
-
-VA - Хорошие песни: одна за другой (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881811.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Alan Walker & Ruben - Heading Home (3:04)
-2.Alesso, Dubvision - One Last Time (4:00)
-3.Anton Powers, Liam Hincks feat. Carla Monroe - Over You (2:37)
-4.BENEE, Gus Dapperton - Supalonely (3:43)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:05:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF4A5AD2C020C076767B543A86919259607D74D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995851   (881284) от 13.03.2016
-
-VA - Spring Cocktail (2016) [MP3|320 кб/с] <Grime, Tribal, Moombahton, Urban, Synthpop, Bigroom, Electro>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881284.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ylona - Blazing Fire (Club Mix) 03:22
-02. Pete Sheppibone & Sashman - Hello Happiness (Imprezive Meets Pink Planet Remix Edit) 03:44
-03. Pulsedriver & Andrew Spencer - Touch Me (Bigroom Radio Edit) 03:21
-04. Aronchupa Feat. Little Sis Nora - Little Swing (Extended Mix) 03:36(   Читать дальше...   )Жанр: Grime, Tribal, Moombahton, Urban, Synthpop, Bigroom, ElectroПродолжительность: 07:37:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F06D4ACEFB0D2EBD2AD4A563FD5E8A9CBC447EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 297234   (880887) от 21.02.2011
-
-VA - Дискотека по Украински (2010) [MP3|128-256 kbps]<Рор>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880887.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: РорПродолжительность: 5:41:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F564BC07B9EA1061D9C3C0F2A3F572B15FF93912
 ```
 
 https://mybot314.ru/tekegram_catalog/

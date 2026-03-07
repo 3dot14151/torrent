@@ -1,3 +1,32 @@
+###  Публикация: 1257562   (345647) от 26.10.2018
+
+Koan - Insidious (2018) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Downtempo, Ambient>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_345647.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Awakening (Koan Remix) (9:20)
+ 02. She Doesn't Know to Be Asleep (8:20)
+ 03. When She Will Recognize Him (7:46)
+ 04. Memaloose Island (8:27)(   Читать дальше...   )Жанр: Electronic, Downtempo, AmbientПродолжительность: 02:09:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BA52290596EF9A418E2B07DA4EAFE7898A7A7E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1419350   (342045) от 27.10.2020
 
 VA - Cappuccino Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -713,35 +742,6 @@ Baby Sleep Music - Christmas Baby (2018) [FLAC|Lossless|WEB-DL|tracks] <Easy Lis
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE17A3536253B9EF248E654521282005A287709D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264389   (281157) от 23.11.2018
-
-VA - Cosmic Dreaming Lounge (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Chillout, Lounge>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Der Waldlaufer - Yanaras Light (original mix) 04:34
-02.  Island Sun - Be Happy The Day (Endless Fly mix) 05:56
-03.  Marga Sol - Hold Me (original mix) 04:59
-04.  Frank Borell - Mystic Colours (In Heaven mix) 05:59(   Читать дальше...   )Жанр: Ambient, Chillout, LoungeПродолжительность: 01:44:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61EB6165559C08D6007CE7081C42F1D75F5FB146
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,22 +1,25 @@
-###  Публикация: 1330294   (784691) от 09.06.2020
+###  Публикация: 1124345   (785824) от 11.04.2017
 
-Killing Floor 2 (2016) [Ru/Multi] (1094/dlc) SteamRip =nemos= [Digital Deluxe Edition]
+VA - Essential Guide: Progressive Trance Vol.12 (2017) [MP3|320 Kbps] <Trance>
 
->>След.
->>Action (FPS)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784691.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785824.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В KILLING FLOOR 2 игроки окажутся в континентальной Европе, где вспышка болезни, вызванная неудачным экспериментом компании Horzine Biotech, быстро распространяется и принимает невероятный масштаб, парализуя Европейский Союз. Всего спустя месяц после заключительных событий в KILLING FLOOR, образцовые клоны заполонили все и цивилизация погружается в кризис.Тип издания: SteamRipРазработчик: Tripwire InteractiveЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+01.  Axis - Daylily (Extended Mix)  5:24
+02.  Jens Jakob - Horizon (Original Mix)  8:58
+03.  Emanuele Braveri & Amo R - Mauna Kea (Original Mix)  6:03
+04.  Elitist - Again & Again (Original Mix)  6:17(   Читать дальше...   )Жанр: TranceПродолжительность: 02:47:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CC19B1E3782A31539E3069FAE31039B05E3AA561
+magnet:?xt=urn:btih:F97D357D49786C92919E394E29F6EF58A9E83A92
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,274 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380912   (784690) от 09.06.2020
+###  Публикация: 1124226   (785823) от 11.04.2017
 
-Остров фантазий / Fantasy Island (2020) BDRip [H.264/720p] [Unrated Cut]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784690.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа из пяти человек прилетает на загадочный тропический остров, где некий мистер Рорк исполняет заветные мечты своих гостей. Каждый из новоприбывших хотел бы что-то изменить в своей жизни, и каким-то невероятным образом остров фантазий эти желания воплощает, но вскоре мечты гостей оборачиваются неожиданным кошмаром.Производство: США / Columbia Pictures, Blumhouse ProductionsЖанр: Триллер, фантастикаРежиссер: Джефф УодлоуАктеры: Майкл Пенья, Мэгги Кью, Люси Хейл, Остин Стоуэлл, Портия Даблдэй, Джимми О. Ян, Райан Хансен, Майкл Рукер, Париса Фитц-Хенли, Майк ФогельПеревод: Дублированный (Лицензия BD EUR)Субтитры: Русские (Forced, Full), украинские (Full), английские (Full, SDH)Продолжительность: 01:49:24
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376283   (784689) от 09.06.2020
-
-Grand Theft Auto IV: The Complete Edition (2020) [Ru/Multi] (1.2.0.43/dlc) Repack xatab (обновляемая)
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784689.jpg" />
-</div>
-
-
-###  Подробнее
-
-В «Grand Theft Auto IV. Полное издание» входит экшен Grand Theft Auto IV, а также дополнение Grand Theft Auto: Episodes From Liberty City, состоящее из эпизодов The Lost and Damned и The Ballad of Gay Tony, сюжетные линии которых дополняют друг друга и раскрывают абсолютно противоположные грани криминального мира. В российском издании эти игры представлены в оригинальном (   Читать дальше...   )Тип издания: RepackРазработчик: Rockstar North, Rockstar TorontoЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65B77F430F656EB0FDFB80707FA4C644E40F9007
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204528   (784688) от 06.02.2018
-
-VA - Lowdown Origins (2018) [MP3|320 Kbps] <House, Future House, Big Room>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784688.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ivan LopZ & Brish feat. Dani Crom  -  Malibu (Original Mix)  3:38
-02.  Ivan LopZ & Brish feat. Dani Crom  -  Malibu (Radio Edit)  2:48
-03.  Forget & Donovin  -  I Miss U (Original Mix)  3:03
-04.  Dani Crom  -  Innocent Evil (Deadliest Sound)  3:16(   Читать дальше...   )Жанр: House, Future House, Big RoomПродолжительность: 01:49:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B55BA1A0B7E0C1D495ED64805EF332FD8BC3C136
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204633   (784687) от 06.02.2018
-
-VA - Open House Records Presents Vocal Sessions (2018) [MP3|320 Kbps] <House, Vocal House, Future House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784687.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Aaron North  -  Boy Wunda (Original Mix)  5:47
-02.  Anto  -  Cloud 9 (Original Mix)  5:20
-03.  Base Tempo  -  Don't Let Go (Original Mix)  5:12
-04.  Connor Drew  -  You & Me (Original Mix)  5:36(   Читать дальше...   )Жанр: House, Vocal House, Future HouseПродолжительность: 01:38:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CADCE4215343DD31916E9F78C7695C2B5B0FE583
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204657   (784686) от 06.02.2018
-
-The Essence - Its All About Music (2018) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784686.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Can Save the Day 5:29
- 02. Wonderland 5:19
- 03. Aurora Borealis 4:17
- 04. This World 4:29(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:58:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D9DBB478DA60305D2469FAFD9FE9B5E557BA453
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204597   (784685) от 06.02.2018
-
-VA - Work That Body Vol.2 (2018) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784685.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Andrey Exx feat. Diva Vocal & BSKF  -  Need To Feel Loved (Umid Remix)  7:54
-02.  BSKF  -  Up & Down (Original Mix)  5:01
-03.  DJ Wady & Yhago  -  Salvation (Simun Remix)  5:36
-04.  Masch + Yuko  -  My House (Original Mix)  6:49(   Читать дальше...   )Жанр: HouseПродолжительность: 02:26:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2217138359548BB5C42EFE6DAABD64BCE514F99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204519   (784684) от 06.02.2018
-
-Индия Найт | Моя жизнь на тарелке (2005) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784684.jpg" />
-</div>
-
-
-###  Подробнее
-
-У Клары Хатт, героини современного городского романа "Моя жизнь на тарелке", есть все, что способна пожелать женщина: красота и независимость, хорошая работа и в меру ужасные дети, привлекательный и загадочный муж, и свора слегка безумных, но обаятельных родственников и подруг. И, тем не менее, ей явно чего-то недостает. В своей яркой дебютной книге Индия (   Читать дальше...   )Жанр: Зарубежная прозаПродолжительность: 03:56:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD906E0E88F0E80A33B42D7BB82E5D4D7B1B1CBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204182   (784683) от 06.02.2018
-
-Л.В. Коновалова | Мораль и познание [Критика гносеологических основ современной буржуазной этики] (1975) [DJVU, PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784683.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данная монография - одно из первых исследований в советской этической литературе, в котором подвергается анализу гносеологическая проблематика морали в целом. Большой и в значительной степени свежий материал, характеризующий состояние современной буржуазной этической мысли, подвергнут автором серьезному критическому осмыслению. Автор не ограничивается критикой буржуазных (   Читать дальше...   )Жанр: История, политология, этикаФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0EEC2156F8CDEB99EA22CF87AAA3405160778EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204346   (784682) от 06.02.2018
-
-Ф. Ф. Раскольников | Кронштадт и Питер в 1917 году (1925) [DJVU, PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784682.jpg" />
-</div>
-
-
-###  Подробнее
-
-Воспоминания Ф. Ф. Раскольникова (1882-1939), члена партии с 1910 года, героя Октября и гражданской войны, посвящены революционным событиям от Февраля до победы Великой Октябрьской социалистической революции в Петрограде, Москве и Кронштадте.Жанр: История, политология, экономикаФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B2961ADA65B7232FF036C8AA4C3E2545F6FB1A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204588   (784681) от 06.02.2018
-
-VA - Progressive Psychodelic Trance (Exlusive Tracks) Vol.3 (2018) [MP3|320 Kbps] <Psy Trance>
+VA - Color Emotion Vocal In House (2017) [MP3|212-320 Kbps] <Vocal House, Electro>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784681.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785823.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Orecch - Parallel Realities
-02. Shyisma - Technology
-03. Beyond Within - Deep Fields (chrizzlix remix)
-04. Filtron Essence - Universal Psychedelic(   Читать дальше...   )Жанр: Psy TranceПродолжительность: 03:38:44
+001. Andrey Keyton, Sharapov - I Want Your Sou
+002. Beat Service Ft Ana Criado - An Autumn Tale
+003. BT & Senadee Feat. Dragon & Jontron - Lifeline
+004. David Guetta Vs Ryan Blyth - The World Is Mine(   Читать дальше...   )Жанр: Vocal House, ElectroПродолжительность: 07:22:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8DE6EC83DE290F3013189C8067E9A8F05DACF48B
+magnet:?xt=urn:btih:2B4BC663D8CDC92451E5B2223D4828BC6886B80E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -299,25 +56,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203928   (784680) от 06.02.2018
+###  Публикация: 1124541   (785822) от 11.04.2017
 
-А.И. Власов | В конфликте с реальностью [кризис внешнеполитической пропаганды США] (1972) [DJVU]
+NetWorker - Advanced Network Information App 3.0.1 [En]
 
->>Научная и техническая литература
->>Гуманитарные науки и искусство
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784680.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785822.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Автор, используя неизвестные советскому читателю материалы, рассматривает современные приемы пропаганды США на фоне наиболее распространенных империалистических теорий и доктрин антикоммунизма и антисоветизма. В работе рассматривается также механизм и аппарат внешней идеологической экспансии государственно-монополистического капитала США: Информационное агентство (   Читать дальше...   )Жанр: История, политология, экономика, психология, журналистикаФормат: DJVU
+NetWorker отображает сетевую информацию в строке меню. В нем также есть окно, которое показывает дополнительную информацию о текущем активном сетевом адаптере.
+
+ NetWorker: ● Полностью настраиваемый вид. Вы можете просматривать следующие свойства (поддерживаются загрузка и выгрузка): • Скорость • Ежедневный, месячный и общий трафик • График ● Текущий активный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.04.2017Разработчик: Sascha SimonПоддерживаемая ОС: OS X 10.10 и вышеЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1243FE3C1203940FAA5F5C5AC842C906264E0C01
+magnet:?xt=urn:btih:2C1ECB8F98CC66A2D04CBFB0827D93B90424F61F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -325,25 +84,455 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204413   (784679) от 06.02.2018
+###  Публикация: 1124572   (785821) от 11.04.2017
 
-П. Боярский | Почему троцкизм вернулся к меньшевизму? (1928) [PDF]
+Craven Idol - The Shackles Of Mammon (2017) [MP3|320 Kbps] <Blackened Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785821.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Pyromancer
+2. A Ripping Strike
+3. Black Flame Divination
+4. The Trudge(   Читать дальше...   )Жанр: Blackened Thrash MetalПродолжительность: 00:44:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5D121ED1D124E22793B515E6321D4CD3AE14624
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124430   (785820) от 11.04.2017
+
+Camera Soul - 3 Album (2013 - 2017) [FLAC|Lossless|image + .cue] <Jazz-Pop, Funk, R&B, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785820.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2013 - Not for Ordinary People
+2015 - Dress Code
+2017 - ConnectionsЖанр: Jazz-Pop, Funk, R&B, SoulПродолжительность: 02:51:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D12E8CCC68453A62ED78B02DEED82EAE1B50CCD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124388   (785819) от 11.04.2017
+
+Monster Energy NASCAR Cup Series 2017. Этап 7 - Texas. Гонка (2017) WEBRip [H.264/720p-LQ] [VO]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785819.jpg" />
+</div>
+
+
+###  Подробнее
+
+7 этап Monster Energy NASCAR Cup Series – O'Reilly Auto Parts 500, Texas Motor Speedway (334 laps, 501 miles).
+Запись гонки с прямой трансляции на телеканале "Premier Sports HD".Телекомпания: Premier Sports HDЖанр: СпортПеревод: Одноголосый закадровый, любительскийЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 04:02:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2327B4DA0E45E7B7C9D02B2D47E628C02A0708B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124279   (785818) от 11.04.2017
+
+Wynton Marsalis - Standard Time Vol. 3 (The Resolution Of Romance) (1990) [FLAC|Lossless|image + .cue] <Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785818.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In The Court Of King Oliver (4:31)
+02. Never Let Me Go (1:46)
+03. Street Of Dreams (4:07)
+04. Where Or When (2:50)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 01:13:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94995AAA04777817EF7DC73CC5C5EE8275B36EC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124461   (785817) от 11.04.2017
+
+Broken Voices - Broken Voices (1997) [FLAC|Lossless|image + .cue] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785817.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lessons Of Love  (04:15) 
+02. Halls Of Justice  (07:15) 
+03. Restless Heart  (05:23) 
+04. Into Your Arms  (05:04) (   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:45:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80FDDEF3DDC220123F6A60AAA6D8D3F001DEA26A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124348   (785816) от 11.04.2017
+
+Storm Warning - Something Real (2008) [APE|Lossless|image + .cue] <Blues Rock, Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On The Road   (07:12) 
+02. Hard To Be A Man   (04:57) 
+03. Charlie's Blues   (05:31) 
+04. Blues 101   (05:09) (   Читать дальше...   )Жанр: Blues Rock, Electric BluesПродолжительность: 00:57:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13DC6A464C17C17F90ECB1D64D00448A6166D37E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124357   (785815) от 11.04.2017
+
+VA - Beatport Trance  Pack (10.04.) (2017) [MP3|320 Kbps] <Trance, Melodic, Uplifting, Emotional, Blissful, Harmonic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ikerya Project - Firestarter (Original Mix)  6:33
+02.  Temple One - A Part Of Us (Original Mix)  6:40
+03.  Optya - Skyline (Original Mix)  7:30
+04.  Guy Alexander - Forced Upgrade (Extended Mix)  7:10(   Читать дальше...   )Жанр: Trance, Melodic, Uplifting, Emotional, Blissful, HarmonicПродолжительность: 02:52:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD7D8997B8EFBA50A901BA1BD5560F88BB027E7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124436   (785814) от 11.04.2017
+
+Storm Warning - Breaking Out (2005) [APE|Lossless|image + .cue] <Blues Rock, Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bullets  (06:15) 
+02. The Woman ? or the Blues?  (04:26) 
+03. Dangerous Mood  (06:23) 
+04. Long Grey Mare  (05:42) (   Читать дальше...   )Жанр: Blues Rock, Electric BluesПродолжительность: 00:50:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBA65DAD9514F687C3CC591FD778043B266EE93B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124266   (785813) от 11.04.2017
+
+John Abercrombie, Ralph Towner - Sargasso Sea (1976) [FLAC|Lossless|image + .cue] <Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785813.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fable (8:41)
+02. Avenue (5:19)
+03. Sargasso Sea (4:00)
+04. Over And Gone (2:51)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:41:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D65FD91F4975051B289F85045AEE499BDE7B73A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124240   (785812) от 11.04.2017
+
+Howard Givens & Madhavi Devi - Source of Compassion (2016) [FLAC|Lossless|tracks] <Ambient, Drone, Downtempo>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785812.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Intention (11:19)
+2. Emergence (8:45)
+3. Omkara (16:53)
+4. Source Of Compassion (10:29)(   Читать дальше...   )Жанр: Ambient, Drone, DowntempoПродолжительность: 01:06:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8827760DD8A9914BF084E4CBEB56386B221FF99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124364   (785811) от 11.04.2017
+
+Bunny Brunel & Friends - Bass Ball (2017) [FLAC|Lossless|image + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785811.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nothing But The Bass [04:42]
+02. Slap & Tickle [05:21]
+03. Stand Out [05:19]
+04. Lopsy Lu [06:14](   Читать дальше...   )Жанр: JazzПродолжительность: 01:05:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01F516ABEF4238F97AEB899E9450B75F52A3FA37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124377   (785810) от 11.04.2017
+
+Jay Jesse Johnson - Set The Blues On Fire (2015) [FLAC|Lossless|image + .cue] <Blues, Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785810.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hell Or High Water (3:54)
+02. Ghosts In Texas (4:21)
+03. Since My Baby's Gone (4:57)
+04. Wheelhouse Boogie (5:03)(   Читать дальше...   )Жанр: Blues, Blues-RockПродолжительность: 00:56:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC6D70F62265F393524B6A13738C3607915B63FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124415   (785809) от 11.04.2017
+
+VA - Armada - The Remixes 2017 Vol.2 (The Future House Edition) (2017) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785809.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Low Steppa - Runnin' (feat. Kelli-Leigh) (Scott Diaz Extended Remix)  4:58
+02.  MOWE & Daniel Nitt - Lovers Friends (Adventurer Extended Remix)  4:03
+03.  Showtek vs. Technoboy & Tuneboy - Mellow (Calvo Remix)  4:26
+04.  Armin van Buuren - Another You (feat. Mr. Probz) (CID Remix)  4:36(   Читать дальше...   )Жанр: HouseПродолжительность: 01:08:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF28B2DA3ABC430E7D2FAD66FB952E7749A8E4BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124615   (785808) от 11.04.2017
+
+Showaddywaddy - Step Two (1975) Reissue, 2001,  7T's Records [MP3|320 Kbps] <Rock & Roll, Rockabilly, Glam>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785808.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Three Steps to Heaven
+02. If You Know What I Mean
+03. Sing on Louise
+04. Big Big Star(   Читать дальше...   )Жанр: Rock & Roll, Rockabilly, GlamПродолжительность: 00:40:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F7F9CE6A7A08216E8F9412FB823D42025874E4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124425   (785807) от 11.04.2017
+
+Вечерний Ургант (2017.04.10) SATRip
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785807.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергТелекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 00:26:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B64B541C48114C179A7489B1E3536880739F18E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124410   (785806) от 11.04.2017
+
+В. И. Ленин | Вопросы строительства социализма и коммунизма в СССР (1959) [DJVU, PDF]
 
 >>Научная и техническая литература
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784679.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785806.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Внутрипартийная жизнь последних двух лет отличается событиями, имеющими огромное значение для нашей партии. Группа виднейших членов партии, ее бывших вождей (Троцкий, Зиновьев, Каменев и др.), два года вели беспрерывную травлю партии, старались расшатать единство партии, не подчинялись никакой партийной дисциплине и не выполняли даже советской работы, на которую (   Читать дальше...   )Жанр: История, политология, экономика, документалистикаФормат: PDF
+Вопросы строительства социализма и коммунизма нашли глубокую разработку и всестороннее освещение в многочисленных трудах В. И. Ленина особенно периода социалистической революции и начавшихся под его руководством социалистических преобразований в нашей стране. В настоящий сборник включена лишь часть этих трудов — последние статьи и речи Владимира Ильича, в которых (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU, PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AE004830E92420C6F1F28F28C6160718BE65BE2A
+magnet:?xt=urn:btih:96FEF5AA42121264F09D4A97CD81DD4CB80A4A6E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -351,25 +540,135 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204409   (784678) от 06.02.2018
+###  Публикация: 1124545   (785805) от 11.04.2017
 
-К. А. Попов (ред.) | Дискуссия 1923 года (1927) [DJVU]
+Joey Gilmore - Brandon's Blues (2015) [FLAC|Lossless|image + .cue] <Chicago Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good Thing Go Bad   (04:19) 
+02. Cheaper To Keep Her  (05:18) 
+03. Brandon's Blues  (04:29) 
+04. Somebody Have Mercy  (04:13) (   Читать дальше...   )Жанр: Chicago BluesПродолжительность: 00:52:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16EAC420B00285E721DD08394266E1F94EDCBC87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124208   (785804) от 11.04.2017
+
+VA - Chillout Hits Vol.4 (2017) [MP3|320 Kbps] <Chillout, Chillstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785804.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Galavant - Falling  2:55
+02.  Baghira - Nightbeat  5:58
+03.  Liv Dawson - Open Your Eyes  3:28
+04.  Steve Angello & Laidback Luke - Show Me Love (Feat Robin S) (Boeboe Remix)  5:00(   Читать дальше...   )Жанр: Chillout, ChillstepПродолжительность: 02:57:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83DE6541456E318FB64E20DADB9FE1F4765D504F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124298   (785803) от 11.04.2017
+
+Виль Липатов | Любовь в Старокороткино (1981) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785803.jpg" />
+</div>
+
+
+###  Подробнее
+
+О жителях села Старокороткино. О большой любви, сложных взаимоотношениях, связавших судьбы 18-летних Ивана Мурзина, Любы Ненашевой и НастиЖанр: Драма, радиоспектакльПродолжительность: 01:51:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC42D5D2A2778F584DB4F2EF79444BA800766C01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124194   (785802) от 11.04.2017
+
+Преподобный Феодор Студит | Огласительные поучения (2007) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785802.jpg" />
+</div>
+
+
+###  Подробнее
+
+Преподобный Феодор, игумен Студийский (759-826), - византийский богослов, реформатор монастырской жизни (основоположник строгого «студийского» монашеского устава), писатель. Одной из традиций Студийского монастыря во времена игуменства преподобного Феодора было трижды в неделю говорить братии «оглашения» - особые душеспасительные поучения. В книгу вошли проповеди (   Читать дальше...   )Жанр: ПравославиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94F7E0CBEA682D422B73E333FBE222550315E88C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124411   (785801) от 11.04.2017
+
+П. М. Чирков | Решение женского вопроса в СССР [1917-1937 гг.] (1978) [DJVU]
 
 >>Научная и техническая литература
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784678.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785801.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Для оценки общего хода внутрипартийного развития после 1917 г., для оценки, в частности, современных разногласий опыт дискуссии 1923 года имеет существенное значение. В выступлениях оппозиции 1923 года читатель найдёт в зародышевой, а подчас и в развёрнутой форме основные элементы тех положений, которые в 1926/27 гг. сплелись в отчётливый неоменьшевистский узор. (   Читать дальше...   )Жанр: История, политология, документалистикаФормат: DJVU
+В книге анализируется опыт решения женского вопроса в СССР в период строительства социализма. Автор показывает работу среди женщин, которую проводили Коммунистическая партия Советского Союза, Советы, профсоюзы, кооперация и комсомол. В книге исследуются пути, формы и методы вовлечения женщин в общественное производство, повышения их активности в общественно-политической (   Читать дальше...   )Жанр: История, политология, культурологияФормат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2E71803E6B5AE0B68621122322BB99CEBBFC029C
+magnet:?xt=urn:btih:51781A3536DCDA671555375F7BAAFAF910EB4F8A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -377,28 +676,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204489   (784677) от 06.02.2018
+###  Публикация: 1124444   (785800) от 11.04.2017
 
-VA - Debauchery Lounge: Luxury Lounge Music For Bars And Clubs (2018) [MP3|320 Kbps] <Balearic, Downtempo>
+Sinner - Tequila Suicide (2017) Limited Edition [FLAC|Lossless|image + .cue] <Hard & Heavy>
 
->>Electronic
->>Easy listening
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784677.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785800.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. NORone - No Matter
-02. Suchitra Lata - All The Way
-03. Big Prod Sounds - Bien Comme Ca
-04. Suchitra Lata - At The Bend(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:41:48
+01.Go Down Fighting (2:38)
+02.Tequila Suicide (3:14)
+03.Road To Hell (3:31)
+04.Dragons (5:02)(   Читать дальше...   )Жанр: Hard & HeavyПродолжительность: 00:51:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0585E50CDB04A01C721BFE537B19D1542605A404
+magnet:?xt=urn:btih:C9C601135036DD0589AB3486E6CD8B6A05AAA085
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -406,309 +705,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204542   (784676) от 06.02.2018
+###  Публикация: 1124532   (785799) от 11.04.2017
 
-VA - Chillout Resonance: Melodies Of Vagabond Chillout Music For Relaxation and Peace (2018) [MP3|320 Kbps] <Balearic, Downtempo>
+Persian Frequency - The Higher State of Consciousness (2017) [MP3|320 Kbps] <Psy-Trance>
 
->>Electronic
->>Easy listening
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784676.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785799.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Herman Albany - Foot Steps
-02. IV The Polymath - Organic
-03. Konstantin Klashtorni - One Hundred Ways
-04. NicD - Take A Ride(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:05:29
+01. Archetype 8:01
+02. Ayahuasca Experience 7:18
+03. Consciousness 7:15
+04. Devil Game 7:53(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 01:03:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E3F119A9D5E1CAFB8886C9D93104EAD7253E60B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204639   (784675) от 06.02.2018
-
-VA - Love Hits Vol.3 (2018) [MP3|320 Kbps] <Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Roman Messer feat. Roxanne Emery  -  Lullaby (Original Mix)  3:56
-02.  Aelyn  -  Water & Fire (Ruslan Radriges Extended Remix)  5:34
-03.  Frainbreeze feat. Vika  -  Better Day (Extended Mix)  5:47
-04.  LTN  -  Coconut Island (Extended Mix)  6:28(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 00:52:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1968271A92E1E76290E937C9D1D0338EBC8B9795
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204362   (784674) от 06.02.2018
-
-Н. Корнатовский (ред.) | Кронштадтский мятеж: сборник статей, материалов и документов (1931) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784674.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборнике представлены воспоминания участников мартовских боев, они дают кусок живой жизни, отражают бытовые условия того времени, переживания бойцов во всей их обыденной непосредственности. Многое может быть понято из этих человеческих документов. Обстановка боев как-то оживает, легче «осязаешь» все свойства мятежников и героическую борьбу с ними. Восстанавливается (   Читать дальше...   )Жанр: История, политология, документалистикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A4F2AF23475E9C8B7F196F58A647B551AAF4934
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204530   (784673) от 06.02.2018
-
-VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0013 (2018) [MP3|320 Kbps] <Italo disco, HI-NRG, Eurodance, Disco House, Electropop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784673.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bonfeel Electro Band - Your Eyes ( 2014 )
-02. Jaco - Hey Operator ( Rum Version 2014 )
-03. Brand Image - Night Of Ecstasy ( 1984 )
-04. Images - Corps A Corps ( 1986 )(   Читать дальше...   )Жанр: Italo disco, HI-NRG, Eurodance, Disco House, ElectropopПродолжительность: 00:52:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26BBC04906458EAB9F5DE5B8C467CE05821D95AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204537   (784672) от 06.02.2018
-
-VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0015 (2018) [MP3|320 Kbps] <Italo disco, HI-NRG, Eurodance, Disco House, Electropop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784672.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Twins - Tonight ( Long Version 1993 )
-02. Boris Zhivago - Sovjet D'Amour ( 2016 )
-03. George Aaron - Heaven ( L-Ectro Vox Mix 2008 )
-04. Etienne Tulet - Boy ( 1991 )(   Читать дальше...   )Жанр: Italo disco, HI-NRG, Eurodance, Disco House, ElectropopПродолжительность: 00:54:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F868466746452191D03E5BFB2284FF870EB6376
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204529   (784671) от 06.02.2018
-
-VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0012 (2018) [MP3|320 Kbps] <Italo disco, HI-NRG, Eurodance, Disco House, Electropop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784671.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gentle Touch - The Fire Of Love ( 1986 )
-02. Nation In Blue - Dancing On My Own ( 2017 )
-03. Petr Kotvald - Big City Calling ( 1987 )
-04. Proxyon - The Shuttle ( 1993 )(   Читать дальше...   )Жанр: Italo disco, HI-NRG, Eurodance, Disco House, ElectropopПродолжительность: 00:59:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DBDBFED3CC4B184F08477321F28FB2E579202AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204546   (784670) от 06.02.2018
-
-Газета | Наша кухня №2 (264) (февраль 2018) [PDF]
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784670.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Наша кухня» - журнал о кулинарии. С его помощью можно запросто составить меню на каждый день и для праздничного стола, ведь в нём всё просто и доступно, так как основу каждого номера составляют проверенные читательские рецепты блюд с фотографиями. И тогда приготовление блюд превращается в удовольствие!Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DC5DBD2CC1F12E1CBFD8766646FDFA0FEAD67CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204463   (784669) от 06.02.2018
-
-Kai Engel - The Run (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, IDM, Neoclassical>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784669.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seeker (4:37)
- 02. Run (4:02)
- 03. Harbor (4:00)
- 04. Imminence (2:40)(   Читать дальше...   )Жанр: Ambient, IDM, NeoclassicalПродолжительность: 00:32:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E2C219137FB5D66E58E5F69E7AF7A5577460CD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204540   (784668) от 06.02.2018
-
-VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0016 (2018) [MP3|320 Kbps] <Italo disco, HI-NRG, Eurodance, Disco House, Electropop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784668.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Baccara feat. Maria Mendiola & Cristina Sevilla - I Belong To Your Heart ( Ext. Version 2017 )
-02. Chip Chip - So Close To Heaven ( 1987 )
-03. Max Coveri - Guy Guy ( Full Power Version 2003 )
-04. Peter Wilson (3) - Love Into Action ( 2017 )(   Читать дальше...   )Жанр: Italo disco, HI-NRG, Eurodance, Disco House, ElectropopПродолжительность: 00:51:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:177B4876F9E407816D2DDAA062270A8B7F02E82D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204473   (784667) от 06.02.2018
-
-Kai Engel - caeli (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, IDM, Neoclassical>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784667.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. aspirato (3:11)
- 02. soli (3:19)
- 03. coelum (2:35)
- 04. visum (3:08)(   Читать дальше...   )Жанр: Ambient, IDM, NeoclassicalПродолжительность: 00:27:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69DDC5EC9D7B1FB80355A69655A8B0802066677E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204495   (784666) от 06.02.2018
-
-Журнал | Золотые рецепты наших читателей №3 (февраль 2018) [PDF]
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784666.jpg" />
-</div>
-
-
-###  Подробнее
-
-Популярное кулинарное издание, созданное исключительно на основе писем читателей — профессиональных поваров, кондитеров и домашних кулинаров. Все рецепты подкреплены качественными фотографиями блюд и их авторов, что позволяет заранее оценить конечный результат. Часть рецептов опробована на редакционной кухне. Важно, что для публикации редакция отбирает простые, доступные (   Читать дальше...   )Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F94577E6CA9709019E74D41F1FEBAAD83AEDE51
+magnet:?xt=urn:btih:F42C530E1E7A99B10B9B8A5A30E6FFE1D8A1CABB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1737357   (49107) от 23.07.2024
+
+VA - Music of Vikings, Scandinavians, Pagans, Celts and the Middle Ages (2024) 2CD [MP3|320 Kbps] <Celtic, Folk, Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_49107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heldom - Vaknan [03:31]
+02. Vikings Main Title - If I Had a Heart ("Vikings" Main Title) [03:49]
+03. Danheim, Heldom - Blodfest [03:32]
+04. Gealdyr - Voluspa [03:37](   Читать дальше...   )Жанр: Celtic, Folk, RockПродолжительность: 09:01:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB1CC3C926BF102B43CB17541D8CB761127864A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1742527   (46327) от 19.08.2024
 
 VA - Fantasy Medieval Celtic Music (2024) [MP3|320 Kbps] <Celtic, Folk, Rock>
@@ -717,35 +746,6 @@ VA - Rock Stream Mix (2024) [MP3|320 Kbps] <Soft rock, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66868B3C851B6B03A162B929365A16E1E7383D8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763842   (35325) от 03.12.2024
-
-VA - Workout, Beast Mode, Aggressive 2 (2024) [MP3|320 Kbps] <Rock, Hard Rock, Other>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35325.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Sabbath - Paranoid (2:47)
-02. Foo Fighters - Monkey Wrench (3:51)
-03. Linkin Park - One Step Closer (2:37)
-04. Mötley Crüe - Kickstart My Heart (4:44)(   Читать дальше...   )Жанр: Rock, Hard Rock, OtherПродолжительность: 05:33:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E89FE96F766E5F469FEB7D853C93DD7773F6D1B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

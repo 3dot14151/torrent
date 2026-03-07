@@ -1,3 +1,235 @@
+###  Публикация: 1316225   (62694) от 17.03.2024
+
+Lonnie Brooks - 12 Albums (1975 - 1999) 14 CD [FLAC|Lossless|image + .cue|tracks + .cue] <Chicago Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_62694.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lonnie Brooks (born Lee Baker Jr., December 18, 1933 - April 1, 2017) американский блюзовый певец, гитарист. На протяжении своей долгой музыкальной карьеры он перепробовал множество стилей, начав с рок-н-ролла и ритм-энд-блюза. Но с годами он выработал свой индивидуальный блюзовый почерк. В конце 90-х Лонни Брукс стал очевидным лидером чикагского блюза. Лонни Брукс (   Читать дальше...   )Список альбомов:
+1975 - Sweet Home Chicago
+1979 - Bayou Lightning
+1980 - Turn On The NightЖанр: Chicago BluesПродолжительность: 11:28:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29B5BC7081FFAB0FC49AFC6937ED6429BB013BF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708497   (62229) от 21.03.2024
+
+VA - Country Blues & Whiskey (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Country>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_62229.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sturgill Simpson - All Around You (3:36)
+02. Kaleo - Broken Bones (4:06)
+03. Zach Bryan - Oklahoma Smokeshow (3:32)
+04. Willie Nelson - Whiskey River (4:04)(   Читать дальше...   )Жанр: Blues, CountryПродолжительность: 01:48:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:759CAD6E5BFA64BC5F0D6D80C565A3823AB3E459
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 160002   (61668) от 27.03.2024
+
+Duke Ellington - The Pianist (1974) /2003,  [FLAC|lossless]<Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_61668.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side One:
+A1  Don Juan                                    (02:33)
+A2  Slow Blues                                    (03:58)
+A3  Looking Glass                                  (02:54)(   Читать дальше...   )Жанр: Cool Jazz, SwingПродолжительность: 42:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79AB6BDB7BFC265ADD4D94F9742C39862E9E90DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344161   (61627) от 27.03.2024
+
+Coco Montoya - 12 Albums (1994 - 2023) 13 CD [FLAC|Lossless|image + .cue|tracks + .cue] <Modern Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_61627.jpg" />
+</div>
+
+
+###  Подробнее
+
+После выхода дебютного альбома “Gotta Mind To Travel” о Coco Montoya стали говорить как о талантливом гитаристе и вокалисте, как о “новом имени” в блюзе, но истинный ценитель блюза сказал бы куда больше. Продолжительная игра этого молодого гитариста сначала вместе с величайшим мастером телекастера блюзмэном Albert Collins, а потом и с ветераном британского блюза (   Читать дальше...   )Список альбомов:
+1994 - Gotta Mind To Travel
+1996 - Ya Think I'd Know Better
+1997 - Just Let GoЖанр: Modern Electric BluesПродолжительность: 12:31:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B12031017FD314F50F885B64F0E647A1237CA98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370663   (61205) от 31.03.2024
+
+Mop Mop - Kiss Of Kali (2009) [FLAC|Lossless|image + .cue] <Electronic, Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_61205.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Living Beat
+02. Locomotive
+03. The Lowered Flag
+04. Jazzdancer(   Читать дальше...   )Жанр: Electronic, JazzПродолжительность: 00:51:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FA032C292FF8CCCF782801A1B593B1BBF849AD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370458   (61172) от 31.03.2024
+
+Mop Mop - Isle Of Magic (2013) [FLAC|Lossless|tracks + .cue] <Jazz, Latin, Funk / Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_61172.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jua Kiss
+02. Let I Go
+03. Kamakumba
+04. Heritage(   Читать дальше...   )Жанр: Jazz, Latin, Funk / SoulПродолжительность: 00:48:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC6D35806A4F2D0B04F1CF48D624A6F89AC582EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287502   (60509) от 07.04.2024
+
+Jimmy Thackery - 25 Albums (1992 - 2016) 28 CD [FLAC|Lossless|image + .cue|tracks + .cue] <Modern Electric, Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_60509.jpg" />
+</div>
+
+
+###  Подробнее
+
+Певец, поэт-песенник и гитарист-виртуоз Jimmy Thackery родился в Питсбурге 19 мая 1953 года. В Вашингтоне, округ Колумбия в средней школе, он играл в группе с братом Bonnie Raitt, David Raitt, с которым потом записали альбом That's It! (2000). Thackery выпускает альбомы почти ежегодно с начала своей сольной карьеры. Первую известность Jimmy принесла группа The Nighthawks, (   Читать дальше...   )Список альбомов:
+1992 Jimmy Thackery & The Drivers - Empty Arms Motel
+1993 Jimmy Thackery & John Mooney - Sideways In Paradise
+1994 Jimmy Thackery & The Drivers - Trouble ManЖанр: Modern Electric, Blues-RockПродолжительность: 27:00:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94C5E9A9E3030CEE3D89C80E72CA971E56D43C60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716332   (59613) от 15.04.2024
+
+John Haydock - Straight Line On A Curved Road (2024) [FLAC|Lossless|image + .cue] <Electric Blues, Rockin' Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_59613.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pretty Blue Eyes
+02. Straight Line On A Curved Road
+03. Isle Of The Dead
+04. Lucy Don't Live Here Anymore(   Читать дальше...   )Жанр: Electric Blues, Rockin' BluesПродолжительность: 01:06:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7EB808BB2CE0D103142599C394156445C4F5F9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1717937   (58864) от 22.04.2024
 
 V.A. - Bossa Nova Covers of Popular Songs (2024) [FLAC|Lossless|WEB-DL|tracks] <Bossa Nova, Nu Jazz, Pop>
@@ -510,238 +742,6 @@ Doc Severinsen - & Friends (1992) MCA Special Products [FLAC|Lossless|tracks + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D382DD6DE8FFC010B921CBCAA7C79865F9372983
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728251   (54147) от 06.06.2024
-
-Vic Dickenson & Joe Thomas - Mainstream (1958) 2013, Warner [FLAC|Lossless|tracks + .cue] <Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54147.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweethearts on Parade [4:54]
-02. I Can't Believe That You're in Love with Me [5:57]
-03. Undecided [4:45]
-04. Crazy Rhythm [3:37](   Читать дальше...   )Жанр: SwingПродолжительность: 00:38:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:310F549AADD890BFBAB03913ECA6CEA6CF16C35B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729135   (53644) от 11.06.2024
-
-Guitar Pete - 7 Albums (1998 - 2021) [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53644.jpg" />
-</div>
-
-
-###  Подробнее
-
-Guitar Pete (настоящее имя Peter Vincent Brasino) - гитарист из Нью-Йорка, исполняющий тяжёлый блюз рок и черпающий вдохновение в творчестве Джими Хендрикса и Лесли Уэста (Mountain). Начав заниматься гитарой лишь в 16 лет, Пит всего за полгода так хорошо освоил инструмент, что друзья прозвали его Guitar Pete, и это юношеское прозвище с тех пор стало его творческим (   Читать дальше...   )Список альбомов:
-1998 - Burning Bridges
-2008 - Mean Streets
-2009 - Live at the Blues WarehouseЖанр: Blues RockПродолжительность: 05:13:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E52EB9A4B7A5BBF5FFCE11E262106D1EBA25010
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729132   (53628) от 11.06.2024
-
-Mildred Bailey - 1939 (2001) Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53628.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Cried for You [2:45]
-02. Begin the Beguine [2:46]
-03. What Shall I Say? [2:55]
-04. It's Slumbertime Along the Swanee [2:58](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:03:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50B188BD55411B4DDDBBF3F459B8AF857E2D467F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729134   (53627) от 11.06.2024
-
-Mildred Bailey - 1939 - 1940 (2002) Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53627.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Little Man Who Wasn't There [2:33]
-02. A Ghost of a Chance [3:11]
-03. You're the Moment in My Life [2:32]
-04. You and Your Love [2:56](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:10:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB5F47B18BE6E24AB79B45190854BA806A46EB74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729140   (53625) от 11.06.2024
-
-Mildred Bailey - 1940 - 1942 (2002) Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53625.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fools Rush In [3:21]
-02. From Another World [2:47]
-03. I'm Nobody's Baby [3:00]
-04. Give Me Time [3:07](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:06:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21E6090E959408FD0FE0AA062C504CF5E3F053DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729438   (53623) от 11.06.2024
-
-Jack Walrath - Neohippus (1989) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53623.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Village of the Darned [6:43]
-02. Watch Your Head [6:44]
-03. Fright Night [6:13]
-04. Annie Lee [5:42](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:51:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6B3443C65B7BDF67957F333F955B42EEC4F464F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729142   (53618) от 11.06.2024
-
-Lee Ritenour - The Very Best Of Lee Ritenour (2003) GRP [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53618.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Little Bumpin' [4:28]
-02. Water to Drink (Agua de Beber) [5:07]
-03. Get Up, Stand Up [5:00]
-04. Harlequin [4:43](   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:05:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F04B15E8E4C70C7E1EB0C881B161594A9DA6847F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729436   (53617) от 11.06.2024
-
-Warren Wolf - Black Wolf (2009) M&I [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53617.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. From Day to Day [6:39]
-02. Maiden Voyage [5:27]
-03. The Wire [5:49]
-04. Chelsea Bridge [6:09](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:54:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66005A1BA343E879C779C303BB653228A2982F1B
 ```
 
 https://mybot314.ru/tekegram_catalog/

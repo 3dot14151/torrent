@@ -1,3 +1,32 @@
+###  Публикация: 1473053   (1013858) от 28.05.2021
+
+Aethera - The Caelic Mystery (2005) [FLAC|Lossless|image + .cue] <New Age, Celtic, Folk>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013858.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Into Blue 3:44
+2 The Mountain Side 3:52
+3 Dungannon Dew 2:56
+4 The Green Side 4:24(   Читать дальше...   )Жанр: New Age, Celtic, FolkПродолжительность: 00:46:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7EB2BE080624102D16580F977FFA51019B40876
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1473523   (1013522) от 30.05.2021
 
 Yiruma - f r a m e (2021) Reissue [FLAC|Lossless|WEB-DL|tracks] <New Age, Modern Classical, Piano>
@@ -715,35 +744,6 @@ Gheorghe Zamfir - румынский музыкант, играющий на м�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4EE6AD143B079E8F6FFE7F17D0299CFE61C7810D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349436   (1004436) от 01.01.2020
-
-VA - Fiesta Latina 2019 (80 Big Latin Hits 2019/2020!) [MP3|320 Kbps] <Latin, Reggaeton, Salsa>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Somos del Barrio – Con Calma (Reggaeton Version)
-02. Grupo Extra – A Traves del Vaso (Bachata Version)
-03. Charanga Habanera – Traicionera
-04. Somos del Barrio – Loco Contigo (Reggaeton Version)(   Читать дальше...   )Жанр: Latin, Reggaeton, Salsa, BaciataПродолжительность: 04:54:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:549987BF72CA37B8B95B71D040DC2423D12207EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

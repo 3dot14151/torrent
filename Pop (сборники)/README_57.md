@@ -1,3 +1,67 @@
+###  Публикация: 908227   (633602) от 14.06.2015
+
+Serebro - Не надо больнее (2015) [MP3|320 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633602.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Не Надо Больнее
+03. Я Тебя Не Отдам
+04. #Угар(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:51:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFDA36B00622EA1EFA7B52C7835367B840ECF4F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 519920   (633587) от 08.07.2012
+
+VA - Лучшая 100ка: Вечеринка продолжается!!! (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633587.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Градусы - Не Надо Париться
+02. Натана - Тарантино
+03. Женя Вилль - Ты Для Меня
+04. Света - Супер Спортсмен (Dj Jump Radio Version)
+05. Любовь Фоменко - Знаешь Сам (Dance Version)
+06. Настя Задорожная - До Дна
+07. Любовь Фоменко - Линии Сердца
+08. Дима Билан - Honey
+09. Real O - Луна (Я В Белом Платьице)
+10. Маттиас - За тобой(   Читать дальше...   )Жанр: PopПродолжительность: 06:08:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFC3C8E7B56F34E3FEFC3C8372082AC809A17EEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 519460   (633572) от 08.07.2012
 
 VA - 100 Самых Самых Хитов 50x50 (2012) [MP3|256 кб/с]<Рор>
@@ -765,64 +829,6 @@ VA - Бомба Года Русский Выпуск (2016) [MP3|256 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01EE728E85BA3B01F85EDD93B8F174CC16C565F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229463   (626460) от 06.06.2018
-
-VA - Caramel Masquerade (2018) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626460.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Walk The Moon - One Foot
-002. Dua Lipa - IDGAF
-003. MAX - Lights Down Low
-004. Matami - Get Lost(   Читать дальше...   )Жанр: PopПродолжительность: 08:41:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD469876AAB6400272065ACA42785D0C51B964BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294623   (626116) от 09.04.2019
-
-VA - German Top 50 Party Schlager Charts 08.04.2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626116.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andrea Berg - Mosaik
-02. Kerstin Ott - Regenbogenfarben
-03. Maite Kelly - Heute Nacht für immer
-04. Thomas Anders - Sie sagte doch sie liebt mich (feat. Florian Silbereisen)(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 03:00:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E457BB8EF5F53C54ED8735D3F8454B0B86675A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,121 @@
+###  Публикация: 1266398   (270961) от 01.12.2018
+
+VA - Top Of The Pops '1980 (2017) Box Set, 3CD [FLAC|Lossless|tracks + .cue] <1980s, pop, rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_270961.jpg" />
+</div>
+
+
+###  Подробнее
+
+Собственно, вот мы и добрались до 80-х. Другое десятилетие, другие вкусы, другая музыка...
+Этот список треков является хронологическим списком популярных песен 80-х, исполняемых музыкантами и музыкальными ансамблями в Top of the Pops, еженедельной телевизионной программой BBC One, в которой представлены исполнители в основном из британского сингла.
+Эти программы (   Читать дальше...   )CD1:
+01. Adam & The Ants - Antmusic  (3:38)
+02. Dexy's Midnight Runners - Geno  (3:27)
+03. The Jam - Going Underground  (2:53)(   Читать дальше...   )Релиз состоялся: 31.10.2017Жанр: 1980s, pop, rockПродолжительность: 03:51:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF49B112FD1808CDB38DC6E251C9911CF7363057
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266462   (270046) от 02.12.2018
+
+Alessia Cara - The Pains Of Growing (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_270046.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Growing Pains
+02. Not Today
+03. I Don't Want To
+04. 7 Days(   Читать дальше...   )Жанр: Pop, Soul, R&BПродолжительность: 00:45:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45B18B9E0DCF42AB65EC050C0F5BC0F35CEC7A60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266460   (270042) от 02.12.2018
+
+Lily Allen - No Shame (2018) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_270042.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Come On Then (03:10)
+02. Trigger Bang (feat. Giggs) (03:32)
+03. What You Waiting For? (03:06)
+04. Your Choice (feat. Burna Boy) (03:41)(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6258BAE30E568C56ABBD9A0E3CCDCE93EF8786BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266463   (270036) от 02.12.2018
+
+Akcent - King of Disco (2007) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_270036.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - King of Disco
+02 - Let's Talk About It
+03 - Religious Girl
+04 - Baby(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FF4A0E8FB3248ED52C70EFF78B8DFA89A05E7A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1266455   (270035) от 02.12.2018
 
 The Hollies - Live at the BBC (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -629,122 +747,6 @@ Francesca Michielin - 2640 (2018) RCA Records [FLAC|Lossless|WEB-DL|tracks] <Ita
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D4E5D91C4DBBEFFCFD377B5C7494927CDD96088
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340446   (264010) от 23.11.2019
-
-Micro együttes - Olasz slágerek – magyarul No.1 (2005) [FLAC|Lossless|image + .cue] <Pop, Cover>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264010.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Imádok útra kelni (4:02)
-02. Felicita (3:23)
-03. Azzuro (3:28)
-04. Szívem egy vándorcigány (4:00)(   Читать дальше...   )Жанр: Pop, CoverПродолжительность: 01:04:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFEB2A7B440D7FEEE799FF2897ADF04D3CF62B10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191623   (263855) от 15.12.2017
-
-Alexandra Savior - Belladonna Of Sadness (2017) [FLAC|Lossless|tracks + .cue] <Alternative Pop, Art Pop, Baroque Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263855.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mirage (03:25)
-02. Bones (02:48)
-03. Shades (03:50)
-04. Girlie (03:22)(   Читать дальше...   )Жанр: Alternative Pop, Art Pop, Baroque Pop, Indie Pop, Dream Pop, Desert RockПродолжительность: 00:41:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17D539D9E06A43766469F999AEFBE5D7069F1C10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191641   (263804) от 15.12.2017
-
-VA - Absolute Music 82 (2017) [FLAC|Lossless|tracks] <Pop, Pop-Rock, Dancepop, House, R&B, Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wiktoria - As I Lay Me Down (3:11)
-02. Kygo with Selena Gomez - It Ain't Me (3:39)
-03. Julia Michaels - Issues (2:56)
-04. Calvin Harris - My Way (3:39)(   Читать дальше...   )Жанр: Top 40, Pop Compilation, Pop, Soul, Rock, R&B, Dancepop, House, Electropop, Pop-Rock, Country, FolkПродолжительность: 01:00:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F39EAD16B3D9CAA4D9DA08FE99B125FAD5201464
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191652   (263775) от 15.12.2017
-
-VA - Absolute Music 83 (2017) [FLAC|Lossless|tracks] <Pop, Dancepop, Pop-Rock, R&B, Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263775.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Avicii feat. Sandro Cavazza - Without You (3:02)
-02. Justin Bieber + BloodPop® - Friends (3:10)
-03. DJ Khaled feat. Justin Bieber, Quavo, Chance The Rapper & Lil Wayne - I'm The One (4:49)
-04. Portugal. The Man - Feel It Still (2:43)(   Читать дальше...   )Жанр: Top 40, Pop Compilation, Pop, Electronic, Soul, R&B, Dancepop, House, Electropop, Synthpop, Pop-Rock, FolkПродолжительность: 01:51:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0991553557C301A71239AC92AC5F19A983366B37
 ```
 
 https://mybot314.ru/tekegram_catalog/

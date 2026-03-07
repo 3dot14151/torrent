@@ -1,3 +1,293 @@
+###  Публикация: 1359742   (963163) от 13.02.2020
+
+VA - House In Space (2020) [MP3|320 Kbps] <Future House, EDM, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_963163.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Go Satta - A Real Boy
+002. Jubba - Elemento Y
+003. Major K - Narwhal (Original Mix)
+004. Dom Kane - Tunnel Run(   Читать дальше...   )Жанр: Future House, EDM, ElectronicПродолжительность: 11:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D65CBF250ED985696C785DC3351B697068D3C3A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359947   (963161) от 13.02.2020
+
+VA - Немного песен о любви (2020) [MP3|320 Kbps] <Pop, Rock, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_963161.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Artemiev - Виды (4:00)
+2.Boogrov, Mana Island - Swarm (4:28)
+3.K.A.T.Y.A. - Кем была я (3:01)
+4.Mujuice - Химия (4:09)(   Читать дальше...   )Жанр: Pop, Rock, OtherПродолжительность: 01:12:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A345E0D91C80B211F9C7CACEFBB3091122C543DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359731   (963160) от 13.02.2020
+
+VA - Late Night Vibe: Romantic R&B (2020) [MP3|250-320 Kbps] <R&B, Sou>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_963160.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mr Eazi And Tyga - Tony Montana
+002. Єнжѕєнал - I Feel So Right
+003. Miss Kelli - Human
+004. Teedra Moses Feat. Jadakiss - You'll Never Find (A Better Woman)(   Читать дальше...   )Жанр: R&B, SouПродолжительность: 06:43:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDE5E78CA74ADD7171CBF0F709FE528E0932BF3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359840   (963097) от 13.02.2020
+
+VA - 100 Greatest Love Songs (2020) [MP3|320 Kbps] <Pop, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_963097.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Whitney Houston - I Will Always Love You
+002. Snow Patrol - Chasing Cars
+003. Adele - Someone Like You
+004. Céline Dion - My Heart Will Go On(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 06:58:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4112EA2CC3DFDC24F70F7BBF47AC26264465D8E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978235   (962621) от 24.01.2016
+
+2011stress - Agoraphobia (2015) [MP3|320 кб/с] <Electronic, Synth-pop, Rock, Blues, Classic styling>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_962621.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Агорафобия
+02. Вооружённая каблуками
+03. За горизонтом событий
+04. Девять Жизней(   Читать дальше...   )Жанр: Electronic, Synth-pop, Rock, Blues, Classic stylingПродолжительность: 00:47:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F63A32D58F845BE19BF7C34050EC4197024623E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978731   (962612) от 24.01.2016
+
+VA - Greek Lounge Deluxe Top 10 of All Times (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_962612.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Manos Hadjidakis - The Waltz of Lost Dreams
+02. Vasilis Saleas - The Honeymoon Song
+03. Vasilis Saleas - Prelude
+04. Yanni - Carol's Theme(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:35:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41AF4CB7CBF52E88F60C903945DBF6A808FFEBF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978854   (962525) от 24.01.2016
+
+VA - Chillhouse Winter Beats (2016) [MP3|320 кб/с] <Deep House, Chill House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_962525.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Salvatore Stallone - Silvia's Element
+2. White Beach (Crystal Blue Sea mix) - Best Of Chillout Lounge
+3. Erdinc Erdogdu - Enjoy The Silence
+4. I Live My Life (Beach Lounge Session) - Pearls Of Ibiza(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 02:50:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C1EF17A18DE30977BD7399BC924D21E5F2A77CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978830   (962150) от 24.01.2016
+
+VA - Best of Nachtcafe: A Smooth Sax and Piano Jazz Session (2015) [MP3|320 кб/с] <Jazz, Swing, Soul, Pop>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_962150.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Michael Bublé - Feeling Good 3:57
+2. Randy Crawford - Purple Rain 5:49
+3. George Michael - Kissing a Fool 4:35
+4. Tower of Power - Me & Mrs. Jones 5:36(   Читать дальше...   )Жанр: Jazz, Swing, Soul, PopПродолжительность: 02:46:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9D3CB5F2524165684D33A03558D46611CB7F3BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978567   (962037) от 24.01.2016
+
+VA - Дискотека 80-90 годов по - новому от Виталия 72 - ( Зарубежный выпуск - 22 ) (2016) [MP3|223 - 320 кб/с] <Eurodance, Dance, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_962037.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fancy - Flames Of Love (05:16)
+02. Mr.Zivago - Little Russian (Brasil Import RMX) (06:13)
+03. Joy - Japanese Girls (Sky Mix) (06:14)
+04. Al Bano Romina Power - Felicita (Dj ViTar Reboot Mix) (03:51)(   Читать дальше...   )Жанр: Eurodance, Dance, DiscoПродолжительность: 04:58:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:072454122428B51BB7F0ACE41CF956BB5947E3BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360006   (961920) от 14.02.2020
+
+VA - Unlimited Love (2020) [MP3|320 Kbps] <Pop, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_961920.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ed Sheeran – Perfect Duet (Ed Sheeran & Beyoncé)
+02. Benji & Fede – Ogni volta
+03. Dan + Shay – Tequila
+04. Bruno Mars – Just the Way You Are(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 04:53:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C371EBAA785555A2D3D319CC1542DC386B60D58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1359986   (961881) от 14.02.2020
 
 VA - не Громкие новинки недели 55 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -453,302 +743,6 @@ VA - Restart The Game (2016) [MP3|320 кб/с] <Tech, Deep, Progressive House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA26AFE56DCE1BA4E4E98E6DCF6F6C2AE9CAB930
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979297   (959962) от 26.01.2016
-
-VA - Consciousness Determines Reality (2016) [MP3|320 кб/с] <Psy, Goa Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959962.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 7 Baltic - Gold Rusch (David Gate Remix)
-002. Hi Profile - Archangel
-003. Memory Loss - Fugue State (Original Mix)
-004. Artisan, Linnea Schossow - You & I (Original Mix)(   Читать дальше...   )Жанр: Psy, Goa TranceПродолжительность: 11:42:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59BFC782174E8EAB79A4C1BEA60FF07BB4F6931A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979378   (959959) от 26.01.2016
-
-VA - Sunrise Avenue Vol.8: 20 Lounge and Chill-Out Pearls (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959959.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steven Moore - In the Sunshine - Original Mix
-02. Scott Navarro - Tell Me Why - Original Mix
-03. Nigel Scott - Disco Salsa - Original Mix
-04. Peter Cox - White Star - Original Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:38:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEEDBFFE075FF31C76803724EDB39476461892A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 621951   (959942) от 22.02.2013
-
-VA - Romantic Blues Collection Vol.4 (2013) [MP3|320 кб/с]<Pop,Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959942.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roy Roberts - What Should 100
- 02. Steve Gannon - Too Through With You
- 03. Koko Taylor - I'd Rather Go Blind
- 04. Jonny Lang - Darker Side
- 05. Eric Clapton - My Father`s Eyes
- 06. Blues Company - Silent Night
- 07. Tim Gonzales - Summer Time
- 08. The Holmes Brothers - And i love her
- 09. S Weebs Chicken Chack- Dont You Worry
- 10. Snowy White - The time has gone(   Читать дальше...   )Жанр: Pop,BluesПродолжительность: 01:57:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18B4D6F7D46D39E63FAFD8E597D0E993953007B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979580   (959868) от 26.01.2016
-
-Robyx Party - Long Single Mix 1990 Mix Part 1-2 (2016) [MP3|320 кб/с] <Italo-Disco, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959868.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Savage - I just died in your arms (Extended Mix)
-02. Savage - I'm loosing you (Re-Euroedit Remix)
-03. Savage - Goodbye (Trans-Express Mix)
-04. Ice MC - Easy (Attack Remix)(   Читать дальше...   )Жанр: Italo-Disco, DanceПродолжительность: 00:43:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:711A81BEC9494F4133BBD41E107EDB52A4D08206
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979256   (959771) от 26.01.2016
-
-VA - Hot Eurodance Party (2016) [MP3|160-320 кб/с] <eurodance, pop, house>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959771.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Roy Orbison - You'll Never Walk Alone
-002. Prince - Baltimore
-003. Ellie Goulding - Love Me Like You Do (From Fifty Shades Of Grey)
-004. Trey Songz & DJ Drama - 03 Trey Songz - BlessedЖанр: eurodance, pop, houseПродолжительность: 07:33:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0D6DBF7EAF576D12F6BF59ABB7357F7384788D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979283   (959699) от 26.01.2016
-
-VA - Cafe Italiano, Vol. 1 (2016) [MP3|320 кб/с] <Nu Jazz, Lounge, ChillOut>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959699.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Florito - Brasil Gossa Party - Extended Mix (05:43)
-02. Peter Pearson - Your Gentle Eyes (05:40)
-03. Newton - Homerun (04:50)
-04. Michael Crueger - I'll See You Again (12:23)(   Читать дальше...   )Жанр: Nu Jazz, Lounge, ChillOutПродолжительность: 02:12:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:285EFC7AA29A63A5E1B1CFC42388FBF5F1884803
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979272   (959653) от 26.01.2016
-
-VA - Зимняя 100-ка Популярных Треков (2016) [MP3|256 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959653.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ева Польна - Мало
-02. Ёлка - Праздник К Нам Приходит!
-03. Kristina Si - Не Обижай Меня
-04. Milki - Лапочка(   Читать дальше...   )Жанр: PopПродолжительность: 06:35:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBE9014694044E490120935A9D6A18EA9522641D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 855633   (959639) от 03.01.2015
-
-W.A.S.P. - All ballads (1982-2012) 2CD Bootleg [MP3|320 кб/с]<Heavy Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959639.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forever Free
-02. Heaven's Hung In Black
-03. Kill Your Pretty Face
-04. Chainsaw Charlie (Intro)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 04:04:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EA97CFAECF07A57B0976B24F042FD741D50B693
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978287   (959599) от 26.01.2016
-
-VA - Blues Forever vol.01 - vol.04 (2015) [MP3|320 кб/с] <Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959599.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Red Rooster - Little Darling
-02. Anni Piper - Untrue
-03. Steve Pryor Band - Moving Me
-04. Big Bad Voodoo Daddy - Maddest Kind Of Love(   Читать дальше...   )Жанр: BluesПродолжительность: 05:13:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F45D8E95C8C5A7355E1E886E5C3B23B916DAFE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978369   (959597) от 26.01.2016
-
-VA - Blues Forever vol.05 - vol.08 (2015) [MP3|320 кб/с] <Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959597.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tinsley Ellis - Leave Me
-02. Midnight Club Blues Band - Midnigh
-03. Neal Black & The Healers - Bridge In Tennessee
-04. Bernard Allison Group - Set Me Free(   Читать дальше...   )Жанр: BluesПродолжительность: 05:14:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F794C561B12A3D4152EF4DB08BCB2F35441ADCFE
 ```
 
 https://mybot314.ru/tekegram_catalog/

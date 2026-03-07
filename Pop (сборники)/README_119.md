@@ -1,3 +1,61 @@
+###  Публикация: 1718365   (110677) от 28.04.2024
+
+VA - Dario Caminita: Classic Revibes Collection Vol. 01 (2021) [MP3|320 Kbps] <Disco, Dance, Hi-NRG>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110677.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sylvester - You Make Me Feel (Dario Caminita Revibe) (5:19)
+02. Earth, Wind & Fire - September (Dario Caminita Revibe) (5:00)
+03. Bee Gees - You Should Be Dancing (Dario Caminita Revibe) (5:08)
+04. Kool & The Gang - Celebration (Dario Caminita Revibe) (4:56)(   Читать дальше...   )Жанр: Disco, Dance, Hi-NRGПродолжительность: 01:53:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD8151E2DA0873F4BDD1EE1668C0DBFCD0BD10E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718587   (110659) от 28.04.2024
+
+VA - Dario Caminita: Classic Revibes Collection Vol. 02 (2021) [MP3|320 Kbps] <Disco, Dance, Hi-NRG>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_110659.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Barry White - You're The First, The Last, My Everything (Dario Caminita Revibe) (6:29)
+02. The Trammps - Disco Inferno (Dario Caminita Revibe) (6:27)
+03. Bee Gees - Night Fever (Dario Caminita Revibe) (4:49)
+04. Michael Jackson - Don't Stop 'til You Get Enough (Dario Caminita Revibe) (6:06)(   Читать дальше...   )Жанр: Disco, Dance, Hi-NRGПродолжительность: 01:58:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E253834986C6ACF5ECD67C2FA1A4118AB1F6A3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1719787   (110442) от 02.05.2024
 
 VA - Dario Caminita: Classic Revibes Collection Vol. 06 (2022) [MP3|320 Kbps] <Disco, Dance>
@@ -771,76 +829,6 @@ VA - С Нами Не Соскучишься 50/50 (2012) [MP3|256 kbps]<Pop | D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:131980E89AAA23C820A4A1BD415798AE3AA5C883
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477982   (98732) от 05.04.2012
-
-VA - Русская Дискотека Best-of-ka (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98732.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. DJ Грув vs Мираж - Наступает Ночь (4:13)
-2. Quest Pistols - Ты Была Светом (3:14)
-3. Света - Не Новая Игра (3:29)
-4. Братья Грим - Парашюты (3:48)
-5. П. Гагарина - Спектакль Окончен (4:00)
-6. Иракли - Ты Одна (3:19)
-7. Дискотека Авария, Джиган (Geegun) И В. Крутая - Карнавал (3:43)
-8. Елка - Около Тебя (3:42)
-9. Е. Польна - Je Taime (Я Тебя Тоже Нет) (Fresh Tunes Radio Edit) (3:52)
-10. Aslan feat. Misty - Знаю, Знаю (3:27)2012Жанр: PopПродолжительность: 06:19:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75C21E0D5D26C27C9CF004498935B802F19AD9CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478246   (98724) от 05.04.2012
-
-VA - Лучшие сливки муз-весны (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98724.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ирина Билык - Девочка (3:32)
-2. Макsим - Небо-Самолёты (2:53)
-3. Пыльца - Запасной Аэродром (3:09)
-4. Джиган (Geegun) - Нас Больше Нет (3:22)
-5. Анастасия Кочеткова - Карма (3:26)
-6. 5sta Family - Вместе Мы (3:40)
-7. Жасмин - Можно (4:06)
-8. Наташа Королева - Голая (4:07)
-9. Чай Вдвоем feat. Лиана - Виниловое сердце (3:46)
-10. Юлия Ковальчук - Поколение Лета (DJ Vengerov Remix) (3:52)2012Жанр: PopПродолжительность: 06:03:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08303A9E7A3262BE89642649826F72297147F124
 ```
 
 https://mybot314.ru/tekegram_catalog/

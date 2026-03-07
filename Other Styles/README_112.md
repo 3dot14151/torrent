@@ -1,3 +1,32 @@
+###  Публикация: 1063653   (432387) от 17.10.2016
+
+Petri Alanko - Quantum Break (Original Game Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Ambient>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_432387.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meeting an Old Friend (02:35)
+02. Campus (02:26)
+03. Suite for Time and Machines (06:23)
+04. Don't Stand In My Way (01:43)(   Читать дальше...   )Жанр: Soundtrack, Score, Ambient, ElectronicaПродолжительность: 00:49:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:217D787FF96746824DC833449A6A1C1353C7C179
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1063385   (432379) от 17.10.2016
 
 Lisa Downing - The Wisdom Of My Shadow (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
@@ -724,35 +753,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F45CD8035D543E208139644C42B6D729149BC474
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250048   (428573) от 26.09.2018
-
-V.A. - Александр Зацепин: Лучшие песни из кинофильмов (1996) [APE|Lossless|image + .cue] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428573.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Юрий Никулин - А нам все равно (3:05)
-02. Андрей Миронов - Остров невезения (2:18)
-03. Олег Анофриев - Есть только миг (3:41)
-04. Оркестр и хор МВО - Маруся (2:25)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:11:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4617002D69899CC3B9B214F79F7E7293DE73DFD
 ```
 
 https://mybot314.ru/tekegram_catalog/

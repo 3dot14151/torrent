@@ -1,3 +1,119 @@
+###  Публикация: 1808360   (65010) от 24.07.2025
+
+Selena Gomez & Benny Blanco - I Said I Love You First... And You Said It Back (2025) Japanese Edition [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65010.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Selena Gomez, Benny Blanco – I said I Love You First (0:44)
+02. Selena Gomez, Benny Blanco – Younger And Hotter Than Me (3:09)
+03. Selena Gomez, Benny Blanco, Gracie Abrams – Call Me When You Break Up (2:09)
+04. Selena Gomez, Benny Blanco, The Marías – Ojos Tristes (3:21)(   Читать дальше...   )Жанр: PopПродолжительность: 00:57:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CCA44453D06FAFB0A5B21DF3061F2B25566FEFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1809022   (64772) от 28.07.2025
+
+Ten Sharp - Under The Water-Line (1991) 1st Holland Press [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_64772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You (4:34)
+02. Ain't My Beating Heart (4:15)
+03. When The Spirit Slips Away (4:44)
+04. Ray (4:00)(   Читать дальше...   )Жанр: PopПродолжительность: 00:32:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35CB3A50B9DCB45FA1E91302B250FE96E3C49D32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1809479   (64681) от 31.07.2025
+
+Nick Kamen - Move Until We Fly (1990) 1st German Press [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_64681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Promised Myself (4:021)
+02. Oh How Happy (3:44)
+03. Looking Good Diving (3:52)
+04. Somebody's Arms To Hold Me (3:53)(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4B5FE9634BA8FF2E3B4D740A983979EE481AA99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1809483   (64678) от 31.07.2025
+
+Nick Kamen - Whatever, Wherever (1992) 1st German Press [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_64678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We'll Never Lose What We Have Found (4:39)
+02. Whatever Whenever (4:20)
+03. You're Not The Only One (4:15)
+04. Nothing Rhymes Now (3:38)(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAF3B7C0B95A1932951DBEE02DB4A5858F5D25AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1809484   (64672) от 31.07.2025
 
 Right Said Fred - Up (1992) 1st US Press [APE|Lossless|image + .cue] <Pop>
@@ -625,122 +741,6 @@ Sia - Reasonable Woman (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE4C36686BE932661C0C7E98C03820B3CD1370B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723583   (56134) от 18.05.2024
-
-ABBA - Wembley Arena 1979 (Live) (2014) Reissue, 2024, The Media Champ [FLAC|Lossless|WEB-DL|tracks] <Europop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Voulez-Vous (Live) [00:05:10]
-02. Knowing Me, Knowing You (Live) [00:04:34]
-03. Chiquitita (Live) [00:05:47]
-04. Gimme!, Gimme!, Gimme! (A Man After Midnight) (Live) [00:05:37](   Читать дальше...   )Жанр: EuropopПродолжительность: 00:56:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE34F1ECA4BE0314C572A79A48B2EC8E8F5AE5A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729362   (53714) от 10.06.2024
-
-Taylor Swift - The Tortured Poets Department (2024) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53714.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fortnight
-02. The Tortured Poets Department
-03. My Boy Only Breaks His Favorite Toys
-04. Down Bad(   Читать дальше...   )Жанр: PopПродолжительность: 01:09:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CF888B613193C769A3174DA954C8B5E54B88291
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139276   (53163) от 16.06.2024
-
-Francoise Hardy - The Real... Francoise Hardy (2016) 3CD [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53163.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-1. Tous Les Garcons Et Les Filles
-2. Oh, Oh Cheri
-3. Je Suis D'Accord(   Читать дальше...   )Жанр: PopПродолжительность: 01:30:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F9A30A0A5079CAD2BC9F8F01DBF272468301A0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731025   (52786) от 19.06.2024
-
-Leah Kate - Super Over (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52786.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Super Over (2:45)
-02. Space (2:49)
-03. Unbreakup (3:18)
-04. Desperate (2:37)(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB33419368225BDAF36DE31C1DDFB0B26164D728
 ```
 
 https://mybot314.ru/tekegram_catalog/

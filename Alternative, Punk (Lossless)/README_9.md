@@ -1,3 +1,32 @@
+###  Публикация: 1100841   (897745) от 05.02.2017
+
+Highly Suspect - The Boy Who Died Wolf (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative rock, Hard Rock, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_897745.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Name Is Human Explicit (04:19)
+ 02. Look Alive, Stay Alive Explicit (02:10)
+ 03. Little One (04:02)
+ 04. For Billy (03:39)(   Читать дальше...   )Жанр: Alternative rock, Hard Rock, Progressive RockПродолжительность: 00:45:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:004E1B0C18C1E00E0E7F053A04B25E28B3047D93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 992925   (895530) от 05.03.2016
 
 Tonight Alive - Limitless (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock, Alt.Rock, Female Vocal>
@@ -711,35 +740,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8C3BA7E5BD07F97D33064D57BB8794680029B71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105987   (874997) от 18.02.2017
-
-Electric Guest - Plural (2017) [FLAC|Lossless|tracks + .cue] <Indie, Rock, Synthpop, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874997.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zero (3:49)
-02. Glorious Warrior (4:03)
-03. Back & Forth (4:23)
-04. Dear To Me (4:01)(   Читать дальше...   )Жанр: Indie, Rock, Synthpop, ElectronicПродолжительность: 00:41:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D3BD8389B9F2434AD70E29121FB525C2FECA4AF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1295785   (617024) от 14.04.2019
+
+Bibio - Ribbons (2019) [FLAC|Lossless|tracks + .cue] <Electronic, Indie Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_617024.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beret Girl (01:56)
+02. The Art of Living (03:16)
+03. Before (03:11)
+04. Curls (03:17)(   Читать дальше...   )Жанр: Electronic, Indie Pop, Pop RockПродолжительность: 00:51:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8611EEA91D86BEFE4F5E1AD0D9B5FD046DB4374
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146275   (616197) от 28.06.2017
+
+Harry Nilsson - The Real... Harry Nilsson (The Ultimate Collection) (2014) 3CD [FLAC|Lossless|tracks + .cue] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616197.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+01. 1941
+02. Cuddly Toy
+03. You Can't Do That(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 02:47:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75A089409366427FB651A2D7890A03B271B5D7C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036999   (615745) от 23.07.2016
+
+Rainhard Fendrich - Lieder Mit Gefuhl (1994) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_615745.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Weilst a Herz hast wie a Bergwerk [0:03:34.55]
+02. Von Zeit zu Zeit [0:05:03.43]
+03. Lowin und Lamm [0:06:09.42]
+04. Whisky Pur [0:03:40.60](   Читать дальше...   )Жанр: PopПродолжительность: 01:15:20.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0765AE2A8E0DE9627BB126CFC569EF9B8B540ADD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1037054   (615662) от 23.07.2016
+
+VA - SuperVara (2016) 2CD [FLAC|Lossless|image + .cue] <Dance,  Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_615662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Akcent feat. Lidia Buble - Serai (3:19)
+02. Arando Marquez feat. Hevito - No Me Digas (2:51)
+03. Alexandra Stan feat. Mohombi - Balans (3:08)
+04. Alex Parker - Tropical Sun (3:21)(   Читать дальше...   )Жанр: Dance,  PopПродолжительность: 00:57:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDA277DBA1A91197121CEAD04FA7755A4C5495B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1296006   (615139) от 15.04.2019
 
 Westlife - Westlife (1999) [FLAC|Lossless|image + .cue] <Europop, Ballad>
@@ -631,122 +747,6 @@ Bananarama - In Stereo (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B755F23979392C13570B9F8D9F5E470D276BD45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148666   (603495) от 07.07.2017
-
-Rebbie Jackson - Yours Faithfully (1998) [FLAC|Lossless|image + .cue] <Pop, R&B, Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603495.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 What You Need 04:34
-02 Play Your Game 04:42
-03 Yours Faithfully 04:34
-04 Get Back To You 04:00(   Читать дальше...   )Жанр: Pop, R&B, SoulПродолжительность: 00:50:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3A375595A5B58DED0E064657EEC6023172E27B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547189   (603386) от 27.04.2022
-
-Chris Isaak - Forever Blue (1995) [FLAC|Lossless|image + .cue] <Pop Rock, Soft Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603386.jpg" />
-</div>
-
-
-###  Подробнее
-
-Forever Blue - пятый альбом американского музыканта Chris Isaak'а вышедший 23 мая 1995. 15 марта 1996 года альбом был сертифицирован RIAA как платиновый, в Австралии альбом стал трижды платиновым, а в Канаде получил золото. Forever Blue был номинирован на Grammy в категории Best Rock Album, а сингл Somebody's Crying получил номинацию Grammy в категории Best Male (   Читать дальше...   )01. Baby Did a Bad Bad Thing (2:54)
-02. Somebody's Crying (2:48)
-03. Graduation Day (3:10)
-04. Go Walking Down There (2:50)(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 00:39:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:773B995ECB4B70A249997263C4EF57E2304705C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088318   (603308) от 27.04.2022
-
-VA - Golden Ballads Summer (2005) Unofficial Release [APE|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603308.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Underdog Project - Summer Jam
-02. Despina Vandi - C'est La Vie (Simera)
-03. J-Five - Find A-Way
-04. Neneh Cherry feat. Youssou N'dour - Seven Seconds(   Читать дальше...   )Жанр: PopПродолжительность: 01:15:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F5E520BF63A4475BA6500FA68A01B700DF1F5E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297686   (603093) от 24.04.2019
-
-Chrysta Bell - Feels Like Love (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock, Dream Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603093.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tonight We Rise
-02. Feels Like Love
-03. Red Angel
-04. Everest(   Читать дальше...   )Жанр: Pop Rock, Dream PopПродолжительность: 00:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA7D95E91419DBE65B5FB3C43F1F79208E7101A9
 ```
 
 https://mybot314.ru/tekegram_catalog/

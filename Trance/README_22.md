@@ -1,3 +1,90 @@
+###  Публикация: 1234324   (572961) от 04.07.2018
+
+VA - Progressive Summer Session (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_572961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Sannny - Ghost Ship (Original Mix)
+02. 2D Project - Euphoria (Original Mix)
+03. DJ Grand Defence - Impulse (Original Mix)
+04. ADVANIKA - Insomnia (Original Mix)(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 03:39:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FC3B5B451CFC54944BB11E95CF6584595594B6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234350   (572806) от 04.07.2018
+
+VA - Trance Music 2018: Best Of Trance Music Vol.2 (Mixed by Gerti Prenjasi) (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_572806.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Physical Dreams - In My Eyes (Original Mix)
+02. Rene Ablaze & Arctic Motion - Secret Desire (Original Mix)
+03. Sergiu Teremtus - Missing You NBB (Nivaya Uklifting Remix)
+04. Sun Liquide feat. Aminda - The Beat (Eirik C Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:20:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D6F886DB2C1F19A80896466F78DBCB9FC5FCC98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234418   (571149) от 05.07.2018
+
+VA - Restate Gods Vol.1 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_571149.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forgotten State - Forgotten (Original Mix)
+02. Double Creativity - Come Back To Me (Original Mix)
+03. Special - Castle In The Clouds (Original Mix)
+04. Serj E - Till You Come (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:20:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADF4B6E6E4FAF1A0CB8EE0F684C3F99BE5399545
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1151498   (570742) от 20.07.2017
 
 VA - Voice Of Suanda Vol.4 (2017) [MP3|320 Kbps] <Vocal Trance>
@@ -658,93 +745,6 @@ VA - Whos Afraid Of 138 Top 15 (2016-09) (2016) [MP3|320 Kbps] <Trance, Progress
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BCF144E0CF4696B388E8F5BC17116DC557F816E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049209   (544916) от 04.09.2016
-
-VA - Armada Captivating - Smooth Sensation (2016) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chicane - Fibreglasses (3:12)
-02. Breathe Carolina - Giants (3:24)
-03. Codeko - Halo (3:36)
-04. David Gravell - The Riddle (3:31)(   Читать дальше...   )Производство: Armada CaptivatingЖанр: TranceПродолжительность: 01:06:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E080E60B24A34D9FD9EC1BE34E85EF479111F90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049492   (543878) от 05.09.2016
-
-VA - Trance Hits Top 20 (2016-08) (2016) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543878.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex M.O.R.P.H  -  Not All Superheroes Wear Capes  3:14
-02. Reunify & Kris Maydak ft. Danyka Nadeau  -  Worth It (Willem de Roo Remix)  2:54
-03. DRYM & Abstract Vision  -  Typhoon  3:09
-04. Allen & Envy  -  Trancefamilia  4:02(   Читать дальше...   )Жанр: TranceПродолжительность: 01:14:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD1CB27CF87770E8224F9ECBDE49E348968BA2CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311255   (543690) от 28.06.2019
-
-VA - Trance Compilation, Vol.17 (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543690.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bukat – Moment of Love
-02. DJ Dragon Boss – Space Flight To The Star
-03. Maxim Aqualight – You My Pleasure
-04. Sigmax – Moonlight(   Читать дальше...   )Жанр: TranceПродолжительность: 01:10:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE14EBC15BFE83578103831ACFC427B50176A18B
 ```
 
 https://mybot314.ru/tekegram_catalog/

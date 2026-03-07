@@ -1,3 +1,32 @@
+###  Публикация: 1081760   (280909) от 11.12.2016
+
+Dr. Mary Anderson - Meditations for the Journey Within (2016) [MP3|320 Kbps] <New Age, Meditation>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_280909.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 -  Introduction [00:02:00]
+02 -  Love [00:11:02]
+03 -  Faith [00:10:02]
+04 -  Trust [00:10:02](   Читать дальше...   )Жанр: New Age, MeditationПродолжительность: 01:14:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F70A4539F951CBF451C87A1C14D3E2FEDEFD7D4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1081398   (280899) от 11.12.2016
 
 VA - Christmas Shooting Stars: The Finest Chillout and Lounge Music (2016) [MP3|320 Kbps] <Soundtracks>
@@ -706,35 +735,6 @@ VA - Suicide Squad (Unofficial Soundtrack) (2016) [MP3|320 кб/с]<Hip-Hop, Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AFDF62859174C56B1E6B0887D17B75FA8F24218B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187692   (278721) от 29.11.2017
-
-Sean Evenett - My Peaceful Heart (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278721.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Peaceful Heart (3:31)
-02.  Spirituality & Happiness (3:53)
-03.  Energy of Life (3:45)
-04.  Magic Relaxation (3:53)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:17:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB36A06A99834EAA452C100A9796F1D9D9CE1335
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,38 @@
+###  Публикация: 587892   (219712) от 11.12.2012
+
+KamaSutra - Kama Sutra Erotic Massage (2011) [MP3|320 кб/с]<New Age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_219712.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kamasutra (Erotic Massage Music)
+02. Tantramassage
+03. Massage Music
+04. Natural White Noise Sleep Music and Crickets (Amazon Rainforest)
+05. Chakra Balancing
+06. Erotic
+07. Musictherapy
+08. Hotgirls
+09. Ave Maria Classical Sleep Music with Nature Sounds Thunder Sound
+10. Thaimassage(   Читать дальше...   )Жанр: New Age, RelaxПродолжительность: 02:06:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D6D4ACFEDC4839F21A3E6A5927C731807AC439B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1269514   (219693) от 15.12.2018
 
 Rupert Gregson-Williams - Aquaman / Аквамен (Original Motion Picture Soundtrack) (2018) [MP3|320 кб/с]<Soundtrack>
@@ -720,38 +755,6 @@ Amy Lynne Johnson - Piano Poetry, Vol. 2: Music to Calm the Mind and Lift the He
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0CC3278BB5A3E45B82288328B785694CBFD115B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 69832   (216732) от 12.12.2012
-
-Tony O'Connor - 26 albums (1989-2007)[MP3|192-320 kbps]<New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_216732.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Horizon Blue (9:19)
-02. Cascade (7:33)
-03. Lilypond (7:06)
-04. Quietude (6:00)
-05. Somewhere (6:53)
-06. Perido a Tiempo (7:42)
-07. When We Sail Away (9:16)Жанр: New AgeПродолжительность: 00:53:50
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

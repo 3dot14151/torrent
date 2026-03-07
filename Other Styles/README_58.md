@@ -1,3 +1,32 @@
+###  Публикация: 1022285   (729765) от 01.06.2016
+
+Emily Rowe - Daydream (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Violin>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_729765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forever [00:03:39]
+02. Midnight [00:04:29]
+03. Daydream [00:04:38]
+04. Brilliant [00:03:48](   Читать дальше...   )Жанр: New Age, Piano, ViolinПродолжительность: 00:40:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1A80EA0E3365F003C69CAB6C98F94F5B5E79E58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1127928   (729742) от 23.04.2017
 
 VA - Los clasicos argentinos - Tango - Vol.15 - Hugo Del Carril: El cantor del pueblo (1996) [MP3|192 Kbps] <Tango>
@@ -721,35 +750,6 @@ Yanni - The Dream Concert: Live from the Great Pyramids of Egypt (2016) [FLAC|Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A019B44CDD7A877C3006D08229A4EC6A80D8733
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023012   (726072) от 04.06.2016
-
-Steve Jablonsky - Teenage Mutant Ninja Turtles: Out of the Shadows (Music from the Motion Picture) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726072.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Squirrel Formation (03:02)
-02. Shredder (03:38)
-03. Tartaruga Brothers (03:00)
-04. Baxter Stockman (02:25)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:09:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6A6DBB8F52BF45108E2088CA6E29C8F0881199A
 ```
 
 https://mybot314.ru/tekegram_catalog/

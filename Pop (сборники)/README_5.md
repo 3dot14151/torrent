@@ -1,3 +1,73 @@
+###  Публикация: 602693   (997582) от 13.01.2013
+
+VA - Muz Эйфория Зимы (2013) [MP3|256 кб/с]<Pop,Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_997582.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dmitriy Gordov Feat. Maryana Dan - Love Station (Radio Edit)
+002. Cara Lee - The Sax Man (Radio Edit)
+003. Linda Jo Rizzo - You're My First, You're My Last 2k13 (New Radio Edit)
+004. Roma Pafos feat. Sarkis Edwards - Say Goodbye (Sensetive5 Radio Edit)
+005. Modana & Carlprit - Hot Spot (Radio Edit)
+006. Gummibar - Gummy Style
+007. Kelly Clarkson - Catch My Breath
+008. Shockolady Feat. Mr. Smith - I Like It Like That
+009. Basto - I Rave You (Original Mix)
+010. Christopher S Feat. Max Urban - Star (Radio Edit)(   Читать дальше...   )Жанр: Pop,DanceПродолжительность: 06:12:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D3E6050BB4951D9009ECF8C7BCC8D92E55AFE4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 602777   (997579) от 13.01.2013
+
+VA-Зимняя русская best-of-ка (2013) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_997579.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Electrofashion Feat. Mc Жан - Пришелец
+ 002. Вне Времени - Не Звони Мне
+ 003. В Двух Шагах - Сердце
+ 004. Elvira T - Одержима
+ 005. Макс Барских - Supermassive Black Hole
+ 006. Ранетки - Ревность
+ 007. Ирина Кулькова - Я Искала Тебя
+ 008. Натаника - Налетели
+ 009. Светлана Разина - Радио НАХ
+ 010. Isamin - О Тебе(   Читать дальше...   )Жанр: PopПродолжительность: 06:05:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D07DF64F905CC6395D62160E861DDABEDD8E48CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 602763   (997547) от 13.01.2013
 
 VA-Зажигательные Зимние Хиты (2013) [MP3|256 кб/с]<Pop>
@@ -825,70 +895,6 @@ VA - German Top 100 Single Charts 17.01.2020 [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A1FC30887210B76F2EEFB79AA03C06FA3A8D813
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 432220   (990633) от 06.01.2012
-
-VA - Дискотека Зеленоглазое Такси Золотой выпуск (2012) [MP3|224 kbps]<Dance, Club>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990633.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reflex - Я Небо Разбила (Ural DJs Remix)
-02. Ottawan vs. Peppermint - Hands Up 2011 (DJ Tank New Year Mash-Up Mix)
-03. Hi-Fi - Седьмой Лепесток (DJ Siluyanova Radio Edit)
-04. DJ Joyint & Yaroslav Stakhovskiy - Secret Land (Radio Edit)(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 07:20:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:656281419882126BED621EF14D8E786DF6A6741D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 610621   (990497) от 29.01.2013
-
-VA - Клубная Zона №3 (2013) [MP3|256 кб/с]<Pop,Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990497.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Никита - Танец В Темноте (Andrey Keyton Official Remix) (Radio Edit)
-02. Слава - Люди Любят (Dj Vengerov Remix)
-03. Нюша - Ты Слишком Сильный (Ural Djs Dance Mix)
-04. Женя Вилль - Ты Для Меня (Alexey Frolof Remix)
-05. Martin Solveig - The Night Out (Madeon Remix)
-06. Rico Bernasconi - Hit The Dust '12 (Official Video Version)
-07. Амина - Дни-Недели (Dj Nariman Mix)
-08. Global Deejays - Hardcore Vibes (Club Edit)
-09. Karmin - Hello (Laidback Luke Radio Edit)
-10. Voodoo & Serano feat. Ceresia & Ron Carroll - Louder (Club Mix)(   Читать дальше...   )Жанр: Pop,DanceПродолжительность: 06:12:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9607608857BB6CF0394E2059AC292A361E165133
 ```
 
 https://mybot314.ru/tekegram_catalog/

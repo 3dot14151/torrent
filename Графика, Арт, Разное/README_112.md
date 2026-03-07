@@ -1,3 +1,29 @@
+###  Публикация: 1330325   (343425) от 09.10.2019
+
+Desktop Wallpapers Full HD. Part (515) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_343425.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B7BF771FC10CC13534EACF7EE8E26088B7F7E46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1330323   (343421) от 09.10.2019
 
 Desktop Wallpapers Full HD. Part (512) [JPG]
@@ -643,32 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FAE24C441B5134054734A65B8BAA06D109E85720
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 581456   (337700) от 27.11.2012
-
-Демотиваторы '220V' (26.11.12) [Графика]
-
->>Графика, Арт, Разное
->>Интернет-творчество
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337700.jpg" />
-</div>
-
-
-###  Подробнее
-
-Демотиваторы '220V'
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AD93F09F9C1E7E0909131450439ADD0135C77B6
 ```
 
 https://mybot314.ru/tekegram_catalog/

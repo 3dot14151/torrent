@@ -1,3 +1,61 @@
+###  Публикация: 1357011   (975614) от 02.02.2020
+
+VA - German Top 100 Single Charts 31.01.2020 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_975614.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Juju x Loredana - Kein Wort (feat. Miksu & Macloud)
+02. The Weeknd - Blinding Lights
+03. Gzuz - Donuts
+04. Samra & Elif - Zu Ende(   Читать дальше...   )Жанр: PopПродолжительность: 05:13:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BA949361155F6C12B61E341A959CDAA862632BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974251   (975565) от 12.01.2016
+
+VA - Акварели (Super DISCOTEKA 70s|80s) (2016) [MP3|320 кб/с] <Disco, Pop, Dance, Ballad>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_975565.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Boney M. - Rasputin (7:32)
+002. Sabrina - Boys (Sommertime Love) (3:52)
+003. Toni Esposito - Kalimba De Luna (4:59)
+004. Pupo - Burattino Telecomandato (3:01)(   Читать дальше...   )Жанр: Pop, Disco, Dance, BalladПродолжительность: 11:01:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E131BEE5E130D59927A883343615D63A7DCA90B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1357119   (975374) от 02.02.2020
 
 VA - 100 Greatest Modern Pop Songs (2020) [MP3|320 Kbps] <Pop>
@@ -723,64 +781,6 @@ VA - Popular European Mix (2020) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DFC94CED5D240D98309254052BB29190E7D89A29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360935   (955405) от 19.02.2020
-
-VA - Romantic Souls: Popular Lyric Collection (2020) [MP3|320 Kbps] <Pop, Lyric>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955405.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Neron - Decomposing
-02. Hilaa - Naked
-03. Cassidy Janson - Fairytale
-04. 1Team - Not Afraid(   Читать дальше...   )Жанр: Pop, LyricПродолжительность: 04:26:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F22459538E085772FF8FAB7D0E9598CCFF29C413
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088471   (955145) от 01.01.2017
-
-VA - Discoteka 2016 Dance Club. New Year's release (2016) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955145.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ferrazzy - One More Time (Radio Edit) 3:39
-002. Thomas Gold Ft. Jillian Edwards - Magic (Original Mix) 2:51
-003. R3HAB & Skytech - Everything (Extended Mix) 4:15
-004. David Guetta & Cedric Gervais Ft. Chris Willis - Would I Lie To You (Extended Mix) 4:48(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 07:01:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E79F4562AB44C9DF5812192280076B1F8580F77
 ```
 
 https://mybot314.ru/tekegram_catalog/

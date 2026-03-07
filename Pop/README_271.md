@@ -1,3 +1,206 @@
+###  Публикация: 1635604   (232450) от 26.05.2023
+
+Sparks - The Girl Is Crying In Her Latte (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Pop (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_232450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Girl Is Crying In Her Latte (2:57)
+02. Veronica Lake (3:03)
+03. Nothing Is As Good As They Say It Is (3:13)
+04. Escalator (2:57)(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE5632D4AB0FFC53DA73D6BDEB495F16E02F8402
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635608   (232363) от 26.05.2023
+
+Simply Red - Time (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop, Funk, Soul>
+
+>>Pop
+>>Pop (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_232363.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Better With You
+02. Just Like You
+03. Let Your Hair Down
+04. Shades 22(   Читать дальше...   )Жанр: Pop, Funk, SoulПродолжительность: 00:39:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCA3FDF313198B34D764AE87D3AF138B87E8B717
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635521   (232347) от 26.05.2023
+
+CREAM SODA - INTERNET FRIENDS (2023) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_232347.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. ENTER
+2. СЧАСТЬЕ
+3. SLAVIC
+4. ПРАЗДНИК КАЖДЫЙ ДЕНЬ(   Читать дальше...   )Жанр: PopПродолжительность: 00:33:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8695BBBA2A7AC7B341359106A065AD3FC97F68C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1643877   (232340) от 03.07.2023
+
+Marc Fruttero - Miracle (2023) [FLAC|Lossless|tracks] <Pop, Euro Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_232340.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dance With Me Tonight (Extended Version) [00:05:18]
+02. Time On Your Mind (Italo New Generation Long Remix) [00:08:01]
+03. Look In My Heart (Extended Version) [00:07:49]
+04. Love Sign [00:05:05](   Читать дальше...   )Жанр: Pop, Euro DiscoФормат: CD, Album, Limited EditionПродолжительность: 00:58:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47830CF8827C52D51D3DA1808F5DC500D57463A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1646404   (232167) от 14.07.2023
+
+Sko/Torp - Radio Songbook "The Best Of" (1998) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_232167.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.On A Long Lonely Night
+2.Get Ready
+3.Loser's Game
+4.Wheels(   Читать дальше...   )Жанр: PopПродолжительность: 01:11:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12B767D1785CB84AB0211006DC1BB37D42CA85DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1646505   (232138) от 14.07.2023
+
+Cher - It's a Man's World (1995) Deluxe Edition, Remaster, 2023, Warner Records [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_232138.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Walking in Memphis (2023 Remaster) [00:03:55]
+02 - Not Enough Love in the World (2023 Remaster) [00:04:21]
+03 - One by One (2023 Remaster) [00:05:02]
+04 - I Wouldn't Treat a Dog (The Way You Treated Me) (2023 Remaster) [00:03:34](   Читать дальше...   )Жанр: PopПродолжительность: 02:18:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5969663C3083AF60BD52317E90201A4B83B38B6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1647582   (231477) от 19.07.2023
+
+VA - Никита Богословский•Три года ты мне снилась... (2001) [FLAC|Lossless|image + .cue] <Советская эстрада, Ретро>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_231477.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. В. Ободзинский - Вечный вальс
+02. В. Толкунова - Hемое кино
+03. Л. Барашков - Улыбка
+04. С. Лемешев - Помнишь, мама(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 01:08:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:949FCF46A1FCDA9A0AB0C52868A89CC09201BF0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1636569   (231367) от 31.05.2023
 
 Lime - All Studio Albums (1981-2002) Collection [MP3|320 Kbps] <Electronic, Hi NRG, Synth-pop, Disco>
@@ -547,215 +750,6 @@ VA - Pop Music from the 00s (2018) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0541750C0F18ABA1D8F9CDCBC7F948A2CD3D81BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267978   (229711) от 09.12.2018
-
-Marco Mengoni - Atlantico (2018) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229711.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Voglio
-02. Hola (I Say) (feat. Tom Walker)
-03. Buona Vita
-04. Muhammad Ali(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:510CE3FDE9E54CBC26A646AA7C5EC2DDE8D7170D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268248   (229604) от 09.12.2018
-
-Вячеслав Малежик - ВячесLOVE (2018) [MP3|256 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229604.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Лучше поздно, чем никогда
-2. Осенний блюз (feat. Олег Завьялов)
-3. Вот опять окно
-4. Високосный год(   Читать дальше...   )Жанр: PopПродолжительность: 00:59:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFA087181C43D4FC37D88CA61FAA0146F2090FF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268162   (229487) от 09.12.2018
-
-Rouge - 1 Album, 5 Singles & EPs (1985-1988) (ex. Arabesque) [MP3|320 Kbps] <Electronic, Disco, Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229487.jpg" />
-</div>
-
-
-###  Подробнее
-
-Немецкая группа «Rouge» была создана в 1985 году . Две участницы бывшего популярного трио Arabesque Ясмин Феттер и Михаэла Розе решили продолжить петь дуэтом. Ясмин и Михаэла выпустили один альбом и несколько синглов, но им не удалось достичь популярности Arabesque, и в 1988 г. группа Rouge распалась.Список альбомов:
-1985 - I Wanna Take Your Body
-1986 - Remember The Leader Of The Pack
-1987 - Einer Von Uns(   Читать дальше...   )Жанр: Electronic, Disco, PopПродолжительность: 01:30:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61432EB00C9F73EFD34619B18A5A617E234B9EBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 586139   (229423) от 08.12.2012
-
-Cascada - It's Christmas Time (iTunes Version) (2012) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229423.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let It Snow (1:50)
-02. Have Yourself a Merry Little Christmas (2:39)
-03. Last Christmas (3:52)
-04. Jingle Bell Rock (2:45)
-05. Santa Clause Is Coming to Town (2:55)
-06. I'll Be Home for Christmas (2:56)
-07. Away in a Manger (3:29)
-08. Somewhere At Christmas Time (3:33)
-09. Winter Wonderland (3:05)
-10. Christmas Song (3:28)(   Читать дальше...   )Жанр: PopПродолжительность: 00:34:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88A12E9C80632E41673AC4A4C50526E30CB886F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268078   (229392) от 09.12.2018
-
-Fancy - D.I.S.C.O. (1999) [FLAC|Lossless|image + .cue] <Euro-Disco, Eurodance>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.D.I.S.C.O. (Lust For Life) 3:32
-02.How Do You Feel Right Now 3:55
-03.Japanese Girl 3:14
-04.When Clowns Cry 3:51(   Читать дальше...   )Жанр: Euro-Disco, EurodanceПродолжительность: 00:59:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D223E415F68D12ABC4AFC8B872187E9CAB6C4781
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512803   (229356) от 26.11.2021
-
-Soccer - Soccer (1979) [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229356.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come And Get It On (7:01)
-02. Dancing Game (5:10)
-03. Arena (5:09)
-04. Give Me Your Love (6:40)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:34:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FF70681CBF763D1FCB8CF22E0B4B7AF7AC83E72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268231   (229295) от 09.12.2018
-
-VA - Now That's What I Call Music! 101 (2018) Box Set, 2CD, UK Series [FLAC|Lossless|tracks + .cue] <Rock, Reggae, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229295.jpg" />
-</div>
-
-
-###  Подробнее
-
-И так, 23 ноября 2018 г. вышел очередной сборник новинок из топов Великобритании и Ирландии. Не путайте с такой же серией из USA. Здесь действительно собрали всех тех исполнителей, которые занимали верхние строчки таблицы популярности на протяжении последних нескольких месяцев. Официальный трейлер к этому сборнику сможете посмотреть внизу. А теперь наслаждайтесь (   Читать дальше...   )CD1:
-01. Little Mix feat. Nicki Minaj - Woman Like Me  (3:50)
-02. Calvin Harris & Sam Smith - Promises  (3:35)
-03. Ariana Grande  - God is A Woman  (3:17)(   Читать дальше...   )Тип издания: 2 × CD, CompilationРелиз состоялся: 23 ноября 2018 г.Жанр: Rock, Reggae, PopПродолжительность: 02:38:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:414AA21B324F5778290F227DAD3298F0D757A75F
 ```
 
 https://mybot314.ru/tekegram_catalog/

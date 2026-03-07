@@ -1,3 +1,61 @@
+###  Публикация: 1062661   (439413) от 14.10.2016
+
+VA - Живи стильно! Наслаждайся музыкой с Hit Fm. Русский сборник (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_439413.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Алла Пугачева - Под Одним Флагом
+002. Марсель - Здравствуй Мам
+003. Алена Валенсия - Воспоминания
+004. Даниил Якубович - Люби Любя(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59A74378AC6B0FEC5594DDAC439E3213639E1E1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1062791   (439245) от 14.10.2016
+
+VA - Любимая Музыка ВКонтакте Октябрь (2016) [MP3|192-320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_439245.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Aaron Static - Amen Tune 6:00
+002.Alan Walker - Faded 3:30
+003.Alekseev - Пьяное солнце 3:42
+004.Alekseev - Снов Осколки 4:03(   Читать дальше...   )Жанр: PopПродолжительность: 06:09:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9964D3B33CD018D2DC303BC5E470F773A0323E49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1062617   (438699) от 14.10.2016
 
 VA - Зайцев.Нет - Лучшие Новинки Октября (2016) [MP3|182~320 Kbps] <Pop>
@@ -711,64 +769,6 @@ VA - Best Of 80s (2016) [MP3|320 Kbps] <Pop, Disco, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E952882087536BDC696EF9A19E2E7DC445A536D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410760   (431920) от 23.09.2020
-
-VA - Yellow Day: Pop Folk Music (2020) [MP3|320 Kbps] <Pop, Folk, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431920.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Vroni - Ohne Spa Kein Fun
-002. Miane - Fo Nou Lé Soudé
-003. Panagiotis Labouras - Peplo
-004. T.T. Purontaka - Mun(   Читать дальше...   )Жанр: Pop, Folk, DanceПродолжительность: 10:52:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A773A14DF735A2C36A2582E9A76D6C8E86917F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571584   (431690) от 22.08.2022
-
-Avalanche - Compilation (2022) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431690.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Always
-02. Once Upon a Time
-03. If You Ever Want to Love Again
-04. All Blame on Love(   Читать дальше...   )Жанр: PopПродолжительность: 00:35:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB7BBEAEA9D96CB006E97DF27C7B698634CCEA41
 ```
 
 https://mybot314.ru/tekegram_catalog/

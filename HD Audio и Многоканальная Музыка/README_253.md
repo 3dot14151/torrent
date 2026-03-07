@@ -1,3 +1,177 @@
+###  Публикация: 1812094   (7976) от 13.08.2025
+
+Beguiled - Rise of the Winged Demons (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_7976.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Time Machine (8:51)
+02.  Children of the Light (7:06)
+03.  Brand New Day (6:08)
+04.  Rise of the Winged Demons (8:28)(   Читать дальше...   )Жанр: RockПродолжительность: 00:52:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:336C1183A2FC611C7FCA0F7B7C7732E17A71C62D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812093   (7974) от 13.08.2025
+
+Bad Debts - Under Kalimna Skies (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_7974.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  20 Miles (4:24)
+02.  Drivin' (2:22)
+03.  Stranger In An Empty Town (3:05)
+04.  Harlequin Days (3:43)(   Читать дальше...   )Жанр: RockПродолжительность: 00:44:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D57D16711D1890F7764221B91DC5132FB55D88AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812369   (7864) от 14.08.2025
+
+The Vesterbros - Smooth Soul Jazz Cafe, Vol. 1 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_7864.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Velvet Skyline (4:57)
+02. Midnight Indigo (4:07)
+03. Smoke Rings (3:37)
+04. Lantern Glow (5:21)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:00:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2D77B0406291FC7363CA1B3A15BD8AAA9B8D8F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812366   (7845) от 14.08.2025
+
+Rudy Rock - Cool Licks (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_7845.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Midnight Crosswalk (5:09)
+02. Neon Boulevard (4:58)
+03. Last Train to Uptown (4:23)
+04. After Hours in Harlem (5:45)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:34:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40A4296F057F97578CBB18D955697D5E13DB87F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812333   (7836) от 14.08.2025
+
+Herman Frank - Studio Albums (5 releases) (2009-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_7836.jpg" />
+</div>
+
+
+###  Подробнее
+
+Герман Франк — немецкий музыкант, гитарист, продюсер, известен своим участием в рок-группе Accept.2009 - Loyal To None
+2012 - Right In The Guts
+2016 - The Devil Rides Out
+2019 - Fight The FearЖанр: Heavy MetalПродолжительность: 05:05:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C943394C97F4DCDBFDFA5366DA7452CE81E08A17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812636   (7692) от 15.08.2025
+
+The Cranberries - No Need To Argue (1994) 30th Anniversary / Super Deluxe Edition, Remastered 2020, 2025, Island Records [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock, Alternative Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_7692.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Ode To My Family (Remastered 2020) [4:31]
+02 - I Can't Be With You (Remastered 2020) [3:08]
+03 - Twenty One (Remastered 2020) [3:08]
+04 - Zombie (Remastered 2020) [5:06](   Читать дальше...   )Жанр: Rock, Alternative RockПродолжительность: 02:46:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEBE033FF1273B70A39416F165B58A895D8FD9D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1812607   (7691) от 15.08.2025
 
 Maroon 5 - Love Is Like (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop, Pop Rock>
@@ -572,180 +746,6 @@ Filter - The Algorithm (Ultra Edition) (2025) [FLAC 24/96|Lossless|WEB-DL|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C041743DBED4C680ECA7D2328ED916FC2D27F4E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813333   (7043) от 18.08.2025
-
-VA - Soul and Funky Stars (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Soul, Funk>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7043.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  The Five Shots - Friends Forever (4:04)
-02.  The Motion Groove Ensemble - Funky Manifesto (3:45)
-03.  The Night Bros - Silver and Gold (3:45)
-04.  The Soul Inferno Brothers - Funky Fever (3:22)(   Читать дальше...   )Жанр: Soul, FunkПродолжительность: 01:09:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95886835C1C0796D946C4230A058A8F009F2FDB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813219   (7037) от 18.08.2025
-
-Architects - Studio Albums (12 releases) (2006-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7037.jpg" />
-</div>
-
-
-###  Подробнее
-
-Architects — металкор-группа, сформирована в 2004 году в Брайтоне, Восточный Сассекс, Англия.2006 - Nightmares
-2007 - Ruin
-2009 - Hollow Crown
-2011 - The Here And Now(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 09:31:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A892276B5387AC3A070AE92593EC742A57CE13C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813321   (7035) от 18.08.2025
-
-Kai Craig - A Time Once Forgotten (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7035.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Namesake (4:57)
-02.  When You Dream (4:11)
-03.  Phantom of the Bopera (4:26)
-04.  Dry Stone (6:08)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:39:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27FE01AD6F54C516AECB5827104AB689CF9A50E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813290   (7034) от 18.08.2025
-
-Aaron Searle - In Idle Hours (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7034.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  El Puente Azul (4:35)
-02.  In Idle Hours (9:51)
-03.  Tango for the Faint of Heart (6:01)
-04.  Bluesology (9:21)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:47:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5F771F14D619B5E10169C406AD24E90E97F9C69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813301   (7033) от 18.08.2025
-
-El Jetta - Monkeys Do What They See (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7033.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Spiteful Man (3:53)
-02.  Sleep On (5:30)
-03.  Monkeys Do What They See (4:49)
-04.  Blot Out (3:44)(   Читать дальше...   )Жанр: RockПродолжительность: 00:30:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B2C7A81C43625D12C88AE6DD7FC48E92BFB6096
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813232   (7032) от 18.08.2025
-
-Byzantine - Studio Albums (8 releases) (2004-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Groove/Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7032.jpg" />
-</div>
-
-
-###  Подробнее
-
-Byzantine — американская метал-группа из Чарльстона, Западная Вирджиния, образована в 2000 году.2004 - The Fundamental Component
-2005 -...and They Shall Take Up Serpents
-2008 - Oblivion Beckons
-2013 - ByzantineЖанр: Groove/Thrash MetalПродолжительность: 06:24:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:030FD15EB786615F6D0333359BC4EEC8000E4BDE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,171 @@
+###  Публикация: 867374   (419985) от 16.10.2015
+
+Scorpions - Blackout (1982) [FLAC 2.0 24/192|tracks(Vinyl-Rip)]<Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_419985.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. Blackout  3:50
+2. Can't Live Without You  3:46
+3. No One Like You  3:56(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7EDA1EB2ACBA3F8DEB7DD72295FEEC0A2FC80DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 701409   (419900) от 16.10.2015
+
+The Beatles - Abbey Road (1969) [FLAC 2.0 24/192|tracks(Vinil-Rip)]<Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_419900.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. Come Together 4:18
+2. Something 3:02
+3. Maxwell's Silver Hammer 3:26(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:47:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EADE00AC4898961D3DE902F3404227D83613B06B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 247894   (419157) от 20.10.2010
+
+Alan Parsons Project - The Turn of a Friendly Card [DTS CD from DVD-Audio) (1980) <Art Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_419157.jpg" />
+</div>
+
+
+###  Подробнее
+
+1  May Be A Price To PayЖанр: Art RockПродолжительность: 00:41:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1324794   (418846) от 12.09.2019
+
+Wanda Jackson & Karel Zich - Let's Have A Party In Prague (1988) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Rock & Roll>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_418846.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side 1:
+01. Let's Have A Party
+02. Long-Legged Guitar Picking Man
+03. Losing Game(   Читать дальше...   )Жанр: Rock & RollПродолжительность: 00:37:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ABE2B3FAE979738E819F01AD605CAD9AD7FE355
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 710422   (418629) от 13.10.2013
+
+Б.Г. - Русский альбом (1992) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Рок>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_418629.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Архистратиг (1:12)
+A2. Никита Рязанский (2:38)
+A3. Государыня (3:03)
+A4. Ласточка (3:51)(   Читать дальше...   )Жанр: РокПродолжительность: 00:40:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA81DF2A22CC0BC1268C2A7116831EC7F6A1E316
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 556487   (418411) от 08.10.2012
+
+Peter White - Glow (2001) [DTS 5.1 44.1/16 | .wav+.cue (SACD)] <Smooth Jazz, Guitar Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_418411.jpg" />
+</div>
+
+
+###  Подробнее
+
+01  Chasing The DawnЖанр: Smooth JazzПродолжительность: 00:50:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70A114C4DBFB5942B27E22911D08EA016F1DB078
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1065660   (416484) от 24.10.2016
 
 Зоопарк - Позавчера... и вчера - уездный город N (1991) [WavPack|192/32|tracks|Vinyl-Rip] <Blues Rock>
@@ -582,215 +750,6 @@ Calling All Stations - пятнадцатый и последний студий
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A377301DE424163F43ACE17D91F90E45F1E903E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570577   (387342) от 07.11.2012
-
-Steve Strauss - Just Like Love (2005) [DST 5.1, 2.0 1bit/2822,4kHz |SACD-R]<Acoustic Guitar>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387342.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just Like Love
-02. Angel
-03. Youngstown
-04. Old Crow
-05. Dead Man’s Handle
-06. Jennie Mae
-07. Brother Mule
-08. Sunday Best
-09. The Dirt
-10. Lord Franklin(   Читать дальше...   )Жанр: Acoustic GuitarПродолжительность: 00:64:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:924836D0767049A6BA00D4958ACAB9BFC90AC248
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570603   (387222) от 07.11.2012
-
-Kodo - Mondo Head (2001) [DST 5.1, 2.0 1bit/2822,4kHz |SACD-R]<World music>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387222.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Berimbau Jam - 03:34
-2. Sange - 03:34
-3. Okesa Prayer - 06:46
-4. Wataru - 02:47
-5. Maracatú - 05:13
-6. Psychopomp - 03:26
-7. Daraijin - 06:36
-8. Oya y Ogun - 04:17
-9. Echo Bells - 05:22
-10. Kashira - 04:07(   Читать дальше...   )Жанр: World musicПродолжительность: 00:53:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16F302003D0FA60D914F2D5E554933E8BDFC54D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570616   (387218) от 07.11.2012
-
-Los Angeles Guitar Quartet - LAGQ’s Guitar Heroes (2004) [DST 5.1, 2.0 1bit/2822,4kHz |SACD-R]<Classical, Jazz, Blues, Folk-Rock>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387218.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ralph Towner – Icarus - 3:31
-2. Norman Blake & David Bromberg – B & B - 4:18
-3. John McLaughlin – We Know You Know: Reverie For Mahavishnu - 5:02
-4. Jimi Hendrix – Pluck, Strum, And Hammer - 4:15
-5. Pat Metheny – Letter From Home - 3:25
-6. Assad Duo – Uarekena - 8:19
-7. Steve Howe – Aire Para Un Día (Mood For A Day) - 4:13
-8. Django Reinhardt – Gypsy Flower - 5:58
-9. Duane York – Pop - 2:16
-10. Los Romeros – El Baile De Luis Alonso - 3:22(   Читать дальше...   )Жанр: Classical, Jazz, Blues, Folk-RockПродолжительность: 01:00:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:599FB8A3785DF5DF0A7FF4FBD4BAF654A104FFD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570584   (387197) от 07.11.2012
-
-Meat Loaf - Bat Out Of Hell (1977) [DST 5.1, 2.0 1bit/2822,4kHz |SACD-R]<Hard Rock, Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387197.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Bat Out Of Hell
-2. You Took The Words Right Out Of My Mouth (Hot Summer Night)
-3. Heaven Can Wait
-4. All Revved Up With No Place To Go
-5. Two Out Of Three Ain’t Bad
-6. Paradise By The Dashboard Light
-7. For Crying Out Loud
-8. Great Boleros Of Fire (Live Intro)
-9. Bat Out Of Hell (Live)Жанр: Hard Rock, Progressive RockПродолжительность: (2.0 / 5.1): 01:01:29 / 01:01:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F9882744F3AC91240F8CAA9762B6D16AEE5DF1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570626   (387069) от 07.11.2012
-
-Los Angeles Guitar Quartet - Spin (2006) [DSD 2.0 / DST 5.1|1bit/2822,4kHz|SACD-R]<Classical, Latin, Acoustic>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387069.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turn to the Sea 03:41
-02. Hidden Realm of Light 02:21
-03. Spin 07:07
-04. Freaky Dancer 06:30
-05. Quiccan 06:12
-06. Night Furniture – Pillow Pretending 03:09
-07. Night Furniture – Chair with Hands for Feet 01:47
-08. Night Furniture – Shadowed Credenza 02:39
-09. Catwalk 01:50
-10. Did You See the Moon Last Night? 06:00(   Читать дальше...   )Жанр: Classical, Latin, AcousticПродолжительность: 01:04:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E48B53F6E901AA76112535629AA05EC8E27217C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 568319   (386912) от 07.11.2012
-
-Bon Jovi - This Left Feels Right (2003) [DST 5.1, 2.0 1bit/2822,4kHz |SACD-R]<хард-рок, глэм-метал, хеви-метал>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_386912.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wanted Dead Or Alive (03:44)
-02. Livin' On A Prayer (03:41)
-03. Bad Medicine (04:27)
-04. It's My Life (03:42)
-05. Lay Your Hands On Me (04:27)
-06. You Give Love A Bad Name (03:30)
-07. Bed Of Roses (05:38)
-08. Everyday (03:45)
-09. Born To Be My Baby (05:28)
-10. Keep The Faith (04:12)(   Читать дальше...   )Жанр: хард-рок, глэм-метал, хеви-металПродолжительность: 00:51:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:107E3308643813FECE94E98DCCE52340665F24B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

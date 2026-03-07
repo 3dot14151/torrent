@@ -1,3 +1,84 @@
+###  Публикация: 1351181   (1002393) от 09.01.2020
+
+3D модели - Daz 3D - Jenni 8 Pro Bundle - 65275 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002393.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплект Jenni 8 для DAZ 3D из категории People.
+Для Genesis 8Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A2EDB0F1CD836F292FF6BB7976C54B1357BF13E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351230   (1002391) от 09.01.2020
+
+3D модели -  Daz 3D - Leisa 8 Pro Bundle - 64959 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002391.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплект Leisa 8 для DAZ 3D из категории People.
+Для Genesis 8Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C40517042B130C7C40AEE9A27E6E88B5ADFE5183
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351176   (1002387) от 09.01.2020
+
+3D модели - Daz 3D - dForce Rebel Yell Outfit Textures - 62723 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002387.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор текстур для dForce Rebel Yell Outfit for Genesis 8 Female(s) из категории Clothing.
+Для Genesis 8Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEBD7810E3B7429F72086131C825B58DAFB5A2C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1351175   (1002385) от 09.01.2020
 
 3D модели - Daz 3D - Teen Raven 8 Pro Bundle - 64045 [DUF]
@@ -605,86 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:156D4ED74F3894FD1854D80DFCCEF06086688482
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353970   (989593) от 20.01.2020
-
-3D модели - Evermotion - Archmodels vol. 152 [Mental Ray|V-Ray|*.max, C4D, FBX, OBJ, RFA, IES]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989593.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередной сборник 3d моделей от Evermotion!
-Впервые сборник предоставляется бесплатно. В данный сборник вошли 76 моделей освещения от компании LUG в стиле модерн.Формат: Mental Ray|V-Ray|*.max, C4D, FBX, OBJ, RFA, IES
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6C5E6D53F40CEB335A972AF6C91A2714A309675
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354242   (988804) от 21.01.2020
-
-3D материалы - Megascans Displacements- All 52 Maps 4K [JPG, EXR]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988804.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка из 52-х 3D материалов со всеми картами и самом высоком разрешении.Формат: JPG, EXRРазрешение файлов: 8192x8192
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E030D361F0F09B782F504EAEF8BE62730836077
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354411   (987710) от 22.01.2020
-
-3D модели - Сборка военной техники из игр [MAX, OBJ, 3DS, DWG, FBX, W3D, GMAX, MA, SMD, ASSET, META, C4D, P3D]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987710.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник разной военной техники из таких игр как World of Tanks, Men of War: Assault Squad 2, Spintires, Metro: Exodus, Call of Duty: Modern Warfare Remastered, S.K.I.L.L. - Special Force 2 и т.д.
-190штФормат: MAX, OBJ, 3DS, DWG, FBX, W3D, GMAX, MA, SMD, ASSET, META, C4D, P3D
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA0DEF5A7F39773EB170056D933570C97B529D21
 ```
 
 https://mybot314.ru/tekegram_catalog/

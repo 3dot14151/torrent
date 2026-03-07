@@ -1,51 +1,22 @@
-###  Публикация: 885441   (802973) от 05.04.2015
+###  Публикация: 1119912   (805254) от 29.03.2017
 
-Сфера / Sphere (1998) DVDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802973.jpg" />
-</div>
-
-
-###  Подробнее
-
-Глубоко под водами Тихого океана американским официальным службам удалось обнаружить возможно величайшую в истории человечества находку – огромный космический корабль, рухнувший в пучины 300 лет назад. Каково происхождение этого корабля. Возможно, на нем сохранился некий разум? Членам элитной подводной экспедиции, поручено дать ответы на эти вопросы. Фильм «Сфера», (   Читать дальше...   )Производство: США, Warner Bros. Pictures, Baltimore Pictures, Constant c Productions, Punch Productions Inc.Жанр: Фантастика, ТриллерРежиссер: Бэрри ЛевинсонАктеры: Дастин Хоффман, Шэрон Стоун, Сэмюэл Л. Джексон, Питер Койот, Лив Шрайбер, Куин Латифа, Марга Гомез, Хьюи Льюис, Бернард Хок, Джеймс Пикенс мл., Майкл Кис Холл, Ральф Табакин, Антонио ЛаБелльПеревод: ДублированныйПродолжительность: 02:08:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02CFC7F21CB429A90B6CD3AE7724DF156A196E72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199065   (802966) от 14.01.2018
-
-Горные лыжи. Кубок мира 2017–2018. Аделбоден (Швейцария). Мужчины. Слалом (07.01.2018) WEB-DL [H.264/720p-LQ] [hand made 50fps]
+Когда прошлое впереди (2016) WEB-DLRip [H.264/720p-LQ] (серии 1-12 из 12)
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802966.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_805254.jpg" />
 </div>
 
 
 ###  Подробнее
 
-07 января 2018 года, воскресенье. 12:30 МСК
-Этап Кубка мира по горнолыжному спорту сезона 2017-2018 года
-Аделбоден (Швейцария).
-Мужчины. СлаломТелекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:18:46
+У Тамары Ерошиной самые обычные мечты: карьера врача в столице, счастливая семья… Однажды она знакомится с сыном мэра города Сергеем Лупаревым и выходит за него замуж. Но семейная жизнь оказывается кошмаром. Не в силах терпеть побои и унижения мужа, Тамара убегает из дома. Надежду на то, что ей удастся начать новую жизнь, разбивает страшная новость о том, что Сергея (   Читать дальше...   )Производство: Украина / FILM.UA GroupЖанр: мелодрамаРежиссер: Наталья УглицкихАктеры: Елизавета Пащенко, Олег Штефанко, Игорь Бочкин, Елена Стефанская, Петр Крылов, Александр Попов, Виталий Салий, Игорь Шкурин, Владислав Мамчур, Михаил Жонин и др.Язык озвучки: русскийПродолжительность: ~00:45:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ADE367174D200CDA29C695C65144156D0FE5C875
+magnet:?xt=urn:btih:E25D27FB16BBEB8C1E49239C2C5E0C0547833946
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,114 +24,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199056   (802965) от 14.01.2018
+###  Публикация: 1119785   (805253) от 29.03.2017
 
-Биатлон. Кубок Мира 2017-2018. 5-й Этап. Рупольдинг (Германия). Женщины. Эстафета (13.01.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802965.jpg" />
-</div>
-
-
-###  Подробнее
-
-13 января 2018 года, суббота. 16:30 МСК
-5-й этап Кубка Мира по биатлону 2017-2018. Рупольдинг (Германия)
-Женщины. Эстафета 4x6 кмТелекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:22:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7825432930E0C3848CECF15F10DFC3C253FBD79C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199037   (802964) от 14.01.2018
-
-Julian Cannonball Adderley and Strings (1955) 1988, Emarcy [WavPack|Lossless|image + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802964.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Cover the Waterfront [02:32]
-02. A Foggy Day [02:46]
-03. Surrey with the Fringe on Top [02:36]
-04. Two Sleepy People [03:05](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:32:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DB781AD75084E742B91A75D253EC80C94C03156
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505688   (802963) от 28.10.2021
-
-Sadao Watanabe - Minha Saudade (2001) Universal [FLAC|Lossless|tracks + .cue] <Bossa Nova, Crossover Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802963.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Manha de Carnaval [5:40]
-02. Samba em Preludio [5:42]
-03. Child's Play [3:49]
-04. Talk to the Moon [5:54](   Читать дальше...   )Жанр: Bossa Nova, Crossover JazzПродолжительность: 00:54:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:825938AD04EA155286E66A7201E81BDFF86DE451
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505531   (802962) от 28.10.2021
-
-The Alan Parsons Project - Tales of Mystery and Imagination : Adgar Allan Poe (1976) Remastered, 1987,  Mercury [FLAC|Lossless|image + .cue] <Art Rock, Prog Rock>
+VA - Rock And Roll Music! The Songs Of Chuck Berry (2017) [FLAC|Lossless|WEB-DL|tracks] <Rock'n'Roll, Classic Rock, British Beat>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802962.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_805253.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Alan Parsons добился высокой репутации студийного мастера совместной деятельностью с самыми выдающимися исполнителями на рубеже 60-70-х годов. Свою карьеру в студии он начал, когда Beatles взялись за работу над альбомом Abbey road. В 1971 году Alan появился в качестве звукорежиссера у Paul McCartney на записи Wild Life и Red Rose Speedway, однако свое настоящее "боевое (   Читать дальше...   )01. A Dream Within a Dream (instrumental) (4:13)
-02. The Raven (3:57)
-03. The Tell-Tale Heart (4:38 )
-04. The Cask of Amontillado (4:33)(   Читать дальше...   )Жанр: Art Rock, Prog RockПродолжительность: 00:42:41
+01.  Helene Dixon - Roll Over Beethoven  2:38
+02.  The Swinging Blue Jeans - Around And Around  2:11
+03.  Ken Colyer's Skiffle Group - Down Bound Train  2:42
+04.  Marty Robbins - Maybelline  2:31(   Читать дальше...   )Жанр: Rock'n'Roll, Classic Rock, British BeatПродолжительность: 01:06:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AD74E3E1BAC4227DAE2CA01804AC315BF2BE213E
+magnet:?xt=urn:btih:04EB2F5793A1C78D0D7FD38E274EB6961EC29413
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -168,28 +53,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198766   (802961) от 14.01.2018
+###  Публикация: 1119940   (805252) от 29.03.2017
 
-VA - Black Hole House Music 01-18 (2018) [MP3|320 Kbps] <House>
+Акваланги на дне (1965) DVDRip
 
->>Electronic
->>House
+>>Видео, Кино и Сериалы для детей и родителей
+>>Отечественные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802961.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_805252.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Roger Shah & Aisling Jarvis  -  Call Me Home (Extended Mix)  9:16
-02.  Reddfield  -  You’ll Feel Love (Original Mix)  6:48
-03.  Alain Ducroix & NotAndrew  -  Unstoppable (Extended Mix)  4:04
-04.  Kokaholla & Quinn Bates  -  Lucky Ones (Original Mix)  3:47(   Читать дальше...   )Жанр: HouseПродолжительность: 01:26:23
+В пограничном приморском поселке идут съемки приключенческого фильма. Режиссер картины просит найти из местных подростков хорошего пловца, чтобы помочь в работе. Ромку Марченко, как самого лучшего, пригласили в качестве дублера исполнителя главной роли. Мальчик с радостью принимает предложение сниматься в кино. В первый съемочный день, заметив на пляже след нарушителя (   Читать дальше...   )Производство: CCCP, Киностудия им. Александра ДовженкоЖанр: Криминал, Приключения, СемейныйРежиссер: Евгений ШерстобитовАктеры: Саша Барсов, Таня Клюева, Рафик Сабиров, Володя Бедункевич, Шурик Харитонов, Олег Быков, Геннадий Юхтин, Владимир Кисленко, Лев Перфилов, Александр ГайСубтитры: отсутствуютПродолжительность: 01:20:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3C3A7436D8080CA525FD73134484A35F84A79B0F
+magnet:?xt=urn:btih:F6D8DCA854D6846D6828AB546EF9CB6C302AEB8B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -197,28 +79,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505582   (802960) от 28.10.2021
+###  Публикация: 1119935   (805251) от 29.03.2017
 
-NDKH - If Heaven Is A Lie (2021) [MP3|320 Kbps] <Progressive Metalcore, Deathcore>
+Роберт Киркман, Джей Бонансинга | Вторжение (2017) [FB2]
 
->>Rock, Alternative, Punk, Metal
->>Metal
+>>Художественная литература
+>>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802960.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_805251.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  - Trauma , [02:22]
-02.  - Behelit (feat. FRCTRD) , [04:50]
-03.  - Adonis (feat. Child Of Waste) , [04:30]
-04.  - El Dj0ntos , [05:47](   Читать дальше...   )Жанр: Progressive Metalcore, DeathcoreПродолжительность: 00:43:28
+Пятый роман цикла «Губернатор» из серии «Ходячие Мертвецы».
+
+Вудбери пал. Под землей, в лабиринте древних шахт и тоннелей, Лилли Коул во главе группы стариков, неудачников и детей борется за то, чтобы построить новую жизнь. Но в душе Лилли все еще горит тайное стремление освободить любимый город от кровожадных орд. А где-то далеко, в самом центре растущей волны ходячих, (   Читать дальше...   )Жанр: Зарубежная фантастика, Зарубежное фэнтези, Зарубежные детективы, Триллеры, Ужасы и МистикаФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D9F634691378AC302395E3A668296AF87F3D0DD0
+magnet:?xt=urn:btih:F1856383DD66BEBFDEB5D38D61DAF020D5584DB8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -226,54 +107,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198837   (802959) от 14.01.2018
+###  Публикация: 1120120   (805250) от 29.03.2017
 
-VA - Best Of LW Tech House II (2018) [MP3|320 Kbps] <Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802959.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  CamelPhat  -  Under The Influence (Original Mix)  6:17
-02.  Charlie Hedges & Ashton Russell  -  These Feelings (Extended Mix)  5:46
-03.  Michael Bibi  -  Magic Carpet (Original Mix)  5:54
-04.  Tommy Vercetti  -  Don't Understand (Original Mix)  6:38(   Читать дальше...   )Жанр: Tech HouseПродолжительность: 03:20:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:883CAFE5C1FB0D033C587C0C90B61DCDCAFB047C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505817   (802958) от 28.10.2021
-
-Мэри Пикфорд. В старом Мадриде / In Old Madrid (1911) WEBRip [PR]
+Наваждение / Obsession (1976) BDRip
 
 >>Классика кино и Старые фильмы до 90-х
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802958.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_805250.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фильм не очень хорошо сохранился. И не всегда понятно, что происходит. Я всё так понял - Хосе знакомится с Зельдой. Взаимные чувства, но родители против. Молодёжь придумывает всякие хитрости, чтобы побыть вдвоем. И в конце концов, Хосе предпринимает решительный шаг и весьма остроумный - вместе с Зельдой он перебирается через бурную горную реку. Родители не могут (   Читать дальше...   )Производство: США, Independent Moving Pictures Co. of America (IMP)Жанр: Комедия, короткометражный, немое киноРежиссер: Томас Х. ИнсАктеры: Мэри Пикфорд, Оуэн МурПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:11:07
+Счастливая жизнь преуспевающего бизнесмена Майкла Кортленда закончилась в ночь, когда были похищены его жена Элизабет и девятилетняя дочь Эми. В письме, оставленном похитителями значилась сумма выкупа, и настоятельная просьба сохранить факт похищения в тайне. Однако на следующий день, услышав на кассете голос испуганной дочери, умоляющей уплатить требуемые деньги, (   Читать дальше...   )Производство: СШАЖанр: Триллер, драма, детективРежиссер: Брайан Де ПальмаАктеры: Клифф Робертсон, Женевьев Бюжо, Джон Литгоу, Ванда Блэкман, Дж. Патрик МакНамара, Стэнли Дж. Рейс, Стокер Фонтелье, Дон Худ ...Перевод: Профессиональный многоголосыйСубтитры: ОтсутствуютПродолжительность: 01:38:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4E211525B23B9130B8C5B1EB48E517CE46089C06
+magnet:?xt=urn:btih:4E51B3B53C76283C8BA14312F3333E18AFA8ACAF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -281,28 +133,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198593   (802957) от 14.01.2018
+###  Публикация: 1119265   (805248) от 29.03.2017
 
-VA - Chilling Me Softly (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+Альберт Андреев | Бесконечность (2017) [MP3]
 
->>Electronic
->>Easy listening
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802957.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_805248.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Active Waves - Cafe Montmatre  03:23
-02. LPA City - Maspalomas Sunset  05:02
-03. Makia Blue - Nauthiz  03:23
-04. Dark and Light - To See You Again  03:37(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 02:58:44
+Чем бы мог заняться человек, если бы жил 3000 лет? А если он к тому же обладает навыками тибетских боевых искусств, дружит с инопланетным существом и может разговаривать с животными.Жанр: ФантастикаПродолжительность: : 02:34:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B731BB1047E41C2DD07FEDE2125970CBD6465045
+magnet:?xt=urn:btih:ED1D9D92E0342A9A823E7BEEE1EDB09055DA9D12
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -310,28 +159,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199043   (802956) от 14.01.2018
+###  Публикация: 1119203   (805247) от 29.03.2017
 
-Cannonball Adderley - Alto Giant (1969) 1996, Nippon Crown [WavPack|Lossless|image + .cue] <Hard Bop, Soul Jazz>
+Иван Кузнецов | Время желаний (2017) [MP3]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802956.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_805247.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Scavenger [11:28]
-02. Sweet Emma [04:21]
-03. Ballads Medley [08:11]
-04. This Here [09:29](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 00:44:01
+Действие романа «Время желаний» происходит незадолго до событий, описанных в романе «Шестой дозор» С.В. Лукьяненко.
+«Пролито не напрасно, сожжено не зря. Пришел первый срок…»
+Тигр ушел. Слова последнего пророчества еще не прозвучали, но тень грядущих перемен уже накрыла мир. Темный маг Юрий, привлеченный Инквизицией для закрытого расследования, пытается найти первопричину (   Читать дальше...   )Жанр: Боевое фэнтези, Городское фэнтезиПродолжительность: 10:46:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:90E763B90FBAE7033F93AA3385AD09B1CE8E729D
+magnet:?xt=urn:btih:75B8E242FD3150328FFAACBBA554C3F6D4CA1B03
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -339,228 +187,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198842   (802955) от 14.01.2018
+###  Публикация: 1119932   (805246) от 29.03.2017
 
-VA - Best Of LW House II (2018) [MP3|320 Kbps] <House, Club, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802955.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Audiowhores  -  Sometimes (Sean Finn Recall)  5:56
-02.  JB & Charlie Hedges  -  Best Night Oml (Pt. 2) (Lindo Martinez Remix)  7:01
-03.  Damon Hess & Emilie Cunliffe  -  Dancefloor (Original Mix)  5:21
-04.  Afrojack  -  Chords (George F, Eran Hersh & Darmon 'Blow Your Mind' Remix)  9:03(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 03:11:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:800C76E3BAF0631BB5173F4E52346DFE863715DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505400   (802954) от 28.10.2021
-
-The Black And Blues Band - Flick The Switch (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock, Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802954.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Flick the Switch (00:04:59)
-02 - Coming Home (00:03:11)
-03 - Where the River Flows (00:04:02)
-04 - Been Down This Road (00:03:50)(   Читать дальше...   )Жанр: Blues Rock, Electric BluesПродолжительность: 00:44:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7D310E65B320E118987A107E44C179A84632AAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198911   (802953) от 14.01.2018
-
-Jeremy Steig - Jigsaw (1992) Triloka Records [FLAC|Lossless|image + .cue] <Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802953.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Washington Place [04:02]
-02. Seascape [04:49]
-03. While My Lady Sleeps [05:53]
-04. Tears For Charlie Street [04:54](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:51:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CE50380C5BC2BC7BF6772F561F22220996325B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505421   (802952) от 28.10.2021
-
-Asoka - 3 albums (1971-2009) [FLAC|Lossless|tracks + .cue] <Prog Rock, Hard Rock, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802952.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа образовалась в начале 70-х в Мальмё, Швеция на обломках группы "Taste Of Blues", позже "Take Off". Трое из членов этих групп - Клас «Clabbe» Эрикссон, Роберт «Роббан» Ларссон и Патрик Эриксон объединились с братьями Кентом «Тджоббе» Бенгтссоном и Альфом «Даффи» Бенгтссон, сформировав группу Асока. В 1971 вышел одноимённый дебютный альбом (   Читать дальше...   )--------------------------
-
-01. Visst är det bättre, men int' är det bra (3:51)
-02. Jag gick mig åt körka (4:32)(   Читать дальше...   )Жанр: Progressive Rock, Psychedelic Rock |Продолжительность: 02:38:00 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57BBEC0224FC56663C22DD99462348EC5119DB1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198644   (802951) от 14.01.2018
-
-VA - Lemongrass Garden Vol.8 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802951.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Marc Hartman  -  Love Can Save The Day (To Roberto Concina)  5:36
-02.  Eskadet  -  Stars In Your Eyes  5:54
-03.  Malkou  -  Chateau De Vincennes  3:49
-04.  Roberto Bronco  -  Rollin  5:02(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:43:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F59583FA9EB9F291BBF9BB8E9CCF210325628B43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505548   (802950) от 28.10.2021
-
-VA - Beatport Hardstyle: Electro Sound Pack #360 (2021) [MP3|320 Kbps] <Hardstyle, Hard Dance, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802950.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alex Fury - Fair Enough
-002. Al Storm - Flashbacks
-003. Rob Iyf & Al Storm - Bitter, Sweet
-004. Korsakoff - Ready To Go(   Читать дальше...   )Жанр: Hardstyle, Hard Dance, ElectroПродолжительность: 07:12:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5F315D3DC176959A78EC4B3F05082B4F1F85C91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198745   (802949) от 14.01.2018
-
-VA - Black Hole Trance Music 01-18 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802949.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Jam & Spoon  -  Odyssey To Anyoona (Markus Schulz vs. Jam El Mar Remix)  4:16
-02.  Alex Karweit  -  Choosing His Angels (Extended Club Mix)  7:33
-03.  Ferry Corsten  -  Wherever You Are (feat. HALIENE) (Solis & Sean Truby Extended Remix)  6:49
-04.  Dirkie Coetzee  -  Nymeria (Extended Mix)  5:34(   Читать дальше...   )Жанр: TranceПродолжительность: 02:38:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7EF61E892EE5A96184BAD86229C6201E78918C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505866   (802948) от 28.10.2021
-
-OmniPlayer Pro - Media Player 1.4.8 [Multi]
+Vivaldi 1.8.770.50 [Multi/Ru]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802948.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_805246.jpg" />
 </div>
 
 
 ###  Подробнее
 
-OmniPlayer Pro для Mac - это универсальный медиаплеер практически для любого видео и аудио формата в macOS. Он обладает мощными функциями с современным и простым интерфейсом. Вы можете использовать его для простого воспроизведения различных HD-видео 4K / 1080P / 720P и обычного / без потерь звука с помощью аппаратного декодирования. Богатые функции OmniPlayer позволяют (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.10.2021Разработчик: Omi Software Studio, Inc.Поддерживаемая ОС: macOS 10.13+Субтитры: ass, ssa, srt, idx и subЯзык интерфейса: Английский, Немецкий и др.
+Vivaldi - браузер от команды разработчиков оригинальной Оперы (версии 12.x) и лично от бывшего гендиректора и сооснователя компании Opera Software Йона Стефенсона фон Течнера.
+Vivaldi — интернет-браузер, созданный компанией Vivaldi Technologies на основе свободного браузера Chromium и движка Blink. Первая тестовая версия стала доступна 27 января 2015 года. В браузер (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E24A9B408CDA5B4B692F1F448F25AE2B77B8DC7E
+magnet:?xt=urn:btih:24C201D47160664B4DFA9DD610BC419B76AB8D78
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -568,28 +214,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198848   (802947) от 14.01.2018
+###  Публикация: 1119256   (805245) от 29.03.2017
 
-York - Peace (2018) [MP3|320 Kbps] <Downtempo, Chillout, Ambient>
+Николай Свечин | Сыщик Его Величества (Книга 8). Варшавские тайны (2017) [MP3, Евгений Покрамович]
 
->>Electronic
->>Easy listening
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802947.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_805245.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Farewell To The Moon  6:33
-02.  Angels Will Help You  5:32
-03.  The Awakening  5:05
-04.  Inmortal  6:21(   Читать дальше...   )Жанр: Downtempo, Chillout, AmbientПродолжительность: 01:16:44
+Цикл современного русского писателя Николая Свечина "Сыщик Его Величества" написан в жанре ретро-детектива и повествует о приключениях талантливого сыщика нижегородской полиции Алексея Николаевича Лыкова. События в начале цикла начинают разворачиваться в 1879 году. Коллежскому асессору Алексею Лыкову не суждено почивать на лаврах, наслаждаясь уютом родного (   Читать дальше...   )Жанр: Исторический детективПродолжительность: 08:34:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:874CA8A0DD372516F8D7A8BB1E099653731BA7B8
+magnet:?xt=urn:btih:750B34878EEFF084042A27EE6ECFD4BCA0EBC48F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -597,27 +240,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505744   (802946) от 28.10.2021
+###  Публикация: 1119975   (805244) от 29.03.2017
 
-С. Тимченко (сост.) | Утешения старца Кирилла (Павлова). Духовные наставления (2018) [PDF, DJVU]
+Идеальная волна / The Perfect Wave (2014) HDRip
 
->>Разное (категория книг)
->>Религиозная литература
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802946.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_805244.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Если по немощи нашей и придётся впасть в те же грехи, в которых милосердие Божие простило нас, то мы не должны отчаиваться. Если и тысячу раз согрешим, но потом опять прибегнем к покаянию, то снова очистимся от скверн и от соделанных нами беззаконий.
-
-Пусть никто не отчаивается в своём спасении, ведь примеры святых указывают нам, что люди всякого сословия и пола (   Читать дальше...   )Жанр: Православие. Духовно-просветительное изданиеФормат: PDF, DJVU
+Ни для кого не секрет, что в сердце каждого человека, который занимается серфингом, живет жажда приключений и стремление быть свободным. И каждый из таких любителей ищет свою идеальную волну. Так, один парень Ян из Новой Зеландии в поисках идеальной волны вместе со своим приятелем отправляется в путешествие к побережьям Австралии, Юго-Восточной Азии и Африки...Производство: ЮАР, Новая Зеландия, ИндонезияЖанр: Драма, Мелодрама, ПриключенияРежиссер: Брюс МакДональдАктеры: Скотт Иствуд, Шерил Лэдд, Патрик Листер, Рэйчел Хендрикс, Скотт Мортенсен, Николай Майнхардт, Диана Викерс, Мэтт Бромли, Рози Ходж, Шон ПэйПеревод: Многоголосый закадровый, любительский (Синема УС)Субтитры: ОтсутствуютПродолжительность: 01:31:59Реклама: Присутствуют аудио и видео вставки рекламы
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3012143FB1FA5C89047B5657C74F04092C6F8EF9
+magnet:?xt=urn:btih:168C3C017433A5D3C9D584D6E27C42E126519F3F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -625,28 +266,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198897   (802945) от 14.01.2018
+###  Публикация: 1118969   (805243) от 29.03.2017
 
-VA - Future Electronic Chillout - Top Downbeat Lounge Grooves (2018) [MP3|320 Kbps] <Downtempo, Chillout>
+Юрий Круглов| S.T.A.L.K.E.R. Байки из склепа (2015) [MP3]
 
->>Electronic
->>Easy listening
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802945.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_805243.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Moon Pub  -  Across The Horizon (Spheric Dance Mix)  4:52
-02.  Kling One  -  Going Up (Mystical Electronic Downtempo Mix)  5:04
-03.  Kevin Engelstein  -  Until We See The Ocean (Balearic Downtempo Mix)  4:45
-04.  Ryan Pearce  -  Use Your Words (Melancholic Downbeat Mix)  4:39(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 01:05:10
+Ад раскрылся внезапно. В начале XXI века после нового мощного взрыва на ЧАЭС окружающая ее территория стала враждебной человеку Зоной, наполненной хищными мутантами и смертельно опасными ловушками. Однако местные физические аномалии порождают артефакты – невероятно ценные предметы, за которые мировые научные центры готовы платить целое состояние. Самые рисковые и (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 01:25:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:29BC6CE9B38B485504C6064747E0D51AA118F5CA
+magnet:?xt=urn:btih:7A55EFB32C4A4B097AC755E745C6D02180B09221
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -654,28 +292,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505547   (802944) от 28.10.2021
+###  Публикация: 1119630   (805242) от 29.03.2017
 
-Chicago - Love Songs (2005) [FLAC|Lossless|tracks + .cue] <Rock, Jazz Rock>
+Hans Zimmer & Steve Mazzaro - The Boss Baby / Босс-молокосос (Music From the Motion Picture) (2017) [MP3|320 кб/с]<Soundtrack>
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Other Styles
+>>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802944.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_805242.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. You're The Inspiration
-02. If You Leave Me Now
-03. Saturday In The Park
-04. Hard To Say I'm Sorry / Get Away(   Читать дальше...   )Жанр: Rock, Jazz RockПродолжительность: 01:17:02
+01. Survival of the Fittest (02:24)
+02. Baby Brother (03:58)
+03. Welcome to Baby Corp (03:12)
+04. You Can't Get Away from Johnny Law (02:12)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:06:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9BEA7F572F3204F441CCE4CD974AA94F281D35EE
+magnet:?xt=urn:btih:FBA47AB3D833458B7F3FFB2421A8021A107A898E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -683,28 +321,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198962   (802943) от 14.01.2018
+###  Публикация: 1009751   (805241) от 23.04.2016
 
-VA - Hamid Production - The Best Of 2017 [MP3|192-320 Kbps] <Pop, Dance, Trance>
+Ценный груз / Precious Cargo (2016) WEB-DL [H.264/720p-LQ] [EN / EN Sub]
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802943.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_805241.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001 Arash & Mohombi - Se Fue
-002 Anca Pop - Ederlezi
-003 Katy Perry - Roulette
-004 Mozhdah - Boro(   Читать дальше...   )Жанр: Pop, Dance, TranceПродолжительность: 05:49:24
+Криминальный босс решает скрыться, присвоив себе солидную долю своего сообщника в одном крупном грабеже.Производство: Канада, Fleur De Lis Film StudiosЖанр: БоевикРежиссер: Макс АдамсАктеры: Брюс Уиллис, Клэр Форлани, Джон Бразертон, Лидия Халл, Дэниэл Бернхард, Тайлер Дж. Олсон, Марк-Пол Госселаар, Эшли Кирк, Николас М. Лоб, Джон КелачПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийПродолжительность: 01:29:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6EE5E69BC62E0C3175C35107340CF293796F2B6F
+magnet:?xt=urn:btih:0B48AE133772CAA88B27900686B923E5CBC9422D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -712,28 +347,342 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505455   (802942) от 28.10.2021
+###  Публикация: 1010133   (805240) от 23.04.2016
 
-Marshall - Old Rockers Never Die (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+The Lost Souls (2016) [En] (1.0) License PLAZA
 
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Win Игры
+>>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802942.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_805240.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Wake up America (00:04:56)
-02 - Coltan Wars (00:05:34)
-03 - Burn the Ships (00:04:31)
-04 - The Rope (00:04:44)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:37:41
+Каково это попасть в ад?
+Не чувствовать ветра, не касаться ногами мягкой травы, не видеть солнца, не слышать детского смеха.
+Не помнить что такое радость, семья, друзья.
+Главный герой во время тёмного ритуала погибает и попадает в ад.(   Читать дальше...   )Тип издания: LicenseРазработчик: M. YuriyЖанр: Adventure, IndieЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1F5A2DA6E5113A05E8F3BC750197BA25BC5D6986
+magnet:?xt=urn:btih:A814F360B3671E0A620D599FE3451017CFA20EB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010069   (805239) от 23.04.2016
+
+Фокус / Focus (2015) HDRip [AVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_805239.jpg" />
+</div>
+
+
+###  Подробнее
+
+История об опытном мошеннике, который влюбляется в девушку, делающую первые шаги на поприще нелегального отъема средств у граждан. Отношения становятся для них проблемой, когда обнаруживается, что романтика мешает их нечестному бизнесу.Производство: США, Аргентина / Kramer & Sigman Films, RatPac-Dune EntertainmentЖанр: Мелодрама, Комедия, КриминалРежиссер: Гленн Фикарра, Джон РекуаАктеры: Уилл Смит, Марго Робби, Родриго Санторо, Джералд МакРэйни, Б.Д. Вонг, Роберт Тейлор, Бреннан Браун, Адриан Мартинес, Лаура Флэннери, Стефани ОнорПеревод: Одноголосый закадровый, авторскийОзвучка / Автор перевода: А.ГавриловСубтитры: ОтсутствуютПродолжительность: 01:44:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC7AF1A1ED5F354BB95A3EE483EEA2D298A35849
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009969   (805238) от 23.04.2016
+
+The Howler (2016) [En] (1.0) Repack ALiAS
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_805238.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Howler – интересная аркада в которой вы попадете в далекий 1905 год, когда на земле начинали свою работу дирижабли и воздушные шары. В игре вы будете управлять одним из таких воздушных шаров и выполнять разнообразные задания.Тип издания: RepackРазработчик: Sunlight GamesЖанр: ArcadeЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BCD5C3A66D96018985EAD3A2FB26055FD1D7CC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010102   (805237) от 23.04.2016
+
+The Banner Saga (2014) [Ru/Multi] (2.18.08/dlc) License PROPHET [Gold Edition / Золотое издание]
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_805237.jpg" />
+</div>
+
+
+###  Подробнее
+
+Станьте героем грандиозной ролевой саги о викингах, где каждый ваш шаг будет определять дальнейший ход событий. Привлекайте на свою сторону союзников, путешествуя со своим караваном по суровому, но прекрасному краю. Внимательно выбирайте тех, кто встанет с вами плечом к плечу в битве с опасностью, нависшей над целым народом.Тип издания: LicenseРазработчик: StoicЖанр: Strategy (Turn-based), RPGЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26D27D74F08A4748493A4C1DFB884618AA48EB44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009810   (805236) от 23.04.2016
+
+Проекты - VideoHive - Car Motor Sport Opener 2 - 7476638 [AEP]
+
+>>Проекты
+>>Спортивные (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_805236.jpg" />
+</div>
+
+
+###  Подробнее
+
+Car Motor Sport Opener 2 - это проект, который имеет все, что нужно для создания интро-ролика.
+Добавьте название любимой команды, название и цветовой стиль спонсора. Используйте для мотор-шоу, драг-рейсинга, дрифтинга, гонок на время, наскара, мотор-спорт ТВ-шоу, тюнинг-шоу, знаменательных событий в мире автоспорта или любительских презентаций.
+Используется в Adobe (   Читать дальше...   )Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB4C6A9F67C3FDF53984CFCE2326692E64D32693
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010018   (805235) от 23.04.2016
+
+Снайпер: Специальный отряд / Sniper: Special Ops (2016) DVDRip [EN]
+
+>>След.
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_805235.jpg" />
+</div>
+
+
+###  Подробнее
+
+Специальный отряд вооруженных сил, во главе с опытным снайпером сержантом Джейком Чандлером, отправляются в захолустную афганскую деревню, чтобы освободить американского конгрессмена удерживаемого талибами. Спасительная миссия увенчалась успехом, но Джейк, отрезанный после перестрелки с врагом, остается, чтобы помочь раненным солдатам.Производство: США, Hybrid, Steamroller ProductionsЖанр: Драма, ВоенныйРежиссер: Фред Олен РэйАктеры: Стивен Сигал, Роб Ван Дам, Тим Эбелл, Дейл Дай, Шарлин Амойя, Джейсон-Шейн Скотт, Дэниэл Буко, Энтони Батарсе, Джералд Уэбб, Пол ЛоганПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:26:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CBC688A72E9DB71C33713FE0E157ED3C421CF22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009884   (805234) от 23.04.2016
+
+Звёздные войны: Пробуждение силы / Star Wars: Episode VII - The Force Awakens (2015) BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_805234.jpg" />
+</div>
+
+
+###  Подробнее
+
+Через тридцать лет после гибели Дарта Вейдера и Императора галактика по-прежнему в опасности. Государственное образование Первый Орден во главе с их таинственным верховным лидером Сноуком и его правой рукой Кайло Реном идёт по стопам Империи, пытаясь захватить всю власть. В это нелёгкое время судьба сводит юную девушку Рей и бывшего штурмовика Первого Ордена Финна (   Читать дальше...   )Производство: США / Bad Robot, Lucasfilm Ltd., Truenorth ProductionsЖанр: фантастика, фэнтези, боевик, приключенияРежиссер: Джей Джей АбрамсАктеры: Джон Бойега, Дэйзи Ридли, Оскар Айзек, Адам Драйвер, Донал Глисон, Харрисон Форд, Марк Хэмилл, Кэрри Фишер, Макс фон Сюдов, Энди СеркисПеревод: Дублированный (Лицензия)Язык субтитров: РусскийПродолжительность: 02:18:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7060D447226D749B8DBBC74C17CCBB1A757D793A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009897   (805233) от 23.04.2016
+
+Звёздные войны: Пробуждение силы / Star Wars: The Force Awakens (2015) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_805233.jpg" />
+</div>
+
+
+###  Подробнее
+
+Через тридцать лет после гибели Дарта Вейдера и Императора галактика по-прежнему в опасности. Государственное образование Новый Порядок во главе с их таинственным верховным лидером Сноуком и его правой рукой Кайло Реном идёт по стопам Империи, пытаясь захватить всю власть. В это нелёгкое время судьба сводит юную девушку Рей и бывшего штурмовика Нового Порядка Финна (   Читать дальше...   )Производство: США / Bad Robot, Lucasfilm Ltd., Truenorth ProductionsЖанр: Фантастика, Фэнтези, Боевик, ПриключенияРежиссер: Джей Джей АбрамсАктеры: Джон Бойега, Дэйзи Ридли, Оскар Айзек, Адам Драйвер, Донал Глисон, Харрисон Форд, Марк Хэмилл, Кэрри Фишер, Макс фон Сюдов ,Энди СеркисПеревод: Дублированный (Лицензия)Субтитры: Русские, английские (вшитые, отключаемые)Продолжительность: 02:18:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:655D3D29FD31EDDF26B46492F180B64BF38A25F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009888   (805232) от 23.04.2016
+
+ACDSee Ultimate 9.2 Build 649 RePack by KpoJIuK [Ru/En]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_805232.jpg" />
+</div>
+
+
+###  Подробнее
+
+ACDSee Ultimate 9 сочетает в себе поддержку слоев, поддержку GPU-ускорения обработки изображений, поддержку прозрачности со всеми функциями регулировки изображений из режима редактирования. ACDSee - функциональная программа, рассчитанная как на профессиональных фотографов, так и на любителей. ACDSee позволяет работать с цифровыми фотографиями, RAW-изображениями и (   Читать дальше...   )Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B1B90CD88C4BC40EA9398F4CE0F5A1E4A9EDF99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010072   (805231) от 23.04.2016
+
+Колония Дигнидад / Colonia (2015) WEB-DLRip [H.264] [Line]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_805231.jpg" />
+</div>
+
+
+###  Подробнее
+
+Немецкий журналист Даниэль похищен в Чили тайной полицией и после немыслимых пыток отправлен в колонию «Дигнидад» — огромное поселение, выдающее себя за благотворительную коммуну, а на самом деле гнездо нацистов — беглецов из Третьего рейха. Колонию возглавляет бывший офицер вермахта, бесноватый проповедник Пауль Шефер, внушающий пастве пользу умерщвления плоти и (   Читать дальше...   )Производство: Германия, Люксембург, ФранцияЖанр: Триллер, драма, мелодрама, историяРежиссер: Флориан ГалленбергерАктеры: Эмма Уотсон, Даниэль Брюль, Микаэл Нюквист, Риченда Кэри, Вики Крипс, Джинн Вернер, Джулиан Овенден, Август Цирнер, Мартин Вуттке, Николас БарсоффПеревод: Дублированный (Чистый звук)Субтитры: ОтсутствуютПродолжительность: 01:49:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10D30019416E9987218DE827017444D497FA4EC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 996722   (805230) от 23.04.2016
+
+Слэшер / Slasher (2016) WEB-DLRip (сезон 1, серии 1-8 из 8)  VO-production
+
+>>Зарубежные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_805230.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сара Беннетт, молодая женщина, которая возвращается в небольшой город, где родилась, и обнаруживает себя в центре ужасающей серии убийств, основанных на широко известном убийстве её родителей. Вскоре все, кто окружает Сару, становятся подозреваемыми или жертвами, по мере того, как убийств становится всё больше и раскрываются давно похороненные секреты. Сара начинает (   Читать дальше...   )Производство: США, Великобритания, КанадаЖанр: Ужасы, Триллер, ДрамаРежиссер: Крэйг Дэвид УоллесАктеры: Кэти МакГрат, Брэндон Джей МакЛарен, Стив Байерс, Джессика Сайпос, Дэвид Патрик Флемминг, Шон Ахмед, Ашанти Бромфилд и др.Перевод: Многоголосый закадровый, профессиональный - VO-productionСубтитры: ОтсутствуютПродолжительность: ~ 00:51:00 серияРеклама: видеоролики вырезаны / присутствуют голосовые вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59F9D139F5C3B0790DD56AC0DAE6BAE19FD1E7BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010000   (805229) от 23.04.2016
+
+System Explorer 7.1.0.5359 Portable by PortableApps [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_805229.jpg" />
+</div>
+
+
+###  Подробнее
+
+System Explorer - бесплатная программа для мониторинга и управления системными процессами Windows, которая является альтернативой с более расширенными функциональными возможностями стандартному диспетчеру задач и служит для мониторинга и управления процессами. System Explorer обеспечивает высоконадёжный мониториг всех задействованных процессов в системе, отображает (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B38A1CA97E61B2ECBD48B4DDEF760D73B080F5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 743199   (805228) от 23.04.2016
+
+NG. Суперсооружения Третьего рейха / Nazi megastructures (2013) [1 сезон, 6 серий из 6] HDTVRip [H.264/720p]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_805228.jpg" />
+</div>
+
+
+###  Подробнее
+
+Апрель 1945. Берлин – столица фашистской Германии. Главный оплот Гитлера. Ему приходится готовить Берлин к битве. Город превратился в крепость и в его центре – неуязвимый подземный Фюрербункер. Миллион русских солдат, пять эшелонов обороны и битва, которая определит будущее мира. Гитлер готовится к отражению атаки его главной цитадели. Это история крепости Берлин.Телекомпания: National GeographicЖанр: документальный, историяРежиссер: -/-Перевод: Профессиональный, одноголосый |АРК ТВ|Субтитры: НетПродолжительность: 00:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8937B583A682A915AE42CEDD7FBC9A8DA43829EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

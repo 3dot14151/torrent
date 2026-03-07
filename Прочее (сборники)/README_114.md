@@ -1,3 +1,212 @@
+###  Публикация: 1571385   (433843) от 21.08.2022
+
+VA - Lemonade Summer Dance Mix (2022) [MP3|320 Kbps] <Disco, Pop, Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_433843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andreas Mioc - He Yeah
+02. Mike Williams - Wait For You
+03. Mbo - Oooohh!
+04. Howside - Prayer(   Читать дальше...   )Жанр: Disco, Pop, Dance, ClubПродолжительность: 09:17:18 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26BA6872C7CE367568E9CD6A2BF4E6927E4F8901
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1323637   (433686) от 05.09.2019
+
+VA - Super Sound Disco Single (2019) [MP3|320 Kbps] <Disco, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_433686.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Space - Running In The City
+002. Mulya - Orinoko (Original Mix)
+003. Rat Tat Tat - Hypnotized
+004. La Guardia De La Luz - Ts'unu'un (Original Mix)(   Читать дальше...   )Жанр: Disco, DanceПродолжительность: 09:26:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1B92F860E0DB0A674C89AF3C004A7441850797E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 945633   (433576) от 10.10.2015
+
+Юля Шатунова - Звезда (2015) [MP3|320 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_433576.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Милые Звёзды (05:03)
+02. Мой Плеер (05:39)
+03. Мой Старый Лес (05:00)
+04. Новогодняя (04:13)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:45:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F1818318E78472374380383C4CE33E3ABEA952F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1249504   (433444) от 24.09.2018
+
+VA - Exotic Tropical Tunes (2018) [MP3|320 Kbps] <Electro House, Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_433444.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ati - Moon Queen
+002. Amoon And Walking - D.A.N. Get Funky
+003. Fedde Le Grand - The Gaming Beat
+004. Harry Bolton - Loving You (Original Mix)(   Читать дальше...   )Жанр: Electro House, Dance, ClubПродолжительность: 10:34:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCB62487F7B39F3033902280AC26C70B89DEA0AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 944986   (433421) от 10.10.2015
+
+VA - Всё сразу 200 хитов Выпуск 8 (2015) [MP3|128-320 кб/с]<Pop, Dance, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_433421.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Алена Иванцова - Мотив Доджя
+02. Nils Van Zandt feat. Mayra Veronica - Party Crasher (Original Mix)
+03. MC Zali feat. Kira London - Далеко
+04. Akord - Chakarita(   Читать дальше...   )Жанр: Pop, Dance, RockПродолжительность: 12:45:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8D59F5DEFE33CFB3D366850E84DC56A11B33AFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 555626   (431877) от 03.10.2012
+
+VA - Лидеры Авто Дискотек 50/50 (2012) [MP3|256 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431877.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Отпетые мошенники - Руссо туристо
+02. Иракли - Белая Ночь
+03. Alex Ferrari - Bara Bara Bere Bere
+04. Basto! & Yves V - Cloud Breaker (Basto Radio Mix)
+05. Ирина Ортман feat. Александр Киреев - Навсегда
+06. Нюша - Воспоминание (Extra Edit)
+07. DJ M.E.G. - Stock-Holm (Radio Edit)
+08. Italobrothers - My Life Is A Party (R.I.O. Edit)
+09. Жанна Фриске - Навсегда!
+10. Юлия Волкова - Давай Закрутим Землю(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:55:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36AE55FD02EFC8857E317B9655A13DDB6A7B4A22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1571503   (431759) от 22.08.2022
+
+VA - Disco Disko Vol. 1 (2022) [MP3|320 Kbps] <Nu Disco, Soulful, Funky, Indie Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daco - Support Programme
+02. Fat Cosmoe - Roulette
+03. DJ T. - Trans Orient Express
+04. Highlite - Otherdisco(   Читать дальше...   )Жанр: Nu Disco, Soulful, Funky, Indie DanceПродолжительность: 01:55:47 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBF447E2EFC1193E9147E62409927FAA887751D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1571505   (431684) от 22.08.2022
 
 VA - New Funky House vol.238 (2022) [MP3|320 Kbps] <Funky, Groove, Synth Funk, Indie Dance>
@@ -580,209 +789,6 @@ VA - Легенды Ретро FM Vol.1 (Compiled by Виктор31RUS) (2017) [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3927F00D27FB3C904E67FB4D4A2A964EB75AF226
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166451   (425965) от 16.09.2017
-
-VA - Легенды Ретро FM Vol.2 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Disco, Eurodance, Pop, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425965.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Sandra - Stop For A Minute (Single Version)  4:11
-002.  A-Teens - Mamma Mia  3:45
-003.  Joy - Hello  4:12
-004.  Modern Talking - You're My Heart, You're My Soul  5:39(   Читать дальше...   )Жанр: Disco, Eurodance, Pop, RockПродолжительность: 07:30:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8E5614EE74490E8CFA29D0EC892FC7DE209244F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572131   (425596) от 25.08.2022
-
-VA - Simply Dance Vol. 02 (2022) [MP3|320 Kbps] <Europop, Dance, Groove, Future House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425596.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul Jacobson, Dennis Wonder - Without You
-02. Antonio Gregorio - Lost Soul
-03. Channing - Push For The Money
-04. Hot Pixels - On My Mind(   Читать дальше...   )Жанр: Europop, Dance, Groove, Future HouseПродолжительность: 01:39:20 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BD19E22D478BA34E2E1EE43DAA1CA145CBC4BF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572155   (425594) от 25.08.2022
-
-VA - Simply Tech House Vol. 02 (2022) [MP3|320 Kbps] <Microhouse, Minimal, Jackin, Tech House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425594.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Malante (UK) - Follow
-02. Agonia Music - I Know Ya
-03. Diego Rva - Time
-04. DJ Alexis Freites - Lost Time(   Читать дальше...   )Жанр: Microhouse, Minimal, Jackin, Tech HouseПродолжительность: 02:06:58 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07C3AFBA33842A0300EDEEDECE4AFD63C44E0932
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572130   (425589) от 25.08.2022
-
-VA - Simply Dance Vol. 01 (2022) [MP3|320 Kbps] <Europop, Dance, Groove, Future House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425589.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Antonio Gregorio - When Your Gone
-02. Sonalyis - Back In The 2000s (Radio Edit)
-03. Skuado, Freaky DJs, Mert Harmankaya, Elation - I Still Love You
-04. Kidd Ross - I Just Wanna (Extended Mix)(   Читать дальше...   )Жанр: Europop, Dance, Groove, Future HouseПродолжительность: 01:29:02 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1AB17DA2A35210541A6DB3B72B430F44B41004A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572133   (425520) от 25.08.2022
-
-VA - Simply Dance Vol. 03 (2022) [MP3|320 Kbps] <Europop, Dance, Groove, Future House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425520.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brooke Lee - Little Bird (Radio Edit)
-02. Fhe - True Faith
-03. Playpat & King - Final Constructions
-04. Justin Lawson - Come Back To Me(   Читать дальше...   )Жанр: Europop, Dance, Groove, Future HouseПродолжительность: 01:38:28 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5902D3EEA8CE3BF8CBFB035B8527ABCB51FD246F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572160   (425406) от 25.08.2022
-
-VA - Simply Breaks & Beats Vol. 02 (2022) [MP3|320 Kbps] <Grime, 2-Step, Breakbeat, Nu Skool>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425406.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paket - Face Your Fears (Original Mix)
-02. Poor In Spirit - Guardian Angel (Original Mix)
-03. Strongbass - Mortal (SellRude Remix)
-04. Prato & GreenFlamez - U Keep On (Original Mix)(   Читать дальше...   )Жанр: Grime, 2-Step, Breakbeat, Nu SkoolПродолжительность: 01:57:55 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72CAC94C781826886463573FE2A65442BB33A86A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166611   (424273) от 17.09.2017
-
-VA - Empire Records - Retromania 6 (2017) [MP3|320 Kbps] <Italo Disco, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424273.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Iron Maiden - Wasting Love (Nicolas Mussi Remix)
-02. Fast Foot - Speakers Killer V.1.2 (Original Mix)
-03. Jan Waterman - The C-Word (Original Mix)
-04. Opus - Live Is Live (Dj Solovey Remix)(   Читать дальше...   )Жанр: Italo Disco, ClubПродолжительность: 01:52:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD63371E96DFA25D11A598CCA4B31E78FC5198CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

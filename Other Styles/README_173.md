@@ -1,3 +1,32 @@
+###  Публикация: 1762020   (36366) от 23.11.2024
+
+Joe Berluck - The Erotic Voice of Joe Berluck (1970) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36366.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Cry Little Girl (2:49)
+02. Past Is Getting Near (2:53)
+03. You Belong To My Heart (2:29)
+04. Faraway Places (3:34)(   Читать дальше...   )Жанр: Chillout, RelaxПродолжительность: 00:32:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88B7AD14048F8F8A98A3EDD2C45E02550D351DC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1762395   (36139) от 25.11.2024
 
 VA - Tantric ASMR Bliss: Sensual Voice of Passion (Seductive Edition) (2024) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Relax, New Age>
@@ -718,35 +747,6 @@ Tangerine Dream - Machu Picchu (Maxi EP) (2012) [MP3|320 кб/с]<Electronic mus
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F640F1885F84D41157C02E7C494293538D92B6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945803   (31934) от 05.01.2025
-
-Tomas Lanquist - On Faery Wings (2015) [MP3|320 кб/с]<New Age, Electronic, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31934.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Secret Paths
-02. Soul Flight
-03. On Faery Wings
-04. Twilight Moon(   Читать дальше...   )Жанр: New Age, Electronic, AmbientПродолжительность: 00:55:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57FD5B12107664E33A1BA6261AE35ECD173D0ACE
 ```
 
 https://mybot314.ru/tekegram_catalog/

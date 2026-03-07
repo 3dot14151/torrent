@@ -1,3 +1,32 @@
+###  Публикация: 932073   (510192) от 28.08.2015
+
+Backyard Babies - Four By Four (2015) [MP3|320 кб/с]<Hard Rock, Glam Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_510192.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Th1rt3en Or Nothing
+02. I'm On My Way To Save Your Rock 'N' Roll
+03. White Light District
+04. Bloody Tears(   Читать дальше...   )Жанр: Hard Rock, Glam PunkПродолжительность: 00:33:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78151EEEC2C795D67520C1C60205B84D8B0F18CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 932277   (509467) от 29.08.2015
 
 Slik Toxik - Doin' The Nasty (1992) [MP3|320 кб/с]<Hard Rock, Glam>
@@ -755,35 +784,6 @@ VA - Re-Machined. A Tribute To Deep Purple's Machine Head (2012) [MP3|320 кб/�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3752451426B2DC016CFB6AD389B4445BEA94F71F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1055837   (485888) от 23.09.2016
-
-Furious Zoo - Back To Blues Rock (2014) [MP3|320 Kbps] <Hard Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485888.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You're the One   (03:42)
-02. The Witch Blues   (04:03)
-03. No Respect   (04:00)
-04. Back to the Blues   (04:58)(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 01:08:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64802EBE02F11F8B2CE05C0C7DF05D2BA7CBE757
 ```
 
 https://mybot314.ru/tekegram_catalog/

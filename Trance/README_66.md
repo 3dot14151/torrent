@@ -1,3 +1,90 @@
+###  Публикация: 1733523   (51625) от 29.06.2024
+
+VA - Markus Schulz - Sunrise Set 2024 (Emotional Dance Mix) (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_51625.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chicane - Early (Sunrise Set 2024) (Symphonic Rehearsal Mix) [2:09]
+02. Markus Schulz - Summer Of '99 (Sunrise Set 2024) [3:36]
+03. Stu McNally - Innerversions (Sunrise Set 2024) [3:51]
+04. Estiva - Mesa (Sunrise Set 2024) [3:36](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 04:00:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C006817FDFEF04E43524B4EF39E8A93413BE1128
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737115   (49804) от 16.07.2024
+
+VA - A State Of Trance Radio Top 50 - 2024, Vol. 2 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_49804.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren feat. Anne Gudrun - High On Love (Extended Mix) [6:08]
+02. Ferry Corsten feat. Chris Howard - Where The Mountains Grow (Extended Mix) [6:30]
+03. Gareth Emery & Giuseppe Ottaviani feat. Sarah De Warren - Carry On (Original Mix) [3:08]
+04. Cosmic Gate & Christian Burns - Brave (Extended Mix) [7:25](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 04:50:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2990B60AE938C2347C80E7EEFD07857E4B27344E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737288   (49719) от 17.07.2024
+
+VA - Anjunabeats presents Vocal Trance 01 (2024) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_49719.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ilan Bluestone & Maor Levi feat. EL Waves - Will We Remain? (Extended Mix) [7:31]
+02. Oliver Smith feat. Amy J Pryce - Lovingly (Extended Mix) [7:03]
+03. Above & Beyond pres. OceanLab - Satellite (Above & Beyond's 2023 Extended Progressive Mix) [6:38]
+04. Boom Jinx & Maor Levi & Ashley Tomberlin - When You Loved Me (Extended Mix) [6:15](   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 02:45:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3071008833C59C0F910A8C45DEA3F8EC4696BCF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1738474   (48982) от 24.07.2024
 
 Sonic Tribe - 6 Albums (2018-2024) [MP3|320 Kbps] <Progressive Trance>
@@ -655,93 +742,6 @@ VA - Uplifting Only Top 15: October 2024 (Extended Mixes) (2024) [MP3|320 Kbps] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3A3BE2678AED940AF9FDAA131497FB6BCBDCA48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756588   (39573) от 22.10.2024
-
-Kyau & Albert - All in Good Time (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39573.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kyau & Albert - Morning Glimmer (04:11)
-02. Kyau & Albert & Steve Brian - Dreaming Awake (DJ Version) (05:32)
-03. Kyau & Albert - All in Good Time (DJ Version) (06:12)
-04. Kyau & Albert - Chimera (DJ Version) (05:53)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:28:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C6006842C0F5B6F8BDCA0656C13CBB06DF9F70B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757739   (38905) от 29.10.2024
-
-VA - Redux Selection Vol. 11 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38905.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aura - Share The Tears 2024 (Vikram Prabhu's Magic Flight Extended Remix) [6:38]
-02. Bryn Whiting - Apricus (Extended Mix) [7:19]
-03. Christophe Quinlivan-Hunt - Retreads (Extended Mix) [7:26]
-04. Liam Van Hoven - Fly (Extended Mix) [7:06](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:20:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C832D65D15093B399C3EF9C695AC42D55B4FCE60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758018   (38695) от 31.10.2024
-
-VA - Nothing But... Trancetopia Vol. 20 (2024) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38695.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forbidden Mind - Acid Strike (Original Mix) [4:21]
-02. STNX - Destruction (Original Mix) [3:33]
-03. Bryn Whiting - See The Sign (Original Mix) [3:20]
-04. Tycoos & Lightstate - Spaceliner (Original Mix) [3:33](   Читать дальше...   )Жанр: TranceПродолжительность: 02:09:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67F18D97134CD2A40ABF5FAF3353EF536B861760
 ```
 
 https://mybot314.ru/tekegram_catalog/

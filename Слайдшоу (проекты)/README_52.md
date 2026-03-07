@@ -1,3 +1,29 @@
+###  Публикация: 805041   (609575) от 15.07.2014
+
+VideoHive – 3D Photos Slideshow - 7442683 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_609575.jpg" />
+</div>
+
+
+###  Подробнее
+
+3d презентация ваших фотографий или видеофайлов. Включает две версии продолжительностью 2 минуты и 4. Первая "вмещает" 74 файлов, вторая - 150.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91690BBFAB6191779E3E3E21FB256BC6AEA30160
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1147141   (609078) от 02.07.2017
 
 Проекты - VideoHive - Glitch Movie Trailer - 8774798 [AEP]
@@ -657,32 +683,6 @@ Artist Gallery (In the Wind) - Галерея Художника (на ветр�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:772C09AF3BEFD223723AD4B7F981A4356C7E91CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 914251   (597453) от 02.07.2015
-
-Проекты - VideoHive - Quick Slideshow Opener | Festival Event Promo - 11557345 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597453.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания трейлера к фильму. Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25D9CFD9210DEAD633ED5C774B2E8DC8C81857E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

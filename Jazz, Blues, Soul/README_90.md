@@ -1,3 +1,236 @@
+###  Публикация: 1106822   (871668) от 20.02.2017
+
+VA - Cozy Winter Jazz Vol.2 (2017) [MP3|320 Kbps] <Jazz, Lounge>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871668.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eckard Koltermann - Tango der Nacht
+02. Gerd F. Schumann - You Smell so Good
+03. Maik Mondial - Kletz Fetz
+04. Slinky & P'tit Loup - Danser le swing(   Читать дальше...   )Жанр: Jazz, LoungeПродолжительность: 01:29:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EEB52E25CA156CBF76245C021EBB831E25F9EAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106485   (871660) от 20.02.2017
+
+Billie Holiday - The Real... Billie Holiday (2011) 3CD [FLAC|Lossless|tracks + .cue] <Jazz Vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871660.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+1. Easy Living
+2. All Of Me
+3. God Bless The Child(   Читать дальше...   )Жанр: Jazz VocalПродолжительность: 03:49:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E86F91E21D8E364B4BDBD5019C06F18F0308DDE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496640   (871657) от 18.09.2021
+
+Roland Kirk - Roland Kirk's Finest Hour (2001) Verve Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871657.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stompin' Grounds [4:49]
+02. Blue Rol [6:12]
+03. Serenade to a Cuckoo [4:34]
+04. Spring Will Be a Little Late This Year [4:07](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:00:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9868D92F0731B638EC8CC8B5EA326AF717153E28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496644   (871655) от 18.09.2021
+
+Duke Ellington - Duke Ellington's Finest Hour (2002) Verve Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871655.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. East St. Louis Toodle-o [2:55]
+02. Black and Tan Fantasy [3:20]
+03. Jubilee Stomp [2:47]
+04. Black Beauty [3:15](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:03:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85BFEB6C646E0DC388095234D8B88900735102A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106855   (871564) от 20.02.2017
+
+Judith Nijland - A Jazz Tribute To ABBA (2016) [FLAC|Lossless|WEB-DL|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871564.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Do, I Do, I Do, I Do, I Do (3:02)
+02. I Have A Dream (4:01)
+03. Waterloo (4:30)
+04. Lay All Your Love On Me (3:37)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:47:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31E4DCEC41AB9E0F9342D2C0B8C8972EFB843679
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496615   (871410) от 18.09.2021
+
+Marcin Wasilewski Trio - En attendant (2021) [FLAC 2.0|88/24|tracks|WEB-DL] <Jazz, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871410.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. In Motion, Pt. 1 (5:29)
+2. Variation 25 (From J.S. Bach: Goldberg Variations, BWV 988) (7:17)
+3. Vashkar (4:57)
+4. In Motion, Pt. 2 (6:55)(   Читать дальше...   )Жанр: Jazz, Contemporary JazzПродолжительность: 00:43:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BE21D61FA96390779485CF589F439F82AC86210
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496637   (871406) от 18.09.2021
+
+Club Des Belugas - How To Avoid Difficult Situations (2021) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Broken Beat>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871406.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Set Fire to It All
+02. Hazy (Club des Belugas Remix)
+03. Scat
+04. That's My Style (Extended Mix)(   Читать дальше...   )Жанр: Nu Jazz, Broken BeatПродолжительность: 01:14:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9806F8A230AD4444344584A70244C42D80A2CDB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106843   (871384) от 20.02.2017
+
+Johnny Winter - Original Album Classics (2010) 5xCD 1969-1974 [FLAC|Lossless|image + .cue] <Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871384.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джонни Уинтер по версии журнала Rolling Stone занимает 63 строчку в списке ста лучших гитаристов мира. С 1988 года его имя занесено в Зал Славы блюза.
+Джон Доусон Уинтер Третий появился на свет в техасском городе Бьюмонт 23 февраля 1944 года. Несмотря на то, что мальчик родился косоглазым альбиносом, впоследствии это компенсировалось музыкальным талантом и мировым (   Читать дальше...   )Список альбомов:
+CD1 - Johnny Winter - 1969
+CD2 - Second Winter - 1969
+CD3 - Johnny Winter And Live - 1971(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 03:27:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E737C7CDA855643A18713162169496DC7D6FFE5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1374759   (871357) от 11.04.2020
 
 Harry Allen - I Won't Dance (1999) BMG Japan [FLAC|Lossless|image + .cue] <Mainstream Jazz>
@@ -510,241 +743,6 @@ Disc 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68F5AAFEBE33E4D6FD13B5F75B3B7EAEEF17BF73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106979   (870072) от 21.02.2017
-
-Kirk Fischer - Friends (2017) [MP3|320 Kbps] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870072.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Friends
-02. Dis 'Sup
-03. Kiss on My List
-04. Reach into Your Heart(   Читать дальше...   )Жанр: JazzПродолжительность: 00:43:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:150F9B67D09F73AC690A46DB5E4046EA213A483B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107035   (869978) от 21.02.2017
-
-Johnny Winter - Step Back (2014) [FLAC|Lossless|image + .cue] <Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869978.jpg" />
-</div>
-
-
-###  Подробнее
-
-Увы, 2014-й оказался очень урожайным на потери: 16 июля в Цюрихе, Швейцария умер в одном из отелей знаменитый американский блюзовый и блюз-роковый гитарист и певец Джонни Уинтер (Johnny Winter). Ему было 70 лет. В Швейцарии Джонни находился в рамках большого европейского тура. Позднее он должен был вернуться в Штаты для концертного тура в конце июля.
-
-Вместе со своим (   Читать дальше...   )01. Unchain My Heart (with Blues Brothers Horns) (3:15)
-02. Can't Hold Out (Talk to Me Baby) (with Ben Harper) (4:09)
-03. Don't Want No Woman (with Eric Clapton) (3:07)
-04. Killing Floor (with Paul Nelson) (4:28)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:50:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC4E9999D2111077658E066D39C16F3B12F8BB16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107176   (869957) от 21.02.2017
-
-Glenn Miller - The Real... Glenn Miller (2013) 3CD [FLAC|Lossless|tracks + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869957.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-1. In the Mood
-2. Moonlight Serenade
-3. Chattanooga Choo-Choo(   Читать дальше...   )Жанр: JazzПродолжительность: 03:03:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59E229796266FBD230BF6B5CEBF7B0F567B8E04C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496774   (869933) от 19.09.2021
-
-Sarah Vaughan - Sarah Vaughan's Finest Hour (2000) Verve Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869933.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Misty [3:01]
-02. How High the Moon [2:38]
-03. I'm Glad There Is You [5:12]
-04. Make Yourself Comfortable [2:42](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:02:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F7AB66AF815CF887F1EC10DF5D7ED16D7534F3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 644367   (869063) от 16.04.2013
-
-Duke Ellington - 15 альбомов (1968-2013) [MP3|320 кб/с]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869063.jpg" />
-</div>
-
-
-###  Подробнее
-
-Duke Ellington - пианист, аранжировщик, композитор, руководитель оркестра, яркий представитель джазового искусства.
-Его творческий путь был полон открытий. Он создает то стиль джунглей, то стиль настроения, то обращается к академическим европейским музыкальным формам - сюитам, рапсодиям, балету и опере. Его оригинальные оркестровые произведения оказали большое эстетическое (   Читать дальше...   )1. Satin Doll (3:51)
-2. Don't Get Around Much Anymore (3:06)
-3. Do Nothing Till Your Head From Me (3:04)
-4. Take The "A" Train (8:00)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:05:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D878C9E0802FF926E110FCC2ABD7C92FB653F1DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374979   (868995) от 12.04.2020
-
-Harry Allen & Randy Sandke witn The Rias Big Band - Turnstile: Music Of The Trumpet Kings (1997) Nagel–Heyer Records [FLAC|Lossless|image + .cue] <Mainstream Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868995.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Love Louis [5:17]
-02. Cloudy [5:25]
-03. Echoes of Harlem [4:25]
-04. Little Jazz Boogie [3:31](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 00:59:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42869398EBD442F95225D3B06B90A1381C449C97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374984   (868977) от 12.04.2020
-
-VA - Top of the World: Modern R&B Classics (2020) [FLAC|Lossless|WEB-DL|tracks] <RnB, Soul, Funk>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868977.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Brandy - Top of the World (feat. Mase)
-2. Lil' Kim - Lighters Up
-3. Adina Howard - Freak Like Me
-4. Iyaz - Replay(   Читать дальше...   )Жанр: RnB, Soul, FunkПродолжительность: 02:11:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE5F38F6BEB4F11D7E56D3F55C9926BF157F62FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998807   (868601) от 20.03.2016
-
-Dr. Lonnie Smith - The Healer (2012) Pilgrimage Productions[FLAC|Lossless|tracks + .cue] <Jazz Fusion, Hammond Organ>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868601.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Backtrack [13:18]
- 02.Mellow Mood [08:23]
- 03.Dapper Dan [07:18]
- 04.Chelsea Bridge [09:42](   Читать дальше...   )Жанр: Jazz Fusion, Hammond OrganПродолжительность: 01:01:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DCE767F4407BCE748C1ECB22880BB2D0275BCFE
 ```
 
 https://mybot314.ru/tekegram_catalog/

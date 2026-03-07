@@ -1,3 +1,206 @@
+###  Публикация: 1518573   (153952) от 20.12.2021
+
+VA - Music News vol.156 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_153952.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kraynova - Крепкими Шотами (Oneon Remix) (03:50)
+ 002. 24kGoldn - More Than Friends (02:55)
+ 003. Aaliyah feat. The Weeknd - Poison (02:43)
+ 004. Adam Maniac & Baskaeva - Глупая (03:06)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 10:01:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C5E5BCB8FFF80A288DAD1F85527C8BA55E58645
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086423   (153496) от 24.12.2016
+
+VA - Empire Records - Club Hit 3 (2016) [MP3|320 Kbps] <Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_153496.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brascon & Anna - Beautiful Creatures
+02. Niia - Body
+03. Cj Stone Feat. Lyck - Lost (Radio Edit)
+04. Odesza - Say My Name (Feat. Zyra)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 01:32:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B13AC4F23A3ADD9ED81C666532DAF43FF69CFE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434232   (153491) от 23.12.2020
+
+VA - не Громкие новинки недели 92 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_153491.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Олег Кензов feat. Леся Никитюк - Кое-что ещё (3:13)
+02. Drako Valeria - На Танцполе (3:29)
+03. Наталья Гончарова - Ты Поверил (4:08)
+04. Andro - Спокойная Ночь (1:55)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:28:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8AE232133604264E859C8281F8593610EF4EF5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086257   (153489) от 24.12.2016
+
+VA - House In My Head New Edition (2016) [MP3|320 Kbps] <Electro House, Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_153489.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Firebeatz - Arsonist (Original Mix)
+002. Luca Debonaire - Loosin' Sleep (Original Mix)
+003. Armando Rosario - Pulse
+004. Dzeko & Torres ft MOTI - Ganja (Original Mix)(   Читать дальше...   )Жанр: Electro House, Dance, ClubПродолжительность: 12:16:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B77894D935A690CD4ED586761E2D52F84CA18DA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434046   (152926) от 23.12.2020
+
+VA - Лучшие треки 2020 Россия [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_152926.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Korol i Shut - Кукла колдуна (3:22)
+002. GAYAZOV$ BROTHER$ - Увезите меня на Дип-хаус (2:56)
+003. Markul - B.I.D (3:12)
+004. Drake - Toosie Slide (4:07)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:56:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02B99E516B0612288459FC366C6C36347658E522
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194815   (152629) от 26.12.2017
+
+VA - Дискотека Remix (2011-2017) [MP3|192-320 Kbps] <Pop, Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_152629.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All for You (Andrey Vertuga & Dj Rodion remix) - Ace of Base - All for You (Andrey Vertuga & Dj Rodion remix)
+02. Ace Of Base - All That She Wants (Goldwave Remix)
+03. Ace Of Base - Happy Nation (Wiliam Price & Fred Flaming radio edit)
+04. Adriano Celentano - Confessa(   Читать дальше...   )Жанр: Pop, Club, DanceПродолжительность: 09:45:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31D05E143FF9AA86B6861C437AEB11B9928A9267
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271129   (152509) от 22.12.2018
+
+VA - The Official UK Top 40 Singles Chart 21.12.2018 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_152509.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. LadBaby - We Built This City
+02. Ava Max - Sweet but Psycho
+03. Ariana Grande - thank u, next
+04. Mariah Carey - All I Want For Christmas Is You(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:19:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EFDF29B2E858304FDA0FDA2AFF85B00B2B2215C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 968571   (152476) от 24.12.2015
 
 VA - Дискотека 2015 Deep House - The Best от NNNB Vol.2 (2015) [MP3|256-320 кб/с] <Deep House, NuDisco, Indie Dance, Vocal House, Progressive House, Club>
@@ -540,209 +743,6 @@ VA - Top 100 Самых Красивых Песен 2016 (2016) [MP3|320 Kbps] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E94C0E886D6D8067EE413D534963E69DDB2C883
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969464   (147408) от 27.12.2015
-
-VA - 100 New Year Dance Party 2016 (2015) [MP3|320 кб/с] <Dance, Club, House, Funky>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147408.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daddy's Groove Feat Mindshake - Surrender (Extended Mix)
-02. Haddaway - What Is Love (Project 46 Remix)
-03. Black Van - Fen Fires
-04. Giorno - The Way (Radio Edit)(   Читать дальше...   )Жанр: Dance, Club, House, FunkyПродолжительность: 09:49:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0601E06338E189CF7211E05840659BFA0FF3751C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347815   (147308) от 25.12.2019
-
-VA - не Громкие новинки недели 49 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147308.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Alex Nikov - Малышка (3:18)
-2.Chacha - Куранты В Тумане (1:25)
-3.Chernika - По Беспределу (3:19)
-4.DeeSpace - Стань Моим Ангелом (3:15)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:41:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C9CAEB002EA75A88DBE31D63FC57B4035316C5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678237   (147285) от 20.11.2023
-
-VA - Музыка для машины Vol.39 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147285.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 5Утра - Давай сбежим (Искорки) (02:32)
-02. 2xA - We Got a Love (01:35)
-03. A R I Z O N A - Hanging On (03:12)
-04. Bryan Adams - You're Awesome (02:50)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:36:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F2BF009EAB7AAEECDBF0CE986CB87790835AF56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678243   (147255) от 20.11.2023
-
-VA - Музыка для машины Vol.40 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147255.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex Amor - Like The First Time (03:07)
-02. Slavique Green - I Like That (02:55)
-03. Юлия Колерт - Давай Танцевать (03:18)
-04. Эдуард Хуснутдинов - Распустилась Cирень (03:38)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:38:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EEC02D56750AFF3977C18437266979A36D72D56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271959   (147196) от 25.12.2018
-
-VA - Громкие новинки месяца Vol.19 (2018) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147196.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lil' Wayne, Kid Ink, Saweetie - YUSO
-002. Lena Katina - Куришь
-003. Доминик Джокер, Екатерина Кокорина - Новый день и Новый год
-004. Grivina - Девочку несёт(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:22:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C793D0D3519955C9DB7B53A6BA24F6FA8CEE9946
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434896   (146961) от 26.12.2020
-
-VA - Новинки С Разных Популярных мп3 Сайтов ver. 102 (2020) [MP3|320 Kbps] <Club, Dance, Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146961.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dance:
-01. Ava Max - My Head  My Heart (NitugaL Radio Edit)
-02. Bingo Players & Ida Corr - I Know This Club (Extended Mix)
-03. Bingo Players, Felguk, Fafaq - Devotion (2020 Remix) (Instrumental Mix)(   Читать дальше...   )Жанр: Club, Dance, Disco, Pop, Rap, RnB, RockПродолжительность: 06:24:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:134F0CC423E1D028CEE5B27D5F763E7C7877CEB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969641   (146907) от 27.12.2015
-
-VA - Новогодний танцпол NRJ (2015) [MP3|192-320 кб/с] <Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146907.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dj Antonio Vs. Feder - Goodbye (Buddha Bar Hitup Extended Mix)
-002. Joy Tarantino Ft Eleonoire - All Of That (Jack & Joy Computer Controlled Radio Mix)
-003. MC Zali & DJ HaLF feat. Karina Kari - Этот Новый Год
-004. Optimum Feat. Brianna - Lately Baby (Radio Edit)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 06:34:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:522170601222504935F58DB9502F606BB31EE0FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

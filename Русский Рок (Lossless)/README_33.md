@@ -1,3 +1,119 @@
+###  Публикация: 1069017   (377719) от 02.11.2016
+
+АлисА - Эксцесс (2016) [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_377719.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Эксцесс
+02. Новый мир
+03. Колобок
+04. За полдня до весны(   Читать дальше...   )Жанр: RockПродолжительность: 00:56:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2D955BCFC8D5D7360D13BFA5C470F3EE6EAA916
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1068868   (377713) от 02.11.2016
+
+Сплин - Ключ к шифру (2016) [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_377713.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Медный грош
+02. Пирамиды
+03. Нам, мудрецам
+04. Храм(   Читать дальше...   )Жанр: RockПродолжительность: 01:53:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDCA55617305BB085D1187FC990501379DBA6EA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575015   (377191) от 09.09.2022
+
+Храм Заката - MMXXI (2021) [FLAC|Lossless|WEB-DL|tracks] <Simphonic Metal, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_377191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro [00:02:24]
+02. Lost Dead Town [00:04:44]
+03. Simulation [00:05:59]
+04. В туманах дней [00:05:56](   Читать дальше...   )Жанр: Simphonic Metal, Female VocalПродолжительность: 01:07:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A5B1B4432AF7DC27CD62C896FA4BE2C709D0E42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575112   (377099) от 09.09.2022
+
+Цветы - Детство (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop Punk, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_377099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. сегодня [00:01:36]
+02. отстой [00:02:15]
+03. снег [00:02:23]
+04. детство [00:02:55](   Читать дальше...   )Жанр: Pop Punk, RockПродолжительность: 00:28:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:976139E1A216474302B4914C2F2515B04532DF01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 949625   (377054) от 23.10.2015
 
 Кипелов - Непокорённый (2015) Single [FLAC|tracks|WEB-DL]<Heavy Metal>
@@ -631,128 +747,6 @@ https://www.deezer.com/en/album/348827517
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C6CA38CEE61CF6D88E8C90CB6D9C3B22EDE23D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416506   (365382) от 17.10.2020
-
-Pav - Behind The Black Stripe (2020) [FLAC|Lossless|WEB-DL] <Alternative Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365382.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stone Cold City [00:04:00]
-02. You Are Not Around [00:03:08]
-03. New Reality [00:06:14]
-04. 1995 [00:05:15](   Читать дальше...   )Жанр: Alternative Metal, Hard RockПродолжительность: 00:45:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1001478853951C16F1DA7D512FF76C22BCA02B9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 576168   (365130) от 16.11.2012
-
-Ленинград - Рыба (2012) [FLAC|Lossless] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_365130.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Москва (03:14)
-02. Мы за! (02:32)
-03. Вода (02:20)
-04. Рыба (02:43)
-05. 87 (03:24)
-06. Непросто (02:27)
-07. Желуди (02:49)
-08. Бах (02:47)
-09. Юлия (03:33)
-10. Бомбила (02:40)(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:30
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416500   (365113) от 17.10.2020
-
-Огонь Палатина ‎ - Чёрный флаг (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Power Folk-Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365113.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Воздух [00:02:47]
-02. Остров каннибалов [00:04:11]
-03. Призрак саратана [00:04:56]
-04. Смерч [00:03:43](   Читать дальше...   )Жанр: Heavy Power Folk-Doom MetalПродолжительность: 00:35:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B17004F3A9567E4F3E85C73E83A5C675F724B8A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576488   (364380) от 15.09.2022
-
-Solar Storm - 3 Relises (2018-2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364380.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. За Линией Горизонта [00:02:13]
-02. Демон Твой [00:04:40]
-03. Тетрадь Смерти [00:04:51]
-04. Your Name Is Gerda [00:03:18](   Читать дальше...   )Жанр: MetalcoreПродолжительность: 3 CD, 01:11:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0E17502F98A264DF4703570E2939844057B0B2C
 ```
 
 https://mybot314.ru/tekegram_catalog/

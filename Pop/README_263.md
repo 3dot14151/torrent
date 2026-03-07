@@ -1,3 +1,203 @@
+###  Публикация: 1565769   (245807) от 25.07.2022
+
+VA - I Love The 90's The Retro Edition (2018) 5CD, Compilation, Mixed [FLAC|Lossless|tracks + .cue] < Eurodance, House, Dance, Progressive>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_245807.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Eurodance, House, Dance, ProgressiveПродолжительность: 01:12:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F79B08900DD9A5E3F9A9F642E9FE5EE37CD5D29D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512332   (245599) от 24.11.2021
+
+VA - Late Night With You (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_245599.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Troye Sivan - BITE (03:06)
+02. Justin Bieber - Hold Tight (Single Version) (04:14)
+03. Nick Jonas - Close (03:54)
+04. banks - Waiting Game (03:27)(   Читать дальше...   )Жанр: PopПродолжительность: 01:35:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C97B0BBCD8D68CC5058A482BE4191234D8AB051
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1608743   (245534) от 31.01.2023
+
+Gerard Joling - No More Boleros (1989) [MP3|320 Kbps] <Рор>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_245534.jpg" />
+</div>
+
+
+###  Подробнее
+
+Треклист:
+01. The Tears Inside
+02. Lovin' You Is Easy
+03. Let This Night Last Forever(   Читать дальше...   )Жанр: РорПродолжительность: 00:55:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C30675E517B00B6C04A5B2F09C87C42D1B7F1CB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1608739   (245461) от 31.01.2023
+
+Gerard Joling - No More Boleros (1989) [FLAC|Lossless|tracks + .cue]<Рор>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_245461.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Tears Inside
+02. Lovin' You Is Easy
+03. Let This Night Last Forever
+04. No More Boleros(   Читать дальше...   )Жанр: РорПродолжительность: 00:55:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C97270C54960B699A0555F8E9C5592FFFBEF3E2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449491   (245392) от 21.02.2021
+
+Taylor Dayne - Soul Dancing (Deluxe Edition) 2CD,  (2014) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_245392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'll Wait (4:43)
+02. Send Me A Lover (4:27)
+03. Can't Get Enough Of Your Love (4:26)
+04. Say A Prayer (5:22)(   Читать дальше...   )Жанр: PopПродолжительность: 02:34:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:547212E7A1876C72E00AFF73E6924F50788A1D2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1631026   (245162) от 04.05.2023
+
+VA - Mellow Classics (2023) [MP3|320 Kbps] <Pop, Rock, RnB, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_245162.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fleetwood Mac - Dreams (2018 Remaster)
+02. Simply Red - Holding Back the Years
+03. Gerry Rafferty - Right Down the Line
+04. Carly Simon - You're So Vain(   Читать дальше...   )Жанр: Pop, Rock, RnB, DanceПродолжительность: 02:55:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:275AF1AD4B24E59384BB8EFA03298F63A37BD2A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266150   (245056) от 01.12.2018
+
+VA - Megahits 2019 - Die Erste (2018) 2CD [MP3|320 Kbps] <Pop, Indie, Alternative>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_245056.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01:
+01. Robin Schulz Feat. Erika Sirola - Speechless
+02. Calvin Harris And Sam Smith - Promises
+03. Alle Farben - Fading(   Читать дальше...   )Жанр: Pop, Indie, AlternativeПродолжительность: 02:34:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67E08CAA7FBF6B32429887F0F8193E1A1E087ADF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1624762   (245038) от 07.04.2023
 
 Elkie Brooks - No More The Fool (1986) [FLAC|Lossless|tracks + .cue]<Funk, Soul, Pop>
@@ -535,209 +735,6 @@ VA - I Love The 90's 10 Years Anniversary Edition (2017) 5CD, Compilation [FLAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5BFBE6BAB3D8B74E8E91133088EE2D973CAECD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632300   (244316) от 09.05.2023
-
-Shakin' Stevens - Re-Set (2023) [FLAC|Lossless|image + .cue] <Pop-Rock, Rock 'N' Roll>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244316.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. George
-02. Not in Real Life
-03. It All Comes Round
-04. May(   Читать дальше...   )Жанр: Pop-Rock, Rock 'N' RollПродолжительность: 00:32:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96185A536A4FBD8977601E659501A3635F8A9B10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622613   (244298) от 29.03.2023
-
-VA - Mega Hits 2010 (2023) [OGG Vorbis|480 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244298.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lady Gaga - Bad Romance
-02. Katy Perry - Teenage Dream
-03. Taio Cruz - Dynamite
-04. Ellie Goulding - Lights (Single Version)(   Читать дальше...   )Жанр: PopПродолжительность: 03:19:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C25EAA84AD810EF1BB3C6140C98B3199190081C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622661   (244188) от 29.03.2023
-
-VA - All 00s (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance, Rock, RnB>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244188.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lady Gaga - Just Dance                                  [04:04]
-  02. Gwen Stefani - The Sweet Escape                         [04:06]
-  03. Mary J. Blige - Family Affair                           [04:27]
-  04. Maroon 5 - This Love                                    [03:25](   Читать дальше...   )Жанр: Pop, Dance, Rock, RnBПродолжительность: 03:30:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FA7699E2E59A408DD29DF1145907177A97A425A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622656   (244180) от 29.03.2023
-
-VA - Mega Hits 2011 (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244180.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Avicii - Levels (Radio Edit)                                                [03:21]
-  02. Katy Perry - Firework                                                       [03:47]
-  03. The Black Eyed Peas - Just Can't Get Enough                                 [03:39]
-  04. Taio Cruz - Hangover                                                        [04:04](   Читать дальше...   )Жанр: PopПродолжительность: 03:18:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC4598A7EBB9B4A050FCA06C5DB78CEB84E94329
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626000   (244064) от 13.04.2023
-
-VA - Mega Hits 2016 (2023) [OGG Vorbis|480 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244064.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Justin Bieber - Sorry
-02. DJ Snake - Let Me Love You
-03. Shawn Mendes - Treat You Better
-04. Jonas Blue - Fast Car(   Читать дальше...   )Жанр: PopПродолжительность: 02:56:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED9546AB8688E4EED5AF5C1B24DCD55C41E04AE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632509   (244060) от 10.05.2023
-
-VA - Disco Made Me Do It Vol. 6 (2023) [MP3|320 Kbps] <Electronic, Nu-Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244060.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yam Who?, Jaegerossa & Suki Soul – Wear It Out (06:38)
-02. Sound Experience – Got To Keep On The Move (Theon Bower remix) (06:14)
-03. Sense Of Sound Singers – Spread Love (Yam Who? extended Gospel mix) (07:34)
-04. Brian Lucas & Platinum City – Try My Love (06:09)(   Читать дальше...   )Жанр: Electronic, Nu-DiscoПродолжительность: 02:20:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20F2A61639F633DAF0D5F36E2AF8918D4CF8D3FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632531   (244044) от 10.05.2023
-
-VA - New Sounds of Brazil (2023) [MP3|320 Kbps] <Pop, RnB, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244044.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anitta - Girl from Rio
-02. Ludmilla - Fala mal de mim (Radio Sessions)
-03. Pedro Sampaio, Felipe Original, JS o Mao de Ouro - Sentadаo
-04. GIULIA BE - menina solta(   Читать дальше...   )Жанр: Pop, RnB, DanceПродолжительность: 01:27:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93D9285C1A935ACCC87FA2570A04E7C40A25C167
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1011694   (796174) от 28.04.2016
+
+Фабрика - Коллекция песен (2016) [MP3|256-320 кб/с] <Поп>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796174.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Девушки фабричные (03:59)
+02. Про любовь (03:32)
+03. 5 минут (04:41)
+04. Море зовёт (03:48)(   Читать дальше...   )Жанр: ПопПродолжительность: 02:40:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FCC2E2E9D7CC8B6DC4733C79A8214B66B9B9BB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508950   (796168) от 10.11.2021
+
+VA - My Beath Summer: Pop Musical Collection (2021) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796168.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Justin Bieber - Peaches
+002. Aitana - Menos
+003. (Dis)Amore - Ti Stavo Lontano
+004. Ava Max - My Head & My Heart(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:40:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:532D39D756EB802B1576FFF52635204005788B23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1011684   (795954) от 28.04.2016
 
 Потап и Настя - Коллекция песен (2016) [MP3|320 кб/с] <Поп, Ритм-н-Блюз>
@@ -687,64 +745,6 @@ VA - Radio DFM Top D-Chart Май 2020 [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D028F2AA50AEB5656937D8AB1FCC08EF3BDB65B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387534   (791299) от 02.06.2020
-
-VA - Hopes For Tomorrow (2020) [MP3|320 Kbps] <Pop Lyric, Romantic>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791299.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Alanis Morissette - Diagnosis (4:47)
-2. Albatros - Lys Og Varme (3:37)
-3. Klara Vytiskova - Love Is Gold Intro (0:38)
-4. Dermot Kennedy - The Corner (3:18)(   Читать дальше...   )Жанр: Pop Lyric, RomanticПродолжительность: 09:11:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54E09623548E34DE8279F473280B99463237299D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275129   (790949) от 10.01.2019
-
-Boney M - The Magic 2 CD (2019) (Compilation) [MP3|320 Kbps] <Pop, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790949.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Painter Man
-02. Silly Confusion
-03. Sunny
-04. Fever(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 02:58:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEFB8EBE03163B7A36A086D33BCC8D9D63917222
 ```
 
 https://mybot314.ru/tekegram_catalog/

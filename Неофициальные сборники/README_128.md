@@ -1,3 +1,294 @@
+###  Публикация: 1110212   (853678) от 02.03.2017
+
+VA - Music for your Car (2017) [MP3|320 Kbps] <Dance , House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853678.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Florian Picasso - This Is Our Time (Original mix) 3:34
+002. 2K Feat Adina - Be the 1 (Radio Edit) 3:13
+003. Milana May - Relationship (Original Mix) 4:05
+004. Chassio - Let the Monkeys Out (Radio Edit) 2:55(   Читать дальше...   )Жанр: Dance , HouseПродолжительность: 05:56:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0E77309932F4FB5532745038013BB46226597A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377351   (853562) от 21.04.2020
+
+VA - Cosmic Rock (2020) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853562.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Agitation Free - In The Silence Of The Morning Sunrise 6:38
+02. Eloy - Le Réveil Du Soleil / The Dawn 6:48
+03. Camel - Supertwister 3:19
+04. Can - Sing Swan Song 4:49(   Читать дальше...   )Жанр: RockПродолжительность: 05:48:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05302458CF0518A46EC5936DE6D71E344F8B03F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110312   (853475) от 02.03.2017
+
+VA - Зайцев.Нет: Музыка весны (2017) [MP3|192-320 Kbps] <Поп, Рок, Рэп, Шансон>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853475.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данный плейлист включены самые весенние композиции - от классических произведений Шопена и Микаэла Таривердиева до современной R&B-музыки Rihanna и хип-хопа Kendrick Lamar. Широкий спектр жанров объединяет одно желание: поскорее избавиться от зимних оков и настроиться на ритм самого безумного и яркого времени года.01.  Рок-Острова - Весна  4:11
+02.  Frank Sinatra - It Might As Well Be Spring  3:17
+03.  5'nizza - Весна  4:20
+04.  Гарик Сукачев и Неприкасаемые - За окошком месяц май  4:08(   Читать дальше...   )Жанр: Поп, Рок, Рэп, ШансонПродолжительность: 03:05:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADBB87AD7A91509976325D107539DA46C43D5136
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377405   (853406) от 21.04.2020
+
+VA - 80s Pop Rock (2020) [MP3|320 Kbps] <Pop Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853406.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. a-ha - Take On Me 3:48
+02. The Police - Every Breath You Take 4:11
+03. U2 - Pride (In The Name Of Love) (Remastered 2009) 3:48
+04. Philip Bailey & Phil Collins - Easy Lover 5:06(   Читать дальше...   )Жанр: Pop RockПродолжительность: 04:22:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F083B1D37088F0646098F4D56390E24E5268B26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377383   (853272) от 21.04.2020
+
+VA - 100% Classic metal (2020) [MP3|320 Kbps] <Rock, Hard Rock, Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853272.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Disturbed - Down with the Sickness
+02. Metallica - Master Of Puppets (Remastered)
+03. Black Sabbath - Paranoid
+04. Overkill - Coma(   Читать дальше...   )Жанр: Rock, Hard Rock, MetalПродолжительность: 02:48:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48AE670AB954987D153A97A27F3D7FE7A6297604
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377331   (853263) от 21.04.2020
+
+VA - Enigmatic Vibes (2020) [MP3|320 Kbps] <Enigmatic, New age>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853263.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wise Hand - Manschoud
+02. Mythos - Brazil
+03. Shinnobu - Warriors Of Light
+04. Mythos - June(   Читать дальше...   )Жанр: Enigmatic, New ageПродолжительность: 03:20:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4BF044E09D4EE79593A45B216BBD7445BFC3A81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 770029   (853190) от 24.03.2014
+
+VA - The Official UK Top 40 Singles Chart (23-03-2014) [MP3|320 кб/с]<Pop, Dance, Rock, R&B, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853190.jpg" />
+</div>
+
+
+###  Подробнее
+
+Публикую традиционный UK Singles Chart  - официальный хит-парад синглов Великобритании, отсортированных по результатам продаж за неделю.
+Все изменения по сравнению с прошлым чатом Вы можете посмотреть здесь. А новинки под спойлером NEW.01. Duke Dumont Feat Jax Jones - I Got U  (4:46)
+02. Route 94 Feat Jess Glynne - My Love  (4:22)
+03. John Legend - All Of Me  (4:30)
+04. Pharrell Williams - Happy  (3:53)(   Читать дальше...   )Жанр: Pop, Dance, Rock, R&B, OtherПродолжительность: 02:28:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD1419A73E1E48F1F8631ECF7CB7D916877DFAD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377083   (853154) от 21.04.2020
+
+Whitesnake - 100% Whitesnake (2020) [MP3|320 Kbps] <Rock, Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burn
+02. Bad Boys (2007 Remastered Version)
+03. Is This Love (2007 Remastered Version)
+04. Here I Go Again(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 02:17:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E165B666446DA2B0A56A79E9D4D4BAE6D2BE9C58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377028   (853151) от 21.04.2020
+
+Axel Rudi Pell - 100% Axel Rudi Pell (2020) 2CD [MP3|320 Kbps] <Rock, Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853151.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Clown Is Dead
+02. The Crusaders of Doom
+03. The Line
+04. Mistreated (Live)(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 11:27:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF17345EBF6DD384E78AD81DED383FF38C2A618E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377289   (853150) от 21.04.2020
+
+Judas Priest - 100% Judas Priest (2020) [MP3|320 Kbps] <Rock, Hard Rock, Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Hellion
+02. Electric Eye
+03. Metal Meltdown
+04. Freewheel Burning(   Читать дальше...   )Жанр: Rock, Hard Rock, MetalПродолжительность: 03:42:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9C73479D3145D8822A3396162785179BA2FC949
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1377161   (853138) от 21.04.2020
 
 Accept - 100% Accept (2020) [MP3|320 Kbps] <Rock, Hard Rock>
@@ -452,290 +743,6 @@ VA - Popular Pikachu Chart (2017) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE72C695F5B64381C3E75221E6CDFEAB8F2F575C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110556   (852078) от 03.03.2017
-
-VA - Весна пришла. Лучшие хиты. Сборник № 10 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852078.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Прогульщики - We Are Young 4:03
-002. Volkonsky - Нежная 4:03
-003. Ринат Каримов - Расскажи 4:04
-004. Kvazar - Независима 3:30(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D88C0656137F86488D18EDE66B267F00BD38A1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001527   (852044) от 29.03.2016
-
-VA - Instrumental Covers (Chillout, Lounge, Nu Jazz, Bossa Versions of Pupolar Hits) (2016) [MP3|320 кб/с] <Nu Jazz, Lounge, Bossa Nova, Easy Listening>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852044.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. St Project - Clocks (03:07)
-02. Gazzara - Wave (04:09)
-03. St Project - Wake up Everybody (03:09)
-04. The Sniffers - Dune Buggy (02:54)(   Читать дальше...   )Жанр: Nu Jazz, Lounge, Bossa Nova, Easy ListeningПродолжительность: 01:57:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AC092670EA5D180A3B0D80B0D9CE95B11DB5E90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001342   (851924) от 29.03.2016
-
-AC/DC - Bedlam In Belgium (2016) EP [MP3|320 кб/с] <Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851924.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Shake Your Foundations
-02 – The Furor
-03 – Danger
-04 – Burnin’ Alive(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:34:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95D2D4BFB1D18D4D731D2A36F19A2375ABC1002D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110375   (851912) от 03.03.2017
-
-Buddy Guy - 30 most slow Blues (2017) 2CD [MP3|320 Kbps] <Blues, Chicago Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851912.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heavy Love
-02. I Smell A Rat
-03. Now You're Gone
-04. First Time I Met The Blues(   Читать дальше...   )Жанр: Blues, Chicago BluesПродолжительность: 05:14:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4F8E6D9FF12A92043B0FB7CA4FC0406343867A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110590   (851838) от 03.03.2017
-
-Eric Clapton - 30 most slow Blues (2017) 2CD [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851838.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Father's Eyes
-02. Still Got The Blues
-03. See What Love Can Do
-04. Worried Life Blues(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 04:43:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:545FF43D4F81EC5A4F196DF3249C1241D6AF0630
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110655   (851772) от 03.03.2017
-
-Михаил Шуфутинский - Ресторанный хит (2016) [MP3|320 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851772.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Наколочка
-02. Марджанджа
-03. Незаконченный роман
-04. Левый берег Дона(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:19:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:195E5E74AD1255BBA8AFB6B4A85E2FD57A359C9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 378639   (851753) от 03.03.2017
-
-VA - Arabic Music {2011} [MP3|160 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851753.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 10:41:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D604518412589175E54A797585CC5F5B4162F53C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376727   (851739) от 22.04.2020
-
-VA - Great Artists of My Heart Vol. 02 (2020) [MP3|320 кб/с]<Modern Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851739.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Great Artists of My Heart" это спин-офф сборника01. The Unguided - Inherit The Earth (04:47)
-02. The Unguided - Inception (03:51)
-03. The Unguided - Enraged (04:23)
-04. The Unguided - Death's Sting (03:49)(   Читать дальше...   )Жанр: Modern MetalПродолжительность: 08:34:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D624758DE2F2EF605C6DC800637B2515ECA1F0CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377643   (851637) от 22.04.2020
-
-VA - Hard Rock Ballads (2020) [MP3|320 Kbps] <Rock, Ballads>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851637.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bon Jovi - Never Say Goodbye 4:49
-02. Guns N' Roses - Don't Cry (Original) 4:45
-03. Whitesnake - Is This Love (2017 Remaster) 4:45
-04. Def Leppard - Hysteria 5:55(   Читать дальше...   )Жанр: Rock, BalladsПродолжительность: 03:58:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCA73C0E69D84804C13F4E15085049B5150EBD51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377587   (851634) от 22.04.2020
-
-Motley Crue - 100% Motley Crue (2020) [MP3|320 Kbps] <Rock, Hard Rock, Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851634.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Dirt (Est. 1981)Жанр: Rock, Hard Rock, MetalПродолжительность: 03:22:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB191FCA402841DDDF5660F8225CFC5B1A50E10E
 ```
 
 https://mybot314.ru/tekegram_catalog/

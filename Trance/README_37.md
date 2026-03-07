@@ -1,3 +1,90 @@
+###  Публикация: 1185833   (291738) от 22.11.2017
+
+VA - Trance Cloud (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_291738.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. IF - Classic Universe (original mix)
+02. IF - Classic Universe (radio edit)
+03. Parad Planet - Black Uplifter (original mix)
+04. Nickella & Destlours - Words (original mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:24:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D42F5961EDC657716274078512258A7327ED9C27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335007   (291664) от 31.10.2019
+
+Solarstone - One (Limited Edition) (2019) Box Set [MP3|320 Kbps] <Trance, Progressive Trance, Progressive House>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_291664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Solarstone - Leap Of Faith (7:01)
+02. Solarstone - Eclipse (6:02)
+03. Solarstone & RABBII - Untitled Love (5:20)
+04. Solarstone & Alex Karweit - Choosing His Angels (4:41)(   Читать дальше...   )Жанр: Trance, Progressive Trance, Progressive HouseПродолжительность: 01:03:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ADC623332860EAA155608A32043A200F4C761D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262875   (291558) от 17.11.2018
+
+Stoneface & Terminal - Altered Floors (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_291558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stoneface & Terminal – Dawn Of Life (Original Mix)
+02. Stoneface & Terminal – Glimpse (Original Mix)
+03. Stoneface & Terminal & Andy Ruddy – Dreamscape (Original Mix)
+04. Stoneface & Terminal – Airflow (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:27:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A961471146B6EB580C794C895B5AB04BD3EE5195
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1262870   (291554) от 17.11.2018
 
 VA - Sarah Lynn - Clear As The Sky: The Best Of (Extended Mixes) (2018) [MP3|320 Kbps] <Trance, Vocal Trance, Uplifting Trance>
@@ -658,93 +745,6 @@ VA - Euphoric Trance: Best Of (2016) [MP3|320 Kbps] <Trance, Uplifting Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68B50C0B1D28BDD8861305ED23789B653B010458
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081239   (284632) от 09.12.2016
-
-VA - Vocal Trance Top 100 (2016) [MP3|320 Kbps] <Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284632.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alan Morris Ft. Jess Morgan - Made Of Light (Radio Edit) 4:09
-002. Maarten De Jong & Katty Heath - All That Matters (Radio Edit) 3:22
-003. Armin Van Buuren Pres. Perpetuous Dreamer - The Sound Of Goodbye (Above & Beyond Us Edit) 3:50
-004. Dart Rayne & Yura Moonlight & Sarah Lynn - Silhouette (Allen & Envy Edit) 3:39(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 06:16:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F3E353FC2FE1D4B202E0A64E48105A7E8513FDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335916   (284556) от 04.11.2019
-
-VA - Uplifting Trance 2020 (2019) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284556.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steve Allen - Vorny (F.G. Noise Remix)
-02. Kaimo K & Trance Classics feat. Maria Nayler - Closest Thing To Heaven (Original Mix)
-03. Nikolauss - Ares (Kiyoi & Eky Remix)
-04. Lost Witness - Crashing Into Love (Original Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 05:18:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87E6B38FB8DB2491689E956CFB782C87F2DBD68A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964225   (283270) от 10.12.2015
-
-VA - Uplifting Only - Fan Favorites 2014 - 2015 (Mixed by Ori Uplift) (2015) [MP3|320 кб/с]<Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283270.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mhammed El Alami & illitheas & Johannes Fischer - New Rise (Intro Mix) (8:41)
-02. illitheas - Sapphire Sky (Radio Edit) (3:44)
-03. New World - Giver of Life (Radio Edit) (5:44)
-04. Ahmed Romel - Saudade (Original Mix) (7:43)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 09:34:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:420BCB8C2E8F387438583C0B637F9321A9F8CD58
 ```
 
 https://mybot314.ru/tekegram_catalog/

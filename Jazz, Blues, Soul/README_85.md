@@ -1,3 +1,235 @@
+###  Публикация: 1373046   (882211) от 05.04.2020
+
+Vincent Gardner - The Good Book Chapter Three: The Book of Bebop (2012) SteepleChase [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_882211.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Double Talk [6:07]
+02. Another Hair-Do [7:34]
+03. I Waited for You [6:28]
+04. Compulsion [6:40](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:07:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1326B7CA0859CA3FA897FD3747CD6BE2FDA6EA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103771   (881875) от 14.02.2017
+
+Maya Rae - Sapphire Birds (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_881875.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Close Your Eyes (3:57)
+02. Beautiful (4:18)
+03. Lullaby Of Birdland (3:12)
+04. Water Under Bridges (4:52)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:37:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:600733FC2AB68A4F113ACFB6E27F0733BCC1EA89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103947   (881807) от 14.02.2017
+
+Al Jarreau - Breakin' Away (1981) 1990 [WavPack|Lossless|image + .cue] <Smooth jazz, Vocal, Funk, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_881807.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Closer To Your Love (3:58)
+2. My Old Friend (4:29)
+3. We're In This Love Together (3:47)
+4. Easy (5:26)(   Читать дальше...   )Жанр: Smooth jazz, Vocal, Funk, SoulПродолжительность: 00:41:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC7493EE41A7CB653DEA8E61107DB96DC02037FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 996193   (881403) от 13.03.2016
+
+Dave "Fathead" Newman - Straight Ahead (1960) Remaster, 2012, Warner[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_881403.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Batista's Groove [07:28]
+ 02.Skylark [04:40]
+ 03.Night Of Nisan [07:59]
+ 04.Cousin Slim [07:08](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 00:38:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A347C2F33AFB91AD1B6B21ADCD96458122C8B9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 996194   (881398) от 13.03.2016
+
+McCoy Tyner - Song For My Lady (1972) 1987, OJC[FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_881398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Native Song [13:00]
+ 02.The Night Has a Thousand Eyes [08:14]
+ 03.Song for My Lady [07:34]
+ 04.A Silent Tear [04:29](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:44:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD9DD904A867BA47DF7979BD2BA93591004125FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 996331   (881292) от 13.03.2016
+
+Tete Montoliu - Yellow Dolphin Street (1977) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_881292.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Yellow Dolphin Street [05:51]
+ 02.Come Sunday [06:45]
+ 03.I Hate You [04:36]
+ 04.You've Changed [06:26](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 00:42:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97F2CD9F07551273AAD16B13858DB68EB18FA114
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 996191   (881287) от 13.03.2016
+
+Lee Konitz - Parallels (2000) Chesky Records[FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_881287.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.How Deep Is The Ocean [08:07]
+ 02.For Hans [06:14]
+ 03.Skylark [07:20]
+ 04.LT [07:39](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:58:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3655FE48FBE2F407C170ACFE511B566477DE5D28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 996325   (880742) от 13.03.2016
+
+Parov Stelar - Live @ Pukkelpop (2016) [MP3|320 кб/с] <Nu Jazz, Electro Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_880742.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Lonely Trumpet (04:13)
+02. Hit Me Like A Drum (03:44)
+03. Booty Swing (03:39)
+04. I Need LOVE (03:55)(   Читать дальше...   )Производство: Etage Noir RecordingsЖанр: Nu Jazz, Electro SwingПродолжительность: 01:11:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBD0C81E74527FC7760BE704DBAD675D03EABF5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1495362   (880623) от 12.09.2021
 
 Andrew Cyrille Quartet - The News (2021) [FLAC 2.0|88/24|tracks|WEB-DL] <Jazz>
@@ -513,236 +745,6 @@ Gabor Szabo - Gypsy '66 (1965) Remaster, 2005, Universal [FLAC|Lossless|tracks +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1CC2E81F46935E9500F8D87F096AAF93E72F24AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104317   (880240) от 15.02.2017
-
-Dave Weckl - Master Plan (1990) GRP Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Jazz Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880240.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Tower Of Inspiration [04:00]
- 02.Here And There [06:09]
- 03.Festival de Ritmo [04:52]
- 04.In Common [05:55](   Читать дальше...   )Жанр: Jazz Fusion, Jazz RockПродолжительность: 00:48:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE082651786DDC5776D46BB8CFDDF4EB401CE3A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104229   (879976) от 15.02.2017
-
-Kenny G - I'm in the Mood for Love: The Most Romantic Melodies Of All Time (2006) [FLAC|Lossless|tracks + .cue] <Smooth Jazz,  Instrumental>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879976.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You're Beautiful (James Blunt) (4:14)
- 02. The Way We Were (A. & M. Bergman) (2:52)
- 03. Yesterday (Lennon McCartney) (3:01)
- 04. I'm In The Mood For Love (McHugh Fields) (4:03)(   Читать дальше...   )Жанр: Smooth Jazz,  InstrumentalПродолжительность: 00:48:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52C0A8F65E16B218B2BFBA72858CF3F4AA27D814
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 871694   (879420) от 22.02.2015
-
-Brian Simpson - Out Of A Dream (2015) [FLAC|Lossless|WEB-DL|tracks]<Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879420.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Of A Kind (ft. Grace Kelly)
-02. Out Of A Dream (ft. Najee)
-03. When I Say Your Name (ft. Dave Koz)
-04. Sky Watcher(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:42:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D6FDE5855D85FC0033EDEB6A2D09BE610BABEFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996397   (879415) от 14.03.2016
-
-Kelly Wildowsky - Blues Prophecy (2016) [MP3|320 кб/с] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879415.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blues Prophecy (04:47)
-02. Fortune Cookie Philosophy (03:41)
-03. Don't Stay Mad (03:18)
-04. Wearing Me Out (03:42)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:38:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D5FE54B63F9F27C54735F1B13BFA92237200E48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996708   (879401) от 14.03.2016
-
-Miles Davis - Blue Moods (1956-1984) 2001, Sony Music[FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879401.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Time After Time [05:37]
- 02.Summertime [03:21]
- 03.Circle [05:51]
- 04.My Ship [04:30](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:10:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:858460081BF97D52822BD0EE58E171F4215ECBA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495611   (878997) от 13.09.2021
-
-Milt Jackson - Three Classic Albums (1958) 2CD, 2011, Real Gone [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878997.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Blues Oriental [5:04]
-02. Things Are Getting Better [7:14]
-03. Serves Me Right (take 5) [4:49](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 01:52:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66C658E424D16E67F6B4A6F6BB121ED70496E1B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495613   (878823) от 13.09.2021
-
-Christone Kingfish Ingram - 662 (2021) [FLAC|Lossless|image + .cue] <Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878823.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 662 (3:18)
-02. She Calls Me Kingfish (3:12)
-03. Long Distance Woman (3:31)
-04. Another Life Goes By (4:24)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:53:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EA8FD4D6D247D2A439C94834E0F8118B1E615B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495612   (878821) от 13.09.2021
-
-Mick Clarke - Blues It Up, Vol. 1-2 (2021) 2CD [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878821.jpg" />
-</div>
-
-
-###  Подробнее
-
-Blues It Up, Vol. 1
-Blues It Up, Vol. 2Жанр: Blues, Blues RockПродолжительность: 00:39:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B92A463F6502917AED8EAC9A08D1DC41677AC61
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,67 @@
+###  Публикация: 545580   (483011) от 11.09.2012
+
+VA - Teenage Idols (1955-1969) (2001) 4CD BoxSet[MP3|320 кб/с]<Pop, Rock, Oldes, Retro>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_483011.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frankie Lymon - Little Bitty Pretty One -1958 [02:40]
+02. Del Shannon - Keep Searchin' (We'll Follow The Sun) -1964 [02:10]
+03. Fabian - I'm Gonna Sit Right Down And Write Myself A Letter -1960 [01:53]
+04. Tommy Sands - Teenage Crush -1957 [02:21]
+05. Johnny Rivers - Memphis -1964 [02:31]
+06. Jan & Dean - The Little Old Lady From Pasadena -1964 [02:42]
+07. The Beach Boys - Surfin' U.S.A. -1963 [02:28]
+08. Bobby Freeman - Do You Wanna Dance -1958 [02:36]
+09. Craig Douglas - Only Sixteen -1959 [02:13]
+10. Bobby Darin - 18 Yellow Roses -1963 [02:17](   Читать дальше...   )Жанр: Pop, Rock, Oldes, RetroПродолжительность: 00:58:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:348E61FB8BF48B5A4BD949FE68D7214CE2B396AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405541   (482724) от 30.08.2020
+
+VA - Shazam Хит-парад Russia Top 100 Август (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_482724.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bastard! - F..k That (3:38)
+002. Dabro - Юность (3:39)
+003. Dj Smash and Poёt - Беги (3:06)
+004. Isyan Tetick ft. Camila Bennetta - Patlamaya Devam (2:50)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:02:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0872BF663C48151F10F2D4D126A45053F9D7318
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1566585   (482337) от 29.07.2022
 
 Sonic Dream - Compilation (2022) [MP3|320 Kbps] <Pop, Eurodance>
@@ -711,64 +775,6 @@ VA - German Top 100 Single Charts 23.08.2019 [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6C904EA2C550BFFE9330D79AEC6D8090E106E5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057805   (471314) от 30.09.2016
-
-VA - Хитовый Бум 6 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471314.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Алексей Федоров - Развяжите Мои Крылья
-002. Flo Rida - My House
-003. Stephen - Your Life
-004. Миран Шильке - Гудки(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31BD589F919E3FAB6C041361062CB352C59E6027
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057817   (471303) от 30.09.2016
-
-VA - Попсовая Лихорадка Осени 9 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471303.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kim Waters - Possession
-002. Александр Закшевский - Может Быть
-003. Kendji Girac - Sonrisa
-004. Ева Польна - Мало(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E851FECC8F472DB39FC7DAC2C02C01BDAED5429
 ```
 
 https://mybot314.ru/tekegram_catalog/

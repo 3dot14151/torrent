@@ -1,3 +1,90 @@
+###  Публикация: 1595738   (174842) от 06.12.2022
+
+Miyagi & Эндшпиль - HATTORI (2022) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_174842.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Saloon
+2. Ночь
+3. Временно
+4. Не теряя(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:20:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3D98FC2C479DCA8930E0A7AC13FF9E0AE281EE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595731   (174380) от 07.12.2022
+
+Miyagi & Andy Panda - YAMAKASI (2020) [FLAC 2.0|44; 48/24|tracks|WEB-DL] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_174380.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Атлант
+02. Utopia
+03. Мало Нам
+04. Психопатия(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:32:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92F0FC2152FE5DF059524B995725197FC9815C66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596136   (173830) от 08.12.2022
+
+Scarlxrd - DeadRising (2021) [MP3|320 Kbps] <Trap, Hardcore Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_173830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intrx.0000
+02. My Suicide
+03. The Walking Dead
+04. Lxuder(   Читать дальше...   )Жанр: Trap, Hardcore Hip-HopПродолжительность: 00:50:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2F9FCDD58DDC485AC25A26DD95FAE14C1714187
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1596143   (173626) от 08.12.2022
 
 Влади - Длится февраль (2022) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -658,93 +745,6 @@ Jon Moskowitz presents: DJ Cappel & Smitty - Blue Eyes Meets Bed-Stuy (Notorious
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC41DED43747BFA90F5CFE6E4E39F79C7B957558
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432846   (162890) от 18.12.2020
-
-Eminem - Music To Be Murdered By: Side B (2020) Deluxe Edition, Explicit [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162890.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Premonition (Intro) [00:02:53]
-02. Unaccommodating [00:03:36]
-03. You Gon’ Learn [00:03:54]
-04. Alfred (Interlude) [00:00:30](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 2 CD, 01:57:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D62018A44072E1A106DE03CE203829091569EECE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598786   (161921) от 20.12.2022
-
-Гуляй Рванина (Черная Экономика) - Сонный паралич (2022) [MP3|320 Kbps] <Rap, Hip Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161921.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Мост на остров [00:02:18]
-02 - Кисть касается полотен [00:02:01]
-03 - Сеанс гипноза [00:02:36]
-04 - Каждый верит [00:02:16](   Читать дальше...   )Жанр: Rap, Hip HopПродолжительность: 00:39:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68A2B25716AB5D615C0AFA355FF799DD511FF978
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433115   (161798) от 19.12.2020
-
-Eminem - Music To Be Murdered By - Side B (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161798.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Alfred (Intro)
-2. Black Magic
-3. Alfred’s Theme
-4. Tone Deaf(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:57:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84D0D4D0F02CECC896FB6F0AFFC2FE5CCB7A6908
 ```
 
 https://mybot314.ru/tekegram_catalog/

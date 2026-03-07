@@ -1,3 +1,32 @@
+###  Публикация: 1356548   (976676) от 01.02.2020
+
+VA - Amphetanarchy: Hard Rock Cafe (2020) [MP3|320 Kbps] <Hard Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_976676.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mitch Rivers - Reconsider Me
+002. The Quill - Hammerhead
+003. Dead Express - Nightmare On High Heels
+004. Louden Swain - Mrs. Vance(   Читать дальше...   )Жанр: Hard Rock, AlternativeПродолжительность: 09:49:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3A4FAA3C23BD988DD9F56D9059CE4A0E5682146
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1357582   (973002) от 04.02.2020
 
 Lita Ford - Can't Catch Me (2020) 2CD Compilation [MP3|320 Kbps] <Hard Rock>
@@ -716,35 +745,6 @@ VA - Русский Рок. Лучшее 2016 (2017) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE65D55CCC5E7F6EB3B872C66F19A791A43657D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365749   (928903) от 08.03.2020
-
-VA - Rock Drive 9  (2020) от DON Music [MP3|320 Kbps] <Hard Rock, Rock, Blues Rock, AOR>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_928903.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cold Chisel - Drive
-02. Eclipse - Never Gonna Be Like You
-03. Beth Hart - Bad Woman Blues
-04. CoreLeoni - Mountain Mama(   Читать дальше...   )Жанр: Hard Rock, Rock, Blues Rock, AORПродолжительность: 05:00:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E12E41680353986BF360D1A1421F94DF85CC4D62
 ```
 
 https://mybot314.ru/tekegram_catalog/

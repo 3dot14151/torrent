@@ -1,3 +1,32 @@
+###  Публикация: 1490692   (917570) от 21.08.2021
+
+Seventh Crystal - Delirium (2021) [MP3|320 Kbps] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917570.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Say What You Need To Say (3:56)
+02. When We Were Young (2:55)
+03. Broken Mirror (3:59)
+04. Delirium (3:37)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:44:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D905221521649B8CAD5CD97D577B8763008FA997
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1490617   (917523) от 21.08.2021
 
 Dangerous Curves - Summertime Highs (2021) [MP3|320 Kbps] <Hard-Rock, Glam-Metal>
@@ -710,35 +739,6 @@ Jimi Hendrix - Rainbow Bridge (1971) Remastered 2014 [MP3|320 кб/с]<Blues Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17C239EDE02D5542DDA05BF548634D9B266A01D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992012   (904445) от 29.02.2016
-
-Andy Logan & The O.C. 75s - Transistors of Mercy (2016) [MP3|320 кб/с] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904445.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Breakin' the Rules (04:08)
-02. Fall Again (05:29)
-03. Lost in Fantasy (03:42)
-04. Dreaming in My Sleep (04:29)(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB424C9525B38151BCA56A3E7F38C682D52BD96A
 ```
 
 https://mybot314.ru/tekegram_catalog/

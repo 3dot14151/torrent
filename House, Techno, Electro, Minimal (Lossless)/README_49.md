@@ -1,3 +1,116 @@
+###  Публикация: 1078280   (302842) от 30.11.2016
+
+Rrose / Orphx - Summer Solstice Edition EP (2016) [FLAC|Lossless|WEB-DL|24Bit|tracks] <Techno, IDM, Electro>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_302842.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Emboli (07:41)
+02. Aurora (10:17)Жанр: Techno, IDM, ElectroПродолжительность: 00:17:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2421CC70206E74774D176F3AC759736B41707991
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261887   (301292) от 12.11.2018
+
+MacroVision - Skyroom (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_301292.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skyroom (Rework)   (08:15)
+02. Glow (Original Mix)  (10:52)
+03. Pollux (Original Mix) (09:38)Жанр: Progressive HouseПродолжительность: 00:28:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35FE9B7D6FD8B362EBEFBCAC9DF65673CF0C4055
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261709   (301279) от 12.11.2018
+
+Paolo Lucchi - The Dawn Sessions (2018) Cold Tear Records [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_301279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Episode 1 (07:10)
+ 02. Episode 2 (06:14)
+ 03. Episode 3 (07:09)
+ 04. Episode 4 (07:42)Жанр: Dub Techno, Ambient, TechnoПродолжительность: 00:28:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4764E68BC5BAB61565BFAA513F70AAA14447CC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385530   (299790) от 13.11.2020
+
+VA - Steyoyoke Paradigm, Vol. 01-08 (2017-2020) Steyoyoke Recordings [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Techno, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_299790.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whirl & Another Mind - Bewitch (06:55)
+ 02. Jecksel - Hopeless (07:25)
+ 03. Soul Button & Monarke - Pantheon (07:17)
+ 04. Modeplex - Jupiter (Strinner Remix) (07:49)(   Читать дальше...   )Жанр: Progressive House/Techno/Tech HouseПродолжительность: 15:26:41 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D7B2CA366196E24C3AD326BA1680C4F56525F16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 961705   (298912) от 02.12.2015
 
 Scatman John - Take Your Time (1999) [FLAC|tracks+.cue]<Euro House, Jazzdance, Disco>
@@ -617,118 +730,6 @@ E-Light - Controversy (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Progressive House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6872FFDE84813CB28CF3A7F3719175536522F331
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262589   (293501) от 16.11.2018
-
-Cherry (UA) - Hello (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293501.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hello (Original Mix)
-02. Noi (Original Mix)Жанр: Progressive HouseПродолжительность: 00:11:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:982FC83DE91D480F11A9D46CC6D69D1882A850C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262571   (293500) от 16.11.2018
-
-Jacob Singer - Elohim (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293500.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elohim (Original Mix)
-02. The Book Of Enoch (Original Mix)Жанр: Progressive HouseПродолжительность: 00:14:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92FA980DB4F96820799092268BA6D046CEE4D5AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960899   (292839) от 05.12.2015
-
-VA - Terry Lee Brown jr. - Terry's Cafe vol. 1-14 (1997-2012) [FLAC|Lossless|tracks+.cue]<House, Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Logique - Ambiophonique [5:02]
-02. Bobby Forester - I Got Pressure Control [4:35]
-03. T.V. Babies - Funkin' Situation [5:12]
-04. The Mulder - The Police [5:20](   Читать дальше...   )Жанр: House, Deep House, Tech HouseПродолжительность: 20:25:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F538E1219B5C8E126632726FB686CF234C9680E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334651   (291526) от 31.10.2019
-
-VA - Rock the Disco (2018) [FLAC|Lossless|WEB-DL|tracks] <Electro, House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291526.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gizelle Smith - Dust (Dimitri From Paris vs. Cotonete Remix) (4:32)
-02. Smoove & Turrell feat. Izo Fitzroy - You're Gone (3:43)
-03. D'Stephanie - Rock the Disco (5:15)
-04. Izo Fitzroy - Hope You Can Wait (Hot Toddy Remix) (5:06)(   Читать дальше...   )Жанр: Electro, HouseПродолжительность: 01:45:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1B285E35FF03D65626B9FF64E5D0A298B9350E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

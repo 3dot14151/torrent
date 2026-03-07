@@ -1,3 +1,61 @@
+###  Публикация: 1382198   (820601) от 10.05.2020
+
+VA - Новички в попсе Vol 3 (2020) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_820601.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Alex Dalimjanov - Депрессия (2:50)
+2.Anthony El Mejor - Не Забывай Меня (2:59)
+3.BeRill - Бумеранг (2:32)
+4.DJ Jedy feat. AnasteZia - Имя Моё (3:40)(   Читать дальше...   )Жанр: PopПродолжительность: 02:25:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F33847C3FA318C52BC29DFCC7C3FDBEF6CA17BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196736   (820417) от 04.01.2018
+
+VA - Новогодняя Дискотека Руки Вверх! (2018) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_820417.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Руки Вверх! & Astero - Когда мы были молодыми
+02. МС Вспышкин и Никифоровна - Новогодняя (Scorpio Rework)
+03. Вирус! - С Новым Годом!
+04. Serebro - Новый год!(   Читать дальше...   )Жанр: PopПродолжительность: 01:14:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:425919229AC9347ED2C9E44C91B27D4184CC3B00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1007864   (819439) от 16.04.2016
 
 VA - Вспомним 90-2000 от Виталия 72 - 3 (2016) [MP3|320 кб/с] <Pop>
@@ -687,64 +745,6 @@ VA - Зажигательный Eurodance Vol.2 (2017) [MP3|192-320 Kbps] <Eurod
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B73008B1283CDD30954C99066A4F656E371D4DB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504684   (810344) от 24.10.2021
-
-VA - Top 100 Hardstyle Dance Energy (2021) [MP3|320 Kbps] <Hard Dance, Hardstyle>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810344.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Devastate feat. MC Sharkey - Terrabeat
-002. Freeboy - Down To Reduce
-003. Simon Perry - Don't Let Me Down
-004. Basic Beatz - I Think We're Alone Now(   Читать дальше...   )Жанр: Hard Dance, HardstyleПродолжительность: 08:57:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EC513D684A9FFE1C8777D477C2BBE21B89EB598
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198035   (810133) от 10.01.2018
-
-VA - De Top 100 Aller Tijden 1975 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, Rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810133.jpg" />
-</div>
-
-
-###  Подробнее
-
-"De Top 100 Aller Tijden" (Топ 100 на Все Времена) от голландской радиостанции "Radio-Veronica" .001. George Baker Selection - Paloma Blanca (3:28)
-002. Kamahl - The Elephant Song (3:30)
-003. Roger Glover & Guests - Love Is All (3:16)
-004. Johnny & Orquestra Rodriguez - Hey Mal Yo (3:10)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 06:02:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7E90C533710BCB36201F3B7139C54A8359ACFC1
 ```
 
 https://mybot314.ru/tekegram_catalog/

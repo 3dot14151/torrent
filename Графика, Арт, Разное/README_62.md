@@ -1,3 +1,29 @@
+###  Публикация: 520937   (629452) от 10.07.2012
+
+[Wallpapers] Best HD Wallpapers Pack (10.07.12)
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629452.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:627FDE7C3879FF93755200E1C96FD6A129ECD80D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 520886   (629446) от 10.07.2012
 
 [Wallpapers] Best HD Wallpapers (09.07.12)
@@ -647,32 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D24DC21E56448BDC95589F432AA54452D675BAE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 522046   (620541) от 14.07.2012
-
-[Графика] Luis Royo - ArtBooks (23 тома)
-
->>Графика, Арт, Разное
->>Современное изобразительное искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620541.jpg" />
-</div>
-
-
-###  Подробнее
-
-Luis Royo - ArtBooks (23 тома)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB8B51CC0BED9EECC3B5266C66715546CF7D7873
 ```
 
 https://mybot314.ru/tekegram_catalog/

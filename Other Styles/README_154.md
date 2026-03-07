@@ -1,3 +1,32 @@
+###  Публикация: 1587095   (192680) от 31.10.2022
+
+Vevaki (Vévaki) - Fórnspeki (2022) [FLAC|Lossless|WEB-DL|tracks] <Neo Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_192680.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brynhildarljóð [00:03:37]
+02. Heimdalagaldr [00:03:56]
+03. Hreingálknir [00:02:38]
+04. Jötnablót [00:08:37](   Читать дальше...   )Жанр: Neo FolkПродолжительность: 00:44:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5968EC2AA145B589BF407FE0C37E75F50BB45071
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1587439   (192676) от 31.10.2022
 
 Meldis - Цветок омелы (2010) [FLAC|Lossless|image + .cue] <Folk, Celtic Harp>
@@ -712,35 +741,6 @@ Wes Madiko (Вес Мадико) родился 15 января 1964 года в
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C622899CCA277622A2F65C32B78A4849E9980E52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591191   (185460) от 20.11.2022
-
-Basteiro-Bertoli - Boh (2022) [FLAC|Lossless|WEB-DL|tracks] <Folk Rock, Songwriter, Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185460.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Grey
-02. Cofing
-03. Ladies in Black (feat. Ian Anderson)
-04. Mirror(   Читать дальше...   )Жанр: Folk Rock, Songwriter, RockПродолжительность: 00:28:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4BD952D1E860EA31B3DD1C400217C2FE65E33DA
 ```
 
 https://mybot314.ru/tekegram_catalog/

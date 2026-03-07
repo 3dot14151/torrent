@@ -1,3 +1,32 @@
+###  Публикация: 1407783   (460101) от 10.09.2020
+
+Jim Kirkpatrick - Ballad Of A Prodigal Son (2020) [MP3|320 Kbps] <Hard Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_460101.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ballad of a Prodigal Son (04:27)
+ 02. No Such Thing as a Sure Thing (03:38)
+ 03. Ain't Goin' Down Alone (04:08)
+ 04. Blue Heron Boulevard (03:14)(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:51:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B355761A5829942288722B0DA448EB5A98C3F2D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 550656   (458098) от 22.09.2012
 
 Dokken - Broken Bones (2012) [MP3|320 кб/с]<Heavy Metal, Hard Rock>
@@ -717,35 +746,6 @@ iLL - Gotten Gains (2012) [MP3|320 кб/с]<Stoner Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0AF6371A2C65B2395443714F9E4476EF3F80706F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065157   (421631) от 22.10.2016
-
-Tyketto - Reach (2016) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421631.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Tyketto" является одной из лучших и в то же время одной из самых недооцененных групп, производивших мелодичный радиоформатный рок. Эта нью-йоркская команда так и не смогла добиться значительного успеха, хотя ее симпатичные AOR-песни с величественным вокалом заслуживают гораздо большего внимания.1 - Reach (5:37)
-2 - Big Money (4:03)
-3 - Kick Like a Mule (3:31)
-4 - Circle the Wagons (4:34)(   Читать дальше...   )Жанр: Hard Rock, AORПродолжительность: 00:58:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E0434BCE642A632DC2296E9224979ED3C3E81A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

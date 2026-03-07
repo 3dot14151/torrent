@@ -1,3 +1,206 @@
+###  Публикация: 1711029   (60782) от 04.04.2024
+
+VA - 70s Throwbacks Hits (2023) [MP3|320 Kbps] <Pop, Disco, New Wave, Ballad, Classic Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_60782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ac/Dc - Highway To Hell 3:26
+02. Earth, Wind & Fire - September 3:32
+03. Michael Jackson - Don't Stop 'til You Get Enough 5:58
+04. Bruce Springsteen - Born To Run 4:27(   Читать дальше...   )Жанр: Pop, Disco, New Wave, Ballad, Classic RockПродолжительность: 08:27:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:766086AC91BA6D81FA9AFD572C18DDA2E2A650D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714231   (60408) от 08.04.2024
+
+VA - Remix NNM 8 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_60408.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. GUMA - Люба любовь (WeLife & SONETS DJS Remix) (4:09)
+02. GAYAZOV$ BROTHER$ - Соседям (KHAN & BENCHI Radio Edit) (3:58)
+03. 5Утра & Rakurs & Ramirez - Не повезло (Alex Botcher MashUp) (3:57)
+04. Bakhtin - Целовала (Roman Max Extended Remix) (3:49)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:31:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA5CC6AB5CA991D8ED66D95C826EFA64C64F2798
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714119   (60346) от 08.04.2024
+
+VA - Music News vol.362 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_60346.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Havana feat. Yaar - I Lost You (EGGO Remix) (03:08)
+ 002. A36 feat. Estraden - Alla Vill (02:54)
+ 003. Abraham Mateo - Me Acuerdo De Ti (02:26)
+ 004. Abraham Mateo - Me Di Cuenta (03:13)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:19:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6123274FBCD39F8520CE7BF6E04C1C222E94AAFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1715016   (60030) от 11.04.2024
+
+VA - Music News vol.363 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_60030.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Real Girl - Помню (02:26)
+ 002. ALBA - Вавилон (03:32)
+ 003. Alkonost - Мой владыка (OST Королевская кровь) (03:15)
+ 004. Arkusha - Чмок (02:05)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:24:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73049726F73D2A52ED0DB1196D592CEA64C9EB3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1715583   (59924) от 12.04.2024
+
+VA - Music News vol.364 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_59924.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dua Lipa - Illusion (Extended) (04:24)
+ 002. Amirchik - Космос (03:08)
+ 003. AMOR - Lost On You (02:41)
+ 004. Anton Rudd feat. SDOB - Smoke (02:56)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:02:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BDA07070E8EA4B48C1A3F8B028C920A159B8454
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716555   (59491) от 16.04.2024
+
+VA - Music News vol.365 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_59491.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Deva - Кайф (02:32)
+ 002. 1MINUT - Красные Глаза (03:34)
+ 003. Alena Sky - Ракета (02:39)
+ 004. Alicia Keys feat. Maleah Joi Moon - Kaleidoscope (04:01)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:36:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF274270C02DD467911E4F3CFEC03872A630F383
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717302   (59188) от 19.04.2024
+
+VA - Music News vol.366 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_59188.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Cleopatra Stratan feat. Cristian Porcari - Inchide Usa (02:49)
+ 002. Alessiah feat. The Code - Call You Back (Just Eddie Remix) (02:25)
+ 003. Alex Say - Не Отпускай (DJ Karimov & DJ Oskar Remix) (02:38)
+ 004. Anthony El Mejor - Lady (Radio Edit) (03:48)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:01:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07FA98234E5259ABEF0AFD5392B146737B289F56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1717373   (59187) от 19.04.2024
 
 VA - Music News vol.367 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -542,209 +745,6 @@ VA - РАДИО БАТЯ - 006 (2024) [MP3|320 Kbps] <Шансон, Поп, Ру
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1FABC673AFA53C37B655E42E7FE3CA59CB76397B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724278   (56029) от 19.05.2024
-
-VA - Music News vol.378 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56029.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sabrina Carpenter - Espresso (Espressooooo Version) (04:55)
- 002. A Boogie Wit Da Hoodie feat. Cash Cobain - Body (03:12)
- 003. A Boogie Wit Da Hoodie feat. Future - Somebody (03:33)
- 004. AIZZO - Can't Feel My Face (02:11)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:29:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B19A1C70C7062029A6C387743D1B9221CDB8550
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724763   (55743) от 22.05.2024
-
-VA - РАДИО БАТЯ - 007 (2024) [MP3|320 Kbps] <Шансон, Поп, Русская Эстрада>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55743.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Guns N' Roses - Don't Cry (04:45)
- 02. Laura Branigan - Self Control (04:04)
- 03. Фристайл - Букет бумажных роз (04:08)
- 04. Весёлые ребята - В последний раз (03:13)(   Читать дальше...   )Жанр: Шансон, Поп, Русская ЭстрадаПродолжительность: 01:33:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF3FEAEE0D2CDE1CAFDD4AA8F44B64383300BD7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725057   (55710) от 22.05.2024
-
-VA - Music News vol.379 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55710.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Cher - Will You Wait For Me (03:33)
- 002. 2rare feat. Skilla Baby & Rob49 - C4 (02:29)
- 003. 3-ий Январь feat. 5 Пятниц - Подарю (02:21)
- 004. 52Ghz - Фальшивая любовь (03:18)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:24:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF3944C5DA73185DED267CFDBA07BEF5B95BF7E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725518   (55530) от 24.05.2024
-
-VA - РАДИО БАТЯ - 008 (2024) [MP3|320 Kbps] <Шансон, Поп, Русская Эстрада>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55530.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue System - Gangster Love (04:29)
- 02. Future Beat feat. Ian Carma - Faith The Night (03:52)
- 03. Coma feat. LTG - Reqiuem (Of a Junkies Dream) (03:46)
- 04. Григорий Лепс - Моя цыганская (05:55)(   Читать дальше...   )Жанр: Шансон, Поп, Русская ЭстрадаПродолжительность: 01:36:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06690CC28884E0DB7C1FF077AEB1C62F79CFF777
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725487   (55500) от 24.05.2024
-
-VA - Music News vol.380 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55500.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alessandra - Supposed To Be (03:10)
- 002. Agunda feat. Тайпан - Возьми Мое Сердце (02:04)
- 003. Ahzee - Tuma (03:46)
- 004. Alan Walker feat. Kylie Cantrall - Unsure (Alvin Mo Remix) (03:21)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 10:03:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E33F2EBF37C72AA2A2C06F974E40859B31158465
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725566   (55422) от 25.05.2024
-
-VA - РАДИО БАТЯ - 009 (2024) [MP3|320 Kbps] <Шансон, Поп, Русская и Зарубежная Эстрада>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55422.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вадим Казаченко - Сезон любви (04:03)
- 02. Премьер-Министр - Искорки (03:24)
- 03. Rasster - Come Back Home (02:26)
- 04. Bad Boys Blue - The Woman I Love (03:38)(   Читать дальше...   )Жанр: Шансон, Поп, Русская и Зарубежная ЭстрадаПродолжительность: 01:35:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD34CD56A45087C87DDBAA4F4A90B24B07DB85C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725586   (55417) от 25.05.2024
-
-VA - РАДИО БАТЯ - 010 (2024) [MP3|320 Kbps] <Шансон, Поп, Русская и Зарубежная Эстрада>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55417.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Александр Барыкин - Ты так мила (03:30)
-02. Damaji & OBMANI - Чистосердечное (02:06)
-03. LOBODA - Случайная (03:54)
-04. Иванушки International - Колечко (03:52)(   Читать дальше...   )Жанр: Шансон, Поп, Русская и Зарубежная ЭстрадаПродолжительность: 01:26:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32EC1920368DD1CD9AF4B5A911891A7EE5A09407
 ```
 
 https://mybot314.ru/tekegram_catalog/

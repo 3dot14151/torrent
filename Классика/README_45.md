@@ -1,3 +1,30 @@
+###  Публикация: 991943   (225025) от 01.12.2019
+
+Heinali - Sway, sway (2013) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Modern Classical>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_225025.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sway, sway (04:54)
+02. Little by Little (04:04)Жанр: Modern ClassicalПродолжительность: 00:08:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4073FD229DAD8C53B74E154D040914C0D5CE79A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1651137   (222976) от 05.08.2023
 
 Le Concert Des Nations, La Capella Nacional De Catalunya, Jordi Savall - Beethoven - Révolution Symphonies 6 à 9 (2021) 3 x CD [FLAC|Lossless|image + .cue] <Classical>
@@ -713,35 +740,6 @@ VA - Greatest Hits of Piano Music (2022) [FLAC|Lossless|WEB-DL|tracks] <Classica
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97F690C8233000EEDBFBD570AF2AF4DE2BB7B4F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589387   (190264) от 09.11.2022
-
-Andrea Bocelli - My Christmas (2022) Fireside Edition [FLAC|96/24|Lossless|WEB-DL|tracks] <Pop, Classical Crossover>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_190264.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silent Night (Fireside Version)
-02. White Christmas
-03. Angels We Have Heard On High
-04. Santa Claus Is Coming To Town(   Читать дальше...   )Жанр: Pop, Classical CrossoverПродолжительность: 01:39:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EFEBCB504CDD78BBB26946712B41C5BC23B7932
 ```
 
 https://mybot314.ru/tekegram_catalog/

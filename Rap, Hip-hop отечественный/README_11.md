@@ -1,3 +1,32 @@
+###  Публикация: 1423435   (299940) от 13.11.2020
+
+ST1M, СД - Аггро 2.0 (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_299940.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Только Mic и я [02:20]
+02. Моби Дик [03:37]
+03. В бой идут одни старики (feat. Schokk & Czar) [03:54]
+04. Эсперанто [03:17](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:17:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:733879A1B11C22D4CC7A666C5154C07E9C7FB604
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1423442   (299800) от 13.11.2020
 
 Kizaru - BORN TO TRAP (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -716,35 +745,6 @@ bollywoodFM - Магия (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2B46556536D604014EB5C803DD19173932F1B00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624526   (242092) от 06.04.2023
-
-L'One - Дом (2023) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242092.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Я готов ко всему
-2. Летать
-3. Она одна
-4. Верну до темноты(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:45:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19C1E3C94C6D4E4C5B1EB20E514E48022F5C58BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

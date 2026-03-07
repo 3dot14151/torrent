@@ -1,3 +1,32 @@
+###  Публикация: 1795601   (19028) от 07.05.2025
+
+Voodoo Circle (Alex Beyrodt's) - Compilation (2008-2024) [MP3|320 Kbps] <Hard rock, Heavy metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_19028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kingdom Of The Blind (Alex Beyrodt's Voodoo Circle | 2008)
+02. Locked & Loaded (Locked & Loaded | 2021)
+03. Walk On The Line (Raised On Rock | 2018)
+04. Devil's Daughter (Broken Heart Syndrome | 2011)(   Читать дальше...   )Жанр: Hard rock, Heavy metalПродолжительность: 03:30:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCBEC90ADCEDE1E20C114A8A4EB270BBD208AB53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1796474   (18415) от 13.05.2025
 
 Imagine Dragons - Compilation (2009-2024) [MP3|320 Kbps] <Alternative rock, Indie rock, Pop rock>
@@ -716,35 +745,6 @@ VA - Rolling Stone Magazine's 500 Greatest Songs Of All Time vol. 2024 (2024) [O
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3552843121BF622EE46CF84DB13432D0DF87C3E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813458   (6925) от 19.08.2025
-
-Сергей Мазаев & Моральный Кодекс - Compilation (1991-2025) [MP3|320 Kbps] <Pop rock, Jazz rock, Blues rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6925.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. До Свидания, Мама ! (Сотрясение Мозга | 1991)
-02. Где Ты (Где Ты | 2008)
-03. В Ожидании Чуда (Славянские Танцы | 2007)
-04. Реки и Горы (Хорошие Новости | 2001)(   Читать дальше...   )Жанр: Pop rock, Jazz rock, Blues rockПродолжительность: 06:59:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA6413FCCED78F05AB0DB90B848D000C79526CC3
 ```
 
 https://mybot314.ru/tekegram_catalog/

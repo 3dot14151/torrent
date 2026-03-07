@@ -1,3 +1,208 @@
+###  Публикация: 958954   (321842) от 22.11.2015
+
+VA - Passion City Angel: 100 Mega Dance Hit (2015) [MP3|320 кб/с]<Dance, Club, Pop, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_321842.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. DJ Klinx - Passion (Radio Mix)
+002. Ed Sheeran - Photograph
+003. AURORA - Half the World Away
+004. Jamie Lawson - Wasn't Expecting That(   Читать дальше...   )Жанр: Dance, Club, Pop, HouseПродолжительность: 08:07:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5711ADCD49CE7FB4A6A094D4589870AFD8F00404
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 958708   (321624) от 22.11.2015
+
+VA - My Favourite Hits of 1961 (4CD) (2015) [MP3|320 кб/с]<Easy Listening, Jazz, Rhythm & Blues, Pop Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_321624.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bobby Rydell - Sway (02:23)
+02. The Shadows - Find Me A Golden Street (02:49)
+03. Del Shannon - Runaway (02:18)
+04. Ben E. King - Stand By Me (02:52)(   Читать дальше...   )Жанр: Easy Listening, Jazz, Rhythm & Blues, Pop RockПродолжительность: 04:43:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A593BBA054E8A0EB0231B80E2BCBFB69EAA2F18F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 844153   (321483) от 24.11.2014
+
+VA - The Official UK Top 40 Singles Chart (23-11-2014) [MP3|320 кб/с]<Pop, Dance, Rock, R&B, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_321483.jpg" />
+</div>
+
+
+###  Подробнее
+
+Публикую очередной традиционный UK Singles Chart  - официальный хит-парад синглов Великобритании, отсортированных по результатам продаж за неделю.
+Все изменения по сравнению с прошлым чатом Вы можете сами посмотреть здесь или под спойлером NEW.
+Во все треки вшиты обложки альбомов.01. Band Aid 30 - Do They Know It's Christmas? (2014)  (3:49)
+02. Clean Bandit & Jess Glynne - Real Love  (3:40)
+03. Olly Murs Feat Travie McCoy - Wrapped Up  (3:06)
+04. Ed Sheeran - Thinking Out Loud  (4:42)(   Читать дальше...   )Жанр: Pop, Dance, Rock, R&B, OtherПродолжительность: 02:28:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E30E6C3B9A2B9BB00387FAF91D0FD9F34B4403E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1420953   (321419) от 03.11.2020
+
+VA - Громкие новинки Ноября (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_321419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. #2Маши - Мы переживём всё (3:17)
+02. 2517 - Снег (4:10)
+03. 5sta family - Эгоистка (3:04)
+04. Al Fakher - Девочка VIP (2:14)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:02:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8778FCCF86278CD042683EE1BC4A03F5BF8C32CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259368   (321387) от 03.11.2018
+
+VA - The Official UK Top 40 Singles Chart 02.11.2018 (2018) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_321387.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lady Gaga & Bradley Cooper - Shallow
+02. Little Mix - Woman Like Me (feat. Nicki Minaj)
+03. Calvin Harris & Sam Smith - Promises
+04. Dave, Fredo - Funky Friday(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:14:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64D7809DC8D5B89E55545D208D8362F244D40AAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1075394   (321294) от 22.11.2016
+
+VA - State Of House Club Mix (2016) [MP3|320 Kbps] <Club House, Dance, Electro>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_321294.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kahwe - Patterns
+002. Simon Hardy - Mambo
+003. Mambo Brothers - Momento
+004. Illyus & Barrientos - Strings(   Читать дальше...   )Жанр: Club House, Dance, ElectroПродолжительность: 09:33:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80984DA2B6FB79829F02A8AE1102755FE80E55CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259330   (321267) от 03.11.2018
+
+VA - ЕвроХит Топ 40 Europa Plus 02.11.2018 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_321267.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Imagine Dragons - Natural 3:09
+02. KAZKA - Плакала 3:45
+03. Dynoro & Gigi D'Agostino - In My Mind 3:05
+04. Rompasso - Ignis 3:32(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:13:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC60856CCA602A12CC2FBB62022D22B9E542EE18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1075481   (320433) от 22.11.2016
 
 VA - The Best World Ballads - 31 (2016) [MP3|320 Kbps] <Pop, Rock, Blues, Rap, R'n'B>
@@ -545,221 +750,6 @@ VA - The Official UK Top 40 Singles Chart 18.10.2019 [MP3|320 Kbps] <Pop, Dance,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE053D77BB4F7B4768A729C9C514485D5A0212FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332441   (313993) от 20.10.2019
-
-VA - не Громкие новинки недели 39 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313993.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Блокбастер - 100 Тысяч Белых Роз (4:55)
-2.Navai & Bahh Tee - Не Приму и Даром (Ramirez Remix) (4:27)
-3.Oleynik - Тихо (4:17)
-4.ПараТайн - Джем (4:02)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:46:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4D4507EB1A43E6BBCE7E3C8392B2F3A31DACBD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332059   (313985) от 20.10.2019
-
-VA - ЕвроХит Топ 40 Europa Plus 18.10.2019 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313985.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. C-BooL - Catch You 3:13
-02. Tiesto & Jonas Blue feat. Rita Ora - Ritual 3:19
-03. Shawn Mendes & Camila Cabello - Senorita 3:11
-04. Tones And I - Dance Monkey 3:30(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:08:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D586C4BD5CB4EE037AEBDFA041D7D35E35E0E464
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 583812   (313561) от 02.12.2012
-
-VA - Русская Морозная дискотека (2012) [MP3|320 кб/с]<Pop,Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313561.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ar4i - В Моих Руках
-02. Artik feat. Asti - До Утра
-03. Artik pres. Asti - Сладкий Сон
-04. Bel Suono & DJ Magic Finger - Любовь Бесконечна
-05. DJ Цветкоff & Mayo - Пусть Будет Так (Amen) (Radio Mix)
-06. Hi-F - Hi-Fi - Начнём Всё Сначала
-07. Lira (Та Сторона), MC 77, Архитектор - Спрятано Сердце
-08. MMDance - Р. Artik - Где Ты Был
-09. Oksi - Новогодняя
-10. RiDer - Побуду Один(   Читать дальше...   )Жанр: Pop,DanceПродолжительность: 02:11:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1F267CF2EE868D7EFDFBE93AF6F04C29E2EE6A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 582684   (313550) от 02.12.2012
-
-Digitally Imported - the best (2012) [MP3|64-320 кб/с]<Ambient,PsyAmbient>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313550.jpg" />
-</div>
-
-
-###  Подробнее
-
-001-Into The Dawn-Accadia
-002-Further Out-Alpha Wave Movement
-003-Nighttime-Arbre Noir
-004-Inside The Harmony-AstroPilot
-005-walking-dead-Bear McCreary
-006-Field and Void-Between Interval
-007-Journey To The Centre Of The-Biosphere and Deathprod
-008-Desire-Blank & Jones
-009-Arcana-Bryan El
-010-World Of Sleepers-Carbon Based Lifeforms(   Читать дальше...   )Жанр: Ambient,PsyAmbientПродолжительность: 06:23:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CD0B728FE6B2654C5E1A730660C8B5F905B9766
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260018   (313453) от 06.11.2018
-
-VA - Club Dance Ambience Vol.167 (2018) [MP3|320 Kbps] <Dance, Club, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313453.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Damitrex - You Dont Know  (Original Mix)
-002. Егор Крид Feat. Филипп Киркоров - Цвет Настроения Черный (Shnaps & Kolya Funk Censored Remix)
-003. Daniela Vecchia - Silence (Original Mix)
-004. Пропаганда & Dj Kolya Funk & Dj Danya Vs. Vedenzo - Мелом (Alex Plain Mashup)(   Читать дальше...   )Жанр: Dance, Club, HouseПродолжительность: 07:24:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C44DDA55AFB7ADEDFF7BBFDB05CF312F46747B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422090   (313163) от 07.11.2020
-
-VA - ЕвроХит Топ 40 Europa Plus 06.11.2020 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dotan - NUMB (3:38)
-02. Jason Derulo - Take You Dancing (3:10)
-03. twocolors - Lovefool (3:10)
-04. Bastard! - F..k That (3:38)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:11:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3866AC7CD8B3F44B2FCFC614E4C501FD921B41A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422217   (313146) от 07.11.2020
-
-VA - Merry Christmas Baby! Christmas BluesRock (2020) 4 CD [MP3|320 Kbps] <Blues, Rock, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313146.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elvis Presley - Amazing Grace
-02. AC/DC - Mistress for Christmas
-03. B.B. King - Back Door Santa
-04. G. Love - Christmas Blues(   Читать дальше...   )Жанр: Blues, Rock, PopПродолжительность: 11:55:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70BFE16D33D8F891391C670195310F7042FFEEE2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,114 @@
+###  Публикация: 610450   (990378) от 29.01.2013
+
+Full Tilt - Take Me Away (2012) [FLAC|Lossless]<Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_990378.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take Me Away (Original Mix) (7:17)
+02. Take Me Away (Andrew Bayer & James Grant Remix) (6:16)Жанр: Progressive HouseПродолжительность: 00:13:33
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 610455   (990323) от 29.01.2013
+
+Martin Roth - Beautiful Life / Make Love To Me Baby (2012) [FLAC|Lossless]<Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_990323.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beautiful Life (8:15)
+02. Make Love To Me Baby (9:33)Жанр: Deep HouseПродолжительность: 00:17:47
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355017   (985967) от 24.01.2020
+
+Boris Brejcha - Space Diver (2020) Ultra Records [FLAC|Lossless|tracks] <Tech House, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_985967.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gravity (9:24)
+ 02. Happinezz (7:52)
+ 03. Never Look Back (8:02)
+ 04. Lieblingsmensch (8:44)(   Читать дальше...   )Жанр: Tech House, MinimalПродолжительность: 01:34:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4473F591E6F0251592E1E0ECE1CC926A36EF3AEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971737   (984651) от 04.01.2016
+
+Dirty Vegas - Days Go By (2002) [FLAC|Lossless|tracks + .cue] <Progressive House, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_984651.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Dirty Vegas - Days Go By (7:12)
+ 2. Dirty Vegas - Days Go By (Scumfrog Vocal Remix) (7:09)
+ 3. Dirty Vegas - Days Go By (Paul Oakenfold Vocal Remix) (5:32)Жанр: Progressive House, Deep HouseПродолжительность: 00:19:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EE33F70C2AA9848D550C45D1453170AFCA91A13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1355377   (983631) от 26.01.2020
 
 VA - Klangkunst (2013) [FLAC|Lossless|tracks + .cue] <House, Downtempo, Ambient>
@@ -629,119 +740,6 @@ VA - Playa Del Carmen 2017 (2017) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Min
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E42B2DEA78FE9849C8547C913C125744397E7D6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089021   (953774) от 02.01.2017
-
-VA - Bedrock 18 - Signals (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953774.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. John Digweed - Fanfare (Darren Emerson Reprise) 04:15
-02. Quivver - Mumbo Jumbo (Reprise) 05:00
-03. Sebastian Markiewicz - Sensation 09:45
-04. Collective Machine - Hold You in the Moment 07:34(   Читать дальше...   )Жанр: Deep House, Tech House, MinimalПродолжительность: 05:27:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62D12A2744E9E2E94E5A74860E9FCB539B4A678A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362413   (949612) от 23.02.2020
-
-Zimmer - Zimmer (2019) [FLAC|Lossless|WEB-DL|tracks] <EDM, Deep House, Nu Disco, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949612.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Physique (4:21)
- 02. Wildflowers (3:38)
- 03. Mayans (3:38)
- 04. Techno Disco (4:34)(   Читать дальше...   )Жанр: EDM, Deep House, Nu Disco, DowntempoПродолжительность: 00:50:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D63B16F7EECC6AF613A93D496B26825139C6596
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362518   (949547) от 23.02.2020
-
-VA - Anjunadeep 11 (Mixed by Jody Wisternoff & James Grant) (2020) [FLAC|Lossless|tracks + .cue] <Electronic, Progressive House, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949547.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hosini & Jones Meadow – 8 Hours, Still No Rain (3:14)
-02. CRi – Never Really Get There (feat. Jesse MacCormack) (5:00)
-03. HVMP – Flora (4:31)
-04. Jerro – Tunnel Vision (feat. Kauf) (3:00)(   Читать дальше...   )Производство: Anjunadeep – ANJCD080Жанр: Electronic, Progressive House, Deep HouseПродолжительность: 02:39:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:191DA17744B8197B76EAD61CBEB75907A1291FD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 623753   (949379) от 02.03.2013
-
-Mano Le Tough - Changing Days (2013) [FLAC|Lossless]<Tech House, Deep House, Minimal Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949379.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Tech House, Deep House, Minimal TechnoПродолжительность: 00:57:32
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

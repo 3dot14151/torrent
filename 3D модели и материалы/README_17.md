@@ -1,3 +1,81 @@
+###  Публикация: 1302807   (579321) от 17.05.2019
+
+3D модели - CGTrader - Dosch 3D - Heavy Machines [ATL]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579321.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продукт DOSCH 3D: Heavy Machines содержит 20 очень подробных и полностью текстурированных 3D-моделей автомобилей.Формат: ATL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91036D31A970151825E4794C6E46F9B2CD08657F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1302811   (579318) от 17.05.2019
+
+3D модели - CGTrader - Dosch 3D - Heavy Machines [DAE]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579318.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продукт DOSCH 3D: Heavy Machines содержит 20 очень подробных и полностью текстурированных 3D-моделей автомобилей.Формат: DAE
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD22A46604A54515A9A75351F831D72D0EECA3AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1302825   (579274) от 17.05.2019
+
+3D модели - CGTrader - Dosch 3D - Heavy Machines [U3D]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579274.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продукт DOSCH 3D: Heavy Machines содержит 20 очень подробных и полностью текстурированных 3D-моделей автомобилей.Формат: U3D
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59DB91393F9D2247CD1328A37BD8418EA570F342
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1302828   (579268) от 17.05.2019
 
 3D модели - CGTrader - Dosch 3D - Heavy Machines [WRL]
@@ -596,88 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49022672F7507265F545C7721DF93A3F72B5A9E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048810   (545275) от 03.09.2016
-
-3D модели - Evermotion - Archmodels Vol. 155 [V-Ray|*.max]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545275.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередной сборник 3d моделей от Evermotion!
-
-В данный сборник вошли 40 комплектов декораций.Формат: V-Ray|*.max
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E40EE117F3C31A1900F2FC74007C239982A55D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310921   (543336) от 28.06.2019
-
-3D модели - Daz 3D - Elios 8 Pro Bundle - 61465 [DUF]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543336.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комплект Elios 8 для DAZ 3D из категории People.
-Для Genesis 8Формат: DUF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C3F81BD993264EEFAB20CABCFD68F598DEBAE8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311050   (543263) от 28.06.2019
-
-3D модели - Daz 3D - Ellithia 8 Pro Bundle - 61753 [DUF]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543263.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комплект Ellithia 8 для DAZ 3D из категории People.
-Для Genesis 8Формат: DUF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5E882A588EC67077E559E6CD244E2159B5E762B
 ```
 
 https://mybot314.ru/tekegram_catalog/

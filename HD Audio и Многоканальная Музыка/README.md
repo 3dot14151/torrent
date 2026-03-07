@@ -1,4 +1,148 @@
 https://t.me/izofen
+###  Публикация: 1857774   (1059790) от 
+
+Boston Pops Orchestra • Arthur Fiedler - Classical Music For People Who Hate Classical Music (1976) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1059790.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Excerpt From Fifth Symphony: First Movement--Allegro Con Brio
+A2 Excerpt From "Unfinished" Symphony: First Movement--Allegro Moderato
+A3 Grand March From Aida
+A4 Excerpt From Piano Concert No. 1 In B-Flat Monor, Op. 23: First Movement--Andante Non Troppo(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:57:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D97A298D51A98603CDDA17E089184B54F615A1C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857371   (1059760) от 05.03.2026
+
+Max Bygraves - Max Bygraves (1971) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1059760.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 One Of Those Songs (1966)
+A2 Second Hand Rose (1966)
+A3 Mame (1967)
+A4 Edelweiss (1967)(   Читать дальше...   )Жанр: PopПродолжительность: 00:25:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DB32CE1BDCBB6E18423CC9FC7F8C28857166E75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857011   (1059424) от 03.03.2026
+
+Mason - Studio Albums (3 releases) (2013-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash/Groove Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1059424.jpg" />
+</div>
+
+
+###  Подробнее
+
+Базирующаяся в Мельбурне, Австралия, трэш-метал группа Mason демонстрирует впечатляющие выступления на национальной и международной метал-сцене. Mason воплощает трэш-звучание 80-х, смешанное с быстрыми темпами и доминирующей ритм-секцией.2013 - Warhead
+2017 - Impervious
+2025 - MartyrЖанр: Thrash/Groove MetalПродолжительность: 02:12:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16F9D454A1C255E3BC48F5A45AF44740BE15F56B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856946   (1059237) от 03.03.2026
+
+Peter Katin, London Philharmonic Orchestra, John Pritchard - Tchaikovsky / Litolff – Piano Concerto No.1 / Scherzo (1970) Embassy Master Series [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Classical, ...
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1059237.jpg" />
+</div>
+
+
+###  Подробнее
+
+A  Tchaikovsky: 1st Movement: Allegro Non Troppo E Molto Maestoso
+B1 Tchaikovsky: 2nd Movement: Andantino Semplice
+B2 Tchaikovsky: 3rd Movement: Allegro Con Fuoco
+B3 Litolff: Scherzo From Concerto Symphonique No.4 Op. 102(   Читать дальше...   )Жанр: Classical, RomanticПродолжительность: 00:42:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9C378C4801D717419525AD05AEFA5D9CAC5CC0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856798   (1059157) от 02.03.2026
+
+Susperia - Studio Albums (7 releases) (2001-2018) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Black/Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1059157.jpg" />
+</div>
+
+
+###  Подробнее
+
+Susperia - метал-группа из Ромерике, Норвегия, основана в 1998 году.2001 - Predominance
+2002 - Vindication
+2004 - Unlimited
+2007 - Cut from Stone(   Читать дальше...   )Жанр: Melodic Black/Thrash MetalПродолжительность: 05:41:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F37722BBC0A536C5E3C7C791B0F0AA15540C4B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1856260   (1058677) от 27.02.2026
 
 Armageddon (Sweden) - Studio Albums (5 releases) (1997-2016) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal, Progressive/Thrash Metal>
@@ -223,6 +367,35 @@ Rotting Christ - греческая метал-группа, созданная 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7CAA7F95FFEECD128FC2BFBD08B1654AC361708
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854505   (1057272) от 18.02.2026
+
+VA - Emotions (1978) Billy Joel, Chris Rea, Andy Williams, Bonnie Tyler and other [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop, Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1057272.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Samantha Sang (with The Bee Gees) - Emotions
+A2 Deniece Williams - Free
+A3 Billy Joel - I Love You Just The Way You Are
+A4 Gallagher & Lyle - I Want To Stay With You(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:01:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2DA25C859E410EB9C926B1618A3656CEF9A410F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -571,180 +744,6 @@ Ronnie Romero - Studio Albums (4 releases) (2022-2025) hand made [restored, decl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E3C80538E4763A3B9730E440CE1CE5F0750493D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851860   (1055392) от 04.02.2026
-
-Protector - Studio Albums (10 releases) (1987-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash/Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055392.jpg" />
-</div>
-
-
-###  Подробнее
-
-Protector — метал-группа из Вольфсбурга, Нижняя Саксония, Германия, образованная в 1986 году.1987 - Misanthropy
-1988 - Golem
-1989 - Urm The Mad
-1990 - Leviathan's DesireЖанр: Thrash/Death MetalПродолжительность: 06:02:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08E2FCB44B10665A07D81233729FC2A48FE89BFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851666   (1055280) от 03.02.2026
-
-Cliff Richard - Always Guaranteed (1987) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055280.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 One Night
-A2 Once Upon A Time
-A3 Some People
-A4 Forever(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:42:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A58C67463F6F1E01AB056714C2D4AF97188FC4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851280   (1055201) от 01.02.2026
-
-Cliff Richard - Love Songs (1981) Compilation, Remastered, Stereo, Mono [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Soft Rock, Pop Rock, Ballad>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055201.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Miss You Nights
-A2 Constantly
-A3 Up In The World
-A4 Carrie(   Читать дальше...   )Жанр: Soft Rock, Pop Rock, BalladПродолжительность: 01:00:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A77A8D9A5B131DF7F5CA97E7FD12F303D9F055BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851514   (1055135) от 02.02.2026
-
-Queens of the Stone Age (QotSA) - Studio Albums (8 releases) (1998-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock, Stoner Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055135.jpg" />
-</div>
-
-
-###  Подробнее
-
-Queens of the Stone Age - рок-группа, образованная в 1997 году в Палм-Дезерте, Калифорния, США.1998 - Queens of the Stone Age
-2000 - Rated R
-2002 - Songs for the Deaf
-2005  - Lullabies to ParalyzeЖанр: Hard Rock, Stoner RockПродолжительность: 08:25:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F9808055C37CCF3A1964065AC27EBEA7B489D71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851520   (1055134) от 02.02.2026
-
-Cliff Richard - 100th Single (1989) Single, 45RPM, Limited Edition [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055134.jpg" />
-</div>
-
-
-###  Подробнее
-
-A The Best Of Me
-B1 Move It
-B2 Lindsay Jane
-B3 High Class Baby(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:14:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5586CFE591AE092C5124B271D1D8043899C3B871
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850692   (1054470) от 29.01.2026
-
-Avatarium - Studio Albums (6 releases) (2013-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Doom Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054470.jpg" />
-</div>
-
-
-###  Подробнее
-
-Avatarium — шведская рок-группа из Стокгольма, основанная в 2013 году.2013 - Avatarium
-2015 - The Girl With The Raven Mask
-2017 - Hurricanes And Halos
-2019 - The Fire I Long ForЖанр: Doom Metal, Progressive RockПродолжительность: 4:54:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1CA7CB64211C5FE3D234649BB84FAEA65674A16
 ```
 
 https://mybot314.ru/tekegram_catalog/

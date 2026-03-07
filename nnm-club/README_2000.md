@@ -1,22 +1,74 @@
-###  Публикация: 1476701   (1006418) от 16.07.2021
+###  Публикация: 1245079   (1007505) от 08.07.2021
 
-Локи / Loki (2021) WEB-DL [H.264/1080p-LQ] (сезон 1, серии 1-6 из 6) LostFilm
+Книжная серия | Fanzon. Большая фантастика [44 книги] (2016-2021) [FB2] [Обновляемая]
 
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007505.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Fanzon.Большая фантастика» – серия, посвященная умной, нестандартной фантастике/фэнтези и авторам, пишущим на стыке жанров. Здесь будут выходить не только новинки интеллектуальной переводной фантастики, но и переиздания лучших произведений жанра прошлых лет и культовые фантастические произведения от авторов с мировым именем — Майкл Суэнвик, Чайна Мьевиль, Кристофер (   Читать дальше...   )Жанр: Зарубежная фантастика, Зарубежное фэнтези, СтимпанкФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3765031747427185377B48753AC29F168F0F6D35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367860   (1007504) от 08.07.2021
+
+Легендарный квест: Пир ворона / Мистический квест: Пир ворона / Mythic Quest: Raven's Banquet (2020) WEB-DLRip [H.264/1080p] (сезон 1, серии 1-9 из 9) LostFilm
+
+>>Зарубежные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007504.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гениальный эгоистичный разработчик игр Иэн Гримм намерен создать величайшую видеоигру в истории с собой в главной роли. Поддерживать безумные планы начальника вынуждена команда программистов, давно привыкших к выходкам босса.Производство: США / Arts Entertainment, Lions Gate Television, Ubisoft Motion PicturesЖанр: комедияРежиссер: Тодд Бирман, Дэвид Гордон Грин, Пит ЧатмонАктеры: Роб МакЭлхенни, Эшли Берч, Джесси Эннис, Имани Хаким, Дэвид Хорнсби, Шарлотта Никдао, Дэнни Пуди, Ф. Мюррэй Абрахам, Элиша Хениг, Апарна Нанчерла и др.Перевод: Многоголосый профессиональный (LostFilm)Продолжительность: 00:25:00 серияРеклама: Заставка и логотип LostFilm
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68A536A540EEB3991D40FCEEA7FDE673D1D0166D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1465392   (1007503) от 08.07.2021
+
+Детство Шелдона / Молодой Шелдон / Young Sheldon (2020) WEB-DL [H.264/1080p-LQ] (сезон 4, серии 1-18 из 18) Кураж-Бамбей
+
+>>3
 >>След.
->>Сериалы Marvel Comics
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006418.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007503.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Локи попадает в таинственную организацию «Управление временными изменениями» после того, как он украл Тессеракт, и путешествует во времени, меняя историю.Производство: США / Marvel Studios Inc.Жанр: фантастика, фэнтези, боевик, приключенияРежиссер: Кейт ХерронАктеры: Том Хиддлстон, Оуэн Уилсон, Гугу Эмбата-Ро, Вунми Моссаку, Эрика Коулмэн, Софи Ди Мартино, Ричард Э. Грант, Джон Ливайн, Аарон Билнер, Саша Лэйн и другие.Перевод: Многоголосый профессиональный (LostFilm)Язык озвучки: русский, английскийСубтитры: русские (Forced, full), английские (SDH)Продолжительность: ~00:51:00 серия
+История о непростом детстве вундеркинда Шелдона Купера. Родители юного гения не разделяют увлечения сына наукой: его мать очень религиозна, а отец, бывший футбольный тренер, предпочитает проводить вечера в компании пива и телевизора. Со сверстниками тоже не ладится, ведь Шелдона куда больше детских игрушек интересует, где можно взять обогащённый уран для научных (   Читать дальше...   )Производство: США / Chuck Lorre Productions, Warner Bros. TelevisionЖанр: КомедияРежиссер: Джаффар Махмуд, Алекс Рейд, Крис КохАктеры: Иэн Армитедж, Зои Перри, Лэнс Барбер, Монтана Джордан, Реган Реворд, Джим Парсонс, Энни Поттс, Уоллес Шоун, Райан Фуонг, Уайатт МакКлюр, и др.Перевод: Одноголосый закадровый, профессиональный - Кураж-БамбейЯзык озвучки: РусскийПродолжительность: ~00:20:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0E357181F560C163E191073D562731711711E11D
+magnet:?xt=urn:btih:985EB271049B4A067141D7932E6F911447699164
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,24 +76,53 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483988   (1006417) от 17.07.2021
+###  Публикация: 1476527   (1007502) от 09.07.2021
 
-The Crown of Yamhad - Epilogues For The Fallen (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Gothic Folk Metal, Female Vocal>
+Curses - Next Wave Acid Punx (2021) [AAC|~328 Kbps] <Electronic>
 
->>
->>
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006417.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007502.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Glorious Dead (06:51)
-02. Skull In The Mirror (07:41)
-03. The Loss Of Light (07:41)
-04. Beyond The Sky (06:57)(   Читать дальше...   )Жанр: Symphonic Gothic Folk Metal, Female VocalПродолжительность: 00:39:30
+01. Borghesia - Z.M.R. (3:51)
+02. Gina X Performance - Kaddish (4:17)
+03. Suicide - Wild In Blue (2005 Remaster) (4:34)
+04. DEMOLITION GROUP - You Better Stay Alive (5:11)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 03:39:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1E7D475A597F7E3B09FB9DC46D0B80F808D5E22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482634   (1007501) от 09.07.2021
+
+Marcus Viana - Pantanal-Suite Sinfonica (1990) [FLAC|Lossless|tracks + .cue]<Symphonic Prog>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007501.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pantanal  ( Abertura )
+02. Pulsacoes Da Vida
+03. Espirito Da Terra
+04. Onca Pintada(   Читать дальше...   )Жанр: Symphonic ProgПродолжительность: 00:41:29
 
 ## Скачать торент
 ```bash
@@ -53,24 +134,53 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483992   (1006416) от 17.07.2021
+###  Публикация: 1478556   (1007500) от 09.07.2021
 
-Confined to Oblivion - Resumption (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
+VA - Jangrua Vol. I (2020) [AAC|~310 Kbps] <Psy-Trance>
 
->>
->>
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006416.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007500.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. In Abeyance (03:35)
-02. No Place Like Home (03:28)
-03. A Line Has Been Crossed (04:37)
-04. Silent Witness (03:38)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:41:52
+01. Totem Hotel, Nora - Elektronik Waveporn Terror (10:20)
+02. Data Entry - Ketanf (8:13)
+03. Thongoro, Monomano - Brisskar (11:12)
+04. Data Entry, FoldingCircus - Solid Space (8:08)(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 02:04:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7A787D1BAB7ECCC54BDDC05552AF65900264625
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478558   (1007499) от 09.07.2021
+
+VA - Jangrua Vol. II (2021) [AAC|~305 Kbps] <Psychill, Downtempo>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007499.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bobek - Omega -1 (8:51)
+02. Dr. Sinapsis - Forester Hill (7:25)
+03. Bobek - Time Fluctuation (10:36)
+04. Bobek, Nora - Folie à Deux (9:12)(   Читать дальше...   )Жанр: Psychill, DowntempoПродолжительность: 01:39:58
 
 ## Скачать торент
 ```bash
@@ -82,28 +192,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483579   (1006415) от 17.07.2021
+###  Публикация: 1477161   (1007498) от 09.07.2021
 
-Stillhead - Iceberg (2016) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo>
+Scatman John - Scatman's World (1995) [AAC|~329 Kbps] <Pop>
 
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006415.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007498.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Stillhead - Sunset Over Estonia 03:28
-2. Stillhead - Knife Edge 03:46
-3. Stillhead - Stillhead feat. Mu Vonz - Maybe We Aint Dead 03:53
-4. Stillhead - Breathe Me Out 04:24(   Читать дальше...   )Жанр: Ambient, DowntempoПродолжительность: 00:52:25
+01. Welcom To Scatland (0:54)
+02. Scatman's World (3:45)
+03. Only You (3:46)
+04. Quiet Desperation (3:55)(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:40A23E86803727ED4E47A415C43157B5B4B14914
+magnet:?xt=urn:btih:48D10717DA600C2187CFFCDE7AB859A8343E55BD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -111,28 +221,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483859   (1006414) от 17.07.2021
+###  Публикация: 1478801   (1007497) от 09.07.2021
 
-Almancestral - Almancestral (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Female Vocal>
+Fancy - Get Your Kicks (1985) [AAC|~369 Kbps] <Pop, Disco>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006414.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007497.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Padre
-02. Soldado Ancestral
-03. Dolorosa Traicion
-04. Fabula Medieval I(   Читать дальше...   )Жанр: Heavy Metal, Female VocalПродолжительность: 00:53:14
+01. Colder Than Ice (5:06)
+02. Get Your Kicks (5:30)
+03. L.A.D.Y O. (4:19)
+04. Slice Me Nice / Chinese Eyes (Special Mix) (4:19)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:38:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8FD251DB10B9D6FCE379FAA7B5E42FC5954BE444
+magnet:?xt=urn:btih:22822AA48AC49C8B6C94DE87EE5517787B634C54
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -140,28 +250,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484048   (1006413) от 17.07.2021
+###  Публикация: 1476499   (1007496) от 09.07.2021
 
-Megalizz - Hope (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+Игорь Саруханов - Скрипка-лиса (1997) [AAC|~340 Kbps] <Pop>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006413.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007496.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. I Would (05:16)
-02. New Generation (06:08)
-03. What Does Life To Me (06:39)
-04. Frank And Free (05:43)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:05:46
+01. Скрипка-лиса (6:20)
+02. Рыжая звезда (4:22)
+03. Вчерашний день (4:55)
+04. Маленькая девочка (5:00)(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1385675822DFA62610A61B880CD76035EE5F6E0C
+magnet:?xt=urn:btih:BA293A77232AD66DB3EB21CF777826AF73F017CA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -169,28 +279,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483852   (1006412) от 17.07.2021
+###  Публикация: 1478804   (1007495) от 09.07.2021
 
-Doomsday - Leyendas (2021) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Neoclassical>
+Fancy - Contact (1986) [AAC|~359 Kbps] <Pop, Disco>
 
->>
->>
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006412.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007495.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. El callejon del beso
-02. Llorona (La llorona p.1)
-03. La condesa
-04. El ultimo viaje de Biggus Dickus e Incontinentia Buttocks(   Читать дальше...   )Жанр: Power Metal, NeoclassicalПродолжительность: 00:37:42
+01. Reaving Queen (4:22)
+02. I Don't Want To Go (4:06)
+03. Bolero (Hold Me In Your Arms Again) (4:04)
+04. Feedback, Feedback (5:03)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:40:44
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:EF0C1B3540F66EE3DE8E3AA5502EA949DFF5ED0C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -198,28 +308,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484082   (1006411) от 17.07.2021
+###  Публикация: 1476491   (1007494) от 09.07.2021
 
-Suidakra - 3 Albums (2019-2021) [MP3|320 Kbps] <Melodic Death, Folk Metal>
+Игорь Саруханов - Лучшие песни 2 (1994) [AAC|~311 Kbps] <Pop>
 
->>
->>
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006411.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007494.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. A Life in Chains [00:05:17]
-02. The Inner Wolf [00:05:43]
-03. Darcanian Slave [00:04:47]
-04. Faoladh [00:06:04](   Читать дальше...   )Жанр: Melodic Death, Folk MetalПродолжительность: 3CD, 02:28:55
+01. Я хочу сойти с ума (4:45)
+02. Флейта в саду (6:16)
+03. Поминальная (5:38)
+04. На Чёрном море (3:45)(   Читать дальше...   )Жанр: PopПродолжительность: 01:09:30
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:9F6051D7BD32D6687362CE3A7EE99826A0C70665
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -227,28 +337,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484065   (1006410) от 17.07.2021
+###  Публикация: 1478391   (1007493) от 09.07.2021
 
-Goya - Gotta Outbreak Your Ass (2021) [MP3|320 Kbps] <Nu Metal>
+Ottawan - Ottawan (1980) [AAC|~351 Kbps] <Pop, Disco>
 
->>Rock, Alternative, Punk, Metal
->>Metal
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006410.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007493.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Your Momma [00:03:11]
-02 - Fame [00:03:46]
-03 - Bipolar [00:04:04]
-04 - Geez On My Way [00:03:40](   Читать дальше...   )Жанр: Nu MetalПродолжительность: 00:30:40
+01. D.I.S.C.O. (5:03)
+02. Hello Rio! (4:27)
+03. Shalala Song (3:41)
+04. Tant que durera la nuit (4:19)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:34:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A10CD1C717F5CD5F6EE5E4BDE4E9A4BE373F4DD1
+magnet:?xt=urn:btih:A82FEB0CA852810D5096FAA860CD3DAE37DB13D5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -256,28 +366,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484072   (1006409) от 17.07.2021
+###  Публикация: 1482654   (1007492) от 09.07.2021
 
-Times Of Grace - 2 Albums (2011-2021) [MP3|320 Kbps] <Alt. Metal, Melodic Metalcore>
+Женя Полонская - Вот Такая Любовь! (2006) [APE|Lossless|image + .cue] <Chanson>
 
->>Rock, Alternative, Punk, Metal
->>Metal
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006409.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007492.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Burden of Belief [00:05:39]
-02. Mend You [00:04:16]
-03. Rescue [00:03:42]
-04. Far From Heavenless [00:06:00](   Читать дальше...   )Жанр: Alt. Metal, Melodic MetalcoreПродолжительность: 2CD, 01:45:29
+01. В Шератон отеле
+02. Разведённые мосты
+03. Вот такая любовь !
+04. Москва-Петербург(   Читать дальше...   )Жанр: ChansonПродолжительность: 00:39:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:74AF81E7F888A8CDE6D6204F39A13A1E1F0F96BE
+magnet:?xt=urn:btih:DD20FCBE90F715206BE6B100D1EDED591107C7C3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -285,25 +395,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484122   (1006408) от 17.07.2021
+###  Публикация: 1477168   (1007491) от 09.07.2021
 
-Бобби Бампс и аист / Bobby Bumps and the Stork (1916) WEBRip
+Garbage - No Gods No Masters (2021) [AAC|~321 Kbps] <Rock, Alternative>
 
->>
->>
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006408.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007491.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ну вот, теперь Бобби и Фидо всегда вместе. Вот только Па все никак не примирится с новым жильцом и по любому поводу грозит разлучить сына с его щенком. Что бы такое придумать, чтобы отец принял нового друга? Надо убедить Па, что это сама судьба свела их, что сами небеса принесли им этот дар. Отличный план! :)Производство: США, Bray Studios Inc.Жанр: Рисованная анимация, детскийРежиссер: Эрл ХердПеревод: Немой с интертитрамиСубтитры: Английские интертиры, русские отдельным файломПродолжительность: 00:05:55
+1.01. The Men Who Rule the World (4:27)
+1.02. The Creeps (3:34)
+1.03. Uncomfortably Me (3:17)
+1.04. Wolves (4:17)(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 01:23:31
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:BD0E1AA0EEB747F8395E6DE1E009C2081D90F188
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -311,337 +424,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484039   (1006407) от 17.07.2021
+###  Публикация: 1482616   (1007490) от 09.07.2021
 
-Resurrection Kings - Skygazer (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skygazer 05:35
-02. World's On Fire 03:31
-03. Tears 03:14
-04. Fight Against Our Pride 04:10(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:48:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A4494079986BC0C3B029E9BAFDC80450AFF3C29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484088   (1006406) от 17.07.2021
-
-Пи4алька - Молитва за самониубийцу (2021) 2CD, Deluxe Edition [MP3|320 Kbps] <Progressive Screamo, Post-Rock, New Wave Emo>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006406.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я+ты [00:04:21]
-02. Перекрыло [00:03:16]
-03. Эмо песня 2.0 [00:03:14]
-04. 5:42 [00:04:09](   Читать дальше...   )Жанр: Progressive Screamo, Post-Rock, New Wave EmoПродолжительность: 2CD, 01:04:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEAC95D0AF53F987CF6E06BAAF518DB4C020DF6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484045   (1006405) от 17.07.2021
-
-Walk The Walk - Walk The Walk (2021) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006405.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heaven's On It's Way Down
-02. Running From You
-03. Are You There?
-04. Two Miles To Go(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:35:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C53961DA4081067218B5AD19730836A27B51CE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484052   (1006404) от 17.07.2021
-
-Bolt - All Hands Unite (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006404.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Hands Unite (04:52)
-02. My Serenity (04:10)
-03. Hold On (05:10)
-04. Mental Breakdown (03:11)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:39:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFCEA44B1B69372604DFC7CC04384D903C3BA0FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484079   (1006403) от 17.07.2021
-
-Vandor - 2 Albums (2019-2021) [MP3|320 Kbps] <Heavy, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006403.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ...Darkness Looms [00:00:33]
-02. Mountains of Avagale [00:06:04]
-03. River of Life [00:06:17]
-04. Endless Sea [00:05:55](   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 2CD, 01:47:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA2C40D417C2EFA22C7FECEC1F77D11FC05BEFE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483693   (1006402) от 17.07.2021
-
-Teena Marie - Super Hits (2002) Compilation [FLAC|Lossless|WEB-DL|tracks] <R&B, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006402.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.If I Were A Bell
-02.Dear Lover
-03.My Dear Mr. Gaye
-04.Just Us Two(   Читать дальше...   )Жанр: R&B, SoulПродолжительность: 00:56:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2580248D075C3927C68418409B8A885D65422CC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484036   (1006401) от 17.07.2021
-
-Kenka Banchou Otome: Girl Beats Boys | Боевой главарь банды: Девушка бьёт парней [2017, TV, 12 эп.] BDRip 1080p raw+eng
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006401.jpg" />
-</div>
-
-
-###  Подробнее
-
-После событий оригинальной игры девушка-сирота Хинако Накаяма неожиданно воссоединилась со своим братом-близнецом, Хикару. Он просит ее занять его место в академии «Львиный Рык», частной школе для парней. О ней ходит дурная молва из-за жестокого учсовета, установившего свою диктатуру. Хикару принадлежит к влиятельному клану якудза, и он обязан стать лидером академии (   Читать дальше...   )Производство: Project No.9Жанр: приключенияРежиссер: Сайто НориакиПеревод: официальный (Crunchroll)Язык озвучки: Японский и английскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 8 мин.
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484109   (1006400) от 17.07.2021
-
-Эй Джей Гнюзи | Девочка из стен (2021) [MP3, Михаил Лукашов]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006400.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все тайное становится явным. Элиза знает каждый дюйм этого дома. Какие доски скрипят, где трещины в стенах – идеальные убежища для маленькой девочки. Это ведь ее пристанище. Дом, купленный родителями незадолго до автокатастрофы. Только здесь она чувствует себя защищенной.
-Эдди изо всех сил пытается игнорировать девочку, которую видит краем глаза. Даже старший брат (   Читать дальше...   )Жанр: Детектив, триллерПродолжительность: 09:58:59
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484123   (1006399) от 17.07.2021
-
-Анна Даунз | Укромный уголок (2021) [MP3, Ирина Патракова]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006399.jpg" />
-</div>
-
-
-###  Подробнее
-
-ЭМИЛИ НЕ В ПОРЯДКЕ
-Эмили Праудман не везет на актерском поприще. Она потеряла своего агента, работу и квартиру – все за день. Один ужасный день.
-ЭМИЛИ В ОТЧАЯНИИ
-У Скотта Денни, успешного и обаятельного генерального директора, есть проблема. Его деловая хватка и банковские счета бессильны. А потом он встречает Эмили.(   Читать дальше...   )Жанр: Зарубежные детективы, ТриллерыПродолжительность: 14:26:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC96BDAF0FA651E37D5FDB4011845624CE97FE37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464013   (1006398) от 17.07.2021
-
-Behzad (Behzad Aghabeigi) - Discography (1997-2019) WEB [FLAC|Lossless|WEB-DL|tracks] <Flamenco, Acoustic Guitar>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006398.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rapture of Massy (5:20)
-02. Your Tranquillity Matilda (4:51)
-03. Simmering Souls (6:01)
-04. Gypsy Renaissance (4:42)(   Читать дальше...   )Жанр: Flamenco, Acoustic Guitar |Продолжительность: 04:48:21 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B58A024D6B9B6B8FF89C86AB3AED31A07E1F320
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484095   (1006397) от 17.07.2021
-
-Privacy Eraser Free 5.13.2 Build 3956 + Portable [Multi/Ru]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006397.jpg" />
-</div>
-
-
-###  Подробнее
-
-Privacy Eraser Free - комплексный инструмент для защиты приватности путем удаления истории вашей активности в Интернете и других следов деятельности на ПК. Поддерживает основные параметры системы Windows, популярные браузеры и приложения. Ускоряет интернет-серфинг, повышает производительность и стабильность ПК.
-Буквально одним щелчком мыши Privacy Eraser стирает (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484094   (1006396) от 17.07.2021
-
-Telegram Desktop 2.8.10 + Portable [Multi/Ru]
+Microsoft Edge 91.0.864.67 Portable by Cento8 [Ru/En]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006396.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007490.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Telegram — это приложение для обмена сообщениями. Почти как SMS, однако помимо отправки простых текстовых сообщений, можно также отправлять фото, видео и любые другие файлы. Ещё можно создавать конференции для группового чата.Язык интерфейса: Русский, Английский и др.
+Microsoft Edge – кроссплатформенный веб-браузер на базе Chromium с поддержкой Windows 10, 8.1 и 7. Отличается высокой скоростью работы, хорошей производительностью и совместимостью со всеми современными веб-стандартами. Microsoft Edge – это скорость, производительность и совместимость со всеми вашими любимыми сайтами и расширениями. Начните работу с браузером так, (   Читать дальше...   )Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EDE8708EB084381A0623D22B1D0F5A9B231B06A0
+magnet:?xt=urn:btih:4840EB34A888F22A06F1C79EBAF5FCD5F26F997D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -649,28 +450,258 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484097   (1006395) от 17.07.2021
+###  Публикация: 1479274   (1007489) от 09.07.2021
 
-The Fall - Are You Are Missing Winner (2021) 4CD, Deluxe Edition [MP3|320 Kbps] <Garage Rock, Post Punk>
+Muse - Origin of Symmetry (XX Anniversary RemiXX) (2021) [AAC|~347 Kbps] <Alternative>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007489.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New Born (6:04)
+02. Bliss (4:15)
+03. Space Dementia (6:22)
+04. Hyper Music (3:22)(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:55:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DFF62F22FAFF91F84BABA9D3BDBC4F150DC3DE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478393   (1007488) от 09.07.2021
+
+Ottawan - Ottawan 2 (1981) [AAC|~341 Kbps] <Pop, Disco>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007488.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hands Up (Give Me Your Heart) (4:52)
+02. Siesta For Two (4:01)
+03. A.I.E. Is My Song (3:31)
+04. Sing Along With The Juke-Box (4:04)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:32:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE17C010469F50C8769B96E97CABE0BBB69EB1A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476469   (1007487) от 09.07.2021
+
+Игорь Саруханов - Лучшие песни (1993) [AAC|~339 Kbps] <Pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Маскарад (5:03)
+02. Ящики почтовые (3:40)
+03. Позади крутой поворот (4:12)
+04. Barber (3:06)(   Читать дальше...   )Жанр: PopПродолжительность: 01:05:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2FCA2E55C48BF47A25C74A67DF6B650A9347989
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477170   (1007486) от 09.07.2021
+
+Maroon 5 - JORDI (Deluxe) (2021) [AAC|~319 Kbps] <Pop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007486.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maroon 5, Megan Thee Stallion - Beautiful Mistakes (3:47)
+02. Lost (2:53)
+03. Maroon 5, blackbear - Echo (2:59)
+04. Lovesick (3:05)(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99FBB7F134B76C6426D97AD2476CC305D2A194B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482729   (1007485) от 09.07.2021
+
+Submerge 3 v3.7.2 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007485.jpg" />
+</div>
+
+
+###  Подробнее
+
+Submerge - это самый простой способ добавления субтитров к вашим фильмам и телешоу.
+Фильм с субтитрами будет воспроизводиться практически на всех «девайсах», таких как ваш компьютер, смартфон, портативное устройство или игровая приставка. Submerge поддерживает множество текстовых форматов субтитров в качестве входных данных, и вы можете экспортировать фильм (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.07.2021Разработчик: Bitfield ABПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Арабский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95CDDFE98B24AC334B20E3A6085FDFF96BF5841B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477897   (1007484) от 09.07.2021
+
+BTS - BTS, THE BEST (2021) [AAC|~323 Kbps] <k-pop>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007484.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.01. Film out (3:37)
+1.02. DNA (Japanese Version) (3:44)
+1.03. Best Of Me (Japanese Version) (3:48)
+1.04. Lights (4:51)(   Читать дальше...   )Жанр: k-popПродолжительность: 01:28:56
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479269   (1007483) от 09.07.2021
+
+Alicia Keys - Songs in A minor (20th Anniversary Edition) (2021) [AAC|~331 Kbps] <Pop, R&B>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007483.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Piano & I (1:52)
+02. Girlfriend (3:35)
+03. How Come You Don’t Call Me (3:58)
+04. Fallin’ (3:30)(   Читать дальше...   )Жанр: Pop, R&BПродолжительность: 01:19:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76FAB0B82FBCD8C809748023466C1492038E9BC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476577   (1007482) от 09.07.2021
+
+Yello - Yello 40 Years (2021) [AAC|~337 Kbps] <Synthpop>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007482.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.01. Bimbo (3:35)
+1.02. Pinball Cha Cha (3:24)
+1.03. The Evening’s Young (3:08)
+1.04. Bananas to the Beat (2:58)(   Читать дальше...   )Жанр: SynthpopПродолжительность: 04:46:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F929E9BABB08FCF97211E826DA84B1758685DA9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482607   (1007481) от 09.07.2021
+
+Pastore - Phoenix Rising (2017) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Alternative, Punk
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006395.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007481.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. To Nkroachment: Yarbles (Live, ATP, Camber Sands, 28 April 2002) [00:03:32]
-02. 2 Librans (Live, ATP, Camber Sands, 28 April 2002) [00:04:01]
-03. The Joke (Live, ATP, Camber Sands, 28 April 2002) [00:04:22]
-04. And Therein (Live, ATP, Camber Sands, 28 April 2002) [00:04:32](   Читать дальше...   )Жанр: Garage Rock, Post PunkПродолжительность: 4CD, 03:49:40
+01. Phoenix Rising
+02. Damn Proud
+03. Symphony Of Fear
+04. March Of War(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:51:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2995E57CE9B2C72DE0920CDE53957EDBFB11F1E9
+magnet:?xt=urn:btih:A12E19A5B14200BD7ED4421D15631F04E4AC5B6A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -678,55 +709,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484049   (1006394) от 17.07.2021
+###  Публикация: 1482557   (1007480) от 09.07.2021
 
-Сесилия Ахерн | Postscript (2019) [MP3, Алла Човжик]
+Find Any File (FAF) 2.3.1 b1 [Multi]
 
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006394.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007480.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Прошло семь лет с тех пор, как умер Джерри, муж Холли Кеннеди. И шесть лет с тех пор, как она прочитала его последнее письмо, призывающее Холли найти в себе мужество начать новую жизнь. Она преодолела боль, заново научилась дышать, любить, верить, у неё есть все основания гордиться тем, как она повзрослела, каким человеком стала за эти годы. Но тут её покой нарушают (   Читать дальше...   )Жанр: Зарубежные любовные романы, Современные любовные романыПеревод: Эвелина Д. МеленевскаяПродолжительность: 09:31:09
+Find Any File - утилита для быстрого поиска любого файла на вашем Mac
+Find Any File не содержит никаких подменю с настройками, быстро справляется с задачей и удобна в использовании. Все что нужно - написать ключевое слово (или слова) в окне поиска без предварительных настроек меню. Но если вам необходимо усложнить поиск, то Find Any File имеет множество подменю делающих (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.07.2021Разработчик: Thomas TempelmannПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:086F545324433F92D9AAA07EFE4C9D8639382EA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483950   (1006393) от 17.07.2021
-
-Paradise Lost - At the Mill (2021) [MP3|320 Kbps] <Doom Metal, Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006393.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Widow (Live) [00:03:10]
-02 - Fall from Grace (Live) [00:05:40]
-03 - Blood and Chaos (Live) [00:03:55]
-04 - Faith Divides Us - Death Unites Us (Live) [00:04:21](   Читать дальше...   )Жанр: Doom Metal, Gothic Metal
-Страна: GermanyПродолжительность: 01:13:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EB263B66AFD44245AB6AA9655006A5E35F95C4C
+magnet:?xt=urn:btih:5E1C31AC7D812A5FCCF143AFE419DD2B0C50C593
 ```
 
 https://mybot314.ru/tekegram_catalog/

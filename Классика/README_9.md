@@ -1,3 +1,32 @@
+###  Публикация: 995262   (886125) от 10.03.2016
+
+Sviatoslav Richter - Beethoven Piano Sonatas № 8, 23, 8 Bagatelles, Choral Fantasy (Melodiya Edition Vol.2) (2003) [FLAC|Lossless|image + .cue] <Classical, Chamber Music>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_886125.jpg" />
+</div>
+
+
+###  Подробнее
+
+Соната для фортепиано №8 до минор соч.13 "Патетическая"
+01. Piano Sonata No.8 in C minor, Op.13 - Grave, Allegro di molto e con brio
+02. Piano Sonata No.8 in C minor, Op.13 - Adagio cantabile
+03. Piano Sonata No.8 in C minor, Op.13 - AllegroЖанр: Classical, Chamber MusicПродолжительность: 01:19:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEF3529563D9C8E6561DC057CF8E93D56C0328FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 995066   (886023) от 10.03.2016
 
 Ronald Brautigam - Mozart: Piano Concertos No 19 & 23 (2013) [FLAC|96/24|WEB-DL|tracks] <Classical>
@@ -709,35 +738,6 @@ VA - Золотое Барокко (2001) S&V #02/2001 [FLAC|Lossless|tracks + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA5644432D56594C82FD75F69C249F781F4D8702
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105215   (876401) от 17.02.2017
-
-Tina Guo - The Journey (2011) [FLAC|Lossless|tracks + .cue] <Classical Contemporary>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876401.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lament [04:20]
-02. Introduction and Polonaise Brillante in C Major, For Cello and Piano, Op. 3 [09:06]
-03. Le Grand Tango [11:16]
-04. Winter Star [05:09](   Читать дальше...   )Жанр: Classical ContemporaryПродолжительность: 00:52:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA7137DCCBA77FF93A0125F607675E5B925D6C4F
 ```
 
 https://mybot314.ru/tekegram_catalog/

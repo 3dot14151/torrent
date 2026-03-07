@@ -1,3 +1,174 @@
+###  Публикация: 1537384   (667841) от 16.03.2022
+
+Stray - This Is Stray (1971) renamed album Saturday Morning Pictures, 1976 [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Prog Rock, Psychedelic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_667841.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Our Song
+A2 After The Storm
+A3 Sister Mary
+A4 Move That Wigwam(   Читать дальше...   )Жанр: Prog Rock, Psychedelic RockПродолжительность: 00:42:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E47247469E0A25306EB49CF100F5E6AFA75D7969
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137527   (667520) от 26.05.2017
+
+Юрий Антонов. Песни (коллекция виниловых пластинок) (1971-1989) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop, Pop Rock>
+
+>>След.
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_667520.jpg" />
+</div>
+
+
+###  Подробнее
+
+(Vinyl, LP, Мелодия - C50 28357-58 002, USSR)
+
+01. Инро
+02. Ю. Антонов - Живёт повсюду красота(   Читать дальше...   )Жанр: Pop, Pop Rock
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:243B89E81F1A943691317B1288DE6AD23D3FAD0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137878   (665359) от 28.05.2017
+
+VA (Юрий Антонов, Сергей Беликов, Ольга Зарубина и Александр Серов) - На улице Каштановой (1985) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_665359.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Юрий Антонов - На Улице Каштановой
+A2 Сергей Беликов - Сон-Трава
+B Ольга Зарубина и Александр Серов - Круиз
+===============================(   Читать дальше...   )Жанр: PopПродолжительность: 00:11:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A85C44C9C7F51624EA6847ABD1F1DCAFD059628
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137670   (665297) от 28.05.2017
+
+Иван Кучин - Судьба воровская (1997/2015) Remastered [WavPack 2.0|192/32|image +.cue|Vinyl-Rip] <Шансон>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_665297.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. В таверне
+A2. Судьба воровская
+A3. Сентиментальный детектив - 2
+A4. Таволга(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:49:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5B1FE29CED20381AFFEF8D247E299C071FB8D62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138118   (664319) от 29.05.2017
+
+Orchestra ''Electrecord'' (Romania) - Muzica De Dans: Twist and Swing (1966) [FLAC 1.0|96/24|tracks+.cue|Vinyl-Rip] <Twist, Swing>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_664319.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1	What'd I Say (twist)
+Written-By – Ray Charles
+A2	Copley Square (swing)
+Written-By – Marshall Brown(   Читать дальше...   )Жанр: Twist, SwingПродолжительность: 00:10:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60A9FA385311AE692CA9F1398CB1E47541B02E8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 512571   (663315) от 19.06.2012
+
+Mylene Farmer - Vinyl Discography 9LP (2009) [FLAC 2.0 24/96|image+cue (Vinyl rip)]<Pop, Electronic, Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_663315.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, Electronic, RockФормат: Vinyl  12”Продолжительность: 00:47:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3307AD7B7EC765685D70B1B8349F938A9D834552
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1138474   (663044) от 30.05.2017
 
 KISS - I Was Made For Lovin' You (1979) Single [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Hard Rock, Glam>
@@ -575,180 +746,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8CF10AA50B300402F89823344E282237B761DDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543465   (629373) от 11.04.2022
-
-Муслим Магомаев - Сумерки Зеленые/Прощай, Любовь Моя (1983) [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629373.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сумерки Зеленые
-(А. Мажуков - Е. Митасов)
-02. Прощай, Любовь Моя
-(А. Мажуков - О. Шамхалов, перевод Н. Горохова)(   Читать дальше...   )Жанр: PopПродолжительность: 00:10:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C85997CC5FC2605B8D46AABA8C767540C76C0B98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143821   (629152) от 21.06.2017
-
-Dire Straits - ExtendeDancEPlay (1982) [FLAC 2.0|192/24|tracks|Vinyl-Rip] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629152.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Twisting by the Pool (3:30)
-02. Badges, Posters, Stickers, T-Shirts (4:54)
-03. Two Young Lovers (3:23)
-04. If I Had You (4:16)Жанр: RockПродолжительность: 00:16:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63EC11C1F8317AB11F08FBF560769CCFDCF4CD8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 802489   (628788) от 05.07.2014
-
-The Who - Face Dances (1981)  [FLAC 2.0 24/192|image (Vinyl-Rip)]<Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628788.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. You Better You Bet (5:38)
-A2. Don't Let Go The Coat (3:43)
-A3. Cashe Cashe (3:56)
-A4. The Quiet One (3:09)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:38:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D4BBB4A420ABA0305F29469CA3488B47FDC7C5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 887298   (627585) от 12.04.2022
-
-Acker Bilk - Klarinet (1980) [FLAC 2.0 (image+.cue)|Vinyl-rip (24/96)]<Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627585.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1	Szállj Fel Magasra
-Written-By – Gallai Péter, Köves Miklós
-A2	Képzelet
-Written-By – Bágya András, Mészáros Ágnes(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22B3A869E7A2CCEE6E02273FDB462F13F279209D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 852481   (627576) от 12.04.2022
-
-Billie Piper - Walk Of Life (2000) [FLAC 2.0|16/44,1 (MC-Rip)]<Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627576.jpg" />
-</div>
-
-
-###  Подробнее
-
-01	Day & Night	3:15
-02	Something Deep Inside	3:21
-03	Walk Of Life	3:49
-04	Safe With Me	3:32(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98F4979DD7AC0E8640EF81EFA2426AD453D6384E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 853575   (627459) от 12.04.2022
-
-Jennifer Paige - Positively Somewhere (2001) [FLAC 2.0 (image+.cue)|16/44,1 (MC-Rip)]<Soft Rock, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 These Days
-02 Here With Me
-03 Stranded
-04 Make Me(   Читать дальше...   )Жанр: Soft Rock, Pop RockПродолжительность: 00:40:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:246D8D1872131F105E7C4E1EE00B08834621E8A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

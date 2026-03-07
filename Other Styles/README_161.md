@@ -1,3 +1,32 @@
+###  Публикация: 1087613   (144648) от 28.12.2016
+
+Mark Isham - The Accountant / Расплата (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_144648.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. At The Ravenite Social Club (02:13)
+02. Harbor Neuroscience (01:20)
+03. Do You Like Puzzles? (05:43)
+04. The Accountant (03:44)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:07:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBBB807C0AB1B74A41462A2567F539F9F02AA999
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1087614   (144549) от 28.12.2016
 
 Mark Isham - The Accountant / Расплата (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
@@ -720,41 +749,6 @@ CD 01:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B99971BD5EC305044AB81C8CF84F8511D77DD5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 591609   (136486) от 19.12.2012
-
-Roberto & Bobby Schnitzer - Lifescapes: Spanish Escape (2012) [MP3|320 кб/с]<Instrumental, Flamenco, Acoustic guitar>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136486.jpg" />
-</div>
-
-
-###  Подробнее
-
-(4:21) 01. Voice of the Wind
-(5:00) 02. Fly Away
-(4:10) 03. The Travelers Moon
-(5:14) 04. Dreams Of Spain
-(4:51) 05. Passion Flower
-(4:17) 06. Spanish Skies
-(4:35) 07. Sky Dance
-(2:48) 08. Magenta Mornings
-(2:14) 09. Daydream In Madrid
-(4:17) 10. Sunspots(   Читать дальше...   )Жанр: Instrumental, Flamenco, Acoustic guitarПродолжительность: 01:01:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F437E7EC0540DB15FDF8E7CFFC6FD7313B145F10
 ```
 
 https://mybot314.ru/tekegram_catalog/

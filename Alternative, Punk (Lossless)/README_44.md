@@ -1,3 +1,32 @@
+###  Публикация: 1330576   (339107) от 11.10.2019
+
+Big Thief - Two Hands (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_339107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rock and Sing (02:03)
+02. Forgotten Eyes (03:31)
+03. The Toy (04:16)
+04. Two Hands (03:52)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:39:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DE7AC7751517AC070495CD188F23A93C2BEED53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1579044   (338879) от 26.09.2022
 
 Thousand Thoughts - Better than Never (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Rapcore>
@@ -716,35 +745,6 @@ A Sight in Veracity - Eternity Past (2022) Extended Edition [FLAC|Lossless|WEB-D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94C018F7B03EC43E0740A82FFA86607551EAAAB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582300   (323571) от 09.10.2022
-
-Bronson - Live Fast Die Hard (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hardcore, Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323571.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome on board [00:01:43]
-02. Una canzone per disobbedire [00:03:06]
-03. Roma Tiger Punk (vol.2) [00:02:16]
-04. Tutto quello che ho [00:02:53](   Читать дальше...   )Жанр: Melodic Hardcore, Punk RockПродолжительность: 00:30:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37D475B998750F0986931E5A3EEDD7ABAB9A0D57
 ```
 
 https://mybot314.ru/tekegram_catalog/

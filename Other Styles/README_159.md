@@ -1,3 +1,32 @@
+###  Публикация: 1270982   (154231) от 21.12.2018
+
+Laura Sullivan - Healing Music for Meditation and Well Being (2017) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, New Age>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_154231.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. In the Palm of My Hand
+2. Ocean Sunrise
+3. Forgiveness
+4. Lighter Than AirЖанр: Instrumental, New AgeПродолжительность: 01:02:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A56B39BBD40AE714362FF56E36664F6862244B9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1194532   (154211) от 26.12.2017
 
 Zen Buddhismus Regeneration - Musik fur Yoga Ubungen (2017) [MP3|320 Kbps] <New Age>
@@ -722,35 +751,6 @@ VA - Valse/Tango 1, 2, 3... Musette (1997) Gold, 2CD Box Set [FLAC|Lossless|imag
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F83BC587A9C0A3508085358FA0B05FEFB8F2E0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271421   (148556) от 24.12.2018
-
-VA - Simply Accordeon (2013) 4CD Box Set [FLAC|Lossless|image + .cue]<Accordion, Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148556.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. El Gato Montes ( Eric Bouvelle )
-02. Le Plus Beau Tango Du Monde ( Julio Cortazon )
-03. Bucaro ( Jose Caldeiro )
-04. Gallito ( Andre Blot )(   Читать дальше...   )Жанр: Accordion, InstrumentalПродолжительность: 03:12:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:621E88572D85F8019721863D1299492D7CCFC4AC
 ```
 
 https://mybot314.ru/tekegram_catalog/

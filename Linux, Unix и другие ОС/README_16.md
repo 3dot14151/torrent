@@ -1,3 +1,31 @@
+###  Публикация: 817362   (545952) от 30.08.2014
+
+Slackel Fluxbox 1.0 Live (Легкий дистрибутив) [x86, x86-64] 2xCD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_545952.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обновился Slackel Live – использующий последнюю стабильную версию рабочей среды Fluxbox,  GNU/Linux на базе current-ветки Slackware, а также на Salix. Поддерживается установка на жесткий диск, клонирование. В этом релизе включена поддержка загрузки UEFI и CSM (legacy / BIOS).
+
+В версию дистрибутива включены  браузер Firefox, Claws-Mail, Transmission, PCmanFM file manager, Openjre, rhino, icedtea-web, Pidgin, Gftp, Wicd, а также много других приложений - см. скриншоты.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7267693054C66CD3F6F1B810B72F9D0ADE350D82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 817169   (545823) от 30.08.2014
 
 Ubuntu Gnome 14.10 Utopic Unicorn Beta I [i386, amd64] 2xDVD
@@ -665,32 +693,6 @@ OpenMediaVault в первую очередь предназначен для и
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2879076159C34F979C311E656CACF26DBCC95EDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156237   (528368) от 06.08.2017
-
-Xubuntu 16.04.3 LTS Xenial Xerus (Легкий дистрибутив) [i386, amd64] 2xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528368.jpg" />
-</div>
-
-
-###  Подробнее
-
-Xubuntu — дистрибутив Linux, основанный на проекте Ubuntu. Использует «лёгкую» графическую среду Xfce и приложения на GTK. Цель проекта — возможность использования легковесной альтернативы рабочим средам GNOME и KDE. Xubuntu имеет минималистичный интерфейс пользователя, экономно использующий память и другие аппаратные ресурсы компьютера, что позволяет комфортно работать (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4BB69D4BA38156CFFBFDFCE7AF2ED0C5685C004
 ```
 
 https://mybot314.ru/tekegram_catalog/

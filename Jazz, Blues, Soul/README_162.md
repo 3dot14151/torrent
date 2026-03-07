@@ -1,3 +1,235 @@
+###  Публикация: 1284583   (727762) от 22.02.2019
+
+Gary Clark jr. - This Land (2019) [MP3|320 Kbps] <Blues-Rock, Modern Blues, Neo-Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Land (05:41)
+02. What About Us (04:30)
+03. I Got My Eyes on You (Locked & Loaded) (05:11)
+04. I Walk Alone (03:44)(   Читать дальше...   )Жанр: Blues-Rock, Modern Blues, Neo-SoulПродолжительность: 01:12:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:924356CD09FD1FC05DB5E9512397048C7A1C58B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128546   (727758) от 25.04.2017
+
+McCoy Tyner - Blue Bossa (1991) 2001, LRC Ltd. [APE|Lossless|image + .cue] <Post-Bop, Latin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727758.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Bossa [09:58]
+02. Recife's Blues [05:50]
+03. I'll Take Romance [07:46]
+04. Rotunda [06:50](   Читать дальше...   )Жанр: Post-Bop, Latin JazzПродолжительность: 00:55:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB144B75B48506BC19B2A182EFEACF25430D8F44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284733   (727757) от 22.02.2019
+
+Mike Bloomfield - The Prime of Mike Bloomfield (2019) [MP3|320 Kbps] <Chicago Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727757.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Saturday Night (01:51)
+02. Peach Tree Man (03:47)
+03. Orphan's Blues (05:16)
+04. You Took My Money (04:06)(   Читать дальше...   )Жанр: Chicago BluesПродолжительность: 00:39:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D92DA24B844B3D00F393334A4575127BF16C913
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128545   (727662) от 25.04.2017
+
+The Monty Alexander Trio - Full Steam Ahead (1985) 2000, ООО "Галактис" [FLAC|Lossless|tracks + .cue] <Post-Bop, Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Freddie Freeloader [05:17]
+02. Once I Loved [06:25]
+03. Ray's Idea [04:17]
+04. Because You're Mine [02:59](   Читать дальше...   )Жанр: Post-Bop, Mainstream Jazz, Piano JazzПродолжительность: 00:41:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52DF05AED776702091AF06252BB8A6DA7E373ED1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128624   (727660) от 25.04.2017
+
+Magnus Berg - Cut Me Loose (2014) [FLAC|Lossless|tracks + .cue] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727660.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Cut Me Loose  (05:01) 
+02.  One Way To Please You  (04:29) 
+03.  Drifting  (03:47) 
+04.  When You Leave Me  (06:56) (   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFD9DF2F3F40AE364084FC40D9DF4FD96A28FA4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020889   (727591) от 03.06.2016
+
+Ana Popovic - Trilogy (2016) 3CD [MP3|320 кб/с] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727591.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New Coat of Paint 3:25
+02. Waiting on You 4:30
+03. In a Sentimental Mood 3:37
+04. Old Country 3:44(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 01:33:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38521F7DB26E5806FC247768CDE500D667C0ACF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128460   (727447) от 25.04.2017
+
+VA - Jazz Covers Playlist (2017) [MP3|320 Kbps] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727447.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Olivia Keast — The Girl from Ipanema
+02. Nora & Will — Valerie
+03. Larkster Quartet — Take Five — Alternative Take
+04. Meg Birch — Crazy — Larkster Mix(   Читать дальше...   )Жанр: JazzПродолжительность: 00:46:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C6CFF4E71630269E6833BD69062792DF1FE3A50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128625   (727429) от 25.04.2017
+
+VA - Electro Swing Elite Compilation 2016 (Radio Edits) (2017) [MP3|320 Kbps] <Jazz, Electro Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wolfgang Lohr - Still Can Kiss... (Radio Edit) (3:47)
+02. Jazzotron - Ain't No Man (Radio Edit) (3:34)
+03. Extra Medium - Mental Note (Radio Edit) (3:33)
+04. Sound Nomaden - Locomotive Swing (Radio Edit) (3:42)(   Читать дальше...   )Производство: Ton Liebt KlangЖанр: Jazz, Electro SwingПродолжительность: 01:08:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CECE5D1C3204B8CE34EFA0B1378D716097AC3C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 326266   (727252) от 20.04.2011
 
 Paul Anka - Greatest Hits CD1 + CD2(2009) [MP3|320 kbps]<Pop, Jazz, Rock'n'Roll, General Pop Vocal>
@@ -510,238 +742,6 @@ Angelo Debarre & Marius Apostol - Complicite (2013) [FLAC|Lossless|tracks + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:336E1111639D75A095C6B96F881465CCC29210F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128678   (724662) от 27.04.2017
-
-Roy Rieck & The Medley Band - Never Trust The Holy Gracious Medley Band (2009) [FLAC|Lossless|tracks + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Egocentric Lostaholic  (03:43) 
-02.  06:05 AM  (03:49) 
-03.  Broken Bottles  (04:51) 
-04.  Dream Beans  (03:47) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:48:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE4CE1B3D9C6F26EE8258FE692D8FBD69438B91F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022895   (724661) от 05.06.2016
-
-George Coleman & Tete Montoliu Duo - Meditation (1977) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724661.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Lisa [05:32]
- 02.Dynamic Duo [04:07]
- 03.First Time Down [05:06]
- 04.Walsing At Rosa's Place [06:43](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:45:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC31835A4E3E6EB82811DCF887A4F329EDE518E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129198   (724657) от 27.04.2017
-
-Sari - The Sweetest Sounds (2017) [FLAC|Lossless|tracks] <Jazz Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724657.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. So This Is Love (6:02)
- 2. If I Were A Bell (3:05)
- 3. Alice In Wonderland (3:50)
- 4. It's Delovely (4:45)(   Читать дальше...   )Жанр: Jazz VocalПродолжительность: 00:42:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3DDDEB3EA1CDF170450580DA40C599F04A38CA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023567   (724639) от 05.06.2016
-
-Boo Boo Weavils - Who The Hell Are The Boo Boo Weavils (2016) [MP3|320 кб/с] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724639.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Who The Hell Are The Pt. 1 (00:57)
-02. Chasing The Sun (03:14)
-03. When Is High (03:49)
-04. Lucky Man (02:41)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:28:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFA11E9D6E947E6A0BD5AA0D8842229932542756
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285119   (724603) от 24.02.2019
-
-Yola - Walk Through Fire (2019) [FLAC|Lossless|tracks + .cue] <Soul, Blues, Folk>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724603.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Faraway Look
-02. Shady Grove
-03. Ride Out In The Country
-04. It Ain’t Easier(   Читать дальше...   )Жанр: Soul, Blues, FolkПродолжительность: 00:41:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57E54E797D11934F9BE1A9AA392E1D428DAC4FBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285096   (724473) от 24.02.2019
-
-Dexter Gordon - Complete Kenny Drew & Carl Perkins Sessions (1955) 2004, Lone Hill Jazz [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724473.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daddy Plays the Horn [9:09]
-02. Confirmation [7:52]
-03. Darn That Dream [4:21]
-04. Number Four [4:52](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 01:16:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8950B0A77F1D88C794F7100FB7E1CFF03320C05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285108   (724472) от 24.02.2019
-
-Dexter Gordon - The Squirrel (1967) 2001, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724472.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction [0:11]
-02. The Squirrel [15:13]
-03. Introduction [0:20]
-04. Cheese Cake [20:23](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:06:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:714D358562FBCEC5EDC5F90D1DEE48333E815580
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531139   (724427) от 14.02.2022
-
-Louis Jordan And His Tympany Five - 1946 - 1947 (1998) Classics [FLAC|Lossless|tracks + .cue] <Swing, Jump Blues>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reet Petite And Gone [2:45]
-02. Sure Had A Wonderful Time [3:01]
-03. I Know What You're Puttin' Down [3:08]
-04. Open The Door Richard! [2:33](   Читать дальше...   )Жанр: Swing, Jump BluesПродолжительность: 01:03:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA67951BFC56E2AA0F0C77ABF2A6D63B29C79AF7
 ```
 
 https://mybot314.ru/tekegram_catalog/

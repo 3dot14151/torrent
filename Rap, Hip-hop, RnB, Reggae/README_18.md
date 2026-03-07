@@ -1,3 +1,87 @@
+###  Публикация: 914661   (592194) от 05.07.2015
+
+5'nizza - Всё в одном (2015) 3CD [MP3|320 кб/с]<Acoustic Reggae>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>RnB, Reggae
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_592194.jpg" />
+</div>
+
+
+###  Подробнее
+
+Специальное издание для распространения в ходе тура "5'Nizza. Реюнион"01. I believe in you
+02. Вперёд
+03. АлеЖанр: Acoustic ReggaeПродолжительность: 02:10:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4EC79470F9442270B64FE9FDE5B72E12F2836A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550885   (591188) от 13.05.2022
+
+Guf - О’пять (2022) [FLAC|Lossless|WEB|tracks] <Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_591188.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Где Он (Интро) (3:36)
+02. Надоем (4:24)
+03. Глаза К Небу (ft. SLIMUS) (4:27)
+04. Улыбнись (2:45)(   Читать дальше...   )Жанр: RapПродолжительность: 00:42:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E248B9FA88794E6185B564A1FFE66175F0E08E4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551222   (590625) от 14.05.2022
+
+25/17 - Комнатный. Новоселье (2022) Акустика [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_590625.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Полёты (Акустика)
+2. Осень (Акустика)Жанр: Rap, Hip-HopПродолжительность: 00:44:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:471260458BE65B3D02D42C915A94E48F14F7D517
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 917079   (589814) от 10.07.2015
 
 Gazgolder - Баста + (2015) [MP3|320 кб/с]<Rap, Hip-Hop>
@@ -658,93 +742,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7FC73243C57BB2F9F730AA301EC653D87325E919
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240475   (528536) от 11.08.2018
-
-Nicki Minaj - Queen (2018) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528536.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ganja Burns (4:54)
- 02. Majesty (feat. Eminem & Labrinth) (4:56)
- 03. Barbie Dreams (4:40)
- 04. Rich Sex (feat. Lil Wayne) (3:13)(   Читать дальше...   )Жанр: Rap, Hip-hopПродолжительность: 01:06:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7557DE776FDA9C298F86174162B94C3C300B6342
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1052862   (527130) от 15.09.2016
-
-Die Antwoord - Mount Ninji and Da Nice Time Kid (2016) [MP3|320 Kbps] <Hip-Hop, Electronic>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527130.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Have Candy
- 02. Daddy
- 03. Banana Brain
- 04. Shit Just Got Real (Feat. Sen Dog)(   Читать дальше...   )Жанр: Hip-Hop, ElectronicПродолжительность: 00:54:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38402119C456D47C0AA112AE9AF9988B20E4D44A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559477   (524307) от 25.06.2022
-
-Machine Gun Kelly - Mainstream Sellout (2022) life in pink deluxe, Explicit [FLAC 2.0|44/24|WEB-DL|tracks] <Hip-Hop, Pop-Punk>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop, RnB, Reggae (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524307.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 9 lives (3:01)
-02. more than life (3:16)
-03. why are you here (2:56)
-04. last november (2:55)(   Читать дальше...   )Жанр: Hip-Hop, Pop-PunkПродолжительность: 00:59:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10AE4161343CE960AA35080C3B1FD4EA4DD010A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

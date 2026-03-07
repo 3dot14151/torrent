@@ -1,3 +1,38 @@
+###  Публикация: 559860   (407116) от 14.10.2012
+
+VA - Сборник Cаундтреков (1966-2012) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_407116.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jan A.P. Kaczmarek - Goodbye (OST Хатико. Самый верный друг 2009)
+ 02. John Williams (violin Itzhak Perlman) – Theme from Schindlers List (Список Шиндлера 1993 OST)
+ 03. Michael Nyman - The Heart Asks Pleasure FirstThe Promise (Edit) (Пианино 1993 OST)
+ 04. Celine Dion - My Heart Will Go On (c бэк вокалом) (Титаник 1997 OST)
+ 05. Angelo Badalamenti - The Theme from Twin Peaks Fire Walk with Me (Твин Пикс 1990 OST)
+ 06. Andre Rieu - Love Theme From Romeo & Juliet (Nino Rota 1968)
+ 07. Hans Zimmer - Tennessee (Перл Харбор 2001OST)
+ 08. London Symphony Orchestra - Requiem for a dream (Orchestral version) (Реквием по мечте 2000 OST)
+ 09. Hans Zimmer - Leaving Wallbrook-On The Road Человек Дождя 1988 OST)
+ 10. Hans Zimmer & Lisa Gerrard Now We Are Free (Gladiator 2000 OST)Жанр: SoundtrackПродолжительность: 02:03:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1D24FC1B3E2B5362FFCF225B6AA31D03F3D2A8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1414035   (406805) от 06.10.2020
 
 Stu Larsen - Marigold (2020) [FLAC|Lossless|tracks + .cue] <Folk>
@@ -745,41 +780,6 @@ VA - Music In Love, Movie Collection Vol. 1 (2017) [MP3|320 Kbps] <Soundtrack, E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82E0FE49F119C342C78EFD16CB2DFD9D937F7DB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 490215   (397662) от 28.10.2012
-
-The Daydream - 10 albums (2001-2012) [MP3|320 кб/с]<New Age, Neoclassical, Instrumental, Relax, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_397662.jpg" />
-</div>
-
-
-###  Подробнее
-
-(3:39) 01. Moonlight Dreams
-(2:07) 02. Shiny Tomorrow
-(3:34) 03. Irony
-(9:35) 04. Rainy Scent
-(4:12) 05. Graduation
-(5:37) 06. For Steve Jobs
-(2:19) 07. Little Smile
-(2:27) 08. So Far Away
-(7:45) 09. Secret Stairs
-(3:28) 10. Nocturne In Autumn(   Читать дальше...   )Жанр: New Age, Neoclassical, Instrumental, Relax, PianoПродолжительность: 01:13:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C771BBAFB7725053B90664EDD81BBC80659635F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

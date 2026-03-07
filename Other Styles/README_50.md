@@ -1,3 +1,32 @@
+###  Публикация: 1211273   (777564) от 07.03.2018
+
+Maximus & Felix - 2 Albums (1993, 1996) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777564.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Praeludium (The Time Of The Time) (3:28)
+02. 11:11 Rendezvous (4:07)
+03. Desert (4:25)
+04. Cosmic Love (3:59)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:53:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD0C657E6F476B99086ED6B1F42B5373F34A3A58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1211296   (777561) от 07.03.2018
 
 Maximus & Felix - 2 Albums (1993, 1996) [FLAC|Lossless|tracks + .cue] <New Age>
@@ -714,35 +743,6 @@ Zhou Zifeng - Hotel California (1999) [MP3|320 кб/с] <Guitar, Instrumental>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:16E9B6A022C545626D44FEABDD86C421148B8B75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212250   (776058) от 11.03.2018
-
-Greg Butler - Whispering Yiruma (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Classical, Romantic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776058.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Present (4:08)
- 02. Falling (3:37)
- 03. Spring Waltz (2:47)
- 04. Maybe (3:48)(   Читать дальше...   )Жанр: New Age, Piano, Classical, RomanticПродолжительность: 01:01:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:520F9F2C0B847C9A4ECCBEF14DA7DDD4BE8A22D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

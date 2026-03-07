@@ -1,3 +1,32 @@
+###  Публикация: 1557088   (542813) от 14.06.2022
+
+The 69 Eyes - 3 Relise (1997-2013) [MP3|320 Kbps] <Gothic Industrial Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542813.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Never Say Die [00:03:29]
+02. Gothic Girl [00:04:31]
+03. Betty Blue [00:03:38]
+04. Sister of Charity [00:05:06](   Читать дальше...   )Жанр: Gothic Industrial RockПродолжительность: 4 CD, 03:31:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11EEDF2921570F6AF471AF589A2E64CD8FCC9123
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1557129   (542811) от 14.06.2022
 
 Mount Caravan - Demo (1998-2002) 2022, DAREDEVIL RECORDS [MP3|320 Kbps] <Heavy Stoner Rock>
@@ -716,35 +745,6 @@ Arcade Fire - Everything Now (2017) [MP3|320 Kbps] <Indie Rock, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20DB5DA4FEBFE0B58DC7802F14EF98CA4E81333F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156963   (526407) от 09.08.2017
-
-VA - Zlote przeboje radia Pogoda (1997) [MP3|320 Kbps] <Pop-rock, Polish-rock, Soft-rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jingle - Radio Pogoda
-02. Andrzej Rybinski - Nie licze godzin i lat
-03. Ryszard Sygitowicz - Cavalcado
-04. Oddzial Zamknienty - Obudz Sie(   Читать дальше...   )Жанр: Pop-rock, Polish-rock, Soft-rockПродолжительность: 01:16:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F615F903004CB8E78FB0A4FEBC46519B8594537
 ```
 
 https://mybot314.ru/tekegram_catalog/

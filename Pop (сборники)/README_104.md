@@ -1,3 +1,61 @@
+###  Публикация: 1083257   (274842) от 15.12.2016
+
+VA - Billboard Hot 100 Singles Chart 24.12. (2016) [MP3|32-320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_274842.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Rae Sremmurd feat. Gucci Mane - Black Beatles 4:52
+002.The Weeknd feat. Daft Punk - Starboy 3:51
+003.The Chainsmokers feat. Halsey - Closer 4:06
+004.Bruno Mars - 24k Magic 3:47(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:27:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D25EB064130A13038A9CC46ABDFA3F35B0860A34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1082880   (274749) от 15.12.2016
+
+VA - Зимний TOP 100. Русский сборник (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_274749.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Ost Up (Остап) - Раздень Свою Музыку 4:06
+002.Weel - Под Мой Пульс 3:03
+003.Отто Нотман - За Руку Держи Меня 4:02
+004.Герои - Доживем До Пятницы 3:33(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70D01DF7BAFFBF7B39D22AC92919AD047DCA9901
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1083348   (274743) от 15.12.2016
 
 VA - Танцевальная пурга. Зарубежный сборник (2016) [MP3|256 Kbps] <Pop>
@@ -684,64 +742,6 @@ VA - Музыкальная Акварель: Русский Сборник (201
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:336E3FC5F8AAC82FB9C5C7FBE56B8FE3BE2D7636
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267515   (266731) от 06.12.2018
-
-VA - German Top 100 Single Charts 30.11.2018 (2018) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266731.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mero - Baller los
-002. Ava Max - Sweet but Psycho
-003. Sido - Tausend Tattoos
-004. Samra - Cataleya(   Читать дальше...   )Жанр: PopПродолжительность: 05:31:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CB411397AD9E769B75F24C1E2D8E1D5CD8B2F73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190950   (265977) от 11.12.2017
-
-VA - De Top 100 Aller Tijden 1971 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, Rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265977.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jacques Herb - Manuela (5:00)
-002. Mieke Telkamp - Waarheen, Waarvoor (3:48)
-003. Poppys - Non Non Rien N'a Change (3:09)
-004. Peter Maffay - Du (4:59)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 06:01:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F14A3F4B927A787D9125FDA003443130042BA3EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

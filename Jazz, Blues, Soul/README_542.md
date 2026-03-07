@@ -1,3 +1,235 @@
+###  Публикация: 1773604   (71698) от 16.01.2025
+
+Downhome Kin - Dusty Roads, Rusty Strings (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71698.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ain't No Sunshine (3:47)
+02.  Working Class Blues (3:27)
+03.  Bewildered Blues (3:06)
+04.  Wandering Hearts (3:45)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:19:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA1443E8F3FF6BE31178362785BB1D1C6AB9C7E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773508   (71692) от 16.01.2025
+
+Teddy Wilson - Just A Mood (1934 - 1946) 2CD, 2001, History [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71692.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Somebody Loves Me [2:53]
+02. I'm Painting The Town Red [2:58]
+03. All My Life [3:11]
+04. Why Do I Lie To Myself About You? [3:03](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:58:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A092BC2627741081FFD180D8D01D4ECF6DBC74A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773708   (71675) от 17.01.2025
+
+Enrico Pieranunzi, Enzo Pietropaoli, Roberto Gatto - Moon Pie (1988) Divox [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Today [3:05]
+02. Occasions [2:39]
+03. Martina [3:15]
+04. Skies [3:40](   Читать дальше...   )Жанр: Jazz Fusion, Contemporary JazzПродолжительность: 00:38:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DCC052D9D7E65B9385C4C5A6AF2C7840A095BED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773657   (71668) от 17.01.2025
+
+The Twangtown Paramours - The Wind Will Change Again (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues, Folk>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71668.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Sincerely Yours No More (3:20)
+02.  A Room in Bordeaux (3:25)
+03.  The Garden (2:59)
+04.  The Goodwill Store (1:41)(   Читать дальше...   )Жанр: Blues, FolkПродолжительность: 00:38:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:388ABD98CE9138D9F5ACBF652D92437C3EFAF235
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773840   (71623) от 18.01.2025
+
+VA - Good Whiskey Blues vol.4 (2002) [FLAC|Lossless|image + .cue] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71623.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kenny Lee - Blues Party [04:36]
+02. Bird Dogs - Bye Bye Baby [05:41]
+03. Rocky Shelton - Twist Of Fate [04:34]
+04. Mary-Ann Brandon - It's A Dirty Job [03:27](   Читать дальше...   )Жанр: BluesПродолжительность: 01:14:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C58A93176582C235D3E9989E80BCED6495ECEEAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773906   (71615) от 18.01.2025
+
+VA - More Blue Notes, Vol.2: Milestones of Jazz Legends (1948 - 1962) 10CD, 2018, The Intense Media [FLAC|Lossless|image + .cue] <Bop, Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71615.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Swingin' at Sugar Ray's [6:35]
+02. Goin' Down [7:25]
+03. Whatever Lola Wants [7:22]
+04. Face to Face [6:17](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 10:23:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D2F6D2A691A4BDFAF057940B51B0EEDA7476CD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773839   (71596) от 18.01.2025
+
+Kenny Neal - What You Got (2000) [FLAC|Lossless|image + .cue] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71596.jpg" />
+</div>
+
+
+###  Подробнее
+
+01		I Smell Smoke	4:39
+02		Two Wrongs Don't Make A Right	4:00
+03		Neal And Pray	3:29
+04		Little Brother (Make A Way)	4:28(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F15CCBD0ECC927DACFC5560B56AAE140954CBEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774122   (71563) от 19.01.2025
+
+VA - Classic Vanguard Small Group Swing Sessions (1953 - 1957) 7CD, 2024, Mosaic Records [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71563.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jimmy Rushing - My Friend Mr. Blues [5:50]
+02. Jimmy Rushing - If This Ain't the Blues [8:10]
+03. Jimmy Rushing - I Can't Understand [4:38]
+04. Jimmy Rushing - Take Me with You, Baby [5:01](   Читать дальше...   )Жанр: Swing, Mainstream Jazz, Vocal JazzПродолжительность: 08:20:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA7F558E81F3C1EDB03E82F3FEB49E5C1AECFF41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1774165   (71558) от 19.01.2025
 
 Dave Stryker - Stryker With Strings Goes to the Movies (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Jazz-Funk>
@@ -513,238 +745,6 @@ Freddie Hubbard & Benny Golson - The Jazz Masters (1987) 2006, LRC [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D800F211B9AE72187ED0555F1764E2B81E26779A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776489   (71238) от 01.02.2025
-
-The Count Basie Orchestra - Live At El Morocco (1992) Telarc Jazz [FLAC|Lossless|tracks + .cue] <Big Band, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71238.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gone an' Git It Y'all [4:49]
-02. A Night at El Morocco (Easy As It Goes) [5:43]
-03. Right On, Right On [5:04]
-04. That's the Kind of Love I'm Talking About (For Cecile) [5:11](   Читать дальше...   )Жанр: Big Band, SwingПродолжительность: 01:07:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADD46B395B3E14C64DE8F8D6BD6EF906CAC4FD93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776484   (71221) от 01.02.2025
-
-Frank Morgan & George Cables - Montreal Memories (1989) 2018, HighNote Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71221.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Now's the Time [6:30]
-02. All the Things You Are [7:02]
-03. A Night in Tunisia [7:46]
-04. 'Round Midnight [5:31](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:01:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3206EDE920C4E0E5D983B8B7D664F497493FA4FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776492   (71219) от 01.02.2025
-
-The George Gruntz Concert Jazz Band '83 - Theatre (1984) ECM Records [FLAC|Lossless|tracks + .cue] <Big Band, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71219.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. El Chancho [15:21]
-02. In The Tradition Of Switzerland [9:24]
-03. No One Can Explain It [6:30]
-04. The Holy Grail Of Jazz And Joy [25:21]Жанр: Big Band, Post-BopПродолжительность: 00:56:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:768648D4857C3D201579E3BC0AF82000C95AB338
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776845   (71203) от 02.02.2025
-
-VA - Drinking at Midnight - Noir Doom Dark Jazz Vol. II (2023) Signora Ward Records [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Doom Jazz, Jazz Noir>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71203.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dead Melodies - Enigma (6:12)
-02. Dark Jazz Cafe Assembly - Out of the Future (3:06)
-03. Dark Jazz Cafe Assembly - Do You Remember This Voice (4:21)
-04. NEONNOONE - Zen Noir (6:38)(   Читать дальше...   )Жанр: Dark Jazz, Doom Jazz, Jazz NoirПродолжительность: 00:55:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E7B8FC0C882034D12DD0AE9171AF61983871E50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776838   (71199) от 02.02.2025
-
-Thorbjorn Risager & The Black Tornado - House Of Sticks (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71199.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. House Of Sticks
-02. Already Gone
-03. Light of Your Love
-04. Long Time Ago(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47039AE326A4A6821FC9F4A9FC130A8BC1F08536
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776846   (71197) от 02.02.2025
-
-VA - Drinking at Midnight - Noir Doom Dark Jazz Vol. I (2023) Signora Ward Records [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Doom Jazz, Jazz Noir>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71197.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flooded Fields Quartet feat Manet- Step Down to the Water (4:14)
-02. Six Fingered People - Jamaica (7:05)
-03. Apostrophe - Black Rain (5:37)
-04. Satvrne - Absinthe (6:39)(   Читать дальше...   )Жанр: Dark Jazz, Doom Jazz, Jazz NoirПродолжительность: 01:17:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D35BA7105BDEA28D4AB86287AE4F54988F0B9A12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776853   (71165) от 02.02.2025
-
-VA - The Midnighters Vol. II (2025) Signora Ward Records [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Doom Jazz, Jazz Noir>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71165.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nigel Sanders - Midnight Shades of Black (3:55)
-02. Hard Shadow - Coffin Wood Park (4:37)
-03. Ghostwoods - Brighter Now (gartr0n Remix) (6:00)
-04. Pleasure Of Decay - Vendetta (7:00)(   Читать дальше...   )Жанр: Dark Jazz, Doom Jazz, Jazz NoirПродолжительность: 00:47:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F166BAAB2C99810306BCEA519FBB0F6C94C9F1F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776843   (71163) от 02.02.2025
-
-VA - The Midnighters Vol. I (2024) Signora Ward Records [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Doom Jazz, Ambient Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abstraction - Restless Nights (3:56)
-02. Bānhūs - Ectoplasmic Countenance (3:54)
-03. Charcoal Fields - Houston (6:53)
-04. Comegente - El discurso del sapo (13:57)(   Читать дальше...   )Жанр: Dark Jazz, Doom Jazz, Ambient Jazz, Jazz NoirПродолжительность: 01:04:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D11A67CFC91A20089FB1CBD6C02F87D7639FFB92
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1023477   (724548) от 05.06.2016
+
+Airbag - Disconnected (2016) [MP3|320 кб/с] <Progressive Rock, Neo-Progressive>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Killer (9:18)
+02. Broken (7:08)
+03. Slave (8:39)
+04. Sleepwalker (7:05)(   Читать дальше...   )Жанр: Progressive Rock, Neo-ProgressiveПродолжительность: 00:50:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3B819C0F53C7B8C6601A0F7618075CBAA0BBAB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 207073   (723188) от 05.06.2010
 
 SAM GOPAL - Escalator (1969) [MP3|320 kbps]<Old Psychedelic Rock>
@@ -716,35 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B6AF6EF826EF7B58067470F926B3964A8338425
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026279   (706071) от 14.06.2016
-
-Trapeze - Medusa (1970) Remastered, 1994, Threshold Records [MP3|320 кб/с] <Rock, Hard Rock, Psych Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706071.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Black Cloud
-2. Jury
-3. Your Love Is Alright
-4. Touch My Life(   Читать дальше...   )Жанр: Rock, Hard Rock, Psych RockПродолжительность: 00:40:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3932C231AD79DBF457C483C865BBC0C10B198395
 ```
 
 https://mybot314.ru/tekegram_catalog/

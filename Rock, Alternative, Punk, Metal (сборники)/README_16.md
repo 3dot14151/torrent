@@ -1,3 +1,32 @@
+###  Публикация: 1126565   (765371) от 18.04.2017
+
+VA - I Love Music! - Heavy Metal Edition Vol.33 (2017) [MP3|320 Kbps] <Heavy Metal, Power Metal, Progressive Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765371.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 13Tries - Burned Down 4:22
+002. Al Atkins - Heavy Thoughts 6:12
+003. Almah - Capital Punishment 4:01
+004. Ancestral - Lust For Supremacy 5:50(   Читать дальше...   )Жанр: Heavy Metal, Power Metal, Progressive MetalПродолжительность: 11:48:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:002FD3383C586E6FF7815F6A7F9BB1B6CD412E0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1126461   (765370) от 18.04.2017
 
 VA - I Love Music! - Extreme Metal Edition Vol.33 (2017) [MP3|320 Kbps] <Thrash Metal, Death Metal, Doom Metal>
@@ -716,35 +745,6 @@ CD 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D88FD183E0E0EDF034176CE6D3D6AD4E3125357
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280764   (758605) от 04.02.2019
-
-VA - Heavy Metal Collections Vol. 12 (3CD) (2019) [MP3|320 Kbps] <Heavy - Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758605.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-
-01. Thobbe Englund - Heart of Metal (2018) (0:41)
-02. Stormwitch - The Choir of the Dead (2018) (4:41)(   Читать дальше...   )Жанр: Heavy - MetalПродолжительность: 03:09:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04F2D8FE4A338C8D9CBB822F3263DF9C0AABF397
 ```
 
 https://mybot314.ru/tekegram_catalog/

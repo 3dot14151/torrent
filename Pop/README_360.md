@@ -1,3 +1,206 @@
+###  Публикация: 1760671   (37198) от 15.11.2024
+
+Алиса Фрейндлих - Избранное, Часть 1 (2024) [MP3|320 Kbps] <Retro>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_37198.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Посвящение (Из спектакля "Люди и страсти")
+2. Вопросы (Из спектакля "Люди и страсти")
+3. Мария-Антуанетта (Из спектакля "Люди и страсти")
+4. Ход жизни (Из спектакля "Люди и страсти")(   Читать дальше...   )Жанр: RetroПродолжительность: 00:47:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3D7F0ABB443936C1452E79D8BD44B00250CFA6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760553   (37196) от 15.11.2024
+
+Gwen Stefani - Bouquet (2024) [FLAC|Lossless|WEB-DL|tracks] <RnB/Swing, Electronic, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_37196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Somebody Else's [3:44]
+02 - Bouquet [3:26]
+03 - Pretty [3:14]
+04 - Empty Vase [2:59](   Читать дальше...   )Жанр: RnB/Swing, Electronic, PopПродолжительность: 00:33:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFB4FEE2F4CDFF279FF7B80AB701AF72BB3633F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760708   (37176) от 15.11.2024
+
+Антон Агеев - Сейчас или никогда (2024) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_37176.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Джин и тоник [00:02:55]
+02 - Засветло [00:02:49]
+03 - В медленном танце [00:03:20]
+04 - Не вдвоём [00:02:57](   Читать дальше...   )Жанр: PopПродолжительность: 00:27:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EED01BB5684A7A38897DC628587C6344D71F996
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760724   (37064) от 16.11.2024
+
+VA - Sex Music 2024 [MP3|320 Kbps] <Pop, RnB, Other>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_37064.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DaniLeigh - Tasty (2:30)
+02. Two Feet - I Feel Like I'm Drowning (3:05)
+03. Jujuboy - James Bond (2:22)
+04. Muni Long - Made For Me (3:08)(   Читать дальше...   )Жанр: Pop, RnB, OtherПродолжительность: 03:14:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B991134DAD4EE75A0DFFC828F9789C4DD10AAB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761221   (36859) от 18.11.2024
+
+VA - WORKOUT HITS (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36859.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Troye Sivan - Rush (2:36)
+02. Sam Smith - Unholy (2:36)
+03. James Hype - Ferrari (3:06)
+04. Jazzy - Giving Me (2:49)(   Читать дальше...   )Жанр: PopПродолжительность: 02:55:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63D63F801A4D209D4A470043559F6604379EE1CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761316   (36800) от 19.11.2024
+
+VA - Союз 8 Альбомов (1994-1997) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36800.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сергей Демидович - Любовь
+02. Татьяна Овсиенкo - Не забудь
+03. Александр Иванов - Ночь
+04. Владимир Шурочкин - Губы в губы(   Читать дальше...   )Жанр: PopПродолжительность: 08:48:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DAAA761CE61BF3EEDB89BE7E7FCC4F7314A013D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761484   (36703) от 20.11.2024
+
+Bee Gees - 3 Albums (2020-2023) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36703.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+Radio Sessions 1967-1969 + Digital Booklet
+Melbourne 1971
+Live On Air 1967 - 1968Жанр: PopПродолжительность: 3 CD, 03:17:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34E916B9FCD279F28A2DA78E122A88BA09FE7B34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1761581   (36596) от 21.11.2024
 
 Cheryl - Only Human (2014) [FLAC|Lossless|tracks + .cue] <Pop, Dance-pop>
@@ -538,209 +741,6 @@ Patrick Cowley - From Behind (2024) [FLAC|Lossless|WEB-DL|tracks] <Disco, Hi NRG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9065B19AF722F1F27DD11014F6C3A11A67ED16B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763559   (35510) от 01.12.2024
-
-Алиса Фрейндлих - Избранное, Часть 2 (2024) [MP3|320 Kbps] <Retro>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35510.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. У природы нет плохой погоды (Из к/ф "Служебный роман")
-2. Обрываются речи влюблённых (Из к/ф "Служебный роман")
-3. Моей душе покоя нет (Из к/ф "Служебный роман")
-4. Песня Гелены (Из спектакля "Варшавская мелодия")(   Читать дальше...   )Жанр: RetroПродолжительность: 00:54:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23DC42CEE3DAABF1E3F5AA0ABDB6845013366BA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763560   (35502) от 01.12.2024
-
-Алиса Фрейндлих - Избранное, Часть 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Retro>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35502.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. У природы нет плохой погоды (Из к/ф "Служебный роман")
-2. Обрываются речи влюблённых (Из к/ф "Служебный роман")
-3. Моей душе покоя нет (Из к/ф "Служебный роман")
-4. Песня Гелены (Из спектакля "Варшавская мелодия")(   Читать дальше...   )Жанр: RetroПродолжительность: 00:54:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4E4720B07BECDA627862122698B29E1EBC313CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763333   (35437) от 02.12.2024
-
-Тимур Родригез - Настроение Родригез (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35437.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро [00:01:51]
-02. Никому никогда [00:03:47]
-03. Брюс Всемогущий [00:03:35]
-04. Чао, бамбино! [00:03:25](   Читать дальше...   )Жанр: PopПродолжительность: 00:38:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03AC81EF637F762B366775D9396D0E6E406F9479
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763548   (35434) от 02.12.2024
-
-Taylor Dayne - Greatest Hits (1995) CD, Compilation, Club Edition [FLAC|Lossless|tracks + .cue] <House, Electro, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35434.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Say a Prayer (Morales mix) (4:00)
-02. Tell It to My Heart (3:40)
-03. I'll Always Love You (4:20)
-04. Can't Get Enough of Your Love (4:27)(   Читать дальше...   )Жанр: House, Electro, Synth-popПродолжительность: 00:57:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:715EC4072F786E820B473D12CAC9F2F4464EEFFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763583   (35411) от 02.12.2024
-
-Donna Lewis - Now In A Minute (1996) [FLAC|Lossless|tracks + .cue] <Pop Rock, Soft Rock, Downtempo>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35411.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Without Love (3:42)
-02. Mother (4:35)
-03. I Love You Always Forever (4:00)
-04. Nothing Ever Changes (4:28)(   Читать дальше...   )Жанр: Pop Rock, Soft Rock, DowntempoПродолжительность: 00:45:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FCACD420350E73939A549DF06CD1CC429B64C70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763320   (35405) от 02.12.2024
-
-VA - Pure Pride Vol. 1 (2023) [FLAC|Lossless|WEB-DL|tracks] <Dance, Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35405.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. LAU & Sebastian Da Vinn - What To Do (Sebastian Da Vinn Remix) (4:55)
-02. Future Analog - Sinners (3:33)
-03. Natalie Gray - Dance Floor (2022 Rework) (3:08)
-04. Belash - Hold Back (2:58)(   Читать дальше...   )Жанр: Dance, Indie PopПродолжительность: 01:17:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FC32898625C8971F31C895CE3D5EC808690D71B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763691   (35307) от 03.12.2024
-
-Mflex Sounds - Flashback Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Space-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35307.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock My Heart (7:06)
-02. Dance to Infinity & The Power of Pleasure (8:55)
-03. Hot Mirrors (6:50)
-04. Darkside (7:47)(   Читать дальше...   )Жанр: Italo-Disco, Space-DiscoПродолжительность: 03:25:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9D3F5E39D9B6337639B8C3FCE5B90995D5B4500
 ```
 
 https://mybot314.ru/tekegram_catalog/

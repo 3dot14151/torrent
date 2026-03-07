@@ -1,185 +1,22 @@
-###  Публикация: 1511571   (788321) от 22.11.2021
+###  Публикация: 1202780   (789453) от 30.01.2018
 
-Ctrl + Paint, Matt Kohr | Design Basics (2014) PCRec [En, Ru]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788321.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как сделать героя благородным, а злодея - плохим? При помощи дизайна. В курсе "Основы дизайна" объясняется значение форм, цветов и материалов, а также то, как их лучше всего использовать в концепт-арте и иллюстрировании.
-
-В отличие от других курсов и занятий CtrlPaint, где фокус сосредоточен на технике, в этой серии занятий упор сделан на идеях. Креативность, (   Читать дальше...   )Производство: Ctrl + PaintЖанр: Цифровая живописьЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 55:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4115F487D7FF3567BC522AB8D2E277F2F1A464DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511795   (788320) от 22.11.2021
-
-Убийство онлайн / Дома безопаснее / Safer at Home (2021) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788320.jpg" />
-</div>
-
-
-###  Подробнее
-
-Распространяющаяся пандемия коронавируса вызывает настоящий хаос в Лос-Анджелесе, а город трансформируется в штат полицейских. Главные герои устраивают вечеринку онлайн в зуме, чтобы играть всю ночь в видеоигры, пробовать наркотики и спиртное. Но после употребления экстази их жизнь дома превращается в ужас.Производство: США / 7930 Entertainment, Showdown Productions, Voltage PicturesЖанр: ТриллерРежиссер: Уилл ВерникАктеры: Джослин Хадон, Эмма Лахана, Элиса Эллепач, Эдвин Браун, Дэн Дж. Джонсон, Майкл Куписк, Дэниэл Робер, Лия Бозонелис, Кэти Л. Холл, Марк ИрвингсенПеревод: Дублированный (Кинопоиск HD)Язык озвучки: Русский, английскийСубтитры: Английские (Full)Продолжительность: 01:24:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:970F99692DB3469FFE8918AB2FE9EB16A172CF39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460180   (788319) от 22.11.2021
-
-Подшивка | Canadian Woodworking & Home Improvement (2021) [PDF] [En] [Обновляемая]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788319.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал, издающийся раз в два месяца, адресован тем, кто любит столярничать и плотничать. Обзоры и тесты инструментов, оборудования, материалов, новые технологии и оригинальные проекты бытовой и специальной мебели для мастерской, дачи, дома, квартиры, гаража - в каждом номере журналаЖанр: Столярное делоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AA738BF7D67AB951B46CB3F089B07DAFD337B15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511731   (788318) от 22.11.2021
-
-Векторный клипарт - Cute cartoon tiger, christmas, new year card 2022 vector illustration [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788318.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Новый год
-22 EPS +PreviewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B9CFFAF7D460394A7AE8477455249AB837754AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511749   (788317) от 22.11.2021
-
-Искушение / Benedetta (2021) BDRemux [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788317.jpg" />
-</div>
-
-
-###  Подробнее
-
-Италия эпохи Возрождения. Место, где великая красота хладела в руках инквизиторов. Терзаемая эротическими видениями монахиня Бенедетта Карлини влюбляется в новую послушницу, пылкую и безрассудную. Вскоре об их запретной страсти узнают за пределами монастыря.Производство: Франция, Бельгия, Нидерланды / SBS Productions, Pathé, France 2 CinémaЖанр: драма, мелодрама, биография, историяРежиссер: Пол ВерховенАктеры: Виржини Эфира, Шарлотта Рэмплинг, Дафна Патакия, Ламбер Вильсон, Оливье Рабурден, Луиз Шевильот, Эрве Пьер, Клотильда Куро, Давид Клавель, Гилен ЛондезПеревод: многоголосый профессиональный (Jaskier)Язык озвучки: русский, французскийСубтитры: русские (Full)Продолжительность: 02:11:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6E1EB064E61112AC7CD207F9546800335B090B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511614   (788316) от 22.11.2021
-
-Квітка Цісик - Пісні з України (1980) Kvitka Cisyk, Kacey [FLAC|Lossless|tracks + .cue] <Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788316.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Іванку, купи ми рум'янку
-02. Пісня про рушник
-03. Стоїть гора високая
-04. Ой, видно село(   Читать дальше...   )Жанр: FolkПродолжительность: 00:37:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC432D9FC5DF1079CF890E09C1675043A0689EEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511849   (788315) от 22.11.2021
-
-StartAllBack 3.1.0 StartIsBack++ 2.9.16 (2.9.1) StartIsBack + 1.7.6 RePack by KpoJIuK [Multi/Ru]
+IObit Uninstaller Pro 7.3.0.13 Final RePack by D!akov [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788315.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789453.jpg" />
 </div>
 
 
 ###  Подробнее
 
-StartAllBack - привычная для нас программа, которая возвращает в Windows 11 полнофункциональную кнопку запуска меню Пуск. StartAllBack существенно улучшает удобство использования рабочего стола и делает новый экран упорядоченным, наиболее удобным.Язык интерфейса: Русский, Английский и другие
+IObit Uninstaller Pro представляет собой удобный инструмент, который поможет Вам удалить нежелательные программы и папки без каких-либо хлопот. Он обнаруживает и классифицирует все установленные программы, а также позволяет выполнять пакетное удаление приложений всего одним щелчком мыши. С полезными функциями "Мощное сканирование" и "Принудительное (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4ED94401924A7DF4BD837B3A340047324A7CF323
+magnet:?xt=urn:btih:C7E7EE26A38CFE663990E55C4F83FADA6904A9C6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -187,25 +24,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511804   (788314) от 22.11.2021
+###  Публикация: 1275752   (789452) от 13.01.2019
 
-Убийство онлайн / Дома безопаснее / Safer at Home (2021) BDRemux [H.264/1080p]
+VA - German Top 50 Official Dance Charts 11.01.2019 (2019) [MP3|320 Kbps] <Pop, Dance>
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Неофициальные сборники
+>>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788314.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789452.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Распространяющаяся пандемия коронавируса вызывает настоящий хаос в Лос-Анджелесе, а город трансформируется в штат полицейских. Главные герои устраивают вечеринку онлайн в зуме, чтобы играть всю ночь в видеоигры, пробовать наркотики и спиртное. Но после употребления экстази их жизнь дома превращается в ужас.Производство: США / 7930 Entertainment, Showdown Productions, Voltage PicturesЖанр: ТриллерРежиссер: Уилл ВерникАктеры: Джослин Хадон, Эмма Лахана, Элиса Эллепач, Эдвин Браун, Дэн Дж. Джонсон, Майкл Куписк, Дэниэл Робер, Лия Бозонелис, Кэти Л. Холл, Марк ИрвингсенПеревод: Дублированный (Кинопоиск HD)Язык озвучки: Русский, английскийСубтитры: ОтсутствуютПродолжительность: 01:24:45
+01. Robin Schulz, Erika Sirola - Speechless (feat. Erika Sirola)
+02. Fatboy Slim - Praise You (Purple Disco Machine Remix)
+03. Chic - Le Freak (Oliver Heldens Remix)
+04. Hugel, Amber Van Day - WTF (feat. Amber Van Day)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:04:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BFDE97CA9B44734653C7F321E4F8A2051EB2641A
+magnet:?xt=urn:btih:F6F40A0F3DBB650E3ED98B2728EB306AB8EB66EC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -213,324 +53,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511871   (788313) от 22.11.2021
+###  Публикация: 1275814   (789451) от 13.01.2019
 
-NG. Аляска: Новое Поколение / Life Below Zero: Next Generation (2020) WEB-DL [H.264/1080p] (сезон 1, серии 1-8 из 8)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788313.jpg" />
-</div>
-
-
-###  Подробнее
-
-В самом сердце труднодоступной дикой природы Аляски группа дерзких поселенцев ведет жизнь вдали от общества. Играть по собственным правилам нелегко, ведь они борются за выживание в суровом арктическом климате.Производство: США, BBC Studios, National GeographicЖанр: документальный, природа, выживаниеПеревод: одноголосый профессиональный (Велес)Субтитры: английскиеПродолжительность: 8x ~00:44:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7243AF29E64D5E2A264A677220B5F68AF61655F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511885   (788312) от 22.11.2021
-
-SanDisk SSD Dashboard 3.4.2.9 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788312.jpg" />
-</div>
-
-
-###  Подробнее
-
-SanDisk SSD Dashboard - официальная программа от Western Digital, которая предназначена для работы с твердотельными SSD накопителями SanDisk. По функциональным возможностям, программа схожа с инструментом Western Digital SSD Dashboard, а начиная с версии 2.5.1.0 полноценно поддерживает работу с накопителями брэнда WD.
-Программа SanDisk SSD Dashboard отображает подробную (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:615945757D33BECD327902B50F555180EA1A4610
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511720   (788311) от 22.11.2021
-
-Векторный клипарт - Happy chinese new year 2022, vector tiger zodiac sign [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788311.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Новый год
-8 EPS +PreviewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCC01ACA9269FE27995F5B81D07138240349DD1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508089   (788310) от 22.11.2021
-
-Андрей Сидерский | Тренировка Yoga Workout Quest #3 031 (2021) WEBRip
-
->>Обучающие видеоматериалы
->>Здоровье и Спорт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788310.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия Total Detox, Basic 1 (TD B1). Экспресс версия (XP).Жанр: Yoga Workout Quest, йога23, yoga23Продолжительность: 00:42:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0145DBE0FF888E7F24D4B3B8B44A4AD39DA2DD9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511782   (788309) от 22.11.2021
-
-Векторный клипарт - Set of cute animals for the new year and for christmas in vector [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788309.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Новый год
-8 EPS +PreviewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A777D8174EC5086015FF4AE8BC6FA4767B38EB36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511779   (788308) от 22.11.2021
-
-Векторный клипарт - Cute doodle tiger with watercolor illustration set premium vector [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788308.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Новый год
-13 EPS +PreviewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B021E8373AA7E998E935DB69CF9A74AE1FA92771
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511917   (788307) от 22.11.2021
-
-VueScan Pro 9.7.68 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788307.jpg" />
-</div>
-
-
-###  Подробнее
-
-VueScan является приложением для работы со сканерами Minolta, HP, Nikon, Epson, Polaroid, Canon и мн.др. Поддерживается работа с глубиной цвета, а также автоматическая и ручная настройки большого количества параметров и пакетного режима сканирования. VueScan поддерживает больше 2800 моделей сканеров. Приложением предусмотрено автоустранение дефектов с изображения (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.11.2021Разработчик: © Hamrick SoftwareПоддерживаемая ОС: macOS 10.5+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61FEBE7D53A3E4DB5FB634290905F1636A114DCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511180   (788306) от 22.11.2021
-
-Злое / Malignant (2021) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788306.jpg" />
-</div>
-
-
-###  Подробнее
-
-Больше всего на свете Мэдисон хочет ребёнка и ради этого, будучи беременной, готова терпеть нападки жестокого мужа. Однажды ночью после очередной его вспышки агрессии в дом супругов пробирается чёрная злобная сущность — убивает мужа и нападает на Мэдисон. Потеряв ребёнка, женщина возвращается домой и пытается жить дальше, но вскоре её начинают преследовать жуткие (   Читать дальше...   )Производство: США / New Line Cinema, Starlight Culture Entertainment, Atomic MonsterЖанр: Ужасы, детективРежиссер: Джеймс ВанАктеры: Аннабелль Уоллис, Мэдди Хассон, Джордж Янг, Миколь Уайт, Джин Луиса Келли, Сюзанна Томпсон, Джейк Эйбел, Жаклин Маккензи, Кристиан Клименсон, Амир АбулелаПеревод: Дублированный, Профессиональный (многоголосый закадровый), Любительский (двухголосый закадровый), АвторскийСубтитры: Русские (Forced, Full), Украинские (Forced), Английские (Full)Продолжительность: 01:51:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F293BE492FF977D5AFCA37F438C666B9577EBDCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511784   (788305) от 22.11.2021
-
-Векторный клипарт - Vector chinese new year 2022 [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788305.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Новый год
-7 EPS +PreviewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7A3F39388C9C97491B48F9994B1BBAA6ED04084
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511703   (788304) от 22.11.2021
-
-CountryBalls Heroes (2021) [Ru/Multi] (7722318) License PLAZA
-
->>Win Игры
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788304.jpg" />
-</div>
-
-
-###  Подробнее
-
-CountryBalls Heroes - это игра, в которой тебе предстоит играть за любимого страношара. Стань легендой, возглавив огромные армии. На кону судьба мира, водка и мемы - только ты можешь выстоять против великого зла и спасти самое дорогое. Твоя задача - любой ценой обеспечить поставки водки. Доминируй над противниками в захватывающей пошаговой стратегии. Создавай армию, (   Читать дальше...   )Тип издания: LicenseРазработчик: Innominate GamesЖанр: Пошаговая стратегия (Тактика), Приключения (Политическая сатира)Язык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7826D70EB949D68E3DF1C830452EAB59AB928A21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511693   (788303) от 22.11.2021
-
-BELOFF [dp] 2021.11.3
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788303.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник программ для автоматической установки драйверов в Windows x86-x64.
-
-Приятного времяпрепровождения за компьютером!
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55EF844852566C1DC57718D2695AF6180E59F893
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 440148   (788302) от 22.11.2021
-
-Ю.Кушак | Плывёт кораблик в гости [1979] [Pdf]
+Евгений Аксютин | Иринкины сказки (1965) [FB2]
 
 >>Литература и прочие Обучающие материалы для детей и родителей
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788302.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789451.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Из этой книги, маленький читатель узнает о путешествии кораблика в стихотворной форме.
-Вашему вниманию предлагается книга из сборника книг с иллюстрациями Ильи Кабакова.
-Хорошее издание, с виджетной навигацией в боковой панели.Жанр: Детская литература, стихиФормат: PDF
+Рассказы для детей младшего школьного возраста.Жанр: Детская проза. Сказка.Формат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:008E93058F566F9D6FE3FC8B62ACDC46A48D19F6
+magnet:?xt=urn:btih:9BE8BFA66C4F762EAE35AD9E050DB9BEA8DE90E8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -538,25 +79,602 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511701   (788301) от 22.11.2021
+###  Публикация: 1275854   (789450) от 13.01.2019
 
-Прошлой ночью в Сохо / Last Night in Soho (2021) WEB-DL [1080p] ATV
+Jamie Lancaster - Duets (2019) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Vocal Jazz, Bossa Nova>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jamie Lancaster, Cassandra Beck - I Finally Found Someone 03:12
+02. Jamie Lancaster, Michelle Simonal - Endless Love 02:53
+03. Jamie Lancaster, Shelly Sony - Easy Lover 04:02
+04. Jamie Lancaster, Eve St. Jones - (I've Had) The Time of My Life 03:37(   Читать дальше...   )Жанр: Jazz, Vocal Jazz, Bossa NovaПродолжительность: 00:35:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCCCF0EAFD0723572965F53E6B8033FEE0BB6584
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275817   (789449) от 13.01.2019
+
+Юрий Томин | Повести и рассказы (1975) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789449.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник входит сказочная повесть "Шел по городу волшебник", повесть "Борька, я и невидимка" и несколько рассказов.
+Для младшего и среднего школьного возраста.Жанр: Детская прозаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5836F132F4BD0708CA68F5891376682B50EA14D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275820   (789448) от 13.01.2019
+
+Жорж Санд | Мастера мозаики (1961) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789448.jpg" />
+</div>
+
+
+###  Подробнее
+
+Из "Послесловия"
+
+Повесть «Мастера мозаики» Жорж Санд тоже предназначала для детей: она сочинила ее для своего сына Мориса, когда ему было тринадцать лет. Но эта повесть очень сильно отличалась от всего, что Жорж Санд писала для детей. В «Мастерах мозаики» ничего не выдумано — ни основные события, ни герои. Все они принадлежат истории. «Я хотела не только (   Читать дальше...   )Жанр: Детская прозаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21352D08E3DACA95AD738AEFEE860DD8D7F2DF72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275731   (789447) от 13.01.2019
+
+Privatus 6.1.4 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789447.jpg" />
+</div>
+
+
+###  Подробнее
+
+Privatus - это простое приложение для удаления нежелательных данных после веб-серфинга. Программа работает в фоновом режиме. Просто завершите работу браузера - и Privatus удалит так называемые "tracking cookies", куки Flash, Silverlight и пр. Приложение автоматически анализирует данные и производит удаление самостоятельно. При необходимости Privatus может (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.01.2018Разработчик: SweetP ProductionsПоддерживаемая ОС: macOS 10.11 или вышеЯзык интерфейса: Английский, Французский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9902356E98A22E87C91B92EE9883CDE6DB517EE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275790   (789446) от 13.01.2019
+
+VA - Techno Biogram (2019) [MP3|320 Kbps] <Techno, Minimal, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789446.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. House Syndicate - Jam The Mace
+002. Ian Jose - Boo (Original Mix)
+003. Jamie Trench - That Teebs (Original Mix)
+004. Jeremy Stott - Caktuss(   Читать дальше...   )Жанр: Techno, Minimal, ElectroПродолжительность: 12:50:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD17B43DDDE5BDA6A8F65CEB8A7E109E911986A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275765   (789445) от 13.01.2019
+
+VA - Disco House Cats, Vol. 1 (2019) [MP3|320 Kbps] <House, Tech House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789445.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Disco Project - Talking (Brooklyn & Friends Disco Mix)
+02. Tony Afrique - Sont Claires (Disco Disco Mix)
+03. Gold Jeans - Waiting For The Day (Morning Mix)
+04. Emmanuelle Duvall - Hands Of Loving (Original Mix)(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 01:24:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:007A595323D76EBE09BB4D3629EBA793F6A6AEC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275449   (789444) от 13.01.2019
+
+VA - Miami Beachin Vol.1 [Continuous Mix] Low Tide (2019) [MP3|320 Kbps] <House, IndieDance, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789444.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. RhythmDB - Miami Beachin Vol 1 Low Tide (continuous mix) 56:36
+02. Angel Order & Johnny Mars feat. Alexea - Who Knew (LUCCA SAVI Remix) 2:43
+03. Angel Order & Jota Mendosa - Si Tu Supieras (E.Q. Remix) 3:46
+04. RhythmDB - Soundtrack 3 (Instrumental Mix) 3:32(   Читать дальше...   )Жанр: House, IndieDance, ElectronicПродолжительность: 02:02:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB76A33189E2E42FF0F836665138344DBCF1BE99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275811   (789443) от 13.01.2019
+
+VA - Zanzibar Cafe' Vol. 6 (2019) [MP3|320 Kbps] <Chillout, Lounge, Downtempo, Electronic>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789443.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 3Stars - Black Orange (Lounge Mix)
+02. 71 Style - Jump For It (Lounge Mix)
+03. Agio-Lax - Another Day In Paradise (Lounge Mix)
+04. Andy Triton - Never On Time (Lounge Mix)(   Читать дальше...   )Жанр: Chillout, Lounge, Downtempo, ElectronicПродолжительность: 01:00:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DA1D6C0094D631B552664512BDC3DA01E833DFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275786   (789442) от 13.01.2019
+
+VA - Jungle In A Box (2019) [MP3|320 Kbps] <DnB, Jungle, Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789442.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Anthony Kasper - Zuluu
+002. Dave Owen - Jungle Justice
+003. Dutta - Dominos
+004. Kolectiv & Medika - Revolutionaries(   Читать дальше...   )Жанр: DnB, Jungle, DubstepПродолжительность: 09:22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A29FC2F326C44EF356CC0FC6468F5338CCA85D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275839   (789441) от 13.01.2019
+
+VA - Disco Planet (1979) LP [MP3|320 Kbps] <Funk/Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789441.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anita Ward - Ring My Bell (4:24)
+02. Betty Wright - Listen To The Music (Dance) (6:03)
+03. Joe Tex - Loose Caboose (6:45)
+04. Bobby Caldwell - What You Won't Do For Love (4:39)(   Читать дальше...   )Жанр: Funk/Soul, DiscoПродолжительность: 00:59:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:743DA94D90EA1A73759B821BED9C8CF061D4A00F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275858   (789440) от 13.01.2019
+
+Mono Mind - Mind Control (2019) BMG [FLAC|Lossless|WEB-DL|tracks] <Electronic, Pop, Dance, House>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789440.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Away Away Away (0:52)
+ 02. In Control (4:25)
+ 03. LaLaLove (3:24)
+ 04. Down By The Riverside (3:13)(   Читать дальше...   )Жанр: Electronic, Pop, Dance, HouseПродолжительность: 00:50:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F60BCE60AC1D0C3097FCE736320E0613372C74C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275772   (789439) от 13.01.2019
+
+VA - Billboard Hot 100 Singles Chart 12.01.2019 (2019) [MP3|320 Kbps] <Pop, Dance, Euro>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789439.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Halsey - Without Me
+002. Ariana Grande - thank u, next
+003. Post Malone - Sunflower (Spider-Man_ Into the Spider-Verse)
+004. Travis Scott - SICKO MODE(   Читать дальше...   )Жанр: Pop, Dance, EuroПродолжительность: 05:31:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F578357EECA09D365E05FF01C286B874191F814E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275767   (789438) от 13.01.2019
+
+VA - Record Super Chart 569 (2019) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789438.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Don Diablo feat. Emeli Sande & Gucci Mane  -  Survive
+02.  Fisher  -  Losing It
+03.  Denis First & Reznikov & Bright Sparks - Shameless
+04.  Axwell - Nobody Else(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:42:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:092727C64627E63B3A85EDD85265B8F68E088D77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275838   (789437) от 13.01.2019
+
+группа Мишки на севере - Мать-тюрьма (2001) [FLAC|Lossless|image + .cue]<Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789437.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мать - тюрьма
+02. Транзит
+03. Записки из мёртвого дома
+04. Воронок(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:56:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB6387FB37EA4A884BEE54C573797B871C5CAB0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275674   (789436) от 13.01.2019
+
+VA - New Techno: Winter Show (2019) [MP3|320 Kbps] <Techno, Electronic, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789436.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Adverze Ft. Mc Instinct - On The Block
+002. 2Pole - Magnetar
+003. Alan Mille - Solaris
+004. Salim - Alchemy(   Читать дальше...   )Жанр: Techno, Electronic, Tech HouseПродолжительность: 13:27:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4787D8A53D2C335CCF568EFFD3D5FC9B05B224B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275850   (789435) от 13.01.2019
+
+VA - Trending Topics (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789435.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 2Fre - Violences Verbales
+002. Bonez Mc - Kokain
+003. Casus Belli - Nardinoum
+004. 47 Crew - Le Grand Saut(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 08:14:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D81ADB5258A00A7172F97DC7B24DD56F15405B09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275889   (789434) от 13.01.2019
+
+Spacehawk - The Last Guardian (2019) [MP3|320 Kbps] <Spacesynth, Spacedisco>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789434.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (1:27)
+02. From The Shadows (4:05)
+03. Sky Shield (4:13)
+04. Humanity (3:58)(   Читать дальше...   )Жанр: Spacesynth, SpacediscoПродолжительность: 00:35:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA8B098F61FCA7514150C1B45D403E8D99969121
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275848   (789433) от 13.01.2019
+
+VA - Space Jump (2019) [MP3|320 Kbps] <Techno, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789433.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alex Plug - Inception
+002. Helix ft. Romy Wave - Divine (Extended Mix)
+003. Methodub - Oscillate (Original Mix)
+004. Titan - Still I Rise(   Читать дальше...   )Жанр: Techno, ElectronicПродолжительность: 13:40:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:650F33CD549D4B1517F700450BDB507CB6BD3FA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511193   (789432) от 20.11.2021
+
+Заги бок - Сложносочинённый (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789432.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Хроническое [02:35]
+02. Как перестать думать [02:57]
+03. В осаде [03:11]
+04. Стыдно [03:40](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:30:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F35FE089A3D522B42EFDD637342B4EEE73267993
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511230   (789431) от 20.11.2021
+
+Aephanemer - A Dream Of Wilderness (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789431.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Land Of Hope
+02. Antigone
+03. Of Volition
+04. Le Radeau de La Meduse(   Читать дальше...   )Жанр: Symphonic Melodic Death MetalПродолжительность: 00:50:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44B86E7954C5CB278AE8828D191CA4BAC11068E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511353   (789430) от 20.11.2021
+
+Swingrowers - Hybrid (2021) [AAC|~327 Kbps] <Electro, Swing, Jazz>
 
 >>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788301.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789430.jpg" />
 </div>
 
 
 ###  Подробнее
 
-История девушки, которая учится в Лондоне на дизайнера одежды и мистическим образом перемещается в 1960-е годы, где встречает своего кумира — ослепительную начинающую певицу. Лондон того периода совсем не так привлекателен, как кажется сначала, а время может сыграть с ней злую шутку.Производство: Великобритания, США, Китай / Complete Fiction, Film4, Focus Features International (FFI), Perfect World (Beijing) Pictures Co., Perfect World Pictures,Working Title FilmsЖанр: ужасы, триллер, драма, детективРежиссер: Эдгар РайтАктеры: Томасин Маккензи, Аня Тейлор-Джой, Мэтт Смит, Дайана Ригг, Эйми Кассеттари, Рита Тушингем, Колин Мейс, Майкл Аджао, Синнов Карлсен, Джесси Мей Ли, Кассиус НельсонПеревод: Профессиональный многоголосый, любительский двухголосыйСубтитры: русские, английскиеПродолжительность: 01:57:03
+01. In the Blink of an Eye (intro) (1:49)
+02. Hybrid (3:02)
+03. Follow the Stars (3:20)
+04. Seven Million Faces (3:39)(   Читать дальше...   )Жанр: Electro, Swing, JazzПродолжительность: 00:41:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:83DCC184FBF268CF85D71CDFE98D25DF6EA255EE
+magnet:?xt=urn:btih:F73E2C0175614BA0D09CC99FC8446D137348F9B5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -564,25 +682,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511634   (788300) от 22.11.2021
+###  Публикация: 1511293   (789429) от 20.11.2021
 
-Удары / Bruised (2020) WEBRip [H.264/1080p] [DVO]
+Marina & the Kats - Different (2021) [AAC|~307 Kbps] <Swing, Jazz>
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788300.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789429.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Выбирая между ребёнком и рингом, Джеки отдала предпочтение спортивной карьере. Но несколько лет спустя, когда она уже ушла из спорта и работает уборщицей, прошлое внезапно настигает её - отец мальчика умер, и теперь Джеки придётся заботится о шестилетнем сыне. Женщина вынужденно возвращается на ринг, чтобы заработать на будущее себе и ребёнку.Производство: США, Великобритания, Romulus Entertainment, Aloe Entertainment, Bohemia MediaЖанр: Драма, спортРежиссер: Холли БерриАктеры: Стивен Хендерсон, Холли Берри, Шамир Андерсон, Лила Лорен, Адан Канто, Уилл Блэгроув, Марселла Ленц-Поуп, Адриан Ленокс, Николай Николаефф, Денни ДиллонПеревод: Двухголосый любительский (PazlVoice)Субтитры: английскиеПродолжительность: 02:04:10
+01. Pressure (2:48)
+02. Ponder (3:45)
+03. Different (3:56)
+04. No Means No (0:41)(   Читать дальше...   )Жанр: Swing, JazzПродолжительность: 00:36:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:267AEAFD9DBAD8EA24EBA05DEC239B958B7B0385
+magnet:?xt=urn:btih:7A73B70F49EC715316B94D8490B1237CEF70855A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -590,108 +711,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511852   (788299) от 22.11.2021
+###  Публикация: 1511373   (789428) от 20.11.2021
 
-Формула 1. Сезон 2021. Этап 20. Гран-при Катара. Гонка (21.11.2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+Station - Perspective (2021) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 
->>Спорт и активный отдых
->>Формула 1
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788299.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789428.jpg" />
 </div>
 
 
 ###  Подробнее
 
-21 ноября 2021, воскресенье. 17:00 МСК
-Этап 20. Доха, Катар. Гонка (57 кругов)Телекомпания: Матч!Жанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Субтитры: отсутствуютПродолжительность: 01:40:32
+01. I Can't Find My Way
+02. See The Light
+03. Do You Really Want To Fall In Love Again
+04. Don't Keep Me Waiting(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:48:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C8AA389D3687C0DE1B4D7399FB185100D76C171D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511662   (788298) от 22.11.2021
-
-Радиоточка Плюс 21.9 + Portable [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788298.jpg" />
-</div>
-
-
-###  Подробнее
-
-Радиоточка - это стильная и удобная программа для прослушивания и записи радио на компьютере. Радиоточка имеет встроенный определитель исполнителя! В программе нет рекламы, тулбаров, активаций! Живой радио плейлист!
-Установите Радиоточку Плюс на свой компьютер сегодня и начните слушать радио через интернет. В программе много онлайн радиостанций на любой вкус.
-Cлушайте (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2E2F3AF26373E5DFBA6646987358A42182CF298
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511907   (788297) от 22.11.2021
-
-Evorim Free Firewall 2.6.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788297.jpg" />
-</div>
-
-
-###  Подробнее
-
-Evorim Free Firewall – бесплатный фаервол, альтернатива брандмауэру Windows. Позволяет контролировать и блокировать сетевую активность приложений и служб, предотвращает сбор данных и телеметрических значений.
-Контроль и блокировка установленных приложений и активных служб
-Данный персональный фаервол является альтернативой встроенному системному решению Windows и (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A565784F796E47401CBADCBCA27A29AA7C163779
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511673   (788296) от 22.11.2021
-
-Искушение / Blessed Virgin / Benedetta (2021) BDRip [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788296.jpg" />
-</div>
-
-
-###  Подробнее
-
-Италия, XVII век. Место, где великая красота хладела в руках инквизиторов. Терзаемая эротическими видениями монахиня Бенедетта Карлини влюбляется в новую послушницу, пылкую и безрассудную. Вскоре об их запретной страсти узнают за пределами монастыря.Производство: Франция, Бельгия, Нидерланды / Pathe, Netherland Filmfund, SBS Productions, Belga Productions, Topkapi FilmsЖанр: Драма, мелодрама, биография, историяРежиссер: Пол ВерховенАктеры: Виржини Эфира, Шарлотта Рэмплинг, Дафна Патакия, Ламбер Вильсон, Оливье Рабурден, Луиз Шевильот, Эрве Пьер, Клотильда Куро, Давид Клавель, Гилен ЛондезПеревод: Профессиональный многоголосый (Jaskier)Язык озвучки: РусскийСубтитры: Русские - отдельноПродолжительность: 02:11:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C328FA83F15C39233BC8182AE5F70C82EE4AA79E
+magnet:?xt=urn:btih:7FB2CB60595DE1779498F25A8A86873759857DA0
 ```
 
 https://mybot314.ru/tekegram_catalog/

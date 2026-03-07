@@ -1,3 +1,118 @@
+###  Публикация: 1223604   (673301) от 05.05.2018
+
+VA - Deep House Hits: Ibiza 2018 [FLAC|Lossless|WEB-DL|tracks] <Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_673301.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Loud Luxury – Body (feat. brando) (Dirtcaps Remix)
+02. Armin van Buuren – Sex, Love & Water (feat. Conrad Sewell) (Loud Luxury Remix)
+03. Lost Frequencies & Zonderling – Crazy (James Remix)
+04. Thomas Gold – Begin Again(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:08:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:924A1336F53D7A18A4A416F9F7B709EA0B95932E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291263   (672457) от 23.03.2019
+
+Damian Lazarus & The Ancient Moons - Heart Of Sky (2018) [FLAC|Lossless|tracks + .cue] <Electronic, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_672457.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All I Need To Get High (05:33)
+02. Spirals (04:46)
+03. I Found You (05:13)
+04. Five Moons (feat. Chela - extended mix) (06:43)(   Читать дальше...   )Жанр: Electronic, Tech HouseПродолжительность: 00:59:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B623D9AB217F4F04D863E6B902E19422BF006C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030772   (672412) от 01.07.2016
+
+Phon.O - Fractions EP (2016) [FLAC|Lossless|WEB-DL|tracks] <Techno, House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672412.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Run (06:31)
+02. Brooklyn Shuffle (05:03)
+03. Fractions (06:19)Жанр: Techno, HouseПродолжительность: 00:17:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F31565237194182AEDC692D5EEF3221FA8C757B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291076   (672326) от 23.03.2019
+
+VA - Cafe del Mar ChillWave 3 (2019) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chillout, Downtempo, Electronic>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672326.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Henry Green - Shift
+02. Vanilla - Snowdance
+03. Eli & Fur - Something Was Real(   Читать дальше...   )Жанр: Lounge, Chillout, Downtempo, ElectronicПродолжительность: 02:51:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04C071613123C6A84E13D0EE328FD1E8B042B8F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1223685   (671651) от 06.05.2018
 
 Martin Schulte - Depth Of Soul (2008) Lantern [FLAC|Lossless|tracks+.cue] <Dub Techno, Ambient>
@@ -623,119 +738,6 @@ Simian Mobile Disco - Murmurations (2018) Wichita [FLAC|Lossless|tracks+.cue] <T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7FED1C19172861F5500B9704C584855FF0DCC1E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 902963   (659835) от 29.05.2015
-
-Alesso - Forever (2015) Deluxe Edition [FLAC|Lossless|WEB-DL]<Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659835.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alesso - Profondo
-02. Alesso - PAYDAY
-03. Alesso Feat. Tove Lo - Heroes (We Could Be)
-04. Alesso - Tear The Roof Up(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:03:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8757430E4EE93AB3448F350D40657B9C4668B7F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139799   (659289) от 03.06.2017
-
-Adam Jay - Maxia Zeta (2017) [FLAC|Lossless|WEB-DL|tracks] <Electro, IDM, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659289.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maxia Zeta (06:17)
-02. Distant Origin (06:41)
-03. Dynaform (06:46)
-04. Locating The Ecosphere (05:51)(   Читать дальше...   )Жанр: Electro, IDM, TechnoПродолжительность: 01:01:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:768D7BE3838A5C145F8F016286656DC2074F03DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140089   (658020) от 04.06.2017
-
-Rodriguez Jr. - Baobab (2017) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658020.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Жанр: Tech House, Deep HouseПродолжительность: 01:06:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8686A6BB509BB95169946C6C7ACB349227AAC4CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225845   (657956) от 18.05.2018
-
-DAVI - Boarding Call (2018) Maxi Single & EP [FLAC|Lossless|WEB-DL|tracks] <Deep Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657956.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boarding Call (7:07)
- 02. Boarding Call (Armen Miran Remix) (6:56)
- 03. Boarding Call (Hraach Remix) (7:47)
- 04. Corrected (7:08)Жанр: Deep Progressive HouseПродолжительность: 00:28:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FA1C2783B7D72E8BBC9DA0061C44FC4C70710A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

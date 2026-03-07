@@ -1,3 +1,32 @@
+###  Публикация: 1391496   (781016) от 20.06.2020
+
+Andrew Jasinski - Embracing the Universe (2017) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Neo-Classical, Instrumental, Piano>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_781016.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Embracing the Universe (6:22)
+02. Transforming Fire (13:24)
+03. Moon Bear (14:10)
+04. Immersion (3:54)Жанр: Modern Classical, Neo-Classical, Instrumental, PianoПродолжительность: 00:37:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98C19181F0487815A9E0062DED546570E38A11D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1391493   (781000) от 20.06.2020
 
 Andrew Jasinski - Sea (2014) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Neo-Classical, Instrumental, Piano>
@@ -708,35 +737,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213652   (767335) от 18.03.2018
-
-VA - Piano Cloud Series - Volume One (2016) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Piano, Minimal>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767335.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nils Frahm - Nils has a new piano
-02. Library Tapes - Running by the roads, running by the fields (Solo Piano)
-03. Peter Broderick - Eyes Closed And Traveling
-04. Fabrizio Paterlini - Everyone wants to be found(   Читать дальше...   )Жанр: Modern Classical, Piano, MinimalПродолжительность: 01:01:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19E3A3C179D49770FED65763E1197108778C64DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

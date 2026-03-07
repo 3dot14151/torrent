@@ -1,3 +1,117 @@
+###  Публикация: 1066947   (409759) от 27.10.2016
+
+Oonagh - Märchen enden gut (2016) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Pop, Ethno-Pop, Pop-Folk>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_409759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aulë und Yavanna (3:36)
+02. Numenor (3:44)
+03. Das Mädchen und die Liebe (feat. Santiano) (2:56)
+04. Niënna (3:35)(   Читать дальше...   )Жанр: Pop, Folk, World, Ethno-Pop, Pop-Folk, Ethnic Fusion, Celtic, Fantasy MusicПродолжительность: 01:03:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DEEB14C4531832D3BC4D7F90449D3D13493F2D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066878   (409757) от 27.10.2016
+
+Christina Aguilera - Stripped (2002) [APE|Lossless|image + .cue] <Pop, RnB, Pop Rap>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_409757.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stripped (intro)
+02. Christina Aguilera feat. Lil’ Kim / Can't Hold Us Down
+03. Walk Away
+04. Fighter(   Читать дальше...   )Жанр: Pop, RnB, Pop RapПродолжительность: 01:17:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79BC38AF21E897F81A59C6E8A5E33F0335D38B7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252244   (409085) от 05.10.2018
+
+VA - Italian Lover Sexual Hits (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_409085.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Juan-Carlo Manni - Caruso
+02. Ettore Tonio - E Penso a te
+03. Massimo Sammaroné - Via con me
+04. Juan-Carlo Manni - Perche lo fai(   Читать дальше...   )Жанр: PopПродолжительность: 01:15:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05A5F183A3D86D0938A8CDB0887510F343B52012
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 948718   (409035) от 21.10.2015
+
+Pentatonix - 7 альбомов (2012-2015) [FLAC|tracks|WEB-DL]<Pop, A Cappella>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_409035.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pentatonix (сокращенно PTX) — американская а капелла группа родом из Арлингтона, штат Техас, состоящая из пяти вокалистов: Скотт Хоинг, Митч Грасси, Кирсти Мальдонадо, Ави Каплан и битбоксера Кевина Олушола.
+Pentatonix не имеет конкретного музыкального направления, так как получает влияние от различных направлений, таких как поп-музыка, дабстеп, электро, регги, хип-хоп (   Читать дальше...   )Жанр: Pop, A CappellaПродолжительность: 04:06:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09AAB235E67557F4250B7DD05AF211942F84A20E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1168576   (408884) от 24.09.2017
 
 V.A - Top Ten (1998) [FLAC|Lossless|image + .cue] <Pop>
@@ -632,119 +746,6 @@ Andy Williams - Reflections (1977) Compilation [FLAC|Lossless|tracks + .cue] <Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B10332C3F7ECBF3EC3904A85703C3E337CEE5AB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326261   (387303) от 19.09.2019
-
-Mabel - High Expectations (2019) [FLAC|Lossless|tracks + .cue] <Pop, R&B, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387303.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 High Expectations (Intro) 1:29
-2 Bad Behaviour 3:26
-3 Don't Call Me Up 2:58
-4 FML 3:13(   Читать дальше...   )Жанр: Pop, R&B, DanceПродолжительность: 01:01:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4EF6779B6D10FAC2BDB586BE0FF7D02CC4A8C42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067459   (387128) от 29.10.2016
-
-Empire Of The Sun - Two Vines (2016) [FLAC|Lossless|tracks] <Electropop, Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387128.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Before
-02. High and Low
-03. Two Vines
-04. Friends(   Читать дальше...   )Жанр: Electropop, Indie PopПродолжительность: 00:51:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45497817D5451C603D6AB9CB6163D02B5907AC56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414185   (385381) от 08.10.2020
-
-Ruelle - Collection (2014-2020) [FLAC|Lossless|WEB-DL|tracks] <Electro-Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385381.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Up in Flames 3:39
-2. Take It All 2:58
-3. Deep End 5:01
-4. I Get to Love You 3:59(   Читать дальше...   )Жанр: Electro-PopПродолжительность: 03:11:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C5E7A7DFF4A13C44DE8CB3E26851ED03842D3D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414353   (385302) от 08.10.2020
-
-Billie Eilish - No Time To Die (2020) Single [FLAC|Lossless|WEB-DL|tracks]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385302.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Time To Die (04:02)Жанр: PopПродолжительность: 00:04:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:184928427D1897E1E93424E7C7E706E595A2A285
 ```
 
 https://mybot314.ru/tekegram_catalog/

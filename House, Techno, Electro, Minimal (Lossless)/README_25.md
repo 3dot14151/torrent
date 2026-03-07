@@ -1,3 +1,119 @@
+###  Публикация: 1215797   (756735) от 27.03.2018
+
+Dirty Vegas - Electric Love (2011) Om Records [FLAC|Lossless|tracks + .cue] <House, Pop>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756735.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little White Doves (3:40)
+ 02. Changes (3:34)
+ 03. Electric Love (2:40)
+ 04. Emma (3:49)(   Читать дальше...   )Жанр: House, PopПродолжительность: 00:36:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5AAA5782B12807E3D6548ECB5D89D117A9E24A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215770   (756616) от 27.03.2018
+
+Andrea Cossu - Spira (2018) TGP [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756616.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mineral Minds (feat. TVS) (05:46)
+02. Mechanic Fly (08:40)
+03. Atlàntida Dos (08:39)
+04. F.U. (07:52)(   Читать дальше...   )Жанр: Techno, AmbientПродолжительность: 01:06:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EB57E1E6DC3B6E8CFFB2B351874ED8D004EE463
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215657   (756604) от 27.03.2018
+
+The Mover - Undetected Act from the Gloom Chamber (2018) Planet Phuture [FLAC|Lossless|WEB-DL|tracks] <Techno, Experimental>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756604.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dark Comedown (06:16)
+ 02. Stars Collapse (07:32)
+ 03. Stealth (06:23)
+ 04. Shadow Deception (06:32)(   Читать дальше...   )Жанр: Techno, ExperimentalПродолжительность: 00:54:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07927C41A8D8C6570CEF338F139968EE2E52B84A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1395161   (755281) от 10.07.2020
+
+Boris Brejcha - Live Stream Mix (Continuous Mix) (2020) [FLAC|Lossless|WEB-DL|image] <Tech House, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_755281.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Cocoloco (Mixed) (6:47)
+2. Face Slap (Mixed) (7:00)
+3. Panic Room (Mixed) (5:46)
+4. Eternity (Mixed) (5:23)(   Читать дальше...   )Жанр: Tech House, MinimalПродолжительность: 00:52:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6416FDD794C3C90BA55167FFFE9EB650669BB2DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1281132   (755201) от 06.02.2019
 
 E.R.P. - Afterimage (2018) Forgotten Future [FLAC|Lossless|Vinyl|tracks] <Electro, Ambient>
@@ -622,122 +738,6 @@ Monoplay - Octopus (2019) Nopassport Records [FLAC|Lossless|WEB-DL|tracks] <Deep
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C0AB59CE6042B4CC65583F808D382CF0CEBF985
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283197   (740204) от 16.02.2019
-
-VA - India Gets Physical Vol. 1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Deep House, House, Tech House, Electronic>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740204.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soulspace - Lotus Eater (5:44)
-02. Pawas ft. Arooj Aftab - Naja (9:03)
-03. Unnayanaa ft. Erika Lernot - Plus Loin (8:04)
-04. Small Town Guy ft. Adil Smaali - Oasis (7:34)(   Читать дальше...   )Жанр: Deep House, House, Tech House, ElectronicПродолжительность: 01:25:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B98C31AE6CBAD1516A484332A70365764E95D266
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526514   (738137) от 25.01.2022
-
-Lane 8 - Reviver (2022) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738137.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lane 8, Channy Leaneagh - Survive (5:02)
- 02. Reviver (3:46)
- 03. Lane 8, Arctic Lake - All I Want (4:00)
- 04. Watermelon Wormhole (5:53)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:56:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8287BC34175A9FE7C363BA4D16F021A85629B0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398249   (736199) от 25.07.2020
-
-Warner Case - dance music for dancing, vol. 1-2 (2019-2020) [FLAC|Lossless|WEB-DL|tracks] <EDM, Tech House, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736199.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. running into danger (to feel alive) (3:56)
-02. ATM (3:50)
-03. impeccable (3:09)
-04. metroloops (4:42)(   Читать дальше...   )Жанр: EDM, Tech House, TechnoПродолжительность: 00:38:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEFF08B1F691476972B7F9C9F99BDCA90C787336
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398661   (735252) от 27.07.2020
-
-VA - Summerhits 2020 [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735252.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daddy K, P.A.F.F. - We Are The Universe 3:05
-02. Merlo, Louisax - Is This Goodbye 3:14
-03. Richie Haley, Kita - Sun Kissed Love 2:25
-04. Antoine Simar - Be Alright 3:02(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:32:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D34DB3C64BC37FAB5B8808C54A3B5027BEF7D025
 ```
 
 https://mybot314.ru/tekegram_catalog/

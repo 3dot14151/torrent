@@ -1,3 +1,116 @@
+###  Публикация: 1024102   (720460) от 07.06.2016
+
+VA - Ethereal Techno #002 (2016) [FLAC|Lossless|WEB-DL|tracks] <Techno, Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720460.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Innellea - Galagant (Dahu Remix) (7:40)
+02. Nick Devon - Metis (7:22)
+03. Dahu & MPathy - Shattered (Jonas Saalbach Remix) (8:19)
+04. Tom Peters - Two of Us (6:19)(   Читать дальше...   )Жанр: Techno, Deep House, Tech HouseПродолжительность: 01:43:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:279BEB1D95258337915AD01930838142C93FD562
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024211   (720174) от 07.06.2016
+
+VA - Armin van Buuren - A State Of Trance Festival (Warm Up Sets) (2016) [FLAC|Lossless|WEB-DL||tracks] <Deep House, Techno, Tech House, Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720174.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silinder - A World Is Watching (Michael A Remix) (7:24)
+02. Nicolas Petracca - Blast From The Past (Mitaric's Division Remix) (8:02)
+03. Ruttenbergs - The Fat Duck (Original Mix) (7:15)
+04. Sebastian Weikum - There She Is (Original Mix) (6:25)(   Читать дальше...   )Жанр: Deep House, Techno, Tech House, Progressive HouseПродолжительность: 07:47:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA2F470D34AEBBB49D0C165EFAB06EE7775D19AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218858   (719637) от 11.04.2018
+
+VA - ROHS! - Netlabel Collection (2008-2017) (2018) [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Deep House, Techno, Minimal, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719637.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тип издания: WEBЖанр: Dub Techno, Ambient, Deep House, Techno, Minimal, Tech House •Продолжительность: 09:12:38 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA605E7F2A7DD3C184F532F25F64AF43125EB0F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400365   (719147) от 05.08.2020
+
+VA - Beach Grooves Maretimo Vol.2 (2019) [FLAC|Lossless|WEB-DL|tracks] <Beach House, Lounge>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719147.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Maretimo - Costa Balear (The Beachfloor Cut) (5:41)
+02. Poolwave - African Market (Jazzman´s Cut) (6:11)
+03. Airstream - Back in Time (The Golden Beach Cut) (6:54)
+04. Pascal Dubois - Send Me Away (The Chillhouse Mix) (4:16)(   Читать дальше...   )Жанр: Beach House, LoungeПродолжительность: 01:44:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:948285166DF911172EFCE9B590C2A9B997797E50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1400364   (719144) от 05.08.2020
 
 VA - Beach Grooves Maretimo Vol.1 (2018) [FLAC|Lossless|WEB-DL|tracks] <Beach House, Lounge>
@@ -622,122 +735,6 @@ Bronson - Bronson (2020) [FLAC|Lossless|WEB-DL|tracks] <EDM, Electro House, Tech
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1461BC2648286E3065AC38C93DFD983455BF8E6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287367   (703341) от 07.03.2019
-
-Little BIG - Skibidi (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Rave, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skibidi
-02. Skibidi (Romantic Edition)
-03. Skibidi (Doorly Remix)
-04. Skibidi (ЛАУД Remix)(   Читать дальше...   )Жанр: Rave, DanceПродолжительность: 00:16:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E60D3BEC4C75DDFC6D803CEE4A83F6725120F5E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132386   (702818) от 08.05.2017
-
-VA - Deepalma Ibiza 2017 (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, House, Nu Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702818.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. JazzyFunk & Stage Rockers - City Lights (original mix) [05:10]
-02. Juloboy - Sweet Summer Sins (feat Mougleta - Touch & Go remix)[05:09]
-03. Dark Matter - Let It Move U (original mix) [05:12]
-04. Dayne S - Blind (original mix) [05:56](   Читать дальше...   )Жанр: Deep House, House, Nu DiscoПродолжительность: 04:56:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F007B32805EF04D5D6003D5D56D4649A6D949DF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220606   (702552) от 20.04.2018
-
-Genning - Life In Dub (2018) MixCult Records  [FLAC|Lossless|WEB-DL|tracks] <Deep Techno, Dub Techno, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702552.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dub Reactor (06:24)
- 02. Starsa (06:46)
- 03. Waterfall (06:13)
- 04. Saturn (06:51)(   Читать дальше...   )Жанр: Deep Techno, Dub Techno, Deep HouseПродолжительность: 01:11:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E783030ECE64B4B45C7EA10C235AA9545A676B68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220612   (702458) от 20.04.2018
-
-Hydrangea - Discography 8 Releases (2015-2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Techno, Techno Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702458.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Osmosis I (04:17)
- 02. Osmosis II (07:58)
- 03. Osmosis III (06:28)
- 04. Osmosis IV (06:45)(   Читать дальше...   )Тип издания: WEBЖанр: Ambient/Techno/Techno AmbientПродолжительность: 00:31:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4107C47EE6443C4D038FE5F440770712A73D59C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

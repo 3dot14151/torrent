@@ -1,3 +1,61 @@
+###  Публикация: 1219430   (711908) от 15.04.2018
+
+VA - De Top 100 Aller Tijden 1987 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, Rock, Synth-pop, Disco, World>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711908.jpg" />
+</div>
+
+
+###  Подробнее
+
+"De Top 100 Aller Tijden" (Топ 100 на Все Времена) от голландской радиостанции "Radio-Veronica" .001. Piet Veerman - Sailin' Home (4:36)
+002. Jan Hammer - Crockett's Theme (3:31)
+003. Whitney Houston - I Wanna Dance With Somebody (4:50)
+004. Mixed Emotions - You Want Love (Maria Maria) (3:59)(   Читать дальше...   )Жанр: Pop, Rock, Synth-pop, Disco, WorldПродолжительность: 07:06:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ACB88122C9CF7669E16138EACAEDA32A849A839
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286659   (711325) от 03.03.2019
+
+VA - German Top 50 Official Dance Charts 01.03.2019 (2019) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711325.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Niels Van Gogh - Pulverturm (Tiësto's Big Room Remix)
+02. Calvin Harris - Giant
+03. Hugel - WTF (feat. Amber Van Day)
+04. Picco - Cubano(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:57:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30DD2E61EA86FEF8B8677EE266258094AEA7F00E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1532708   (710891) от 21.02.2022
 
 VA - Happy Pop Dance Party (2022) [MP3|320 Kbps] <Pop, Dance>
@@ -687,64 +745,6 @@ VA - Ишь ты, масленица (2019) [MP3|320 Kbps] <Pop, Pop-Folk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A00FA239DE3E617B936DB8EB3FDAC261E62AD097
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1533135   (706935) от 23.02.2022
-
-VA - Good Feeling 70s (2022) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fleetwood Mac - Go Your Own Way (2004 Remaster)
-02. Elton John - Tiny Dancer (Remastered)
-03. The Four Seasons - December, 1963 (Oh What a Night!)
-04. Eagles - Take It Easy (2013 Remaster)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:11:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FFB81C86DB5794A485812DF4501F6C31ACCC4DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1533142   (706933) от 23.02.2022
-
-VA - Good Feeling 90s (2022) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706933.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Faith Hill - This Kiss
-02. Spice Girls - Stop
-03. Go West - The King of Wishful Thinking
-04. Tina Turner - The Best (Edit)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:44:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED3A2163482D6C40CF985C03E196305387C24ECE
 ```
 
 https://mybot314.ru/tekegram_catalog/

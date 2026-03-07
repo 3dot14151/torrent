@@ -1,3 +1,32 @@
+###  Публикация: 822158   (572000) от 21.05.2019
+
+VA - Не Попса. Rock - Cocktail (2014) [MP3|320 кб/с]<Rock, Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_572000.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Uriah Heep - Easy Livin
+02. Kingdom Come - Outsider
+03. Motley Crue - Kickstart My Heart
+04. UDO - Break The Rules(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 07:45:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66DB622524C1C92773666EAED13535DD975B6F10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1304128   (567075) от 24.05.2019
 
 VA - Rock Driving Music (2019) [MP3|320 Kbps] <Rock>
@@ -716,35 +745,6 @@ Metallica - Time For One...Or 3...Or 7 (EP) (2018) [MP3|320 Kbps] <Thrach Metal,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35088B4B9F6728598A694EFAC00DDC37F59E7532
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309453   (550347) от 20.06.2019
-
-VA - The Paradoxes: Alternative Rock Collection (2019) [MP3|320 Kbps] <Alternative, Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550347.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Inglorious - Queen
-002. Ashley Cleveland - Up From The Ether
-003. Passcode - Bite The Bullet
-004. Quantum Leap - Sea(   Читать дальше...   )Жанр: Alternative, Hard RockПродолжительность: 09:58:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CBFC2D7FDB795E3962D55C2B759F0D1AE4138CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

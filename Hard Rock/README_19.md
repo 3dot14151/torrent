@@ -1,3 +1,32 @@
+###  Публикация: 1055837   (485888) от 23.09.2016
+
+Furious Zoo - Back To Blues Rock (2014) [MP3|320 Kbps] <Hard Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_485888.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You're the One   (03:42)
+02. The Witch Blues   (04:03)
+03. No Respect   (04:00)
+04. Back to the Blues   (04:58)(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 01:08:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64802EBE02F11F8B2CE05C0C7DF05D2BA7CBE757
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1405319   (485604) от 29.08.2020
 
 Tony Mitchell - Church Of A Restless Soul (2020) [MP3|320 Kbps] <Melodic Hard Rock>
@@ -732,35 +761,6 @@ VA - Gods of Thunder - A Norwegian Tribute to Kiss (2005) [MP3|256 Kbps] <Hard R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8395784855DDB7B8D5E39152F99DD2B8DBD37750
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407783   (460101) от 10.09.2020
-
-Jim Kirkpatrick - Ballad Of A Prodigal Son (2020) [MP3|320 Kbps] <Hard Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460101.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ballad of a Prodigal Son (04:27)
- 02. No Such Thing as a Sure Thing (03:38)
- 03. Ain't Goin' Down Alone (04:08)
- 04. Blue Heron Boulevard (03:14)(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:51:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B355761A5829942288722B0DA448EB5A98C3F2D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

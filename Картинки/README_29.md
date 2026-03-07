@@ -1,3 +1,29 @@
+###  Публикация: 1806407   (11740) от 12.07.2025
+
+Промты - SevenUnited LLC - 392 Midjourney Prompts for Invitations - 3763201 [TXT, JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_11740.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пакет из 392 настраиваемых промтов Midjourney для приглашений.Формат: TXT, JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E80684DF15628FFF95EF6B3EFDD5AEE74A53A6B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1806786   (11529) от 14.07.2025
 
 Картинки - Tattoo Flash [JPG, GIF, BMP, PSD]
@@ -645,33 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9E01AD4BFDEE9A361C1472B47733C7FA2CF613F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815559   (5008) от 31.08.2025
-
-Картинки - Wallpapers Mix №1958 [JPG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5008.jpg" />
-</div>
-
-
-###  Подробнее
-
-Высококачественные обои в новом сборнике на ваш рабочий стол.
-Количество 547.Формат: JPGРазрешение файлов: 1920x1080 - 7952x5304
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1ACC019865C9EE249BCDA05D76E4C87ECBE22558
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1607496   (208994) от 26.01.2023
+
+Nino Rota - Greatest Film Hits (2012) 5xCD, BOX Set [FLAC|Lossless|image + .cue] <Instrumental, Soundtrack>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_208994.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nino Rota (3.12.1911 – 10.4.1979) - итальянский композитор, пианист, дирижер и академик. Nino Rota родился в 1911 году в Милане, в семье музыкантов. В детстве, переехав в Рим, поступил в консерваторию, которую закончил в 1929 году. Еще в консерватории Nino Rota прослыл вундеркиндом – он зарекомендовал себя как композитор и дирижер оркестра, а его первая оратория (   Читать дальше...   )CD1 - The Godfather Part I, II:
+01. Main Title. The Godfater Waltz (3:09)
+02. I Have But One Heart (3:01)
+03. The Pick-Up (2:10)(   Читать дальше...   )Жанр: Instrumental, SoundtrackПродолжительность: 05:09:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C72804D4C11CF870D4AA4BBF852A713BBF198679
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1648774   (208002) от 25.07.2023
 
 Алексей Горшенёв - Посвящение (2023) Музыка для сериала "Король и Шут" [FLAC|Lossless|WEB-DL|tracks] <Score>
@@ -716,35 +745,6 @@ Paul Mauriat - The Russian Album (1993) [FLAC 24/192|Lossless|WEB-DL|tracks] <In
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:806BEF6CC9D6F80BDE32E662555C01606E1E2342
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1829839   (201837) от 25.10.2025
-
-Paul Mauriat - Le grand orchestre de Paul Mauriat, Vol. 1-2 (1965) [FLAC 24/96|Lossless|WEB-DL|tracks] <Instrumental>
-
->>Other Styles
->>Instrumental (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_201837.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. La nuit
-02. Vous les femmes
-03. N'avoue jamais(   Читать дальше...   )Жанр: Instrumental |Продолжительность: 00:55:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09FA73874B1BDCFCEFC86DBB7C81A1B591DEBB9F
 ```
 
 https://mybot314.ru/tekegram_catalog/

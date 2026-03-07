@@ -1,3 +1,180 @@
+###  Публикация: 997330   (875254) от 16.03.2016
+
+a-ha - Cast In Steel (2015) [WavPack 2.0|192/32|image +.cue|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_875254.jpg" />
+</div>
+
+
+###  Подробнее
+
+sideA
+A1 Cast In Steel 3:50
+A2 Under The Makeup 3:25
+A3 The Wake 3:45(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84A8B87831341F03980378CAD74954B95B1EEC13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1105409   (874934) от 18.02.2017
+
+Duran Duran - Notorious (1986) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_874934.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1	Notorious
+A2	American Science
+A3	Skin Trade
+A4	A Matter Of Feeling(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:47:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC6D710DCECA83540E6D5487CFA041AD805349FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 872400   (872108) от 26.02.2015
+
+Ван Клиберн - Ван Клиберн (1987) [FLAC 1.0 24/96|traks(Vinil-Rip)]<Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872108.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+Ф. Лист
+1. Грёзы любви (Ноктюрн №3)  4:04
+2. Венгерская рапсодия №12  10:36
+Ф. Шопен(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:51:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA63D0DE881B7B64DB45FD30B105E91A1745D3E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 872332   (872061) от 26.02.2015
+
+Ван Клиберн, симфонический оркестр Московской Государственной филармонии (К. Кондрашин) - С. Рахманинов – Концерт №3 для фортепиано с оркестром (1975) [FLAC 1.0 24/96|traks(Vinil-Rip)]<Classical ...
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872061.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт №3 Ре Минор для фортепиано с оркестром, соч. 30
+Сторона 1
+1. Allegro ma non tanto  17:38
+Сторона 2
+1. Intermezzo. Adagio  10:48(   Читать дальше...   )Жанр: Classical, Neo-RomanticПродолжительность: 00:43:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F091C3FD2E4320C7D6541A4EF792989DE056B6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106721   (869534) от 21.02.2017
+
+VA - RETROспектива, часть XII. Мелодии и песни из кинофильмов I (1939-1965) [FLAC 1.0|48/24|tracks|Vinyl-Rip] <Retro, Soundtrack>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_869534.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Э. Горовец - Ты не печалься (из к-ф ''Большая руда'')
+02. М. Новохижин - Сероглазая (из к-ф ''Огонёк в горах'')
+03. М. Новохижин - Огонёк (из к-ф ''Огонёк в горах'')
+04. Т. Таубэ - Амадо Мио (из к-ф 'Рим в 11 часов'' или ''Джильда'')(   Читать дальше...   )Жанр: Retro, SoundtrackПродолжительность: 00:55:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94D59E8C99EE03292BFCC65957A7E8A6FC76B3E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108388   (864034) от 24.02.2017
+
+Cerrone - 3 Album (1976 - 1977) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_864034.jpg" />
+</div>
+
+
+###  Подробнее
+
+ЧЕРРОНЕ ЖАН-МАРК (Cerrone Jean Marc) (р. в 1952, Сен-Мишель, Франция), французский композитор, продюсер и барабанщик.
+     Хотя слушателю 1990-х годов это имя едва ли говорит о многом, два десятилетия назад, во времена диско-бума конца 70-х, он был одним из самых продуктивных и изобретательных творцов европейской танцевальной музыки: как композитор, продюсер и барабанщик (   Читать дальше...   )Альбомы:
+1976 - Love In C Minor
+1977 - Cerrone's Paradise
+1977 - Cerrone III - SupernatureЖанр: DiscoПродолжительность: 01:36:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CE580ACCFFE03490CD71B85B01CBE72DC77DDDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1497401   (862975) от 23.09.2021
 
 VA - Музыка РУ 5 (2005) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop, Rock>
@@ -569,180 +746,6 @@ A3 Andante(   Читать дальше...   )Жанр: ClassicalПродолж�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:758B21FB195E6A2868BB9C44981F05983F1924E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500378   (841290) от 06.10.2021
-
-Cinderella - Легенды Зарубежного Рока (2000) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841290.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. Don`t Know What You Got
-02. Heartbreak Station
-03. Hard To Find The Words(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:53:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:858AA927F0CB1C3D96BE3612DBCC68414E724EE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 793368   (841272) от 04.04.2016
-
-Electric Light Orchestra - Secret Messages (1983)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841272.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Secret Messages (4:45)
-A2. Loser Gone Wild (5:24)
-A3. Bluebird (4:09)
-A4. Take Me On And On (5:01)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:42:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7075669EA4FE93F57AACE74FEA887A0CB7036F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004105   (839899) от 05.04.2016
-
-Nini Rosso and His Orchestra/Нини Россо И Его Оркестр - Napoli/Неаполь (1983) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Latin>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839899.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1	Душа И Сердце (Anema E Core)
-A2	Идёт Дождь (Chiove)
-A3	Неблагодарное Сердце (Core' Ngrato)
-A4	Страсть (Passione)(   Читать дальше...   )Жанр: Jazz, LatinПродолжительность: 00:39:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D91344BE128BA4E7707AAFAA8C1B1B48739E07A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112731   (839546) от 10.03.2017
-
-VA - RETROспектива, часть XIV. Мелодии и песни из кинофильмов III (1946-1966) [FLAC 1.0|48/24|tracks|Vinyl-Rip] <Retro, Soundtrack>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839546.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Женск. вок. ансамбль - Песня подруг (из к.ф. ''Девчата'')
-02. Валентина Дворянинова - Прощайте, голуби (из к.ф.  ''Прощайте, голуби'')
-03. Оркестр п.у. Виктора Кнушевицкого - Медленный танец (из к.ф. ''Моя любовь'')
-04. Ефим Нейд (худ. свист) - Мелодии (из к.ф. ''Вернись в Соренто'')(   Читать дальше...   )Жанр: Retro, SoundtrackПродолжительность: 00:52:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40EFD35BD4FF786EA5919B69C05EF998CACA6CA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500871   (837869) от 08.10.2021
-
-Rainbow - Легенды Зарубежного Рока (2000) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837869.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. Catch To Rainbow
-02. All Night Long
-03. Starstruck(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:22:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29620E8B9A76C9B386E26505472F6641882AB606
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 879054   (835414) от 19.03.2015
-
-Elton John - Goodbye Yellow Brick Road (2014) [LPCM2.0 96/24, DTS96/24 5.1|Audio-DVD (BD-Audio)] <Rock, Glam Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835414.jpg" />
-</div>
-
-
-###  Подробнее
-
-• 2014 Stereo Remaster
-
-01 Funeral For A Friend/ Love Lies Bleeding (2014 Remaster) 11:10
-02 Candle In The Wind (2014 Remaster) 3:49(   Читать дальше...   )Жанр: Rock, Glam RockПродолжительность: 01:16:19 + 00:13:11 (4 bonus tracks)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B21594CD12BD637F55575E556F1FD53A9A80800
 ```
 
 https://mybot314.ru/tekegram_catalog/

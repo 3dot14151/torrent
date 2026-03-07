@@ -1,3 +1,32 @@
+###  Публикация: 1049032   (545456) от 03.09.2016
+
+Lindsey Stirling - Brave Enough (2016) Deluxe Edition [FLAC|Lossless|image + .cue] <Classical Crossover, Pop, Electronic, Dubstep, Violin>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_545456.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lost Girls - 4:35
+02. Brave Enough (feat. Christina Perri) - 4:23
+03. The Arena - 3:52
+04. The Phoenix - 4:04(   Читать дальше...   )Жанр: Classical Crossover, Pop, Electronic, Dubstep, ViolinПродолжительность: 01:11:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0648761C7A93C9C6CB978473DC70A2DD0AEF9601
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1048880   (545268) от 03.09.2016
 
 VA - Золотые Хиты Классики в современной обработке №2 (2014) [MP3|256 Kbps] <Classical>
@@ -729,35 +758,6 @@ Concerto Grosso No.1 In D Major
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B0A349D43E6507D0F71773BC742183068C34410
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314024   (517024) от 16.07.2019
-
-Michael J. Burkard - Solar Symphony (2017) [MP3|320 Kbps] <Classical>
-
->>Классика
->>Классика (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517024.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Countdown
- 02. Mercury
- 03. Venus
- 04. Earth(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:01:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61D91BF07B0825EC02FC3F91759611360C662880
 ```
 
 https://mybot314.ru/tekegram_catalog/

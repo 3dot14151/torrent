@@ -1,3 +1,235 @@
+###  Публикация: 1573367   (412220) от 31.08.2022
+
+Jeff Dale & The South Woodlawners - Blood Red Moon (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_412220.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Made Your Own Bed (3:07)
+02. Cicero (4:06)
+03. Blood Red Moon (2:51)
+04. At The Wolf's Door (2:57)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:32:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1647C35BF671280C2BB7FE8B34FB31382FF1B73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573363   (412219) от 31.08.2022
+
+Emanuel Casablanca - Blood On My Hands (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_412219.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Afraid Of Blood (3:48)
+02. In Blood (4:06)
+03. Blood On My Hands (3:39)
+04. Like A Pulse (5:12)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:59:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:402207626DD795CE0A25599E6AABA8731D520224
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413012   (411910) от 02.10.2020
+
+Louis Armstrong - Collected (1920-e - 1960-e) 2018, 3CD, Universal [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_411910.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Muggles [2:51]
+02. West End Blues [3:19]
+03. Ain't Misbehavin' [3:20](   Читать дальше...   )Жанр: Swing, Big Band, Vocal JazzПродолжительность: 03:21:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79127F78CB969002FB666827153C92B8D2DA731D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 948574   (411789) от 20.10.2015
+
+Mitchel Forman - Harvest Song (1997) /Jazzline/[FLAC|image+.cue]<Jazz Fusion, Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_411789.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.A Deeper Dream [03:50]
+ 02.The Alchemist [03:18]
+ 03.Harvest Song [03:36]
+ 04.Gorgeous [04:45](   Читать дальше...   )Жанр: Jazz Fusion, Post-Bop, Piano JazzПродолжительность: 00:52:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A69C1E1CCD5CAA85BBAA36665CF5C68A3A500217
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 948334   (411788) от 20.10.2015
+
+Ray Bryant - Trio (1956) /2014, Sony Music/[FLAC|tracks+.cue]<Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_411788.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Cubano Chant [03:07]
+ 02.Off Shore [03:57]
+ 03.Well, You Needn't [03:19]
+ 04.Cry Me A River [03:52](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:40:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:379BCA055470FBF14180D86181B5ABDBE69A7410
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 711485   (411720) от 16.10.2013
+
+Joe Cocker - Joe Cocker Gold (2006) 2CD [APE|Lossless]<Rock, Blues Rock, Soft Rock, Classic Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_411720.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+01.Feelin' Alright
+02.With A Little Help From My Friends
+03.Delta Lady(   Читать дальше...   )Жанр: Rock, Blues Rock, Soft Rock, Classic RockПродолжительность: 02:24:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:302E75DB38FFE028324A03D1E11E757DB7C64BA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 948604   (411612) от 20.10.2015
+
+Johnny "Hammond" Smith Trio plus Seldon Powell - Black Coffee (1962) /2012, Universal/[FLAC|tracks+.cue]<Soul-Jazz, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_411612.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Black Coffee [04:20]
+ 02.Monterey Theme [03:08]
+ 03.I Remember Clifford [04:19]
+ 04.Far Away Places [07:17](   Читать дальше...   )Жанр: Soul-Jazz, Hard BopПродолжительность: 01:17:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09C5CEFDD0EFEBA4FDFE1ADBE66984B9120F656C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 948255   (411605) от 20.10.2015
+
+Scott Hamilton - plays with The Dany Doriz Caveau De La Huchette Orchestra (2014) /Fremeaux & Associes/[FLAC|tracks+.cue]<Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_411605.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Slipped Disc [04:25]
+ 02.Dropsy [05:14]
+ 03.Cotton Tail [04:35]
+ 04.Amen [07:39](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:03:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73A76F9848C97FD274527123F5A15C76637F1D6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 948328   (411604) от 20.10.2015
 
 Johnny Hammond - Gambler's Life (1974) /2013, King Records/[FLAC|tracks+.cue]<Jazz-Funk, Soul-Jazz, Hammond Organ>
@@ -513,238 +745,6 @@ Cal Tjader - Plays the Contemporary Music of Mexico and Brazil (1962) 2008, Verv
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5495034A670DBE439E6B0BFFE400A0CCA877E399
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066665   (410269) от 27.10.2016
-
-Ahmad Jamal - Freeflight (1971) 1993, GRP[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410269.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Introduction [00:54]
- 02.Effendi [11:28]
- 03.Dolphin Dance [04:52]
- 04.Manhattan Reflections [10:01](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:38:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CABE2EFD24DAF554799AF8C00B90B631D3ABD3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066670   (410268) от 27.10.2016
-
-Joe Lovano Quartet - Classic! Live At Newport (2005) 2016, Blue Note[FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410268.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Big Ben [07:12]
- 02.Bird's Eye View [11:07]
- 03.Don't Ever Leave Me [10:24]
- 04.I'm All For You [09:55](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:57:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49B30B793F617632FBE26CA3532EE0F5331D691F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066898   (410182) от 27.10.2016
-
-Great Jazz Trio - Standard Collection Volume 2 (1988) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410182.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Angel Eyes [07:59]
- 02.Autumn Leaves [05:55]
- 03.Black Orpheus [05:01]
- 04.Gone With The Wind [06:06](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:56:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D7186DC4E1AA401C9CC6EAAC39B507644F5C1FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066846   (410171) от 27.10.2016
-
-Freddie King - The Shelter Records Years (2000) [APE|Lossless|image + .cue] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410171.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Going Down (3:23)
-02. Five Long Years (4:19)
-03. Palace Of The King (3:41)
-04. Some Old Blues (3:59)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:06:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1ECF5B453A8741F88DC0273B290A97F115420694
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413281   (410101) от 03.10.2020
-
-Scott Hamilton - Organic Duke (1994) 2000,  Concord Jazz [APE|Lossless|image + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410101.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jump for Joy [4:59]
-02. Blue Hodge [7:54]
-03. Moon Mist [3:59]
-04. Paris Blues [6:01](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:58:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D79C7E9CAB3C2BC8FFC25AB7151FBB04BDCAF1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066873   (410076) от 27.10.2016
-
-The DGB - More Is More (2016) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410076.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Won't Let Love
-02. Leave This Town
-03. Been There Twice
-04. Hold On(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:49:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0318575D7173F7F2FAAD4DBADBC52F809874C012
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413315   (409995) от 03.10.2020
-
-Ben Granfelt - True Colours (2020) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409995.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Victorious (04:52)
- 02. No Turning Back (05:28)
- 03. Hey Stranger (04:33)
- 04. Arms of an Angel (05:17)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:46:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C296F5BCDD2062255D5FF3E5ED92BB699BE91415
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413323   (409864) от 03.10.2020
-
-Magnolia Bayou - Strange Place (2020) [MP3|320 Kbps] <Southern Rock, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409864.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dig Deep (04:12)
- 02. Sleepin' in the Dog House (04:06)
- 03. Sugarspell (04:01)
- 04. Preachin' Blues (05:08)(   Читать дальше...   )Жанр: Southern Rock, Blues RockПродолжительность: 00:48:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22B03594C8DDA885176885569E48577BD5F9B293
 ```
 
 https://mybot314.ru/tekegram_catalog/

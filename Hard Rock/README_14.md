@@ -1,3 +1,32 @@
+###  Публикация: 910741   (620524) от 21.06.2015
+
+The Agony - Dirty And Dangerous (2015) [MP3|320 кб/с]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_620524.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let's Get Wasted (02:38)
+02. T.W.S. (Dirty And Dangerous Version) (04:11)
+03. Impossible (03:49)
+04. Give It To Me (Dirty And Dangerous Version) (03:49)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8036C02CAE0C44C7B8AC895734D02A00DFB673B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1145797   (619796) от 26.06.2017
 
 Ten - Gothica (2017) Japanese Edition [MP3|320 Kbps] <Melodic Hard Rock, AOR>
@@ -713,41 +742,6 @@ Truk - Truk Tracks (1971) Remastered 2008 [MP3|320 кб/с]<Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3AB5FABFE7E349C9C82DFB4A53BFDC4481184B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526418   (597074) от 24.07.2012
-
-Heart - Greatest Hits (1985-1995) (2000) [MP3|320 кб/с]<Hard Rock / Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597074.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What About Love
- 02. If Looks Could Kill
- 03. Never
- 04. These Dreams
- 05. Nothin' At All
- 06. Alone
- 07. Who Will You Run To
- 08. There's The Girl
- 09. Surrender To Me (Ann Wilson & Robin Zander)
- 10. All I Wanna Do Is Make Love To You(   Читать дальше...   )Жанр: Hard Rock / RockПродолжительность: 01:12:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C30DB858FB646CB06086FB66AADB5BB4E1E91FD7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1585098   (222386) от 21.10.2022
+
+VA - Halloween Stories (2022) [MP3|320 Kbps] <Rock, Hard Rock, Heavy Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_222386.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Danzig - Devil's Plaything (Album Version) [04:14]
+02. Lucifer - Crucifix (I Burn for You) [03:51]
+03. Black Sabbath - Electric Funeral [04:50]
+04. AC/DC - Hells Bells [05:12](   Читать дальше...   )Жанр: Rock, Hard Rock, Heavy MetalПродолжительность: 03:41:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7EF27991CB17F895DD6E7AD3324B967DEB814E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1083993   (220830) от 18.12.2016
 
 The Savage Rose - Her Story (Compilation) 2CD (2016) [MP3|320 Kbps] <Progressive rock>
@@ -716,35 +745,6 @@ VA - Compilation Female Assorted part 30 (2023) [MP3|320 Kbps] <Rock, Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8F4C22FEF81EE88609BCC4502AF0BE306C9F98C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654971   (204487) от 25.08.2023
-
-Danny Bryant - Compilation (2023) [MP3|320 Kbps] <Rock, Blues Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204487.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Best of Me
-02. Blood Money (Feat. Walter Trout)
-03. Revelation
-04. Between the Lines(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 02:10:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:228B9A1640ED38C1BF75378C8084B9806E46AC9B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1062624   (438869) от 14.10.2016
+
+Валентин Стрыкало - Развлечение (2016) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_438869.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ускользает
+02. О брат
+03. 92
+04. Решится само собой(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA206099F98A7D2C6317CC973E95BC5ACE7D494F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1570403   (438475) от 19.08.2022
 
 Stoned Void - Throbbing Rhythm of the Doldrums (2022) [MP3|320 Kbps] <Heavy Psych, Stoner, Doom>
@@ -724,35 +753,6 @@ Kerry Livgren - Q.A.R. (2022) [MP3|320 Kbps] <Progressive Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A1710619D8D599224AEA8ED2F2E9C1F982EF6F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250676   (424488) от 28.09.2018
-
-Сергей Бабкин - Музасфера (2018) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424488.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Червоні окуляри
-02. Моє кохання
-03. Єви і Адами
-04. Зачаровані(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EE5C711ABE0835D35D644425BE76A6CA22DBAC2
 ```
 
 https://mybot314.ru/tekegram_catalog/

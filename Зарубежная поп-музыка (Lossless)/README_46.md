@@ -1,3 +1,119 @@
+###  Публикация: 1044933   (563254) от 21.08.2016
+
+VA - The Best Nostalgia Album. In The World... Ever! (1997) Compilation [FLAC|Lossless|tracks + .cue] <Retro, Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_563254.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fever (Peggy Lee) [03:22]
+02. Mona Lisa (Nat King Cole) [03:29]
+03. Volare (Dean Martin) [03:01]
+04. Spanish Eyes (Al Martino) [02:48](   Читать дальше...   )Жанр: Retro, Pop, Pop RockПродолжительность: 00:59:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49785D97E822F6F4230992E06DBA246CD3D7E799
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152439   (563004) от 24.07.2017
+
+VA - BRAVO Hits 98 (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_563004.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robin Schulz feat. James Blunt - OK (3:10)
+02. Jonas Blue feat. William Singe - Mama (3:01)
+03. Liam Payne feat. Quavo - Strip That Down (3:23)
+04. Axwell Λ Ingrosso - More Than You Know (3:21)(   Читать дальше...   )Жанр: Pop Compilation, Pop, Electronic, R&B, Disco, Dance, Indie Pop, Europop, R&B, Hip Hop, Pop Rap, House, Euro House, Deep House, Electro, Synthpop, Pop RockПродолжительность: 02:35:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD92409AA76EC1B6747E21C0C55608D9110E90E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044900   (562972) от 21.08.2016
+
+Michael Jackson - Thriller: 25th Anniversary Edition (1982) Remastered, 2008, Epic/Legacy [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_562972.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wanna Be Startin' Somethin' (6:02)
+ 02. Baby Be Mine (4:20)
+ 03. The Girl Is Mine (3:42)
+ 04. Thriller (5:57)(   Читать дальше...   )Жанр: Pop, SoulПродолжительность: 01:07:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC30F5871375BF187FD1600A2E6901150A1EA309
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304844   (562088) от 27.05.2019
+
+Stensound Party Group - Vom Zillertal bis Arenal (Unknown) [FLAC|Lossless|image + .cue] <Pop, Cover, Latino>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_562088.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vamonos (3:52)
+02. Y Viva Espana (3:20)
+03. Vamos A La Playa (3:13)
+04. La Copa De La Vida (4:31)(   Читать дальше...   )Жанр: Pop, Cover, Latino-PartyПродолжительность: 00:57:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:040572FB5F530800865AA862A9ED58C74CAF0DF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1304665   (561708) от 27.05.2019
 
 Laid Back - Healing Feeling (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthpop, Reggae, Downtempo>
@@ -630,122 +746,6 @@ Bo Katzman Chor - Spirit of Joy (2001) [FLAC|Lossless|image + .cue] <Pop, Cover,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A48196ABE56FD374FE589711671E3FAAE67CCF87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307397   (555084) от 09.06.2019
-
-Горячий шоколад - Береги (2009) [FLAC|Lossless|tracks + .cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555084.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Выбрала любовь
-02. Береги
-03. Чувства
-04. Неба мало ( feat. Дмитрий Климашенко )(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CDC93DB9ED43A91AC0AE7F518DB3E16CB0C413A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307581   (554905) от 10.06.2019
-
-Minor Majority - Napkin Poetry (2019) [FLAC|Lossless|tracks + .cue] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554905.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lucy (4:46)
-02. I've Been Here Before (4:22)
-03. Can't Think Of A Reason (5:00)
-04. Forgive Me (3:05)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:56:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5D334A79DB28E952266AA0FC6C3B544044C7AAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236123   (554752) от 16.07.2018
-
-Anna Tatangelo - Ragazza di periferia (2007)  [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554752.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Essere una donna Mastered (4:03) bonus track
-02. Colpo di fulmine (3:30) bonus track
-03. Quando due si lasciano (3:35)
-04. Dimmi dimmi (3:40)(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DB52E64EED0E602B6CE41DA84E195A715CE3C08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307579   (554699) от 11.06.2019
-
-Fortuna Ehrenfeld - Helm Ab Zum Gebet (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554699.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heiliges Fernweh (02:51)
-02. Hör endlich auf zu jammern (03:43)
-03. Helm ab zum Gebet (02:48)
-04. Bad Hair Day (03:20)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:38:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB988732D338CCDC68383D0042608464543CC1A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

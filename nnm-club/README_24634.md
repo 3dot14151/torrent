@@ -1,25 +1,23 @@
-###  Публикация: 1810095   (64556) от 02.08.2025
+###  Публикация: 1804648   (65567) от 01.07.2025
 
-Paul McCartney - Flaming Pie (1997) Japanese Edition, SHM-CD, Reissue, 2025, Capitol Records [FLAC|Lossless|image + .cue] <Rock>
+Бернард Кинг | Привычки успешных людей (2014) [MP3, Алексей Мужицкий]
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64556.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65567.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Song We Were Singing
-02. The World Tonight
-03. If You Wanna
-04. Somedays(   Читать дальше...   )Жанр: RockПродолжительность: 00:53:46
+Дональд Трамп, Рэй Крок и даже Генри Форд жили с этим! Да, как ни удивительно, но и у самых богатых людей мира есть свои привычки. Именно они привели их к славе, деньгам и успеху. Так узнайте же, как привыкли действовать, общаться, думать, руководить и, наконец, просто жить успешные люди.
+Четко видеть конечную цель. Нацеленность на результатЖанр: Личные финансы, Просто о бизнесеИздательство: AB PublishingПродолжительность: 01:07:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:69F8DE5BE4275276CE4D10E51AFB19E0059C3DBC
+magnet:?xt=urn:btih:4E3A90086FBBDD144E2F6AA849DD2F49CE204773
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,25 +25,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809926   (64555) от 02.08.2025
+###  Публикация: 1804741   (65566) от 01.07.2025
 
-Фриц Лейбер | Сага о Фафхрде и Сером Мышелове (Книга 3). Мечи в тумане (2025) [MP3, Илья Усачев]
+Растровый клипарт - Envato - Skate and Destroy - 75+ Punk Stickers Vol. 1 - EVLSX42 [EPS, SVG, PNG]
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64555.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65566.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мечи в тумане. Герои саги – Фафхрд и Серый Мышелов продолжают свои опасные и загадочные приключения в мире Невона. На этот раз друзья окажутся в сердце магического Ланкмара, сразятся с тенями прошлого и станут пешками в играх древних колдунов. Их путь ведёт сквозь туман, где за каждым углом – ловушка, а за каждым словом – заклятие. Блуждая между мирами герои столкнутся (   Читать дальше...   )Жанр: Фэнтези, приключенияИздательство: Азбука-АттикусПродолжительность: 07:33:01
+Дайте волю грубому отношению и скейт-панковскому бунту с этим огромным набором наклеек Skate and Destroy . Наполненная более чем 75 нарисованными от руки графическими изображениями, эта коллекция передает сырую энергию DIY андеграундных скейт-журналов 80-х–90-х годов, хардкор-панк-листовок и гаражной культуры. Каждая наклейка создана с четкими контурами, высокой (   Читать дальше...   )Формат: EPS, SVG, PNGРазрешение файлов: 568x1034 - 6942x2406
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F5C78E54D348A728D627AA7FC8C1325538694B07
+magnet:?xt=urn:btih:2DEF2FB92846D4E9D75E4C8719BF06DBAA3D951E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,54 +51,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809924   (64554) от 02.08.2025
+###  Публикация: 1804685   (65565) от 01.07.2025
 
-Фриц Лейбер | Сага о Фафхрде и Сером Мышелове (Книга 2). Мечи против смерти (2025) [MP3, Илья Усачев]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64554.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мечи против смерти. Фафхрд и Серый Мышелов, сбежавшие от личной трагедии, бросают вызов миру, где за каждым углом – смерть, магия и предательство. Они становятся наёмниками, ворами и мстителями, сталкиваясь с древними проклятиями, коварными богами и собственной болью. Это темные, жесткие и полные иронии приключения двух мечников в сердце Ланкмара и далеко за его (   Читать дальше...   )Жанр: Фэнтези, приключенияИздательство: Азбука-АттикусПродолжительность: 09:20:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF87E3CCF2FBFDC06B70933B80B50A36B0875623
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810068   (64553) от 02.08.2025
-
-Hemelbestormer - The Radiant Veil (2025) [FLAC|Lossless|WEB-DL|tracks] <Post-Metal, Instrumental>
+Exmortus - Necrophony (2023) [FLAC|Lossless|image + .cue] <Neoclassical, Technical Thrash, Death Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64553.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65565.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Usil (10:16)
- 02. Turms (08:37)
- 03. Turan (03:48)
- 04. Tiur (09:31)(   Читать дальше...   )Жанр: Post-Metal, InstrumentalПродолжительность: 01:05:39
+01. Masquerade
+02. Mask Of Red Death
+03. Oathbreaker
+04. Mind Of Metal(   Читать дальше...   )Жанр: Neoclassical, Technical Thrash, Death MetalПродолжительность: 00:53:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B59A4FF1A503F4AC639A117E146F1557A74B237A
+magnet:?xt=urn:btih:E42A2BD392FAA5911CB5210D3BD2B567C0DD2170
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -108,217 +80,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809930   (64552) от 02.08.2025
+###  Публикация: 1804755   (65564) от 01.07.2025
 
-Андрей Ткачев, Findroid | Я покорю Лабиринт с помощью техник массажа (Книга 6) (2023) [MP3, Максим Полтавский]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64552.jpg" />
-</div>
-
-
-###  Подробнее
-
-Казалось, можно было наконец-то передохнуть и заняться упрочнением своего фундамента для дальнейшего развития как практика. Вот только глава нашей школы решил, что мы обязаны поучаствовать в турнире в Божественном Лабиринте под Новгородом. Похоже, выбора нет, и придётся не только участвовать, но ещё и отстаивать честь школы. Ну что же, пусть я и не являюсь великим (   Читать дальше...   )Жанр: Городское фэнтезиИздательство: ИДДКПродолжительность: 07:30:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4A4B777DEC03C431F18445C4D12D3DE6957FB16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810066   (64551) от 02.08.2025
-
-VA - Nothing But... Trancetopia, Vol. 28 (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64551.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kiro Kosta - Neptune (Original Mix) [4:47]
-02. Operator MUSIC - World (Miroslav Vrlik Remix) [3:41]
-03. Luca De Maas - Now I Know (Original Mix) [7:12]
-04. Tall Paul - 4am In Clerkenwell (Ext Mix) [6:50](   Читать дальше...   )Жанр: TranceПродолжительность: 01:57:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DD810B0E7F1CB5E62650AFDB95ABBC9A008F41F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810050   (64550) от 02.08.2025
-
-Селина Катрин | Генетика любви (2023) [MP3, Леди Арфа]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64550.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ориелла – замужняя дама с двумя детьми, которая давно мечтает о разводе, вот только на планете Цварг их официально не существует. Жизнь Ориеллы переворачивается вверх дном, когда на её пути встречается привлекательный профессор генетики. Себастьян Касс изучает проблему рождаемости у расы и находится в поисках молодой невесты. Почему же он так добивается развода для (   Читать дальше...   )Жанр: космическая фантастика, любовное фэнтези, любовные приключения, приключенческая фантастика, романтическая фантастикаИздательство: ИДДКПродолжительность: 11:07:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35FBE4671167DF8BCC2B173B221B3AFA5FBAB7EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809932   (64549) от 02.08.2025
-
-Findroid | Контрактор (Книга 3) (2025) [MP3, Максим Полтавский]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64549.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Контрактор» – фантастический роман, первая книга одноименного цикла, жанр боевое фэнтези, бояръ-аниме. Я был одним из ганхиркских демонов, божественных убийц, что делают невыполнимое, мастером контрактов, скопившим тысячи способностей за срок своей долгой службы. И я устал. Теперь я собираюсь просто вернуться домой и зажить спокойной жизнью, только вот мои старые (   Читать дальше...   )Жанр: Фантастика, фэнтезиИздательство: ИДДКПродолжительность: 07:28:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13DAADE73F34C372FDAD551453A04E89DB2F025A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809894   (64548) от 02.08.2025
-
-Findroid | Возвращение демонического мастера (Книга 8) (2025) [MP3, Алексей Воскобойников]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64548.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Возвращение демонического мастера» – роман, восьмая книга одноименного цикла, жанр нью-эдалт, героическое фэнтези.
-С сектой Несокрушимого Алмазного Солнца покончено, но впереди маячит новый гораздо более сильный враг – Альянс Тени.Жанр: фэнтезиИздательство: ИДДКПродолжительность: 08:22:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C8265F8409E610F36C4E108295E30B16D044699
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809931   (64547) от 02.08.2025
-
-Findroid | Контрактор (Книга 1) (2025) [MP3, Максим Полтавский]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64547.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Контрактор» – фантастический роман, первая книга одноименного цикла, жанр боевое фэнтези, бояръ-аниме. Я был одним из ганхиркских демонов, божественных убийц, что делают невыполнимое, мастером контрактов, скопившим тысячи способностей за срок своей долгой службы. И я устал. Теперь я собираюсь просто вернуться домой и зажить спокойной жизнью, только вот мои старые (   Читать дальше...   )Жанр: Фантастика, фэнтезиИздательство: ИДДКПродолжительность: 07:35:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A0BDE5B6C77D5F5A525970892F59D7038DEC0EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810046   (64546) от 02.08.2025
-
-VA - Keep It Trance Vol. 30 (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64546.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mostly Cloudy & Toby Hill - SMR (Original Mix) [2:40]
-02. Midnight Evolution - Galaxy (Original Mix) [3:55]
-03. A.L.Y.S. - Go Run (Original Mix) [3:11]
-04. Christopher Corrigan - Belfast (Original Mix) [3:21](   Читать дальше...   )Жанр: TranceПродолжительность: 02:13:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:458B11791572B391029E691DE370D0FAF6C7A5FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810032   (64545) от 02.08.2025
-
-Reneé Rapp - BITE ME (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
+Herrementari - Against Life (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Death Metal, Hardcore, Blackened>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64545.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65564.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Leave Me Alone (02:22)
- 02 - Mad (02:55)
- 03 - Why Is She Still Here_ (02:30)
- 04 - Sometimes (03:04)(   Читать дальше...   )Жанр: PopПродолжительность: 00:33:30
+01. Death Cult [00:03:09]
+02. Hammering the Sinners (Streaming Version) [00:02:17]
+03. "The Cælestial Beast is Rotten." (Streaming Version) [00:02:45]
+04. Que Minjam eths Nosti Mòrts [00:03:35](   Читать дальше...   )Жанр: Death Metal, Hardcore, BlackenedПродолжительность: 00:37:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D8ED9BD24F43AB9B3B117C0EB3B35E1E3DBD3A12
+magnet:?xt=urn:btih:6E970EDA492147292E2FB9A5B60E74E69ABD0DB3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -326,138 +109,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810063   (64544) от 02.08.2025
+###  Публикация: 1804678   (65563) от 01.07.2025
 
-VA - Evolving Horizons: Progressive Trance Chronicles, Vol. 12 (2025) [MP3|320 Kbps] <Trance, Progressive>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Northern Project - Brand New Sky (Original Mix) [3:30]
-02. Gary Afterlife - Waiting For The Sunrise (Original Mix) [6:50]
-03. Hypersia vs. Saman Mehmani & Parsa Q - Unity (Original Mix) [5:24]
-04. Cloudchaser - Mango (Original Mix) [6:00](   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 02:30:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8F42B5D9067182CC028CAEA7DDA189179BC97D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809916   (64543) от 02.08.2025
-
-Андрей Ткачев, Findroid | Проклятый ранкер (Книги 1-4) (2022-2023) [MP3, Вадим Пугачев]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64543.jpg" />
-</div>
-
-
-###  Подробнее
-
-После “Дня скорби” наш мир изменился. Бездна раскрыла проход в себя, обещая несметные богатства и силу. Именно так появились Пробужденные - Сверхлюди, способные сражаться против монстров Бездны. Но... я не один из них. Тот день не принес мне ни силу, ни славу, только боль и обещание скорой смерти. Когда я оказался на грани отчаяния, мне предложили сделку, возможность (   Читать дальше...   )Жанр: фэнтезиИздательство: ИДДКПродолжительность: 33:04:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2B73AD7579F5526CCAED2156B5CBE8AF5A01F26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810055   (64542) от 02.08.2025
-
-VA - Trancendence, Vol. 03 (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64542.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mostly Cloudy & Toby Hill - SMR (Extended Mix) [4:46]
-02. Midnight Evolution - Silence (Extended Mix) [6:32]
-03. JXR - Hold It Off (Radio Edit) [2:56]
-04. DJ Spaceman & Dj X-Tromic - Regulus (Radio Mix) [4:02](   Читать дальше...   )Жанр: TranceПродолжительность: 02:04:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BFCFBE37DA0E5260B65FC39BEEDC5828C8C5B4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809927   (64541) от 02.08.2025
-
-Фриц Лейбер | Сага о Фафхрде и Сером Мышелове (Книга 4). Мечи против колдовства (2025) [MP3, Илья Усачев]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64541.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мечи против колдовства. Фафхрд и Серый Мышелов – два легендарных искателя приключений, чьи пути пересеклись в загадочном городе Ланкмар. Один – могучий северянин с мечом, другой – ловкий и хитроумный вор с кинжалом. Вместе они отправляются в невероятные путешествия, сражаются с колдунами, чудовищами и силами тьмы, раскрывая тайны древних руин и волшебных земель. (   Читать дальше...   )Жанр: Фэнтези, приключенияИздательство: Азбука-АттикусПродолжительность: 08:27:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0A45465798BD6DCE6ACB9FBE0AD650C6349A1F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809984   (64540) от 02.08.2025
-
-Nighthawk - Six Three O (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+Avkrvst - The Approbation (2023) [FLAC|Lossless|image + .cue] <Prog Rock, Progressive Metal, Melodic Death Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64540.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65563.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Hard Rock Fever
-02. Wrong Side Of Desire
-03. Home Tonight
-04. Angel Of Mine(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:33:01
+1. Østerdalen 0:26
+2. The Pale Moon 6:15
+3. Isolation 5:40
+4. The Great White River 6:30(   Читать дальше...   )Жанр: Prog Rock, Progressive Metal, Melodic Death MetalПродолжительность: 00:48:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0C20C73FD82EAB724C3E06AA8BE1D06B3BCBCB6B
+magnet:?xt=urn:btih:EC11A69BEFD63B944ABA8EA3CF91381472BF61A7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -465,28 +138,86 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810069   (64539) от 02.08.2025
+###  Публикация: 1804710   (65562) от 01.07.2025
 
-VA - Trance Fusion, Vol. 12 (2025) [MP3|320 Kbps] <Trance>
+Joe Morello - Morello Standard Time (1994) DMP [FLAC|Lossless|image + .cue] <Cool, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65562.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paper Moon [5:35]
+02. When You Wish Upon A Star [6:42]
+03. One For Amos [5:12]
+04. Take Five [6:42](   Читать дальше...   )Жанр: Cool, Hard BopПродолжительность: 00:56:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA6E69A301E8991B7A2654D0241C7B82BB3E6D37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804649   (65561) от 01.07.2025
+
+Dj Moy - Free Funk (2025) [FLAC|Lossless|WEB-DL|tracks] <Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65561.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Funk In The Jungle (Dub Mix) (3:35)
+02.  Free In The Jungle (3:58)
+03.  Energizer (3:14)
+04.  Esotick (4:20)(   Читать дальше...   )Жанр: FunkПродолжительность: 02:28:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF37D8D4985453E47EE1F780CE1F3B13A00903A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804769   (65560) от 01.07.2025
+
+Lane 8 - Summer 2025 Mixtape (2025-06-18) [MP3|320 Kbps] <Progressive House, Melodic House, Techno>
 
 >>Electronic
->>Trance
+>>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64539.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65560.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Semper T. - Parallel Universe (Original Mix) [6:42]
-02. Stefano Negrini & Alaera - Your Loving Angel (Original Mix) [4:18]
-03. Young Hu - Cry Cry Cry (Fros7novA Remix) [4:45]
-04. Masaru Hinaiji & Orie Yoko - Silent Fountain (Original Mix) [4:21](   Читать дальше...   )Жанр: TranceПродолжительность: 02:15;26
+01. Dead Bandit - One Eyed
+02. ID - ID
+03. ID - ID
+04. Rebel Of Sleep - Distant Thoughts(   Читать дальше...   )Жанр: Progressive House, Melodic House, TechnoПродолжительность: 03:02:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A22C63BDC49B8EEC0FE2F2FF4783A0BA01FD768D
+magnet:?xt=urn:btih:BDB4E8C548FDE8979E4B4B8BA97517B09C10C265
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -494,25 +225,86 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809921   (64538) от 02.08.2025
+###  Публикация: 1804766   (65559) от 01.07.2025
 
-Фриц Лейбер | Сага о Фафхрде и Сером Мышелове (Книга 1). Мечи и черная магия (2025) [MP3, Илья Усачев]
+Keef Baker - K (2024) [FLAC|Lossless|Web-DL|tracks] <IDM, Synthwave, Techno>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65559.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flecks (06:24)
+02. Two Dimensional Time (11:04)
+03. Foxglove (05:07)
+04. Dangerman (04:41)(   Читать дальше...   )Жанр: IDM, Synthwave, TechnoПродолжительность: 00:48:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:715D0D70F28537D79EC7E06294C53AE6F5623091
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804694   (65558) от 01.07.2025
+
+The Halo Effect - March of the Unheard (2025) [WavPack|32/192|image + .cue|Vinyl-Rip] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65558.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 - Conspire To Deceive
+A2 - Detonate
+A3 - Our Channel To The Darkness
+A4 - Cruel Perception(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:44:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FD292E51446BC457B6406BE58E909B68EBD66DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804726   (65557) от 01.07.2025
+
+Иван Гончаров | Мильон терзаний (2018) [MP3, Михаил Росляков]
 
 >>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64538.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65557.jpg" />
 </div>
 
 
 ###  Подробнее
 
-За многие десятилетия до «Ведьмака» и Джорджа Мартина вселенной меча и магии правил Фриц Лейбер. Фэнтезийный дуэт – антигероев грандмастера – варвара-рубаки, умеющего недурно петь, и пронырливого воришки, владеющего приемами магии, изначально задуманный автором в качестве тонкой пародии на говардовского Конана, быстро обрел собственную уникальную судьбу и столь же (   Читать дальше...   )Жанр: Фэнтези, приключенияИздательство: Азбука-АттикусПродолжительность: 06:59:18
+Серия/Цикл: Русская классика.
+Иван Александрович Гончаров (1812–1891) – один из самых ярких и значительных представителей русской литературы XIX века.
+Студия «МедиаКнига» представляет аудиокнигу русского писателя Ивана Александровича Гончарова «Мильон терзаний». Книга прочитана популярным артистом Михаилом Росляковым.
+Известный критический этюд И.А. Гончарова, посвященный (   Читать дальше...   )Жанр: Русская литература, классика, очеркИздательство: МедиаКнигаПродолжительность: 01:26:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1696F899277AF8CFE4E23A86926C4C9926836B68
+magnet:?xt=urn:btih:BA8B4CE02FC8FC323D8DB20BF36DE3E544ABBA17
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -520,25 +312,85 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809896   (64537) от 02.08.2025
+###  Публикация: 1804652   (65556) от 01.07.2025
 
-Findroid | Возвращение демонического мастера (Книга 7) (2025) [MP3, Алексей Воскобойников]
+VA - Afro Funk Vol 14 (2025) [FLAC|Lossless|WEB-DL|tracks] <Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65556.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  DJ Mister Funk - Beat Stuff (3:24)
+02.  Afro Dub - 7 Free To Travel (3:20)
+03.  Afro Dub - Afro Funk Beach (3:12)
+04.  Afro Dub - First Night (3:30)(   Читать дальше...   )Жанр: FunkПродолжительность: 01:37:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C22A451008E7D16D5D50DF850725F359323869F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804746   (65555) от 01.07.2025
+
+Putridity - Morbid Ataraxia (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Brutal Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65555.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prenatal Obituary [00:02:06]
+02. Mors Mater Nostra [00:03:38]
+03. In Disgust They Shine [00:02:38]
+04. Adipocere Retribution [00:03:19](   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 00:33:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64C10DE9411C8D27DCE23E2F47C0C1E8337A1ACD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804700   (65554) от 01.07.2025
+
+Иван Гончаров | Другой (2025) [MP3, Андрей Толубеев и др.]
 
 >>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64537.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65554.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Возвращение демонического мастера» – роман, седьмая книга одноименного цикла, жанр героическое фэнтези. Нейт всё-таки достиг дома Контер, где узнал, что теперь он его глава, а сам дом практически уничтожен сектой Несокрушимого Алмазного Солнца. Пришло время Костяному палачу на руинах прошлого дома основать свой собственный, но вначале предстоит разобраться с врагами.Жанр: фэнтезиИздательство: ИДДКПродолжительность: 08:56:35
+Серия/Цикл: Театр у вас дома.
+Иван Александрович Гончаров (1812–1891) – один из самых ярких и значительных представителей русской литературы XIX века.
+Роман «Обломов» – повествование о человеке, который, не прельщаясь ни фортуной, ни карьерой, «залёг в берлогу». Чем больше вчитываешься в «Обломова» сегодня, тем меньше раздражает и возмущает его любовь к дивану и (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: Радио России – Санкт-ПетербургПродолжительность: 00:45:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:781C1D7FAA02F776CB65B99CA52BB02A6AB1FF70
+magnet:?xt=urn:btih:6998693DEFF1608F1AC4D472DC395688E978ABDF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -546,25 +398,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809903   (64536) от 02.08.2025
+###  Публикация: 1804739   (65553) от 01.07.2025
 
-Findroid | Возвращение демонического мастера (Книга 3) (2024) [MP3, Алексей Воскобойников]
+Exsequor - Death From Above (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <EBM, Dark Electro>
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64536.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65553.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Возвращение демонического мастера» – роман, третья книга одноименного цикла, жанр героическое фэнтези. Испытания храма Дракона Горного Источника осталось позади. Впереди школа. Новые друзья и враги, а ещё попутчик от которого невозможно отвязаться…«Возвращение демонического мастера» – роман, третья книга одноименного цикла, жанр героическое фэнтези.Жанр: фэнтезиИздательство: ИДДКПродолжительность: 10:09:59
+01. Death From Above [00:04:19]
+02. They Watched [00:05:00]
+03. Your Truth [00:04:04]
+04. Nothing’s Certain [00:04:11](   Читать дальше...   )Жанр: EBM, Dark ElectroПродолжительность: 01:02:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A06B1C2592D5B835FAB5C53E9B4FF9D41E5998B8
+magnet:?xt=urn:btih:0DD30CDD295EA51AADEC6FDC8ECC5B0EC12D366D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -572,25 +427,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809898   (64535) от 02.08.2025
+###  Публикация: 1804866   (65552) от 02.07.2025
 
-Findroid | Возвращение демонического мастера (Книга 6) (2025) [MP3, Алексей Воскобойников]
+Burnt By Hatred - Myth Or Mortal (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64535.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65552.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"Возвращение демонического мастера" – роман, шестая книга одноименного цикла, жанр героическое фэнтези.Нейту предстоит путь вместе с навязанной попутчицей в дом Контер, и он ещё не знает, что за Юл уже идет вернувшийся из Ада Безумный Демон Сотни Звезд.Жанр: фэнтезиИздательство: ИДДКПродолжительность: 09:24:45
+1 - Decadence [1:59]
+2 - Within Reach [4:58]
+3 - A Paths Deceit [6:13]
+4 - Perjury [2:07](   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:37:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3519B611B21C953B7C4167149B6275CFC1CEF3A3
+magnet:?xt=urn:btih:BD1414104290D0F2F1A180DD9B3F88FCCA7B621B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -598,25 +456,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809899   (64534) от 02.08.2025
+###  Публикация: 1804848   (65551) от 02.07.2025
 
-Findroid | Возвращение демонического мастера (Книга 5) (2025) [MP3, Алексей Воскобойников]
+MYR - Helvegen (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Black Metal, Metal>
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64534.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65551.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Возвращение демонического мастера» – роман, пятая книга одноименного цикла, жанр героическое фэнтези. Внешние витки остались позади, теперь путь Нейта лежит в шестой виток.Жанр: фэнтезиИздательство: ИДДКПродолжительность: 08:59:29
+01 - December Coma [7:42]
+02 - In Perpetum [5:05]
+03 - Brennt [4:30]
+04 - Røkkr [6:35](   Читать дальше...   )Жанр: Black Metal, MetalПродолжительность: 00:44:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EA4C44D5CE3210D4854AA780324FFF3695EA30A1
+magnet:?xt=urn:btih:B9BA121A3996F8FA965B5551E48B0AF0008B97D2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -624,25 +485,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810361   (64533) от 04.08.2025
+###  Публикация: 1804863   (65550) от 02.07.2025
 
-Process Lasso 16.0.1.16 [Multi/Ru]
+Burnt By Hatred - Myth Or Mortal (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Death Metal>
 
->>Архив торрентов
->>Архив Программ
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64533.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65550.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Process Lasso позволяет вручную или автоматически манипулировать запущенными на компьютере процессами, что позволяет добиться максимального быстродействия и стабильности системы. Process Lasso наблюдает за программами, активно загружающими центральный процессор и ограничивает их, тем самым улучшая системный отклик. Также она может автоматически снизить приоритет (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+1 - Decadence [1:59]
+2 - Within Reach [4:58]
+3 - A Paths Deceit [6:13]
+4 - Perjury [2:07](   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:37:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8D0992F2BF504A9598612141A32BDDEF3959562A
+magnet:?xt=urn:btih:CCA34B252AEE7558606C2D37659DC0C9C6D8FC93
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -650,25 +514,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810668   (64532) от 05.08.2025
+###  Публикация: 1804855   (65549) от 02.07.2025
 
-YT Downloader 9.15.2 RePack (& Portable) by Dodakaedr [Ru/En]
+MYR - Helvegen (2025) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Metal>
 
->>Архив торрентов
->>Архив Программ
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64532.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65549.jpg" />
 </div>
 
 
 ###  Подробнее
 
-YTDownloader – простая в использовании программа для загрузки и просмотра видео с популярных сервисов. Программа позволяет скачивать видео контент из таких сервисов, как YouTube, Facebook, Google Video, Yahoo Video и тому подобных. YTD дает возможность конвертировать видео в форматы MP4, AVI, 3GP, WMV и в форматы для просмотра на iPod, iPhone, PSP и других устройствах. (   Читать дальше...   )Язык интерфейса: Русский, Английский
+01 - December Coma [7:42]
+02 - In Perpetum [5:05]
+03 - Brennt [4:30]
+04 - Røkkr [6:35](   Читать дальше...   )Жанр: Black Metal, MetalПродолжительность: 00:44:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0627B57EFF17FEC23A034253327B77B3ECC30F3A
+magnet:?xt=urn:btih:5FBAC7EA9696E70C471ED1B5AB01BFDB8625CC86
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -676,25 +543,202 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790831   (64531) от 06.08.2025
+###  Публикация: 1805042   (65548) от 03.07.2025
 
-Неверный путь / Pa villspor / The Wrong Track (2025) WEBRip [DVO] [AD]
+Blues Against The Machine - Blues Against The Machine (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 
->>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64531.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65548.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесшабашная мать-одиночка Эмилия снова оказывается в тяжёлом положении и просит брата о помощи. У него появляется блестящая идея: записать сестру на лыжный марафон.Производство: Норвегия / Rubicon TV AS, iProduksjonЖанр: комедияРежиссер: Халлвар ВитсёАктеры: Ада Эйде, Тронд Фауса Аурвааг, Кристиан Рубек, Мари Блокхус, Shana Mathai, Дениз Кая, Saga Meisfjordskar, Nils Bendik Kvissel, André Sørum, Idun Daae Alstad и д.р.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:32:56Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+01.  Hold On Stay Strong (4:32)
+02.  I Ain't Got No Money (2:45)
+03.  I'm The One To Blame (4:58)
+04.  It Is Causing Me Pain (7:24)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D73FA661096E5078E528CEE22E4401485C79C463
+magnet:?xt=urn:btih:558CCDF83D061C412FEDA372EDF14557419CF9E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805061   (65547) от 03.07.2025
+
+Jump Back - Misunderstood (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65547.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  I'll Move On (4:33)
+02.  Evil Might Win (3:41)
+03.  Can I Play the Blues? (4:35)
+04.  The Sting (3:35)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C93F59DDAC5501DA77E7CF860F8AFECCF8FC63EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804892   (65546) от 03.07.2025
+
+Rusty Sharks - Long way to freedom (2025) [MP3|320 Kbps] <Rockabilly, Psychobilly>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65546.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.  - Maniac [00:03:26]
+2.  - Psychobilly Town [00:03:22]
+3.  - Walking Dead [00:02:01]
+4.  - Bored with Your Tattoos [00:03:03](   Читать дальше...   )Жанр: Rockabilly, PsychobillyПродолжительность: 00:29:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F98C7E78326FFE6BF48318E609817B05B7297351
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804901   (65545) от 03.07.2025
+
+Rusty Sharks - Sexy Demons (2021) [FLAC|Lossless|WEB-DL|tracks] <Rockabilly, Psychobilly>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65545.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lock, Stock & Two Smoking Barrels [00:03:40]
+02. One Day in Prison [00:03:45]
+03. Who's Your Neighbour? [00:03:45]
+04. Love Me Deadly [00:04:49](   Читать дальше...   )Жанр: Rockabilly, PsychobillyПродолжительность: 00:32:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4A0011A0F97B98C411B96FA7BC4A222B80FA2EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805000   (65544) от 03.07.2025
+
+Лауд - Электрическая Музыка (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65544.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Side A [00:00:36]
+02. Воздуха нет [00:02:17]
+03. In the Dark [00:02:46]
+04. 123 [00:02:29](   Читать дальше...   )Жанр: House, DanceПродолжительность: 00:19:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:977520269F247B963147D78FE785F3D315D6E434
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805037   (65543) от 03.07.2025
+
+VA - Jazzyness 2 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Soul, Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65543.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Lo Greco Bros - Folk Song Bass (4:46)
+02.  Joe Allotta - Leave Me Alone (2:43)
+03.  Tallulah Rose - Friends (4:16)
+04.  Pomante - Dancing Feet (3:54)(   Читать дальше...   )Жанр: Jazz, Soul, FunkПродолжительность: 01:22:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D45CED2331B16EEB87C9C916B9DFB0D9FD197C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805058   (65542) от 03.07.2025
+
+John Haydock - Back to the Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65542.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  That Train Don't Go There Anymore (4:23)
+02.  Angel Drifting North (4:27)
+03.  We Fell into the Fire (4:15)
+04.  It's Getting Dark out There (4:32)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8727B733E9BEF6C4A8237344FF343E31D44AB405
 ```
 
 https://mybot314.ru/tekegram_catalog/

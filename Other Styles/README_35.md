@@ -1,3 +1,32 @@
+###  Публикация: 1380949   (829763) от 05.05.2020
+
+Inon Zur - Syberia 3 (Official Soundtrack) (2017) [FLAC|Lossless|tracks] <Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_829763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Syberia 3 (Main Theme)
+02. Thrill Of Nature
+03. Dark Force In Motion
+04. Call Of Tradition(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:57:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60E939C45AB0C7ACB199E2BBFDD340B1ABA35341
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1380951   (829748) от 05.05.2020
 
 Inon Zur - Syberia II (Official Soundtrack) (2017) [FLAC|Lossless|tracks] <Soundtrack>
@@ -714,35 +743,6 @@ New Age, Creative Mind Master, Asian Zen - Home Zen Learning (2020) [FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE2D7DA2F5F62192B5031DF9FED7FA9CBC011048
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116154   (824442) от 19.03.2017
-
-Петр  Dранга (Петр Дранга) - Перспектива (2011) Полная Версия 22 трека [FLAC|Lossless|image + .cue] <Instrumental, Accordion>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824442.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интродукция
-02. Виртуозо
-03. Вечер
-04. Ирландский ветер(   Читать дальше...   )Жанр: Instrumental, AccordionПродолжительность: 01:10:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EB7B69341F2DA5D967DA888F6EBA505BBFF2909
 ```
 
 https://mybot314.ru/tekegram_catalog/

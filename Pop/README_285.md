@@ -1,3 +1,209 @@
+###  Публикация: 1489422   (200754) от 27.03.2023
+
+Kim Wilde - Pop Don't Stop (Greatest Hits) [2CD] (2021) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_200754.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Second Time (7' Version)_ (3:47)
+02. Never Trust A Stranger (7' Version)_ (4:06)
+03. Million Miles Away (7' Version)_ (4:13)
+04. Another Step (Closer To You) (7' Version)_ (3:32)(   Читать дальше...   )Жанр: PopПродолжительность: 02:32:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E758976084362D4B595D6F233D086C9211EC06C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623074   (200586) от 31.03.2023
+
+Дискотека Авария - Воля и разум (Cover Ария) (2023) Single [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_200586.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Воля и разумЖанр: PopПродолжительность: 00:03:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2CFF7765840B626A80A00A952CDB70A1FC18990
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623620   (200501) от 02.04.2023
+
+Татьяна Анциферова - 4 Альбома (1996 - 2008) [MP3|320 Kbps] <Советская эстрада, Ретро>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_200501.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Узнай меня
+02. Он пришел
+03. Рассвет-закат
+04. Ну чем она лучше?(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 03:58:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0476FC7D5F53B04B33779D43CF752E113A11DA2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 167797   (200331) от 03.04.2023
+
+Руки Вверх - Здравствуй, это я (2000) [FLAC|Lossless] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_200331.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Ай-яй-яй (3:46)
+02.Он не любит тебя (4:12)
+03.Киска-любовь (3:50)
+04.Прости (4:05)(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:787B38D07AA341E51A1703425862AA283BD11B54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 32056   (200326) от 03.04.2023
+
+Олег Анофриев - Есть только миг... (1995) [APE (image +.cue)] <Pop, Retro>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_200326.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Это было недавно (из к-ф "Друзья и годы")
+02. Песня из к-ф "Путь к причалу"
+03. Песня из к-ф "Там, где кончается асфальт"
+04. Весенняя песенка(   Читать дальше...   )Жанр: PopПродолжительность: 01:13:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDE1B46CECBA1A539887084EBB8265D58A5AB661
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 531588   (200107) от 08.04.2023
+
+Веселые ребята - Напиши Мне Письмо (2012) [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_200107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Летайте самолетами Аэрофлота (3:16)
+02. Дальняя песня (3:29)
+03. Дружить нам надо (3:54)
+04. Счастливый случай (3:49)
+05. Проходят годы (3:05)
+06. Утро (1:47)
+07. Золотой ключик (3:16)
+08. Вот и все (5:12)
+09. Напиши мне письмо (3:17)
+10. Тонкий лед (3:13)(   Читать дальше...   )Жанр: PopПродолжительность: 01:03:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:521113C22730B619931A5FAF246F4457012CFA48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625858   (200039) от 12.04.2023
+
+VA - 100 Hits - The 70s (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, R&B, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_200039.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Fleetwood Mac - Dreams (2018 Remaster)
+002. Frankie Valli & The Four Seasons - December, 1963 (Oh What a Night!)
+003. Blue Swede - Hooked on a Feeling
+004. Rod Stewart - Da Ya Think I'm Sexy(   Читать дальше...   )Жанр: Pop, Rock, R&B, DanceПродолжительность: 06:19:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07F9471CBF851DD7B2364FE4E6CE3834F3A09434
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1625910   (200010) от 12.04.2023
 
 VA - Поехали (Мелодии и ритмы для пространств и времён) (2023) [MP3|320 Kbps] <Dance, Pop, Electronic>
@@ -542,209 +748,6 @@ PG Roxette (Per Gessle & Roxette) - Pop-Up Dynamo! (2022) 3CD [FLAC|Lossless|WEB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76E1DCEEFDB8D173D0B15E057FB45C1550707E71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657251   (193026) от 02.09.2023
-
-Supermax - Types Of Skin (1980) Remastered, 2005, CD-Maximum [FLAC|Lossless|tracks + .cue]<Electronic, Pop, Funk, Reggae>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193026.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hollywood
-02. Hotline
-03. Raindance
-04. In The Middle Of The Night(   Читать дальше...   )Жанр: Electronic, Pop, Funk, ReggaeПродолжительность: 01:19:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68D183ED1F81CDC6ADD651BABA86296046C89A29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657038   (192988) от 02.09.2023
-
-Icona Pop - Club Romantech (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electropop>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192988.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fall In Love [00:02:23]
-02. Desire [00:02:39]
-03. Shit We Do For Love [00:02:47]
-04. Stick Your Tongue Out [00:02:47](   Читать дальше...   )Жанр: Pop, ElectropopПродолжительность: 00:40:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEE80EB0EDC7C83821E0EE6A73A9A4D8F117D719
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587424   (192942) от 30.10.2022
-
-Renee - 4 Albums (1978-1983) LP [MP3|320 Kbps] <Electronic, Rock & Roll, Synth-pop, Pop Rock, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_192942.jpg" />
-</div>
-
-
-###  Подробнее
-
-Голландская поп-группа Renée из Ден Хаага, вокалисткой которой является Аня Ноделийк. Примерно с 1982 года она начала выступать и записываться как сольная исполнительница под именем Рене.Список альбомов:
-1978 - Renee
-1980 - Reaching For The Sky
-1982 - The Future None Can See(   Читать дальше...   )Жанр: Electronic, Rock & Roll, Synth-pop, Pop Rock, DiscoПродолжительность: 02:37:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F59069D7CDB2A4AE783B1F1E9A5C1280180B1250
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657192   (192935) от 02.09.2023
-
-Владимир Мулявин и ансамбль Песняры - Молодость моя... (2003) [MP3|320 Kbps] <Советская эстрада, Ретро>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Спадчына
-02. Марыся
-03. Беловежская пуща
-04. Чырвоная ружа(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 01:11:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45B1EF6F270552060999785BB49F70FB98798D35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587371   (192929) от 30.10.2022
-
-VA - Halloween Dance Party (2022) CD, Compilation [MP3|320 Kbps] <Electropop, Dance, Club, Future House>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_192929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rene Rodrigezz, Pasc & Patricia Starlight - Toxic Love (extended mix)
-02. Stephan F & Tony T - Find A Way (extended mix)
-03. Dani Corbalan - My Life (extended mix)
-04. NaXwell, Tony T & Alba Kras - Never Alone (feat DJ Combo - extended mix)(   Читать дальше...   )Жанр: Electropop, Dance, Club, Future HouseПродолжительность: 01:51:46 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C73DF3A1A39E89CDECB48888A251E344E5B8D2A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587265   (192920) от 30.10.2022
-
-VA - Discofox Top Hits 2023 (2022) CD, Compilation [MP3|320 Kbps] <Pop, Dance, Schlager, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_192920.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nico Gemba - Du bist der totale Wahnsinn (Lisa)
-02. Anna Valerian - Ich laufe dir nicht mehr hinterher (JLA FeierFoxxx Mix)
-03. Julian David - Alle zusammen
-04. Celina Mars - Jetzt und hier(   Читать дальше...   )Жанр: Pop, Dance, Schlager, DiscoПродолжительность: 02:16:35 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:065E3BB125B13AD18B3B7D0B405F813553A5E163
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587350   (192861) от 30.10.2022
-
-VA - Italo Club Mixes 2023 (2022) CD, Compilation [MP3|320 Kbps] <Italo-Dance, Euro-Disco, Progressive, Electro Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_192861.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cappella - Move On Baby (Mike Candys Remix)
-02. Mauro Picotto - Komodo (Klaas Remix Extended)
-03. Niels Van Gogh - Tell Me Why (Extended Mix)
-04. Deep Divas - Uh La La La (Original Radio Mix)(   Читать дальше...   )Жанр: Italo-Dance, Euro-Disco, Progressive, Electro PopПродолжительность: 01:02:49 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C31D0876DC5476FB569C638E5BC690EF0932B22
 ```
 
 https://mybot314.ru/tekegram_catalog/

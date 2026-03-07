@@ -1,3 +1,31 @@
+###  Публикация: 1555393   (570244) от 03.06.2022
+
+Olga Stankevich - Дискография (2010-2014) [FLAC|Lossless|WEB-DL|tracks] <Instrumental Pop, Piano>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_570244.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inspiration (3:40)
+02. Inspiration (Justin Fry Extended Club Mix) (6:14)
+03. Inspiration (Justin Fry Radio Edit) (4:00)Жанр: Instrumental Pop, PianoПродолжительность: 02:00:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A2F6C47C00312DEEA287EDD248BD55C346DC2A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1303459   (570187) от 22.05.2019
 
 Ramin Djawadi - Game of Thrones / Игра престолов: Season 8 (Music from the HBO Series) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
@@ -752,35 +780,6 @@ CD4 - Classical ChilloutЖанр: Electronic, Ambient, Pop, Rock, ClassicaПро
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A54CC10C0C8F0D5E4558BCB9B6550CB7A31B8A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304483   (563984) от 26.05.2019
-
-Michele McLaughlin - Memoirs (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563984.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Thankful
-02 Pure Joy
-03 Dark Moon
-04 Triumph(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:44:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D1F4540FFD130A90827233666B1F51AE188C669
 ```
 
 https://mybot314.ru/tekegram_catalog/

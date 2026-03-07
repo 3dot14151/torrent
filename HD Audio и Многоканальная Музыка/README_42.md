@@ -1,3 +1,177 @@
+###  Публикация: 1333522   (302814) от 25.10.2019
+
+Кино - Группа Крови (1988) [DSD 128 1bit/5,64 MHz |Vinyl-Rip] <Рок>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_302814.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Blood Type
+A2. Shut The Door Behind Me
+A3. War
+A4. Good Night(   Читать дальше...   )Жанр: РокПродолжительность: 00:48:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29184FB8A2EF14AB26579DF28D4EC828E0C3B32F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078258   (302655) от 30.11.2016
+
+Станислав Нейгауз - Полонез-фантазия, ноктюрны... (Ф. Шопен) (1992) [WavPack|192/32|tracks|Vinyl-Rip] <Classical, Romantic>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_302655.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона1
+1. Полонез-фантазия  11:32
+Ля бемоль мажор, соч. 61
+2. Ноктюрн  5:10(   Читать дальше...   )Жанр: Classical, RomanticПродолжительность: 00:42:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7B377FDD261F4989558F46599696B5353BAF621
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 846624   (301711) от 02.12.2014
+
+Pink Floyd - The Endless River (2014) [LPCM 2.0, Dolby Digital 5.1, DTS 5.1 | Audio-DVD] <Progressive Rock, Art Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_301711.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Things left unsaid [04.26]
+02. It's what we do [06.17]
+03. Ebb and flow [01.55]
+04. Sum [04.48](   Читать дальше...   )Жанр: Progressive Rock, AmbientПродолжительность: 00:52:55 + 00:39:14 (дополнительные материалы)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43109B07FEB7B803519454C1F8AB036FBF335061
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184337   (301186) от 17.11.2017
+
+Level 42 - Level 42 (1981) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] < Jazz-Funk>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_301186.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Turn It On
+A2 "43"
+A3 Why Are You Leaving
+A4 Almost There(   Читать дальше...   )Жанр: Funk, SoulПродолжительность: 00:42:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31930C52B670D035485413F20D66E48D894AEDA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 832110   (301096) от 17.11.2017
+
+Rush - Signals (1982)  [FLAC 2.0 24/96|image (Vinyl-Rip)]<Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_301096.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Subdivisions (5:37)
+A2. The Analog Kid (4:48)
+A3. Chemistry (4:57)
+A4. Digital Man (6:24)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:42:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A9F286B20CEFE6B0289E581BD43044EEA5E9399
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 736220   (300797) от 01.12.2015
+
+Engelbert Humperdinck - Энгельберт Хампердинк (1978) [FLAC 2.0 24/192|traks(Vinyl-Rip)]<Pop, Schlager>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_300797.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. Освободи меня (Release Me) 3:20
+2. Возьми мое сердце (Take My Heart) 2:28
+3. Мой мир (My World Aka Il Mondo) 3:08(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 00:39:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E7C63B12602F28985C7B516EFC7CFF457CC02F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 585731   (300046) от 07.12.2012
 
 Rainbow - Rising (1976) /2011 SHM-SACD/ [DSD 2.0 1bit/2822,4kHz |SACD-R]<Heavy metal, hard rock>
@@ -576,180 +750,6 @@ B1 C'est Pas Moi(   Читать дальше...   )Жанр: Electronic, PopП�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC3DCBB1AB97828E87A35B508BE264AA4FB5BD46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184950   (292863) от 21.11.2017
-
-Russ Ballard - Russ Ballard (1984)  [DSD 2.0|2822,4/1|image|Vinyl-Rip] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292863.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Can't Hear You No More (5:48)
-02. In The Night (4:09)
-03. Two Silhouettes (4:17)
-04. Voices (5:30)(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C0982AABB50050F3DD8F42D5F65D4800DA33CDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080015   (291980) от 05.12.2016
-
-Е. Мравинский - П. Чайкoвский - Симфония N5 ми минор (1976) [WavPack|192/32|tracks|Vinyl-Rip] <Classical>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291980.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-1. Andante. Allegro Con Anima  14:14
-2. Andante Cantabile Con Alcuna Licenza  11:36
-Сторона 2(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:42:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67EEF2AFD12F51EDB48791740FFB29622387481C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185385   (291424) от 22.11.2017
-
-Marina & the Diamonds - The Family Jewels (2010) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Pop Rock, Indie Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291424.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Are You Satisfied? 3:21
-A2 Shampain 3:12
-A3 I Am Not A Robot 3:35
-A4 Girls 3:29(   Читать дальше...   )Жанр: Pop Rock, Indie RockПродолжительность: 00:44:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16CE4C77D2E1CB5B3211C8D91D85230E892E4C8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185543   (291229) от 22.11.2017
-
-Agnetha Faltskog - Eyes Of A Woman (ABBA) (1985) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Pop, Electronic>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291229.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 One Way Love 3:36
-A2 Eyes Of A Woman 3:54
-A3 Just One Heart 3:42
-A4 I Won't Let You Go 3:39(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:44:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA8454DA846AEC00CE0F963DBF39BB801C883B00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185670   (291218) от 22.11.2017
-
-Kylie Minogue - Kiss Me Once (2014) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Pop, Electronic>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291218.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Into The Blue (4:08)
-A2. Million Miles (3:28)
-A3. I Was Gonna Cancel (3:32)
-B1. Sexy Love (3:31)(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 00:39:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E11EB57202FECA161229462EE4BAEE05DFBD690
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185592   (291034) от 22.11.2017
-
-ABBA - Ring Ring (1973) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Vocal, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291034.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Ring, Ring 3:05
-A2 Another Town, Another Train 3:12
-A3 Disillusion 3:03
-A4 People Need Love 2:45(   Читать дальше...   )Жанр: Vocal, PopПродолжительность: 00:36:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BA908E30EA0636C0755049A73F492ADDF4F91EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

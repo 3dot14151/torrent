@@ -1,3 +1,39 @@
+###  Публикация: 503774   (259588) от 30.05.2012
+
+CHAVEneeZ - Great Spirit (2006) [FLAC|Lossless]<Native American Ethno, New Age>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_259588.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maht Jchi [05:28]
+02. Lakota lullaby [05:49]
+03. Haya-haya-ho [05:02]
+04. First cry [03:19]
+05. Dela dela [04:39]
+06. Drum song [04:45]
+07. Weyo ho "Woman's honor chant" [04:35]
+08. Song for Sean [04:25]
+09. Amanecer andino [05:27]
+10. Wamanchallay [04:41](   Читать дальше...   )2006Жанр: Native American Ethno, New AgeПродолжительность: 00:56:59
+собственный рип
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 501810   (259315) от 29.05.2012
 
 Nicole feat: Brulé - Passion Spirit (2001) [MP3|192 кб/с]<Native American, New Age, Flute>
@@ -786,35 +822,6 @@ R. Carlos Nakai & AmoChip Dabney - Edge Of The Century (2001) [FLAC|Lossless|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4120CF7E95A5AD0C5190AC9C2F3B7784676DDF6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631902   (254533) от 07.05.2023
-
-Delerium - Signs (2023) [FLAC|Lossless|image + .cue] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254533.jpg" />
-</div>
-
-
-###  Подробнее
-
-Signs — это шедевр гипнотических ритмов и обволакивающей атмосферы с потрясающими вокальными партиями Мими Пейдж, Филдел, Инны Уолтерс и KANGA. Уникальный голос каждого певца возвышает Знаки, добавляя новые уровни болезненной красоты и романтизма.01. Falling Back To You (feat. Mimi Page)
-02. Rain
-03. Coast To Coast (feat. Phildel)
-04. Sun Storm(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:56:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5D30AFE2F4ACC66B835CCA1C7FD34793DC58127
 ```
 
 https://mybot314.ru/tekegram_catalog/

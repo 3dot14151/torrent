@@ -1,3 +1,32 @@
+###  Публикация: 1014847   (775415) от 09.05.2016
+
+MiyaGi & Эндшпиль - HAJIME Part.1 (2016) [MP3|256-320 кб/с] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. HAJIME (INTRO)
+02. OneLove
+03. God Bless
+04. Санавабич(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:34:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DD1D58B83BED1CD7BC0444A50D33661F84C1113
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1212646   (775034) от 13.03.2018
 
 Грот - Лучшее (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -712,35 +741,6 @@ ST1M x Black Bros. - King Is Back 3 (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ABE6DEE1C797489180230F921A426511DFE7756C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401009   (713333) от 08.08.2020
-
-Trueтень & Алексей Сулима - Калейдоскоп (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713333.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Калейдоскоп [00:04:19]
-02. Когда тебя забуду [00:03:16]
-03. Такси [00:04:13]
-04. Горизонт [00:03:43](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:33:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D88EA0A180D1E50B7E2BF1C6373DFF572FF5FE19
 ```
 
 https://mybot314.ru/tekegram_catalog/

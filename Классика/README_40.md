@@ -1,3 +1,32 @@
+###  Публикация: 1332660   (311002) от 21.10.2019
+
+Florian Christl - Inspiration (2018) Sony Classical [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Ambient, Piano>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_311002.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fly (3:50)
+ 02. Close Your Eyes (5:05)
+ 03. Moments (3:35)
+ 04. Concertino (2:18)(   Читать дальше...   )Жанр: Modern Classical, Ambient, PianoПродолжительность: 00:56:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A25F87FECA44F7F62602C5A4FD1934854CAC19F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1076646   (310937) от 26.11.2016
 
 Pierre Fournier - Johann Sebastian Bach - Suites for Solo Cello nos.1-3-6 (1961) Deutshe Grammophon [FLAC|Lossless|image + .cue] <Classical, Instrumental, Violoncelle>
@@ -741,32 +770,6 @@ Johann Sebastian Bach MUnchener Bach-Chor, Munchener Bach-Orchester, Karl Richte
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E42DCF56B36B9AA03565BC8F6A5255A7F6629C73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 419832   (302182) от 07.12.2011
-
-Simon Rattle & Berliner Philharmoniker - Чайковский: Щелкунчик (2011) [DSD 2.0 1bit/2822,4kHz |SACD-R]<Classical>
-
->>Классика
->>Классика (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302182.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ClassicalПродолжительность: 01:26:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D35565819F75B72B8D8E3A5602CDAF9DA0196CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

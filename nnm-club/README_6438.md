@@ -1,54 +1,25 @@
-###  Публикация: 1202518   (789915) от 29.01.2018
+###  Публикация: 1201994   (791063) от 27.01.2018
 
-Brightlight - Belief (2018) [MP3|320 Kbps] <Psy-Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789915.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. BrightLight - I Want You to Imagine (Original Mix)
-02. BrightLight & Kobi Saka - Time Had Stopped (Original Mix)
-03. BrightLight - The Most (Original Mix)
-04. BrightLight & Darwish - I Need a Miracle (Original Mix)(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 01:14:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:715E0E5306A8A48537D09039DFBB228A92858FB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275493   (789914) от 12.01.2019
-
-Dog Drive Mantis - How Did We Get Here (2018) [FLAC|Lossless|WEB-DL|tracks] <Fusion, Jazz-Rock>
+Philip Catherine - Oscar (1990) Igloo [FLAC|Lossless|tracks + .cue] <Post-Bop, Jazz Fusion>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789914.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791063.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sink
-02. Dancing On Symbols
-03. This May Bear Some Fruit
-04. Scrunch(   Читать дальше...   )Жанр: Fusion, Jazz-RockПродолжительность: 00:53:29
+01. Alone [05:20]
+02. Kalimankou Denkou [04:07]
+03. Piano Groove [05:11]
+04. Oostduinkerke [08:26](   Читать дальше...   )Жанр: Post-Bop, Jazz FusionПродолжительность: 00:44:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D5212B29027C381A6F46ABB2BE3D1D9036924DCB
+magnet:?xt=urn:btih:202C7A3AFF44C5A9A51DD4D826F03D63DEC7686F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,165 +27,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202539   (789913) от 29.01.2018
+###  Публикация: 1201989   (791062) от 27.01.2018
 
-"Ковчег" (изд.) | Как научиться терпеть недостатки ближних (2016) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789913.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга научит вас терпеть недостатки ближних, а также обиды, оскорбления, грубость и клевету.
-
-Терпение есть та плодородная земля, на которой произрастает всякая добродетель. Вспомните евангельскую притчу о сеявшем семя на поле своем: «. .. иное упало при до­роге ... иное упало на камень ... иное упало между тернием ... а иное упало на добрую землю» (Лк. 8, 5-8). (   Читать дальше...   )Жанр: ПравославиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51169AE6C034E068D78C9DCE68F760AE715847EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275649   (789912) от 12.01.2019
-
-VA - The Official UK Top 40 Singles Chart 11.01.2019 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789912.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ava Max - Sweet but Psycho
-02. Ariana Grande - thank u, next
-03. Mark Ronson, Miley Cyrus, Chris Elliott - Nothing Breaks Like a Heart
-04. Post Malone - Wow.(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:15:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DB0B23DF75211372DF8199971D580FE5C49EB68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201887   (789911) от 29.01.2018
-
-К. Маркс | Избранные произведения [2 тома] (1940) [DJVU, PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789911.jpg" />
-</div>
-
-
-###  Подробнее
-
-Произведения Маркса и Энгельса, вошедшие в данный двухтомник, являются прекрасным и неоценимым пособием при изучении теории марксизма-ленинизма.
-
- В первый том входят «Манифест Коммунистической партии» Маркса и Энгельса, «Развитие социализма от утопии к науке», «Людвиг Фейербах и конец немецкой классической философии» Энгельса, тезисы Маркса о Фейербахе. Помимо этого (   Читать дальше...   )Жанр: История, политология, экономика, философия, науковедение, логикаФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE179FBFEC0409260D8F9C31E5FACD2E01C58218
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275697   (789910) от 12.01.2019
-
-В. И. Сидоров | Партийно-политическая работа в первой конной армии (1941) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789910.jpg" />
-</div>
-
-
-###  Подробнее
-
-На основе документального материала автор рассказывает о том, какова была структура партийно-политического аппарата в Конной армии, как проводилась политическая партийная и массовая работа в условиях боев и походов.Жанр: История, политология, искусство, документалистикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE0B7B05DD391B78FB00B06E92C427084538B512
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202617   (789909) от 29.01.2018
-
-Городская рапсодия (2016) WEB-DLRip [H.264/720p-LQ] (серии 1-2 из 2)
-
->>Отечественные сериалы
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789909.jpg" />
-</div>
-
-
-###  Подробнее
-
-Евгения Сомова — профессиональная спортсменка, лыжница, готовится к важнейшему в карьере чемпионату. Когда она едет домой на дорогу перед ее машиной случайно выбегает ребенок. Женя резко тормозит, и сама становится жертвой ДТП. Из больницы ее выписывают на инвалидной коляске.Производство: Россия / "Паламеда Продакшн"Жанр: мелодрамаРежиссер: Петр СтепинАктеры: Евгения Осипова, Андрей Фролов, Роман Подоляко, Дарья Баранова, Денис Паршин, Юлианна Михневич, Светлана Кожемякина, Игорь Сигов, Олег Ткачёв, Андрей Кривецкий и др.Продолжительность: ~01:30:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:843B132C0F7FCA5F5E774211AD9D9F497F82BA07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275681   (789908) от 12.01.2019
-
-LogTail 3.8 [En]
+iTubeDownloader 6.3.4 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789908.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791062.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Приложение для просмотра и мониторинга локальных и удаленных log файлов на серверах Linux (с использованием SSH). Эта утилита ищет в логах события по сигнатуре и при нахождении важной уведомляет администратора.
-Logtail поможет в мониторинге приложений и системного журнала, в реальном времени.
-Logtail позволяет настроить фильтр и правила.
-Фильтр выделяет слова и фразы, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.12.2018Разработчик: Stratumsoft Technologies Private LtdПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+iTubeDownloader - загрузчик для Youtube, который делает загрузку видео с YouTube еще более приятной с помощью простых в использовании функций, таких как очереди загрузки, каналов и списка воспроизведения загрузки, просмотр и многое другое.
+
+Вы можете использовать iTubeDownloader для просмотра веб-страницы YouTube и быстро просматривать видео: когда вы то, что хотите (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.01.2018Разработчик: AlphaSoftПоддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Ангийский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FDCE75CB3AEC9EC5713DE7FA9D6221507903A15E
+magnet:?xt=urn:btih:84A036F074AAB6ADD14B5C78C8FBED3251367A9F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -222,138 +55,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275654   (789907) от 12.01.2019
+###  Публикация: 1201965   (791061) от 27.01.2018
 
-VA - High DuB Voltage (2019) [MP3|320 Kbps] <Dubstep, Drum and Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789907.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kiite - One (Original Mix)
-002. Kung - Lifelike
-003. Aesthetics - Questions
-004. Document One - Reaching Out(   Читать дальше...   )Жанр: Dubstep, Drum and BassПродолжительность: 08:17:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12760CE1578FF6EA2608288FF453E5E8BD4D45E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275247   (789906) от 12.01.2019
-
-Сабрина Бродбент | Линия разрыва (2010) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789906.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Линия разрыва" - это тонкий роман, где сильные чувства словно уложены в кадры хорошей и стильной мелодрамы. Когда появляется уверенность, что обратной дороги к прежнему счастью уже нет? И как найти дорогу к счастью новому? Вечные вопросы современного человека, на которые не раз уже пытались ответить. Но мало кому удалось сделать это с такой тонкостью, (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 10:15:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A44DC1C756EE7AA820DD5563F7C69D685BC7A081
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275530   (789905) от 12.01.2019
-
-Dumbo Station - Tirana Cafe (2018) [FLAC|Lossless|WEB-DL|tracks] <Fusion, Jazz-Rock, Jazz-Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789905.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dumbo StationMaurizio Giammarco. 4:55
-02. Big OneElvio Ghigliordini. 6:58
-03. Narvalo. 6:19
-04. Your PoisonDavide Shorty. 4:11(   Читать дальше...   )Жанр: Fusion, Jazz-Rock, Jazz-FunkПродолжительность: 00:55:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A8399553EB3D7401B22F9AF913C3F6CDB7B377C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275699   (789904) от 12.01.2019
-
-Н. Д. Телешов | Записки писателя. Рассказы о прошлом и воспоминания (1950) [PDF]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789904.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник включены воспоминания, свидетельствующие о событиях конца XIX века: открытие памятника А. С. Пушкину в Москве в 1880 году; артистическая и литературная Москва 90-х, издательства и издатели, литературные кружки и писатели. Отдельные статьи сборника посвящены А. П. Чехову, М. Горькому, Л. Андрееву, Н. Златовратскому, Д. Мамину-Сибиряку. Статьи "Старые (   Читать дальше...   )Жанр: История, автобиография, поэзия, искусство, публицистикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:777EA37705472EE3AED3F168BBDF44264600A34E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275638   (789903) от 12.01.2019
-
-VA - EDM Workout (2019) [MP3|320 Kbps] <Progressive House, Dance>
+Violetshaped - Violetshaped (2013) Violet Poison [FLAC|Lossless|tracks|Vinyl] <Techno, Industrial>
 
 >>Electronic
->>House
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789903.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791061.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Pierce Fulton - Noon Gun (Original Mix) 5:31
-02. Lahox & Crusy - Africa (Original Mix) 5:12
-03. Tiny Ducks & Zai - Please Don't Go (Ryoji Takahashi 2018 VIP) 3:59
-04. Miami Rockets - Storm (Nicola Fasano Re-Edit) 4:39(   Читать дальше...   )Жанр: Progressive House, DanceПродолжительность: 01:42:02
+01. State Of Temporary Neuronal Effervescence (02:00)
+02. The Lord Won't Forget (08:09)
+03. Out Of Any Symmetry (04:40)
+04. cX310 (05:02)(   Читать дальше...   )Жанр: Techno, IndustrialПродолжительность: 00:38:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:991E8CC5F1FD66539B925CE24005BA2252ECE2EE
+magnet:?xt=urn:btih:5CD2F5F4D964FD52E3B93EA9A831E3EF4DD9539A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -361,27 +84,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275671   (789902) от 12.01.2019
+###  Публикация: 1201966   (791060) от 27.01.2018
 
-Multitouch 1.8.4 [En]
+The Octagon Man - The Exciting World Of.... (1995) Electron Industries [FLAC|Lossless|tracks] <Electro, Experimental>
 
->>Архив торрентов
->>Архив 4Apple
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789902.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791060.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Легко добавлять жесты в macOS с Multitouch!
-
-Multitouch позволяет связать пользовательское действие с определенным магическим трекпадом или магическим жестом мыши. Например, нажатие на три пальца может выполнить вставку. Улучшите свой рабочий процесс, выполнив сочетания клавиш, контролируя вкладки своего браузера, выполняя средний щелчок мышью и многое другое.Тип издания: macOS SoftwareРелиз состоялся: 08.01.2019Разработчик: Brass Monkery LLCПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+01. Tunx (05:45)
+ 02. The Second Shape (08:10)
+ 03. Klunk (07:26)
+ 04. Xon (02:38)(   Читать дальше...   )Жанр: Electro, ExperimentalПродолжительность: 01:00:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F760D94E82A5AB5D1EC8257D95E2F3546DA09084
+magnet:?xt=urn:btih:96CC34652F634E85E45ADB703AB9AD5FF059315E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -389,25 +113,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275245   (789901) от 12.01.2019
+###  Публикация: 1201791   (791059) от 27.01.2018
 
-Елена Минкина-Тайчер | Эффект Ребиндера (2017) [MP3]
+Miles Davis & Stan Getz - Move (1950 - 1952) 2003, Dynamic Entertainment [FLAC|Lossless|tracks + .cue] <Bop, Cool>
 
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789901.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791059.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Этот роман – «собранье пестрых глав», где каждая глава названа строкой из Пушкина и являет собой самостоятельный рассказ об одном из героев. А героев в романе немало – одаренный музыкант послевоенного времени, «милый бабник», и невзрачная примерная школьница середины 50-х, в душе которой горят невидимые миру страсти – зависть, ревность, запретная любовь; детдомовский (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 10:00:53
+01. Conception [04:09]
+02. Ray's Idea [05:56]
+03. That Old Black Magic [02:18]
+04. Max Is Making Wax [04:02](   Читать дальше...   )Жанр: Bop, CoolПродолжительность: 01:15:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:51D578DCD7DF040596E9692333B5C629BE4BC5F9
+magnet:?xt=urn:btih:0E572B1A61BA1DDE3E28BD5B2A15D395943485F5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -415,169 +142,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275685   (789900) от 12.01.2019
+###  Публикация: 1201821   (791058) от 27.01.2018
 
-А. М. Арго | Своими глазами. Книга воспоминаний (1965) [DJVU]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789900.jpg" />
-</div>
-
-
-###  Подробнее
-
-Абрам Маркович Арго — один из старейших советских поэтов-сатириков, мастер веселого и злого куплета, пародии. Он писал для театра, эстрады и цирка, художественной самодеятельности, переводил на русский язык классиков европейской поэзии и поэтов советских национальных республик.
-
-А. М. Арго встречался с выдающимися деятелями советской культуры и искусства, был очевидцем (   Читать дальше...   )Жанр: История, автобиография, поэзия, искусство, публицистикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4823A350C193D665399925BA2A2F14D1C44F761
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275586   (789899) от 12.01.2019
-
-VA - ЕвроХит Топ 40 Europa Plus 11.01.2019 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789899.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calvin Harris & Sam Smith - Promises 3:33
-02. Jonas Blue feat. Joe Jonas - I See Love 2:53
-03. Mohombi - Mr Loverman 2:46
-04. Gaulin - Moonlight 2:54(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:12:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0C903BEAA908469039BA6E9A40A2B4E9227DA23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275644   (789898) от 12.01.2019
-
-VA - Deluxe Techno Sessions (2019) [MP3|320 Kbps] <Techno, Tech House, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789898.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Matter - Fossil
-002. Christian Reindl Ft. Atrel - Claim Your Weapons
-003. Headhunterz - Say My Name
-004. Mike Nero & Luke Evil - Party People(   Читать дальше...   )Жанр: Techno, Tech House, ElectronicПродолжительность: 11:52:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:761693FFAC06B09257DC8E630098BC472B534811
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275702   (789897) от 12.01.2019
-
-DiskDigger 1.20.9.2699 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789897.jpg" />
-</div>
-
-
-###  Подробнее
-
-DiskDigger - маленькая утилита, с которой можно восстановить случайно удаленные фотографии, видео, музыку, документы и другие файлы с любого носителя. Программа может сканировать даже поврежденные или неудачно отформатированные диски, а также пригодится для восстановления файлов и папок, поврежденных в результате вирусной атаки. Может работать со всеми типами внешних (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A63BF8C386C82D8CB3F04B52FC19530901324CA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275435   (789896) от 12.01.2019
-
-VA - Neon Life: Rap & Hip Hop Collection (2019) [MP3|320 Kbps] <Rap, Hip Hop>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789896.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ragz Originale - How Far
-002. The Black Eyed Peas - New Wave
-003. Awar Feat. Cormega - Money Machine Music
-004. Og Keemo - Hennyblick(   Читать дальше...   )Жанр: Rap, Hip HopПродолжительность: 09:25:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98FB6DF2537D8E6E5FE67D18976AFA412FDE168A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275474   (789895) от 12.01.2019
-
-VA - Cigar Lounge Series: A Premium Collection Of Chill-Out & Lounge Sounds - 5 Releases (2015-2016) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+VA - Travel Emotions (20 Chill Out, Lounge, Bossa Tracks) (2018) [MP3|320 Kbps] <Balearic, Downtempo>
 
 >>Electronic
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789895.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791058.jpg" />
 </div>
 
 
 ###  Подробнее
 
-2015 - Cigar Lounge Vol. 1
-2015 - Cigar Lounge Vol. 2
-2015 - Cigar Lounge Vol. 3
-2015 - Cigar Lounge Vol. 4 (A Premium Collection Of Chill-Out & Lounge Sounds)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 09:57:11
+01. Room Antigua - La Habana Vieja
+02. The Original Uncle Sam - Wiki Wiki
+03. Accademia Marina - Turkish Melody
+04. Anu Shamane - The Man From Caribe(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:03:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2583C3576AF0551B1C8682229DEE23180FBD852C
+magnet:?xt=urn:btih:E692116276921296B58C0887991531E462515988
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -585,27 +171,493 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202266   (789894) от 29.01.2018
+###  Публикация: 1201933   (791057) от 27.01.2018
 
-Л.Х. Аллер | Атомы, звезды и туманности (1976) [DJVU, PDF]
+Daniel Avery - Slow Fade EP (2018) Phantasy Sound [FLAC|Lossless|WEB-DL|tracks] <Techno, Drone, Ambient>
 
->>Научная и техническая литература
->>Точные и естественные науки
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789894.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791057.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В книге общедоступно изложены основы современной астрофизики для лиц, не являющихся астрономами по образованию, но либо занимающихся астрономическими проблемами в повседневной работе, либо интересующихся астрофизикой, однако по тем или иным причинам лишенных возможности обратиться к систематическим курсам.
+01. Slow Fade (05:31)
+ 02. After Dark (04:34)
+ 03. Radius (08:03)
+ 04. Fever Dream (05:26)Жанр: Techno, Drone, AmbientПродолжительность: 00:23:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1FAA894F789E69712DFDC0EAEC82FF9BDF46172
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201990   (791056) от 27.01.2018
+
+Ben Webster - Three Classic Albums Plus (1954, 1957, 1958) 2CD, 2011, Avid Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791056.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Tangerine [05:24]
+02. La Rosita [05:06]
+03. Cocktails For Two [02:44](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 02:36:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A563A1BB6AD7ECABE65EFEC9BA552AAD72CBEBBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201200   (791055) от 27.01.2018
+
+А. П. Селивановский | Творческие задачи пролетарской литературы (1930) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791055.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемая вниманию читателя брошюра, посвященная основным вопросам творческой платформы пролетарской литературы, рассчитана на начинающих пролетарских писателей, и в частности на кадры рабочих писателей-ударников, впервые входящих в наше движение и нуждающихся в ознакомлении с сущностью происходящей сейчас творческой дискуссии и с важнейшими творческими лозунгами (   Читать дальше...   )Жанр: История, политология, искусство, литературоведениеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F13AA7C44EF6EA571D03D35E7B8BE25EBB43138E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201975   (791054) от 27.01.2018
+
+VA - Ferry Corsten presents Corsten's Countdown January (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791054.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ferry Corsten  -  Lonely Inside (Extended Ferry Fix)  5:56
+02.  Alpha 9  -  You And I (Extended Mix)  5:38
+03.  BT & Jes  -  Every Other Way (PureNRG Extended Remix)  7:32
+04.  Gabriel & Dresden  -  Sequoia (Original Mix)  7:24(   Читать дальше...   )Жанр: TranceПродолжительность: 01:07:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD86425616CF7F24FC72DEAFE38D442562692392
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201711   (791053) от 27.01.2018
+
+VA - DMC Seasons Winter: Trance Uplifting Party (2018) [MP3|320 Kbps] <Uplifting, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791053.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Paul Van Dyk & Farhad Mahdavi feat. Sue Mclaren - Together Again
+002. Ram & Darren Porter - The Calling (Grotesque 300 Anthem)
+003. Roman Messer - Lullaby (Original Mix) (Feat. Roxanne Emery)
+004. DJ T.H. & Athema feat. Elyse G. Rogers - Strong Enough(   Читать дальше...   )Жанр: Uplifting, Vocal TranceПродолжительность: 11:18:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75522121F0872BAB3778E3D68051E130CB1FA3D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201967   (791052) от 27.01.2018
+
+Forrest Fang - Scenes From a Ghost Train (2018) Projekt [FLAC|Lossless|tracks+.cue] <Ambient>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scenes from a Ghost Train - I. Five-Mile Crater (05:08)
+02. Scenes from a Ghost Train - II. Koch's Veil (05:35)
+03. Scenes from a Ghost Train - III. A Meeting of Totems (05:31)
+04. Scenes from a Ghost Train - IV. The Pulse of the Stars (05:14)(   Читать дальше...   )Жанр: AmbientПродолжительность: 01:09:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD121F7FCE00364738B97863A502B24774A9B931
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202104   (791051) от 27.01.2018
+
+Эрнест Сетон-Томпсон | История одного волка (1910) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791051.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказ для младшего и среднего школьного возраста.Жанр: Детская прозаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:280A32283E8EDA24294AF64C74A28E6B107DB670
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201645   (791050) от 27.01.2018
+
+VA - Hed Kandi:Back To Love (1999) [FLAC|Lossless|tracks] <House, Garage House, Deep House, Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791050.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.T-Empo - Saturday Night, Sunday Morning (T-Empo Mix) (8:10)
+02.Degrees Of Motion featuring Biti - Shine On (Original 12') (7:09)
+03.Jomanda - Got A Love For You (Hurley's House Mix) (7:35)
+04.Jamiroquai - Space Cowboy (Morales Classic Club Mix) (7:51)(   Читать дальше...   )Жанр: House, Garage House, Deep House, DiscoПродолжительность: 02:19:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9B73CDB5FB9223CDB2C0BA98A908685C1ECEDED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201795   (791049) от 27.01.2018
+
+Lane 8 - Little By Little (2018) [FLAC|Lossless|WEB-DL|tracks] <Vintage Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791049.jpg" />
+</div>
+
+
+###  Подробнее
+
+01/10. Daya (6:18)
+ 02/10. No Captain (5:16)
+ 03/10. Atlas (5:50)
+ 04/10. Clarify (4:00)(   Читать дальше...   )Жанр: Vintage Progressive HouseПродолжительность: 00:55:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CACCA3C4BF01CA9D648EBE6D1E81B7BFE066E2E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275328   (791048) от 10.01.2019
+
+Reflections of Life 7: Slipping Hope / Отражения жизни 7: Ускользающая надежда (2018) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791048.jpg" />
+</div>
+
+
+###  Подробнее
+
+Страж должен охранять и защищать миры. Ваше первое задание - не дать юноше разбудить свою сестру, которая во сне является хранителем смертоносного магического артефакта. С вашим верным помощником, механической совой, вы наверняка справитесь с любым, даже самым сложным, заданием.Тип издания: UnofficialРазработчик: GrandMA StudiosЖанр: Квест, Поиск предметов, Логическая, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1BD329046075253A29CCF4BDBC2D47061021EC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274753   (791047) от 10.01.2019
+
+Bryan Ferry - As Time Goes By (1999) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Jazz, Pop, Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791047.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 As Time Goes By
+A2 The Way You Look Tonight
+A3 Easy Living
+A4 I'm In The Mood For Love(   Читать дальше...   )Жанр: Jazz, Pop, Easy ListeningПродолжительность: 00:44:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB76396D3CA873C176950026DCEA6FDC2B27D4F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275240   (791046) от 10.01.2019
+
+Labyrinths of the World 9: Lost Island (2019) [En] (1.0) Unofficial [Collector's Edition]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791046.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда опасные катастрофы по всему миру совпадают с исчезновением вашего брата, вы отправляетесь исполнить миссию Искателя. Ваше расследование быстро становится ужасным, когда вы обнаруживаете опасного преступника, пытающегося уничтожить миры, а ваш брат помогает врагам! Можете ли вы спасти своего брата и миры во времени?Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1101EB101F303486F1D8CD9CB5B7C54B25B78DEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275088   (791045) от 10.01.2019
+
+Шрифты - Creative Market - Bubble Kids - 597557 [TTF, OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791045.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bubble Kids - Забавный улыбающийся шрифт, включает простые и выделенные буквы и юмористический стиль, чтобы направлять водяные пузыри в письме, типографская форма, вдохновленная стилем брызг воды.Формат: TTF, OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2776F9CF316326D2303946FB23607EBF3532C073
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275143   (791044) от 10.01.2019
+
+Шрифты - Creative Market - Gora – full pack - 781102 [TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791044.jpg" />
+</div>
+
+
+###  Подробнее
+
+Gora - Многоязычный симпатичный, оригинальный шрифт с засечками в 5 видах: обычный, жирный, обычный трафаретный, трафаретный полужирный и грубый. Так же включает в себя множество функций: лигатуры, дроби, цифры, нижние и верхние индексы, стрелки и символы валют. Отличный выбор для заголовков и небольших объемов текста, логотипов и иллюстраций, этикеток и упаковки.Формат: TTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB286F04766C38B6F25CD7F6ED73DDEDA150B3A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275144   (791043) от 10.01.2019
+
+Шрифты - Creative Market - Laqonic 4F Unicase (Family) - 526666 [TTF, OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791043.jpg" />
+</div>
+
+
+###  Подробнее
+
+Laqonic 4F Unicase - Простой и в тоже время интересный лаконический шрифт для Ваших будущих надписей.Формат: TTF, OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDA096B8286425B759547A348AADE2567BAA6758
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275145   (791042) от 10.01.2019
+
+Шрифты - Creative Market - Miletta typeface with ligatures - 313565 [TTF, OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791042.jpg" />
+</div>
+
+
+###  Подробнее
+
+Miletta - красивый рукописный шрифт, написанный настоящей кистью и тушью. Отсканированный с любовью и адаптирован для использования в качестве шрифта. Автор делал много лигатур и альтернатив, поэтому Ваша творческая работа будет веселой и милой.Формат: TTF, OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3963C6A1736F9AAF2A803E432AFF9C638D55BDF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275136   (791041) от 10.01.2019
+
+Opera 57.0.3098.116 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791041.jpg" />
+</div>
+
+
+###  Подробнее
+
+Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF4A9AD1D8399A99F9C972B0C5781ADBAD02EE43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275282   (791040) от 10.01.2019
+
+Мари Бреннан | Мемуары леди Трент. Путешествие на «Василиске» (2018) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791040.jpg" />
+</div>
+
+
+###  Подробнее
+
+Третий роман цикла «Естественная история драконов».
 
-В 12 главах читатель познакомится с принципами спектроскопии (   Читать дальше...   )Жанр: История, науковедение, естествознание, астрономия, астрофизикаФормат: DJVU, PDF
+Те, кто знаком с блистательной и скандальной карьерой натуралистки-драконоведа Изабеллы Кэмхерст, возможно, полагают, будто уже знакомы со всеми подробностями ее исторического путешествия на борту Флота Его Величества Исследовательского Судна «Василиск», однако подлинная история этого поучительного, ужасающего, (   Читать дальше...   )Жанр: Героическое фэнтези, Зарубежное фэнтези, Книги про драконовФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FB7FC829F54CC427D8D157D04F20C97714A40DB0
+magnet:?xt=urn:btih:28E928551889549C5E4B00431F820A964A96F5DC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -613,28 +665,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202524   (789893) от 29.01.2018
+###  Публикация: 1274974   (791039) от 10.01.2019
 
-VA - Like Black Holes in the Sky - The Tribute to Syd Barrett (2008) [MP3|320 Kbps] <Progressive & Art-Rock>
+Андрей Кивинов | Опережая выстрел (Книга 1). Контрснайпер (2018) [MP3, Михаил Мурзаков]
 
->>Rock, Alternative, Punk, Metal
->>Rock
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789893.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791039.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Kosmos - Vegetable Man 02:51
-02. Kylesa - Interstellar Overdrive 06:55
-03. Intronaut - Arnold Layne 03:55
-04. Stinking Lizaveta - Matilda Mother 05:39(   Читать дальше...   )Жанр: Progressive & Art-RockПродолжительность: 00:58:31
+Сюда возьмут не каждого, здесь свои традиции и свои законы. Свои правила приличия и понятия о долге. Отряд милиции специального назначения, или просто СОБР. Они умеют все, они не знают слова «невозможно», и лучше не вставать на их пути. Они действуют со скоростью пули и бьют без промаха. И кому, как не им, известно – что быстрее выстрела и поражает гораздо сильнее… (   Читать дальше...   )Жанр: Боевики, Полицейские детективыИздательство: StorySide ABПродолжительность: 09:40:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:08E84DD835233A911ECBCEC192744766635D55E8
+magnet:?xt=urn:btih:2AC16AE591C0F32B57C022F91E3C41480C469E63
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -642,79 +691,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202270   (789892) от 29.01.2018
+###  Публикация: 1275148   (791038) от 10.01.2019
 
-А.С. Компанеец | На переднем крае науки: Развитие основных законов физики (1964) [DJVU]
+Шрифты - Creative Market - SKATISTA 80% Greek+Cyrillic - 236715 [OTF]
 
->>Научная и техническая литература
->>Точные и естественные науки
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789892.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791038.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Брошюра кратко знакомит с развитием основных физических идей от Коперника до нашего времени. Читатели могут проследить, как перемещался передний край науки от механики и теории электромагнитного поля к представлениям квантовой теории и теории элементарных частиц. Показано также, какие трудности пришлось преодолеть физической науке, чтобы достигнуть современных успехов, (   Читать дальше...   )Жанр: История, науковедение, естествознание, физикаФормат: DJVU
+Пять типов, которые сделают ваш дизайн более увлекательным, вдохновленным скейтбордингом и идеально подходящим для экстремальных видов спорта.Формат: OTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:34C2CC6D440323C9F481DE00BD710076864BE3CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202239   (789891) от 29.01.2018
-
-Первая передача на НТВ. Автомобильная передача (2018.01.28) SATRip
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789891.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Первая передача» — новый проект для автомобилистов и про автомобилистов. Ведущий «Первой передачи» — Виктор Травин, президент Коллегии правовой защиты автовладельцев. Уже много лет этот известный журналист защищает права автолюбителей. В автомире для него нет секретов и закрытых дверей. Всех, кто не представляет своей жизни без автомобиля, и тех, кто только задумывается (   Читать дальше...   )Телекомпания: НТВЖанр: АвтопередачаСубтитры: ОтсутствуютПродолжительность: 00:32:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E04F547D983B90A8F51D510CE9D18F63B1436E6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202357   (789890) от 29.01.2018
-
-Ф.В. Бассин | Проблема бессознательного (1968) [DJVU]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789890.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящая книга возникла как попытка обобщения итогов не только ряда теоретических и экспериментальных исследований. Она является также результатом долгих и порой очень страстных споров.
-
-Обстоятельства сложились так, что автору пришлось на протяжении нескольких лет участвовать в дискуссиях по поводу разных сторон теории «бессознательного», в которых противопоставлялись (   Читать дальше...   )Жанр: История, политология, психология, медицина, физиология, нейрофизиологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9EE0461E2154C7FE882795676850B794F0946F8
+magnet:?xt=urn:btih:D01A97FC59204C05086465BFCA8F9A5FAB8D1D67
 ```
 
 https://mybot314.ru/tekegram_catalog/

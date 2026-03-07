@@ -1,3 +1,32 @@
+###  Публикация: 1531465   (718719) от 17.02.2022
+
+The Native American Chanters - Native American Chants & Dances - The Native American Chanters (2008) [MP3|320 Kbps] <Native American, New Age, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718719.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Circle Of Fire (04:59)
+ 02. Counterclockwise Circle Of Dance (05:38)
+ 03. Return From River Island (06:09)
+ 04. Dance Of The Warrior (05:57)(   Читать дальше...   )Жанр: Native American, New Age, WorldПродолжительность: 00:59:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F19B7D047E3F75E5CF7EC742116A97521996F116
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1531705   (718654) от 17.02.2022
 
 At The Movies - The Soundtrack Of Your Life - Vol. 2 (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
@@ -712,35 +741,6 @@ Danheim - Fridr (2018) [FLAC|Lossless|tracks] <Dark Folk, Dark Ambient>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8F682CB24D57E632E687F6FE75AC4C42B8E4C87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024413   (715453) от 09.06.2016
-
-Toby Fox - Undertale Soundtrack (2015) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack, Chiptune, Midi, Orchestral>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715453.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Once Upon a Time (1:29)
-02. Start Menu (0:32)
-03. Your Best Friend (0:23)
-04. Fallen Down (0:58)(   Читать дальше...   )Жанр: Soundtrack, Chiptune, Midi, OrchestralПродолжительность: 02:10:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AF64E51716FB6E9D11C4FCEC47ADDC99D7CA529
 ```
 
 https://mybot314.ru/tekegram_catalog/

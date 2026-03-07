@@ -1,3 +1,32 @@
+###  Публикация: 1704225   (114180) от 05.03.2024
+
+Syntheticsax - Silhouettes (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114180.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Silhouettes
+2.Silhouettes (Romantic Version)
+3.Silhouettes (Extended Mix No Sax)
+4.Silhouettes (Backing Track No Sax)(   Читать дальше...   )Жанр: Alternative, IndieПродолжительность: 00:31:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90888D30DB669067EA4A6D59073B1DFAECBD9A80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1705039   (113915) от 08.03.2024
 
 Shamanic Chants - Forest Whispers Shamanic Journey (2024) [MP3|320 Kbps] <Native American, New Age, Electro>
@@ -708,35 +737,6 @@ Werner Ahrens - Horst Bosing - Crystal Spheres (2006) [WavPack|Lossless|image + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3560FC10E55D2933E2C6D20397F76B22ADE8D06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727474   (108532) от 02.06.2024
-
-Stefano Maggio & Alessandro Giordani - Miss Erotica (2017) [FLAC|Lossless|WEB-DL|tracks] <Instrumental Pop, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108532.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jewellery (2:47)
-02. Poetica Erotica (3:17)
-03. Sexagesimal (2:56)
-04. Vibrating (4:14)(   Читать дальше...   )Жанр: Instrumental Pop, Easy ListeningПродолжительность: 00:51:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53709FD4EB1E424477D56B1430CFC56A96AA7930
 ```
 
 https://mybot314.ru/tekegram_catalog/

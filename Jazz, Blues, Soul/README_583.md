@@ -1,3 +1,235 @@
+###  Публикация: 1802307   (14404) от 16.06.2025
+
+Dexter Gordon - Three Classic Albums Plus (1955, 1960) 2CD, 2014, Avid Jazz [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_14404.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daddy Plays The Horn [9:11]
+02. Confirmation [7:52]
+03. Darn That Dream [4:23]
+04. Number Four [4:53](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 02:38:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9052FFC0868796DF36351F59347FA9B7057459C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802685   (14206) от 18.06.2025
+
+Petra and the Paper Hearts - Queens Of The Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_14206.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Kissin' In The Dark (3:05)
+02.  Why Don't You Do Right? (4:07)
+03.  Sweet Baby Of Mine (2:39)
+04.  Black Eye Blues (3:26)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFCC90A664D05954DF407E31421ADB6D97309802
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803692   (13600) от 24.06.2025
+
+The Lady & The Dappers - Electro Swing Vol. 1 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Electro Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_13600.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  No More (2:12)
+02.  Why Oh Why (3:00)
+03.  Girl Of The Green Fields (3:01)
+04.  What Happened Down There (2:27)(   Читать дальше...   )Жанр: Jazz, Electro SwingПродолжительность: 00:29:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D048B9D03B5D40F208F0CBEE0598ADFE6EBC4C62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803686   (13581) от 24.06.2025
+
+Electro Swing - Swing Beats 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Electro Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_13581.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Let the Good Times Go (3:14)
+02.  We Are the Happy Soul (3:12)
+03.  Rhythm of Electro Swing (3:15)
+04.  Rhythm of Innocence (3:14)(   Читать дальше...   )Жанр: Jazz, Electro SwingПродолжительность: 00:43:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB64B516E695C25B784AA23B60B29D5B818F43C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803690   (13580) от 24.06.2025
+
+Soundify Background Music - Electro Swing Cocktail (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Electro Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_13580.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Swing Machine (2:46)
+02.  Time Travel Affair (2:52)
+03.  Electro Swing (3:22)
+04.  Syncopation Nation (3:15)(   Читать дальше...   )Жанр: Jazz, Electro SwingПродолжительность: 00:54:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F38FEAB7251695B5E04D431C3F5601AD581055D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803698   (13566) от 24.06.2025
+
+The Lady & The Dappers - Electro Swing Vol. 3 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Electro Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_13566.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Only For You (3:41)
+02.  I Don’t Know Who I Am (3:04)
+03.  All I Want Is To Be With You (4:04)
+04.  Strong Feelings (3:00)(   Читать дальше...   )Жанр: Jazz, Electro SwingПродолжительность: 00:35:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46DE7C417C5298220FEC4E8E26D95D4F7F1198D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803696   (13557) от 24.06.2025
+
+The Lady & The Dappers - Electro Swing Vol. 2 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Electro Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_13557.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  I Can’t Stand It When You Go (3:44)
+02.  I Don’t Want To Linger For You (4:10)
+03.  You're More Connected (3:38)
+04.  I Care For You (Reimagined) (3:40)(   Читать дальше...   )Жанр: Jazz, Electro SwingПродолжительность: 00:35:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ABD3C328D1752C5D7228E250CB998469D92C8D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804106   (13259) от 27.06.2025
+
+Michael Sagmeister & Pat Martino - Conversation (2000) Acoustic Music Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Post-Bop, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_13259.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Conversation [5:26]
+02. Catch [6:41]
+03. Rejoin [8:37]
+04. On the Stairs [8:29](   Читать дальше...   )Жанр: Jazz Fusion, Post-Bop, Guitar JazzПродолжительность: 01:03:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D840D2158D7F54C394A734B31826F88230BCBF18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1804584   (12947) от 30.06.2025
 
 George Shearing - Favorite Things (1997) Telarc [FLAC|Lossless|image + .cue] <Bop, Mainstream Jazz, Piano Jazz>
@@ -514,239 +746,6 @@ The Gravel Project - Find What You Need (2025) [FLAC|Lossless|WEB-DL|tracks] <Bl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F0158E9439C8262A7FDAD4DEB33A1BE75716A3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805780   (12125) от 08.07.2025
-
-The New Old School - Mississippi Black Police Chief Sykes (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12125.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Chief Sykes (2:32)
-02.  Mississippi Black (4:55)
-03.  One Man (3:24)
-04.  I-57 (3:08)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:55:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:621A639190071A48741230E0F8213819159291B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805750   (12124) от 08.07.2025
-
-VA - Jazz Bello Fresco (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12124.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Hot Latin Spirits - In The Old City (3:54)
-02.  Giulio Campagnolo & The Jazz Funkers - Revli's Mood (5:38)
-03.  Franca Barone - Miss Apleton (2:52)
-04.  Massimo Guerra Xtet - Morgan Beat (6:19)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:31:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0A33B6A2A9D1D1F373186B8E6282B4971627DC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805783   (12123) от 08.07.2025
-
-The Voodoohounds - The Voodoohounds (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Lucy Fixingdiamond - E.T. Woman (4:53)
-02.  Mata Hari (3:35)
-03.  I'm Hooked (4:24)
-04.  Cromwell (3:01)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5B365C56B86D9EDF8F49843419C250E8B4E57CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805774   (12115) от 08.07.2025
-
-Paul Brown - So Much To Say (2025) [FLAC|Lossless|image + .cue] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12115.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаю обратить ваше внимание на релиз артиста, чье одно только имя вызывает тепло, утонченность и мелодичность. С So Much to Say гитарный виртуоз и светило smooth джаза Paul Brown предлагает нам больше, чем просто летний саундтрек, он представляет звуковой гобелен, тщательно сотканный десятилетиями мастерства, вкуса и сердца. Стремление музыканта к чистоте и (   Читать дальше...   )01. So Much To Say (3:57)
-02. Summertime (4:16)
-03. Vice Versa (4:12)
-04. My Sweet Baby (3:46)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:49:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9652204112AD076622CE06E63992EF0EBD1177DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805754   (12113) от 08.07.2025
-
-VA - Jazzy Date Night (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12113.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  SLAP CALL - Welcome to Paradise (4:22)
-02.  Marína Ósk - Measuring the Marigolds (2:55)
-03.  Vilhjálmur Guðjónsson - Pago Pra Ver (3:19)
-04.  Stratify - Should I Go, Should I Stay (5:09)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:57:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D87F5E048B82AC15AA9BCC38E315C60113D9B855
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 425798   (12094) от 09.07.2025
-
-VA - The Perfect Jazz Collection: 25 Original Albums (2010) Box Set, 25 CD [FLAC (image+.cue)|Lossless] <Jazz, Blues>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12094.jpg" />
-</div>
-
-
-###  Подробнее
-
-Об изданном Sony бокссете можно сказать, что в нем собрали самых-самых классиков джаза. Большая часть CD ремастирована с дополнительными треками. Каждый альбом упакован в картонный обложку в формате факсимильного винила. Если вам нужна история джаза, то эта раздача для Вас.01 Louis Armstrong - Louis Armstrong plays W. C. Handy (1954)
-02 Sarah Vaughan - Sarah Vaughan In Hi-Fi (1955)
-03 Art Blakey - The Jazz Messengers (1956)
-04 Billie Holiday - Lady in Satin (1958)(   Читать дальше...   )Жанр: Jazz, BluesПродолжительность: 22:52:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AE1815AE93A08BAF0357BC08C5BB3F7DFB00AD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 299621   (12092) от 09.07.2025
-
-VA - Membran Music’s Jazz Ballads Series (2004) 20 x 2CD boxset [FLAC|Lossless]<Jazz, Bop, Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12092.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаю Вашему вниманию отличную подборку джазовых баллад в исполнении множества легендарных музыкантов после повторной реставрации.
-В жизни каждого человека бывают моменты, когда хочется отдохнуть от этого безумного ритма жизни, присесть у камина, прилечь на диване (тут каждый выбирает то, что ему ближе, как в духовном, так и в финансовом смысле), заварить чашку-другую (   Читать дальше...   )Список альбомов:
-Jazz Ballads 1: Chet Baker & Gerry Mulligan
-Jazz Ballads 2: Ben Webster
-Jazz Ballads 3: Lester Young(   Читать дальше...   )Тип издания: 20 x 2CD boxsetРелиз состоялся: 26 июля 2004Жанр: Jazz, Bop, VocalПродолжительность: 41:03:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:838DCB9AB5586B99148952FFA3163D3A83159BF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771450   (12056) от 09.07.2025
-
-VA - Verve Jazzclub - 154 Albums + Box Set (2006-2013) [FLAC|Lossless|image + .cue, tracks + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12056.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серии:
-- Verve Jazzclub | Moods
-- Verve Jazzclub | Legends
-- Verve Jazzclub | Highlights(   Читать дальше...   )Жанр: JazzПродолжительность: 165:28:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6E3DCD0FA54C6735BFC2D0F842CE79367EF298A
 ```
 
 https://mybot314.ru/tekegram_catalog/

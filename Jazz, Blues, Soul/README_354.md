@@ -1,3 +1,235 @@
+###  Публикация: 962043   (297237) от 03.12.2015
+
+Archie Shepp - Live In San Francisco (1966) 2015, Universal[FLAC|tracks+.cue]<Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_297237.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Keep Your Heart Right [01:19]
+ 02.The Lady Sings The Blues [07:32]
+ 03.Sylvia [05:37]
+ 04.The Wedding [02:57](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:34:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:024B0C12A121BA6D2D2AD0B5B89EF993B35EEA0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962033   (297230) от 03.12.2015
+
+Roy Haynes, Phineas Newborn, Paul Chambers - We Three (1958) 2007, Concord[FLAC|tracks+.cue]<Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_297230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Reflection [04:25]
+ 02.Sugar Ray [06:26]
+ 03.Solitaire [08:55]
+ 04.After Hours [11:22](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 00:39:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C7921751DFCE3ACA460E433F87904243414CC24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962098   (297227) от 03.12.2015
+
+Kirk Lightsey Trio with Chet Baker - Everything Happens To Me (1983) 2015, Timeless Records[FLAC|tracks+.cue]<Post-Bop, Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_297227.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Rays Ideas [04:53]
+ 02.Everything Happens To Me [10:45]
+ 03.Girl With The Purple Eyes [06:09]
+ 04.Speak No Evil [06:58](   Читать дальше...   )Жанр: Post-Bop, Mainstream Jazz, Piano JazzПродолжительность: 00:40:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C677241928BB150BC8CFB696E53B5BF358EE8C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262196   (297023) от 14.11.2018
+
+Cannonball Adderley - The Complete Albums Collection 1955-1958 (2016) 4CD, Enlightenment [FLAC|Lossless|image + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_297023.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Spontaneous Combustion [10:07]
+02. Still Talkin' To Yo [8:54]
+03. A Little Taste [5:08](   Читать дальше...   )Жанр: Hard BopПродолжительность: 04:54:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF2846B4CA142D524F4BE929A7587BB03E952BB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262198   (297019) от 14.11.2018
+
+Stephane Wrembel - The Django Experiment II (2017) Water Is Life Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Guitar Jazz, Gypsy Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_297019.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Douce Ambiance [9:00]
+02. Viper's Dream [4:07]
+03. Vaise de Bamboula [2:55]
+04. Boston [9:18](   Читать дальше...   )Жанр: Jazz Fusion, Guitar Jazz, Gypsy JazzПродолжительность: 01:04:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:780CE0549AA66F2D9CFA908D8E048F4BD2842D72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334288   (296921) от 28.10.2019
+
+Anita O'Day - Cocktail Hour 1950-e - 1960-e (2000) 2CD, Allegro [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_296921.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Boogie Blues [3:25]
+02. Opus One [2:57]
+03. Anita's Blues [3:24](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:20:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EEC319D4D3C67F1CC8B6EAE5F205BAB3B9BE6CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262283   (296780) от 14.11.2018
+
+VA - Blues - A 30 Track Collection (2017) 2CD [MP3|320 Kbps] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_296780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phil Bee's Freedom - Memphis Moon
+02. Preston Shannon - Rollin' and Tumblin'
+03. The Sideshow Tragedy - Number One
+04. Wink Burcham - Lawnmower Man's Blues(   Читать дальше...   )Жанр: BluesПродолжительность: 02:31:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47832717EF3B2547F20D6E6B4D27AB748682EA84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079167   (296510) от 03.12.2016
+
+Oliver Nelson and His Orchestra - Fantabulous (1964) 2008, Verve[FLAC|Lossless|tracks + .cue] <Hard Bop, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_296510.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Hobo Flats [04:14]
+ 02.Post No Bills [05:31]
+ 03.A Bientot [03:48]
+ 04.Three Plus One [03:26](   Читать дальше...   )Жанр: Hard Bop, Big BandПродолжительность: 00:34:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4714DB1970DDD90DCC3DBC0E4D40D8DCE7975D93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1079022   (296502) от 03.12.2016
 
 Los Amigos Invisibles - A Typical & Autoctonal Venezueland Dance Band (1995) 2004, Gozadera [FLAC|Lossless|tracks + .cue] <Funk, Pop, Latin>
@@ -513,238 +745,6 @@ Music for Quiet Moments - Rainy Autumn Night Jazz (2019) [FLAC|Lossless|WEB-DL|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3AEED87B534199CA7B1DD73F2ADFDBE9FCC215DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079352   (294541) от 04.12.2016
-
-Paris Jazz Big Band - Source(s) (2012) Cristal Records[FLAC|Lossless|tracks + .cue] <Modern Big Band, Progressive Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294541.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Huyana (Nicolas Folmer) [08:05]
- 02.Wild (Pierre Bertrand-Cagnes) [07:18]
- 03.Zamba Blanca (Pierre Bertrand-Cagnes) [05:05]
- 04.Cajon Negro (Pierre Bertrand-Cagnes) [04:52](   Читать дальше...   )Жанр: Modern Big Band, Progressive JazzПродолжительность: 00:50:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5EA24FB5F9AD0860DEE4F72E15A8020BEA570A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079540   (294370) от 04.12.2016
-
-Milt Jackson and the Monty Alexander Trio - Soul Fusion (1978) 1992, OJC[FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294370.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Parking Lot Blues [05:24]
- 02.3000 Miles Ago [07:55]
- 03.Isn't She Lovely [04:58]
- 04.Soul Fusion [05:37](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:47:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:695090B9634FBBCF57701A48068E51B93416CD08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079629   (294360) от 04.12.2016
-
-SaraLee - Queen Of Your Heart (2016) Scene [FLAC|Lossless|tracks] <Rockabilly, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294360.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Oh Oh
-2. Voodoo Voodoo
-3. New York City Bank
-4. Stay By My Side(   Читать дальше...   )Жанр: Rockabilly, SwingПродолжительность: 00:37:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:735696460516C52219A30644436B2791694B79A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079566   (294281) от 04.12.2016
-
-Main Street Blues - Fading To Blue (2015) [MP3|320 Kbps] <Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294281.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Before the Bullets Fly (05:30)
-02. Cold Bed (05:02)
-03. Got a Broken Heart (05:16)
-04. Tin Pan Alley (06:49)(   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 00:47:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07221ECB5DE6814B8DC713B866AB21C32BC91E8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079708   (294200) от 04.12.2016
-
-Perry Como - Perry Como's Christmas Concert (1994) [MP3|320 Kbps] <Vocal Jazz, Easy Listening, Christmas>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294200.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Litle Bit Of Ireland (0:38)
-02. If I Could Read Your Mind (3:05)
-03. Happy Holidays / We Need A Little Christmas (2:52)
-04. Medley: It's Beginning To Look A Lot Like Christmas / Have Yourself A Merry Little Christmas / Bells Of St. Mary's / Bless This House (5:15)(   Читать дальше...   )Жанр: Vocal Jazz, Easy Listening, ChristmasПродолжительность: 01:02:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BFB18CF215ECF47626F3F0BC44DEE1FA495BEDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079623   (294187) от 04.12.2016
-
-Swing Republic - Midnight Calling (2012) [FLAC|Lossless|image + .cue] <Electro Swing, Nu Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294187.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crazy In Love
-02. Fall
-03. Mama
-04. Midnight Calling(   Читать дальше...   )Жанр: Electro Swing, Nu JazzПродолжительность: 00:43:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BE78175944421F28F11D830C1EE0766EF89ED3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079661   (294153) от 04.12.2016
-
-VA - Electronic Swing (2016) [MP3|320 Kbps] <Swing, Electro Swing, Electronic>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stereo Swing feat. Gabi Szucs - Champagne Swing (3:54)
-02. Sonderling - Freakstadt (2:45)
-03. Mano Meter - Puppet on a String (4:09)
-04. 5 In Love - Swing What You Got (Extended Cab Canavaral Remix) (4:11)(   Читать дальше...   )Производство: WhirlybirdЖанр: Swing, Electro Swing, ElectronicПродолжительность: 01:50:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9FC301A769AA4960D3468819588A5DB6A15F530
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962762   (293676) от 05.12.2015
-
-Stanley Cowell - New World (1978) 2014, Universal[FLAC|tracks+.cue]<Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293676.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Come Sunday [08:43]
- 02.Ask Him [04:50]
- 03.Island Of Haitoo [04:16]
- 04.I'm Tryin' To Find A Way [07:31](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:36:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8EF4D01F417CC856679844C9C69BAEF64C8A452
 ```
 
 https://mybot314.ru/tekegram_catalog/

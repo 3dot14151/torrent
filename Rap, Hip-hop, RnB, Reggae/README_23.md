@@ -1,3 +1,90 @@
+###  Публикация: 1420136   (335610) от 30.10.2020
+
+Busta Rhymes - Extinction Level Event 2: The Wrath of God (2020) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_335610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. E.L.E. 2 Intro (7:12)
+02. The Purge (1:10)
+03. Strap Yourself Down (2:57)
+04. Czar (3:01)(   Читать дальше...   )Производство: The Conglomerate Entertainment, Inc. / EMPIREЖанр: Hip-HopПродолжительность: 01:17:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC678D1F14E2478D2CB46D6C6103AD24D1AD7F1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1258980   (333021) от 01.11.2018
+
+Мафик & Маракеш - Любовь вне закона (2018) [MP3|320 Kbps] <Rap, Hip-hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_333021.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Любовь вне закона (3:40)
+02. Чужая (3:47)
+03. Рано или поздно (5:15)
+04. По часовой (4:13)(   Читать дальше...   )Жанр: Rap, Hip-hopПродолжительность: 00:45:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF2AFE1EDB74EE6A7CF195EFCC1BDC4042BDDE8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580218   (331831) от 30.09.2022
+
+Noize MC - Voyager-2 (2022) Live at Stadium [MP3|320 Kbps] <Rap, Hip-Hop, Rock>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_331831.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Миокард (Live at Stadium)
+2. Грабли (Live at Stadium)
+3. Yes Future! (Live at Stadium)
+4. Устрой дестрой (Live at Stadium)(   Читать дальше...   )Жанр: Rap, Hip-Hop, RockПродолжительность: 02:13:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD3D9A9B4823AE41952405C6C96ACA623F8A5C6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 914263   (331751) от 15.10.2019
 
 УННВ - 4 Альбома (2010 - 2019) [MP3|320 кб/с]<Underground Rap>
@@ -658,93 +745,6 @@ Bumble Beezy - Nosebleed (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6E4E13E4AAA9E9C8BA308B85526B5217B5AA423C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423435   (299940) от 13.11.2020
-
-ST1M, СД - Аггро 2.0 (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299940.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Только Mic и я [02:20]
-02. Моби Дик [03:37]
-03. В бой идут одни старики (feat. Schokk & Czar) [03:54]
-04. Эсперанто [03:17](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:17:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:733879A1B11C22D4CC7A666C5154C07E9C7FB604
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423442   (299800) от 13.11.2020
-
-Kizaru - BORN TO TRAP (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299800.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro [01:52]
-02. Что за бизнес сука? [03:25]
-03. Block Baby [03:28]
-04. G Shit [03:20](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:52:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:466D1A4886409A33B22684BBD13106BF7E51C9CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423439   (299668) от 13.11.2020
-
-Тимати - Транзит (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299668.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Харлей [03:34]
-02. Звездопад [02:50]
-03. Царь зверей [02:49]
-04. Хавчик (feat. Джиган, Даня Милохин) [03:05](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:57:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:030EC245C2127F0052B9B2EE160728DFA2D0B411
 ```
 
 https://mybot314.ru/tekegram_catalog/

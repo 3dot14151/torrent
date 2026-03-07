@@ -1,3 +1,119 @@
+###  Публикация: 1072181   (354392) от 12.11.2016
+
+Sandra - Close To Seven (1992) Japanese Edition [FLAC|Lossless|image + .cue] <Pop, Europop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_354392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Be Aggressive [04:45]
+02. Mirrored In Your Eyes [03:26]
+03. I Need Love [03:24]
+04. No Taboo [03:50](   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 00:44:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C93C62B65F0F0A483BC3389895BF757AD187489
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1071965   (354250) от 12.11.2016
+
+Patricia Kaas - Patricia Kaas (2016) Deluxe [FLAC|Lossless|tracks] <Pop, Chanson>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_354250.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adele 03:08
+ 02. Cogne 03:34
+ 03. Madame tout le monde 02:49
+ 04. Sans tes mains 03:34(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 00:49:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F49A41EC0D08B98EA6CB52540246DC51410D09C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072271   (354107) от 12.11.2016
+
+Sandra - The Very Best Of (2016) 2CD, Compilation, Remastered [FLAC|Lossless|image + .cue] <Pop, Dance-pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_354107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. (I'll Never Be) Maria Magdalena (Single Version) 3:58
+ 02. Everlasting Love 3:42
+ 03. We'll Be Together (Single Remix) 3:46
+ 04. In The Heat Of The Night (UK Single Version) 3:57(   Читать дальше...   )Жанр: Pop, Dance-popПродолжительность: 02:13:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:755A22F365026D01DB822398DC0E01166CFD00C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1178844   (353441) от 29.10.2017
+
+Pink (P!nk) - Beautiful Trauma (2017) Japan [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_353441.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beautiful Trauma
+02. Revenge
+03. Whatever You Want
+04. What About Us(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D48CFA83313F3E4E531FD1EBB6C35B90982DC89D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 952729   (353181) от 02.11.2015
 
 VA - NRJ Music Awards 2015 (2015) [FLAC|tracks +.cue]<Pop Compilation, Pop, Dance, R&B, French Pop>
@@ -628,122 +744,6 @@ VA - 1982 The Collection (Time Life) (1994) [FLAC|Lossless]<Pop, Rock, Jazz, Ele
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E67AADE6C3D52F950E742B6988436A113D18BC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955031   (337339) от 09.11.2015
-
-VA - Barbra Streisand & Partners (2014) [FLAC|tracks + .cue]<Pop, Vocal, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337339.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Barbra Streisand & Michael Buble - It Had To Be You (04:23)
- 02. Barbra Streisand & Stevie Wonder - People (04:15)
- 03. Barbra Streisand & John Mayer - Come Rain Or Come Shine (04:11)
- 04. Barbra Streisand & Babyface - Evergreen (Love Theme From A Star Is Born) (03:14)(   Читать дальше...   )Жанр: Pop, Vocal, BalladПродолжительность: 01:10:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14B29E67FBAB2436644426AF6B1082B6EE99B197
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330775   (336843) от 12.10.2019
-
-Blue Hawaii - Open Reduction Internal Fixation (2019) [FLAC|Lossless|WEB-DL|tracks] <Dreampop, Synthpop, Experimental>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336843.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All the Things (03:07)
-02. Still I Miss U (03:17)
-03. All That Blue (05:33)
-04. Sparkle (03:32)(   Читать дальше...   )Жанр: Dreampop, Synthpop, ExperimentalПродолжительность: 00:35:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C54598AB9EB3712A644398815B99CAAB928385C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579441   (336296) от 27.09.2022
-
-VA - Pop Rock Greats (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336296.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Devon - TRUST ISSUES (3:27)
-02. The Clause - In My Element (3:37)
-03. The Verve - Bitter Sweet Symphony (Remastered 2016) (5:57)
-04. Keane - Everybody's Changing (3:36)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:57:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B437A16DAF0FBBA6479CA0EB85E9BF1BE6877BF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258328   (336181) от 30.10.2018
-
-Roxette - Look Sharp! (30th Anniversary Edition) (2018) 2CD, RE. RM. Parlophone [FLAC|Lossless|tracks + .cue] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336181.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Look (T&A Demo - Mar 30, 1988) (3:29)
-02. Dressed For Success (T&A Demo - May 20, 1987) (3:22)
-03. Dressed For Success (EMI Demo - May 26-30, 1987) (3:53)
-04. Sleeping Single (T&A Demo - May 22, 1987) (3:54)(   Читать дальше...   )Жанр: Pop Rock |Продолжительность: 01:15:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6095E47F3BA264BEB206905C81C36F6166D14460
 ```
 
 https://mybot314.ru/tekegram_catalog/

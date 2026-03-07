@@ -1,3 +1,32 @@
+###  Публикация: 1124544   (785786) от 11.04.2017
+
+Faro - Dreaming In Orange (2010) Reissue, 2017 [FLAC|Lossless|WEB-DL|tracks] <Chillout, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785786.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bahia (6:06)
+ 02. Subtle Land (5:27)
+ 03. Underneath The Sun (4:17)
+ 04. I'm Glad You Feel That Way (6:13)(   Читать дальше...   )Жанр: Chillout, DowntempoПродолжительность: 01:27:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC262DA934D951D6D066D9BD0EF8FF91B684C3AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1389044   (784769) от 09.06.2020
 
 VA - Vintage Reggae Covers (2020) [FLAC|Lossless|WEB-DL|tracks] <Easy-listening, Lounge, Reggae>
@@ -716,35 +745,6 @@ DJ Krush - Cosmic Yard (2018) Es.U.Es Corporation [FLAC|Lossless|WEB-DL|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30CAB3F06285BA56ED1E64A19C310835E79B5DD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216064   (752840) от 29.03.2018
-
-VA - Erotica Vol. 2 (Most Erotic Lounge And Chillout Tunes) (2016) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Lounge>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752840.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marga Sol - Body Language
-02. Florito - Saigon Morning
-03. Pier-O - Fermer Les Yeux
-04. Soulavenue - Swept Away(   Читать дальше...   )Жанр: Balearic, LoungeПродолжительность: 01:19:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81442FECB3EBD0D4FBA73196CE58A9380111D81B
 ```
 
 https://mybot314.ru/tekegram_catalog/

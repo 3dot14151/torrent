@@ -1,3 +1,33 @@
+###  Публикация: 250185   (941155) от 16.01.2015
+
+Eric Chiryoku - 3 альбома (2006-2012) [MP3|320 кб/с]<New Age, Easy Listening, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_941155.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы:
+
+2006 - Spring Of Life
+2007 - Winter Story
+2012 - Autumn JourneyЖанр: New Age, Easy Listening, PianoПродолжительность: 02:18:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A43D3AE12D4267637AC30272C3E67BEF616B5C98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 486372   (941153) от 16.01.2015
 
 Dagda - 6 альбомов (1999-2010) [MP3|320 кб/с]<New age, Meditative, Celtic>
@@ -713,41 +743,6 @@ Fausto Papetti - Oggi 4: Quarantaseiesima raccolta (1988) [FLAC|Lossless|tracks 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE494D3D8D996BB39A3258B1BA7C1504CB67E1BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 233622   (934182) от 20.01.2015
-
-Prem Joshua - 18 альбомов (1991 - 2014) [MP3|160-320 kbps]<World, New age, Ethnic, Fusion>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934182.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы:
-
-2014 - Kashi. Songs From the India Within (with Chintan) --- добавлен 18.01.2015
-2010 - Luminous Secrets (with Band)
-2008 - In Concert (with Band)
-2006 - Taranga
-2006 - Ahir (with Chintan)
-2005 - Yatri - Mystics of Sound
-2003 - Water Down the Ganges (with Manish Vyas)
-2003 - Shiva Moon (Remixed by Maneesh De Moor)(   Читать дальше...   )Жанр: World, New age, Ethnic, FusionПродолжительность: 17:26:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FB1091317CB88BBEEE2A7B584D1820F8A1A6DD0
 ```
 
 https://mybot314.ru/tekegram_catalog/

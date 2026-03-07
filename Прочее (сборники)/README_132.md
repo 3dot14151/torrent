@@ -1,3 +1,218 @@
+###  Публикация: 1332441   (313993) от 20.10.2019
+
+VA - не Громкие новинки недели 39 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_313993.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Блокбастер - 100 Тысяч Белых Роз (4:55)
+2.Navai & Bahh Tee - Не Приму и Даром (Ramirez Remix) (4:27)
+3.Oleynik - Тихо (4:17)
+4.ПараТайн - Джем (4:02)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:46:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4D4507EB1A43E6BBCE7E3C8392B2F3A31DACBD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332059   (313985) от 20.10.2019
+
+VA - ЕвроХит Топ 40 Europa Plus 18.10.2019 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_313985.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. C-BooL - Catch You 3:13
+02. Tiesto & Jonas Blue feat. Rita Ora - Ritual 3:19
+03. Shawn Mendes & Camila Cabello - Senorita 3:11
+04. Tones And I - Dance Monkey 3:30(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:08:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D586C4BD5CB4EE037AEBDFA041D7D35E35E0E464
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 583812   (313561) от 02.12.2012
+
+VA - Русская Морозная дискотека (2012) [MP3|320 кб/с]<Pop,Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_313561.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ar4i - В Моих Руках
+02. Artik feat. Asti - До Утра
+03. Artik pres. Asti - Сладкий Сон
+04. Bel Suono & DJ Magic Finger - Любовь Бесконечна
+05. DJ Цветкоff & Mayo - Пусть Будет Так (Amen) (Radio Mix)
+06. Hi-F - Hi-Fi - Начнём Всё Сначала
+07. Lira (Та Сторона), MC 77, Архитектор - Спрятано Сердце
+08. MMDance - Р. Artik - Где Ты Был
+09. Oksi - Новогодняя
+10. RiDer - Побуду Один(   Читать дальше...   )Жанр: Pop,DanceПродолжительность: 02:11:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1F267CF2EE868D7EFDFBE93AF6F04C29E2EE6A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 582684   (313550) от 02.12.2012
+
+Digitally Imported - the best (2012) [MP3|64-320 кб/с]<Ambient,PsyAmbient>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_313550.jpg" />
+</div>
+
+
+###  Подробнее
+
+001-Into The Dawn-Accadia
+002-Further Out-Alpha Wave Movement
+003-Nighttime-Arbre Noir
+004-Inside The Harmony-AstroPilot
+005-walking-dead-Bear McCreary
+006-Field and Void-Between Interval
+007-Journey To The Centre Of The-Biosphere and Deathprod
+008-Desire-Blank & Jones
+009-Arcana-Bryan El
+010-World Of Sleepers-Carbon Based Lifeforms(   Читать дальше...   )Жанр: Ambient,PsyAmbientПродолжительность: 06:23:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CD0B728FE6B2654C5E1A730660C8B5F905B9766
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1260018   (313453) от 06.11.2018
+
+VA - Club Dance Ambience Vol.167 (2018) [MP3|320 Kbps] <Dance, Club, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_313453.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Damitrex - You Dont Know  (Original Mix)
+002. Егор Крид Feat. Филипп Киркоров - Цвет Настроения Черный (Shnaps & Kolya Funk Censored Remix)
+003. Daniela Vecchia - Silence (Original Mix)
+004. Пропаганда & Dj Kolya Funk & Dj Danya Vs. Vedenzo - Мелом (Alex Plain Mashup)(   Читать дальше...   )Жанр: Dance, Club, HouseПродолжительность: 07:24:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C44DDA55AFB7ADEDFF7BBFDB05CF312F46747B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422090   (313163) от 07.11.2020
+
+VA - ЕвроХит Топ 40 Europa Plus 06.11.2020 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_313163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dotan - NUMB (3:38)
+02. Jason Derulo - Take You Dancing (3:10)
+03. twocolors - Lovefool (3:10)
+04. Bastard! - F..k That (3:38)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:11:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3866AC7CD8B3F44B2FCFC614E4C501FD921B41A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422217   (313146) от 07.11.2020
+
+VA - Merry Christmas Baby! Christmas BluesRock (2020) 4 CD [MP3|320 Kbps] <Blues, Rock, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_313146.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elvis Presley - Amazing Grace
+02. AC/DC - Mistress for Christmas
+03. B.B. King - Back Door Santa
+04. G. Love - Christmas Blues(   Читать дальше...   )Жанр: Blues, Rock, PopПродолжительность: 11:55:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70BFE16D33D8F891391C670195310F7042FFEEE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1182811   (312787) от 12.11.2017
 
 VA - Hot Autumn Dance (2017) [MP3|320 Kbps] <Club, Dance, House>
@@ -554,209 +769,6 @@ VA - The Gates: Synthspace Anthology (2017) [MP3|192-320 Kbps] <Synthspace, Synt
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0F15D8CB3F383B29F4CD364B0B6FFAF3DF5D310
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261263   (305451) от 10.11.2018
-
-VA - The Official UK Top 40 Singles Chart 09.11.2018 (2018) [MP3|320 Kbps] <Pop, Dance, Other П>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305451.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ariana Grande - Thank u, next
-02. Lady Gaga & Bradley Cooper - Shallow
-03. Little Mix - Woman Like Me (feat. Nicki Minaj)
-04. Calvin Harris & Sam Smith - Promises(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:16:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28A557DA080D34EC35D6FB2F67A474A28F660C11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261038   (305449) от 10.11.2018
-
-VA - ЕвроХит Топ 40 Europa Plus 09.11.2018 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305449.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Calvin Harris & Dua Lipa  -  One Kiss
-02.  Imagine Dragons  -  Natural
-03.  Bebe Rexha  -  Self Control
-04.  Dynoro & Gigi D'Agostino  -  In My Mind(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:12:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C31D11653FA56A10201079612985AABAEEC2A112
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183914   (305137) от 15.11.2017
-
-VA - Старые песни по - новому (2017) [MP3|320 Kbps] <Eurodance, Euro-House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305137.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  2 Brothers On The 4th Floor - Never Alone (Necola Remix)  3:03
-002.  Ace of Base - Beautiful Life (Scorpio & Scrooge Rework)  3:31
-003.  ATB - 9PM (DJ ZeD Reboot)  3:41
-004.  Scooter - How Much Is The Fish (Yastreb Radio Edit)  3:44(   Читать дальше...   )Жанр: Eurodance, Euro-HouseПродолжительность: 07:50:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F7A75C381A3555879F09471DA05B90D06C80740
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077831   (305099) от 29.11.2016
-
-VA - All Around: Pump It Up Euro Hits (2016) [MP3|236-320 Kbps] <Hands Up, Electronica, Bigroom, Tropical, Club, Progressive>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305099.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 4Ngus - Dream Bass (Original Mix) 03:30
-02. Dakova Dae - Nibiru (Original Mix) 05:38
-03. Ali Fox - Free (Chris Young Remix) 03:11
-04. Aqeel Ali & Rishabh Feat. Neeti Mohan - Full On 02:41(   Читать дальше...   )Жанр: Hands Up, Electronica, Bigroom, Tropical, Club, ProgressiveПродолжительность: 03:55:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A5B9164E7F39872057B3392F724863B85D775B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261206   (305050) от 10.11.2018
-
-VA - Best Of Classic Music Vol.3 (2018) [MP3|320 Kbps] <Classical>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305050.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jean-Bernard Pommier - Piano Sonata No. 11 in A major K331-K300i; III. 3:42
-002. Anne-Sophie Mutter & English Chamber Orchestra - Concerto No. 2 in G minor (L'estate- Summer) RV315 (Op. 8 No. 2); III. Presto 2:48
-003. Martin Sieghart & Alfred Brendel Orchestra - Bagatelle For Piano in A Minor 'Fur Elise', WoO 59 2:45
-004. Sir Neville Marriner - Serenade (   Читать дальше...   )Жанр: ClassicalПродолжительность: 06:55:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:774E8272E4969EFFFFD443F799CA13D68A2C9452
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960829   (304565) от 29.11.2015
-
-VA - Everybody Dance Now!!! (2015) [MP3|320 кб/с]<Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304565.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Plazma - One Life (RMX) (03:59)
-02. DJ Dean & Brooklyn Bounce - Balla Nation Reborn (Pulsedriver Bounce Mix) (04:34)
-03. Ranger - You (Angel In My Heart) (Extended Maxi Mix) (06:57)
-04. The Klaim ft. Federica - Candy Girl (Tony Costa Remix) (05:46)(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 01:52:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D4CF0E053227A2A7DD4B3B94DD93AE389D33E13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960965   (304561) от 29.11.2015
-
-VA - Старое по новому (2015) [MP3|320 кб/с]<Pop, Dance, Cover>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304561.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Storm DJs & Александр Гужов - Без любви (Руки Вверх! Cover) (04:28)
-02. Иванушки International - Реви (FuzzDead Reboot) (05:53)
-03. Леприконсы - Хали Гали (Alexx Slam Rework) (04:54)
-04. Юра Шатунов - Белые розы (DJ Tarantino ReFresh) (05:09)(   Читать дальше...   )Жанр: Pop, Dance, CoverПродолжительность: 01:22:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1178C4E82B725F509855F4F8001268986DFBA82
 ```
 
 https://mybot314.ru/tekegram_catalog/

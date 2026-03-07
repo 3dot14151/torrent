@@ -1,3 +1,119 @@
+###  Публикация: 1771295   (31887) от 05.01.2025
+
+VA - Songs To Make You Sweat (2025) [FLAC|Lossless|WEB-DL|tracks] <Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_31887.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Bruno Mars - APT. (2:50)
+02.  Dua Lipa - Falling Forever (3:43)
+03.  Lena Sue - Drum (feat. Lena Sue) (2:50)
+04.  Ava Max - Spot a Fake (2:48)(   Читать дальше...   )Жанр: DanceПродолжительность: 01:13:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08A6C1CD0503A0F4A66F8213FC5F5561AF472943
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771291   (31879) от 05.01.2025
+
+VA - Hello, 2025 (The Ultimate Party Mix) (2024) [FLAC|Lossless|WEB-DL|tracks] <Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_31879.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Magnus - Lascivious (3:43)
+02.  Colette Van Sertima - The Drop (5:00)
+03.  Brain Purist - Shine Tonight (3:38)
+04.  Guy Scheiman - Feel You (3:04)(   Читать дальше...   )Жанр: DanceПродолжительность: 02:23:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A00E9C349DF11E7D7526C987A44E7863A2854BBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774537   (30219) от 21.01.2025
+
+VA - Top Songs - Hits 2025 [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_30219.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rose - APT. (2:49)
+02. Teddy Swims - Bad Dreams (3:04)
+03. Charli XCX - Apple (2:31)
+04. Benson Boone - Beautiful Things (3:00)(   Читать дальше...   )Жанр: PopПродолжительность: 02:33:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AECC4E5D32B76ACEEA1EF1D001805F055147252B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1774088   (30093) от 22.01.2025
+
+Kylie Minogue - Body Language (2003) [FLAC|Lossless|tracks + .cue] <Electronic, Pop, House>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_30093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Slow [3:18]
+02 - Still Standing [3:43]
+03 - Secret (Take You Home) [3:19]
+04 - Promises [3:20](   Читать дальше...   )Жанр: Electronic, Pop, HouseПродолжительность: 00:57:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BD6701C19A1C013A817ABBE1BA91418E6DA422C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1777463   (28469) от 06.02.2025
 
 VA - Retro Pop Hits (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -629,122 +745,6 @@ Britney Spears - Oops!... I Did It Again (2000) 25th Anniversary Edition, 2025, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4B26AC0EC9D2E5339C34AFDD292086835E68829
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797684   (17970) от 17.05.2025
-
-VA - 50s Best Hits (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17970.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Little Anthony & The Imperials - Tears on My Pillow [00:02:19]
-02 - Cliff Richard - Livin' Lovin' Doll (1997 Remaster) [00:02:07]
-03 - Frankie Lymon & The Teenagers - Who Put the Bomp (In the Bomp Bomp Bomp) [00:02:59]
-04 - Ray Charles - What'd I Say, Pt. 1 & 2 [00:05:07](   Читать дальше...   )Жанр: PopПродолжительность: 02:35:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3376696C6E4FB2FE74355BD3CC82B16DE2DA5173
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810123   (17675) от 02.08.2025
-
-V.A. - Pop Summer Hits 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_17675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Morena Rezzolata - Fever (Original Mix)
-02. Chelina Giordano - Wanna Know You (Original Mix)
-03. Boogie Signs - Tell Me (Original Mix)
-04. Daniel Locatelli - Shadows (Original Mix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:54:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C44B75E4FCC8E3DB1191B83F4200BE724928FC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798887   (17098) от 24.05.2025
-
-VA - Dance Pop Collection (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17098.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sean Paul Feat. Dua Lipa - No Lie (03:41)
-02. Katy Perry - Firework (03:47)
-03. Spice Girls - Wannabe (02:53)
-04. Baby Queen - Buzzkill (03:24)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:51:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4031B61A180E44D2CB9EAAC2427816932299449
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811176   (16540) от 08.08.2025
-
-Craig David - Commitment (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, R&B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_16540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wake Up
-02. In It with You (feat. JoJo)
-03. Commitment (feat. Tiwa Savage)
-04. Leave the Light On (feat. Louisa Johnson)(   Читать дальше...   )Жанр: Pop, R&BПродолжительность: 00:41:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:398D7B5E40B3F2B685C8D34FBBD58B61D60E7713
 ```
 
 https://mybot314.ru/tekegram_catalog/

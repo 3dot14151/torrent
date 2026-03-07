@@ -1,3 +1,32 @@
+###  Публикация: 1555739   (567485) от 05.06.2022
+
+Rise of Division - Dichotomy (2022) [MP3|320 Kbps] <Hard Rock, Post-Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567485.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Cynical [00:03:28]
+02 - Addiction Remains [00:04:11]
+03 - Feed Me To The Wolves [00:03:33]
+04 - Burn it Down [00:03:28](   Читать дальше...   )Жанр: Hard Rock, Post-GrungeПродолжительность: 00:46:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A1FBC6C16D3FB3E6A11708200432E984519B7C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1555736   (567162) от 05.06.2022
 
 Voodoo Angel - First Spell (2022) [MP3|320 Kbps] <Hard Rock>
@@ -728,35 +757,6 @@ VA - Big Hair Metal (2019) [MP3|320 Kbps] <Hard Rock, Hair Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4CCF2ECF3B03906AB0E9BDD9E61477B314D6DE73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 817968   (542941) от 02.09.2014
-
-Phil Rudd (AC/DC) - Head Job (2014) [MP3|320 кб/с]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542941.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Head Job (3:33)
-02. Sun Goes Down (2:48)
-03. Lonely Child (4:01)
-04. Lost In America (3:40)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB337377DBB42E61C7F47D41954469C2247DE7ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

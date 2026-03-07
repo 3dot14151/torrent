@@ -1,3 +1,32 @@
+###  Публикация: 1339935   (263993) от 23.11.2019
+
+Musica Relajante - Spa for Yoga (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263993.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Aruyde 03:22
+2. Calm Meditation Sounds 03:28
+3. Aum 02:23
+4. Aum Mantra Part Two 02:24(   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 04:41:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D709A039665ABBCCA8C02AA56CD9A0A7296C7D15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1191717   (263819) от 15.12.2017
 
 Jozef Van Wissem - Nobody Living Can Ever Make Me Turn Back (2017) [MP3|320 Kbps] <Dark Folk, Experimental>
@@ -736,42 +765,6 @@ VA - Sgt. Pepper's Lonely Heart Club Band - Original Sound track (1978) [APE|Los
           "Golden Slumbers" - Peter Frampton [01:39]
           "Carry That Weight" - The Bee Gees [01:45]
    08. "Come Together" - Aerosmith [03:46](   Читать дальше...   )1978Жанр: OST/RockПродолжительность: 00:41:55
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 503774   (259588) от 30.05.2012
-
-CHAVEneeZ - Great Spirit (2006) [FLAC|Lossless]<Native American Ethno, New Age>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259588.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maht Jchi [05:28]
-02. Lakota lullaby [05:49]
-03. Haya-haya-ho [05:02]
-04. First cry [03:19]
-05. Dela dela [04:39]
-06. Drum song [04:45]
-07. Weyo ho "Woman's honor chant" [04:35]
-08. Song for Sean [04:25]
-09. Amanecer andino [05:27]
-10. Wamanchallay [04:41](   Читать дальше...   )2006Жанр: Native American Ethno, New AgeПродолжительность: 00:56:59
-собственный рип
 
 ## Скачать торент
 ```bash

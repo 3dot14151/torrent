@@ -1,3 +1,30 @@
+###  Публикация: 1782193   (26285) от 27.02.2025
+
+Обои - Eternal Mix Wallpapers Part 26 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_26285.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коллекция обоев на разную тематику.
+Количество: 44 шт.Формат: JPGРазрешение файлов: 1920x1080 - 5120x2880
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC7D18E73231E6005B680B4E85EA2FE7BF28EDBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1782395   (26163) от 28.02.2025
 
 Обои - Eternal Mix Wallpapers Part 27 [JPG]
@@ -661,33 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C714A625B3ECA5DCA9E1B0C625510C55D0B95366
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788138   (23250) от 28.03.2025
-
-Обои - Eternal Mix Wallpapers Part 47 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23250.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция обоев на разную тематику.
-Количество: 44 шт.Формат: JPGРазрешение файлов: 1920x1080 - 5120x2880
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69547C92279718BFA950A4B525DECC1B8408D2DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

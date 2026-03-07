@@ -1,3 +1,29 @@
+###  Публикация: 1255831   (361239) от 19.10.2018
+
+Обои - Desktop Wallpapers (4K) Ultra HD. Part (125) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361239.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в (4K) Ultra HD формате.Формат: JPGРазрешение файлов: 3840x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8613BED3C5AC5404AD719C34755135546889410D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 951829   (360945) от 30.10.2015
 
 Обои - Бешеные тыквы. Часть 3. 1920x1080 - 135 шт [JPG]
@@ -641,32 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81AA28C1019F5F4CB9613F6AA641C7FC754AE10D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 578464   (355663) от 20.11.2012
-
-Nature HD Wallpapers (20.11.12) [Wallpapers]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355663.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F83B3FD3D2C95E150EDB7AF897DFEFAFBF11E6A
 ```
 
 https://mybot314.ru/tekegram_catalog/

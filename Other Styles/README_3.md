@@ -1,3 +1,32 @@
+###  Публикация: 1447866   (1030211) от 20.02.2021
+
+Go_A - #Ідиназвук (2016) [FLAC|Lossless|WEB-DL|tracks] <Folk, IDM>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030211.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Веснянка (04:13)
+02. Вогнi (04:39)
+03. Сонце (05:39)
+04. Намалюй (03:38)(   Читать дальше...   )Жанр: Folk, IDMПродолжительность: 00:44:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03105757EF06A5966184B0EE85A0C8F6F1E2ACC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 314199   (1030129) от 20.02.2021
 
 VA - Midnight Sax (1996) [FLAC|Lossless|tracks + .cue] <Instrumental, Saxophone>
@@ -714,35 +743,6 @@ Beirut - 9 альбомов (2006-2019) [FLAC|Lossless]<Balkan Folk, World, Indi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34580A29F2AE22A73343F8621266D5EE287BCAA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455946   (1025415) от 20.03.2021
-
-Tom Holkenborg (aka Junkie XL) - Zack Snyder's Justice League / Лига справедливости Зака Снайдера (Original Motion Picture Soundtrack) (2021) [MP3|320 кб/с]<Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025415.jpg" />
-</div>
-
-
-###  Подробнее
-
-[03:18] 01. Rose Betts - Song to the Siren
-[07:57] 02. Tom Holkenborg - A Hunter Gathers
-[00:57] 03. Tom Holkenborg - Migratory
-[01:04] 04. Tom Holkenborg - Things Fall Apart(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 03:54:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2CF088060F5CEFE509A9D402115C6F7C98F7268
 ```
 
 https://mybot314.ru/tekegram_catalog/

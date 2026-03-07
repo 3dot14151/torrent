@@ -1,23 +1,87 @@
-###  Публикация: 501682   (258742) от 27.05.2012
+###  Публикация: 503626   (259797) от 31.05.2012
 
-Forest of Shadows - 3 albums (2001-2008) [FLAC|Lossless] <Atmospheric Doom Metal, Death Doom Metal>
+Maribel - Reveries (2012) [MP3|256 кб/с]<Shoegaze Indie-Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258742.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_259797.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Submission (06:47)
-02. Selfdestructive (08:10)
-03. Detached (07:08)
-04. Moments in Solitude (09:39)
-05. Pernicious (05:43)
-06. Deprived (10:28)Жанр: Atmospheric Doom Metal, Death Doom MetalПродолжительность: 00:47:57
+1. Falling Down the Stairs
+ 2. Jezebel Jive
+ 3. Meow!
+ 4. You Bring the Sadness
+ 5. Pretty Nights
+ 6. Perfumed
+ 7. Slumber Street
+ 8. Devil’s Sigh
+ 9. The Thief2012Жанр: Shoegaze Indie-RockПродолжительность: 00:40:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A47F733B058C16E248B7003494FD085F9960D45F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 499534   (259666) от 30.05.2012
+
+Гран-Куражъ - 4 альбома (2006-2012) [MP3|320 кб/с]<Heavy / Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_259666.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Heavy / Power MetalПродолжительность: 00:46:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F54A0CE3DA51FAAF89591600D2665426BDAEAA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 503405   (259593) от 30.05.2012
+
+Geoff Achison & The Souldiggers - Little Big Men (2005) Remastered / 2012, Jupiter 2 Records / [FLAC|Lossless]<Blues, Rock, Funk>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_259593.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Crazy Horse  (05:56)
+02.News  (04:41)
+03.Happening  (05:35)
+04.Rule The World  (04:03)
+05.Little Big Men  (03:53)
+06.Feel Like A King  (03:42)
+07.Wagging The Dog  (05:01)
+08.Zombify  (04:48)
+09.Bit By Bit  (04:14)
+10.Fahe Identity  (02:59)(   Читать дальше...   )Жанр: Blues, Rock, FunkПродолжительность: 01:14:32
 
 ## Скачать торент
 ```bash
@@ -29,25 +93,300 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 502222   (258736) от 27.05.2012
+###  Публикация: 502722   (259355) от 29.05.2012
 
-Offertorium ‎– Ohne Dich (2005) [APE|Lossless] <Gothic / Symphonic Metal>
+Andwella - World's End (1970) & People's People (1971) Remastered /2002, Progressive Line/ [FLAC|Lossless]<Rock, Psychedelic Rock, Prog Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258736.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_259355.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ohne Dich (06:45)
-02. Die Dornerkron (06:33)
-03. Der Sturm (06:26)
-04. Die Sterne (06:56)
-05. O komme Tod (08:56)Жанр: Gothic / Symphonic MetalФормат: CDr, Demo
+01. Hold On To Your Mind  (03:49)
+02. Lady Love  (04:14)
+03. Michael Fitzhenry  (03:28)
+04. I'm Just Happy To See You Get Her  (02:55)
+05. Just How Long  (03:16)
+06. World's End (Part One)  (05:17)
+07. World's End (Part Two)  (03:23)
+08. Back To The Road  (02:54)
+09. I Got A Woman  (03:04)
+10. Reason For Living  (03:38)(   Читать дальше...   )Жанр: Rock, Psychedelic Rock, Prog RockПродолжительность: 01:09:06
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 502705   (259322) от 29.05.2012
+
+Pee Wee Bluesgang - Our Blue Side (1979) - Our Blue Side /2003, Sireena Records/ [FLAC|Lossless]<Rock, Blues Rock, Modern Electric Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_259322.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ABC-Blues  (03:45)
+02. Wake Up In The Morning  (04:31)
+03. Trouble  (04:34)
+04. Further On Up The Road  (05:00)
+05. I Still Love You  (00:55)
+06. Blues For Freddie K.  (05:09)
+07. The Seeker  (03:50)
+08. Bad Bad Woman  (04:36)
+09. Heavy's Blues  (04:10)Жанр: Rock, Blues Rock, Modern Electric BluesПродолжительность: 00:36:35
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 502850   (259267) от 29.05.2012
+
+Disappears - Pre Language (2012) [MP3|320 кб/с]<Post-Rock, Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_259267.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Replicate
+ 02. Pre Language
+ 03. Hibernation Sickness
+ 04. Minor Patterns
+ 05. All Gone White
+ 06. Joa
+ 07. Fear Of Darkness
+ 08. Love Drug
+ 09. Brother Joliene2012Жанр: Post-Rock, AlternativeПродолжительность: 00:35:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1558AE0BE37B33A4D950978E8FF83544878F52B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 502215   (259059) от 28.05.2012
+
+Royal Thunder - CVI (2012) [MP3|320 кб/с]<Psych Stoner Southern Hard Rock / Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_259059.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Parsonz Curse
+ 02. Whispering World
+ 03. Shake and Shift
+ 04. No Good
+ 05. Blue
+ 06. Sleeping Witch
+ 07. South of Somewhere
+ 08. Drown
+ 09. Minus
+ 10. Black Water Vision2012Жанр: Psych Stoner Southern Hard Rock / Female VocalПродолжительность: 01:02:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64016AA12097A2A8F5563BB928B3ECF4F5B41DDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 502205   (259023) от 28.05.2012
+
+Cuzo - Alquimia Para Principiantes (2012) [MP3|320 кб/с]<Psychedelic Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_259023.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. El Exorcista Turco 03:26
+ 02. Alquimia Para Principiantes 06:09
+ 03. Erotissimo 04:38
+ 04. Mundo Subatоmico 03:15
+ 05. Mi Otro Yo 04:22
+ 06. Juegos Reunidos 05:18
+ 07. Bomba De Relojeria 03:44
+ 08. Mil Homes 05:202012Жанр: Instrumental Psychedelic Stoner RockПродолжительность: 00:36:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF8F40765220328C15D3914A0D7B6184DD24268F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 502554   (259008) от 28.05.2012
+
+Шторм - С ветром на спицах (ЕР) (2012) [MP3|320 кб/с]<Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_259008.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Не теряй друзей!
+2. Дороги
+3. С ветром на спицах
+4. Страшный сон2012Жанр: Heavy MetalПродолжительность: 00:16:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CA76DB9F32C61350E88CE8B4E58C83D7D590BB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 502086   (258861) от 27.05.2012
+
+Chris Rea - Hofner Blue Notes (2003) [FLAC|Lossless]<Rock, Blues, Louisiana Blues, Modern Electric Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_258861.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spy  (05:05)
+02. Expectations  (03:58)
+03. Hofner Blue Notes  (02:51)
+04. Paris in Minneapolis  (05:05)
+05. Sвo Paulo Blue  (04:59)
+06. What Became  (04:43)
+07. Detroit  (03:54)
+08. Goodnight Joe  (04:14)
+09. Take The Mingus Train  (04:23)
+10. Alone  (03:39)(   Читать дальше...   )Жанр: Rock, Blues, Louisiana Blues, Modern Electric BluesПродолжительность: 00:50:31
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 502105   (258853) от 27.05.2012
+
+Секрет - The Best (1997) [FLAC|Lossless]<Rock, Russian Rock, Rockabilly, Rock-n-Roll, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_258853.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Привет  (03:00)
+02. Сара Барабу  (02:31)
+03. Именины у Кристины  (02:55)
+04. Тысяча пластинок  (03:02)
+05. Мажорный рок-н-ролл  (02:13)
+06. Моя любовь на пятом этаже  (03:00)
+07. Алиса  (02:26)
+08. Блюз бродячих собак  (03:17)
+09. Арина-балерина  (04:48)
+10. Домой  (03:59)(   Читать дальше...   )Жанр: Rock, Russian Rock, Rockabilly, Rock-n-Roll, Blues RockФормат: CD, СборникПродолжительность: 01:01:49
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 502372   (258748) от 27.05.2012
+
+Mekong Delta - Intersections (2012) [FLAC|Lossless]<Progressive Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_258748.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.The Cure  (04:15)
+2.Shades Of Doom  (04:20)
+3.Sphere Eclipse  (06:18)
+4.The Healer  (07:38)
+5.Innocent  (05:20)
+6.Memories Of Tomorrow  (04:44)
+7.Heroes Grief  (05:44)
+8.Heartbeat  (07:04)
+9.Transgressor  (03:38)
+10.Prophecy  (04:25)Жанр: Progressive Thrash MetalПродолжительность: 00:52:01
 
 ## Скачать торент
 ```bash
@@ -197,112 +536,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 500431   (258294) от 25.05.2012
-
-Six Feet Under - Undead (2012) [FLAC|Lossless]<Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258294.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frozen At the Moment of Death (3:42)
-02. Formaldehyde (2:46)
-03. 18 Days (2:40)
-04. Molest Dead (3:13)
-05. Blood On My Hands (3:38)
-06. Missing Victims (3:58)
-07. Reckless (3:04)
-08. Near Death Experience (2:57)
-09. Delayed Combustion Device (3:08)
-10. The Scar (3:28)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:40:17
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 501259   (258278) от 25.05.2012
-
-Daylight Dies - 6 albums (2000-2008) [FLAC/APE|Lossless] <Melodic Death Metal, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258278.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа Daylight Dies была образована в 1996 году гитаристом Баром Гэмблингом (Barre Gambling) и ударником Джесси Хэффом в городе Эшвилле, штат Северная Каролина. В 1999 году они записали первое демо под названием The Long Forgotten Demo. Год спустя к группе присоединился вокалист Гатри Иддингс, и в таком составе Daylight Dies выпустили своё второе демо, Idle, вышедшее на Tribunal Records. В 2001 году место бас-гитариста группы занял Игэн О'Роурк, а группа записала демо из двух песен, предназначавшееся для звукозаписывающих лейблов. Позднее был заключен контракт с американским метал-лейбом Relapse Records.
-
-В качестве основных музыкальных ориентиров американцы выбрали для себя такие группы, как Opeth, где-то Novembre (особенно в вокальном плане), Katatonia периода «Brave Murder Day» и немного Anathema времен «Serenades» и «Silent Enigma». Красивые трагичные мелодии, цепляющие за душу темпераментные гитарные пассажи, темп которых варьируется от среднего до медленного, глубокий эмоциональный вокал, лучшее ему описание (   Читать дальше...   )01. Cathedral (07:14)
-02. A Portrait in White (05:02)
-03. A Subtle Violence (05:40)
-04. And a Slow Surrender (03:27)
-05. At a Loss (06:26)
-06. Woke Up Lost (05:23)
-07. Descending (05:20)
-08. Last Alone (04:59)
-09. The Morning Light (07:57)2000-2008Жанр: Melodic Death Metal, Doom MetalПродолжительность: 00:51:33
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 501146   (258248) от 25.05.2012
-
-Marduk - Serpent Sermon (2012) [FLAC|Lossless]<Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258248.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Serpent Sermon (4:38)
-02. Messianic Pestilence (2:50)
-03. Souls for Belial (4:45)
-04. Into Second Death (5:11)
-05. Temple of Decay (5:25)
-06. Damnation's Gold (6:48)
-07. Hail Mary (Piss-soaked Genuflexion) (3:27)
-08. M.A.M.M.O.N (3:29)
-09. Gospel of the Worm (2:37)
-10. World of Blades (7:11)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:54:27
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 500546   (258150) от 24.05.2012
 
 The Rolling Stones - 8 альбомов (1971 - 1981) Remastered, Collector's Edition / 1994, Virgin / [FLAC|Lossless]<Rock>
@@ -331,180 +564,6 @@ The Rolling Stones - 8 альбомов (1971 - 1981) Remastered, Collector's Ed
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838165   (258048) от 21.11.2025
-
-Сурганова и Оркестр - ЗДРАВСТВУЙ (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258048.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Здравствуй
-2. Леди
-3. Не рассказывай мне
-4. Мечтатель(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51F7FF65059505A94ACA27F16852E23D257B5015
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838161   (258047) от 21.11.2025
-
-АукцЫон - Сокровище (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258047.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Борода
-2. Топ-топ
-3. Псалом 37
-4. Мусульманин(   Читать дальше...   )Жанр: RockПродолжительность: 00:47:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:456F6AA100E87DADD6FE45F40F60833B340D21DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838157   (258045) от 21.11.2025
-
-АукцЫон - Сокровище (2025) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258045.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Борода
-2. Топ-топ
-3. Псалом 37
-4. Мусульманин(   Читать дальше...   )Жанр: RockПродолжительность: 00:47:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A09D95B9DFD91D96CFD0CBAD8F10D14295C46E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838162   (258027) от 21.11.2025
-
-Ундервуд - 1000 лун (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258027.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Человек для любви
-2. Бетховен
-3. Расскажи мне, психолог
-4. Чужие книги(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCE270E966158CBC38E7A76CA610A3F7E371BA4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838159   (258019) от 21.11.2025
-
-Ундервуд - 1000 лун (2025) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258019.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Человек для любви
-2. Бетховен
-3. Расскажи мне, психолог
-4. Чужие книги(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C375582BC54183510C54D099A8E188E0DDB40DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838164   (258013) от 21.11.2025
-
-Сурганова и Оркестр - ЗДРАВСТВУЙ (2025) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258013.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Здравствуй
-2. Леди
-3. Не рассказывай мне
-4. Мечтатель(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26208A47D56FB4F709580EB6A2F0E9566A12330E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -766,35 +825,6 @@ Various - Killed By Deaf - A Punk Tribute To Motörhead (2025) Compilation [FLAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1109CB036ED854440DC4D47589C261938C1BB62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837823   (257635) от 19.11.2025
-
-Cheap Trick - All Washed Up (2025) [FLAC|Lossless|image + .cue] <Rock, Power Pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257635.jpg" />
-</div>
-
-
-###  Подробнее
-
-Немногие группы, приближающиеся к своему 50-летию, продолжают постоянно гастролировать, устраивать потрясающие концерты и записывать новые альбомы с таким же дерзким, энергичным энтузиазмом, как Cheap Trick. Выпустив 14 ноября альбом с дерзким названием All Washed Up (альбом номер 21!), они доказывают, что возраст только делает человека лучше. Четыре стиральные машины, (   Читать дальше...   )01. All Washed-Up (3:35)
-02. All Wrong Long Gone (4:08)
-03. The Riff That Won't Quit (2:48)
-04. Bet It All (2:35)(   Читать дальше...   )Жанр: Rock, Power PopПродолжительность: 00:40:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF6DD56B66FAAA71C482FF214607F50C9EF586D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

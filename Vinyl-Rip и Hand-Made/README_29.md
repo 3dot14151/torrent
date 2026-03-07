@@ -1,3 +1,177 @@
+###  Публикация: 823783   (473389) от 21.09.2014
+
+The Cars - Heartbeat City (1984)  [FLAC 2.0 24/96|image (Vinyl-Rip)]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_473389.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Hello Again (3:46)
+A2. Looking For Love (3:52)
+A3. Magic (3:57)
+A4. Drive (3:54)(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10474A267B5E17CB39D435849E7E70C776752E93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 939680   (473210) от 22.09.2015
+
+Marie Laforet - Viens, Viens (1973) [FLAC 2.0 24/96|image+.cue (Vinyl Rip)]<Pop/Chanson>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_473210.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Viens, Viens
+Written-By – H.R. Barnes, R. Bernet, Sven-Linus
+02.	Arlequin
+Written-By – D. Gerard, H.R. Barnes, R. BernetЖанр: Pop/ChansonПродолжительность: 00:07:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AEE0E8208925C43244D34F399E72D0F17804CC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 939749   (473093) от 22.09.2015
+
+David Gilmour - Rattle That Lock (2015) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]<Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_473093.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. 5 A.M (3:04)
+A2. Rattle That Lock (4:56)
+A3. Faces Of Stones (5:32)
+A4. A Boat Lies Waiting (4:34)(   Читать дальше...   )Производство: Columbia RecordsЖанр: Progressive RockПродолжительность: 00:49:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2BDE3AB596AA4C8412E5D38A8415926E557351D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567593   (472248) от 03.08.2022
+
+Thunderstone - Studio Albums (2002 - 2016) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_472248.jpg" />
+</div>
+
+
+###  Подробнее
+
+Thunderstone — финская англоязычная пауэр-метал-группа, образованная в 2000 году в Хельсинки гитаристом Нино Лауренне.2002 - Thunderstone
+2004 - The Burning
+2005 - Tools of Destruction
+2007 - Evolution 4.0Жанр: Power MetalПродолжительность: 05:35:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BFC7CA10275ED994DED6D706FF5CB9928819E4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1320246   (470791) от 18.08.2019
+
+Walter Trout - Survivor Blues (2019) [FLAC 2.0|192/24|tracks|Vinyl-Rip] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_470791.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Me, My Guitar And The Blues[7:02]
+ 02 - Be Careful How You Vote[3:56]
+ 03 - Woman Don't Lie[5:27]
+ 04 - Sadie[4:45](   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:05:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CE2E97977248B4A73A38A5F2ED7A72A00288B53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 702389   (469994) от 21.09.2013
+
+Хвост & Аукцыон - Чайник вина (1992) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Рок / Авангард>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_469994.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Орландина (4:20)
+A2. И ночь и день (2:11)
+A3. Тайна (3:01)
+A4. Слепой (1:57)(   Читать дальше...   )Жанр: Рок / АвангардПродолжительность: 00:39:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:506E6A04F5BB2BBB92AFF19BB721F51E5BE209C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1306433   (468008) от 05.08.2022
 
 T. Texas Tyler - His Great Hits (1967) [FLAC 1.0|96/24|image +.cue|Vinyl-Rip] <Folk, Country>
@@ -565,183 +739,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C790170D765C41EFDF499BE435AB0C27DB8B2FFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061105   (448338) от 10.10.2016
-
-Enigma Club - Амазония (2002) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <World Music, Ethnic>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448338.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Ancestor
-02. Black Elk
-03. Raben's Light
-04. Craftsman's Prelude(   Читать дальше...   )Жанр: World Music, Ethnic
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3EB5B761C0D0747A2090124554332430BB0AFEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061148   (448105) от 10.10.2016
-
-Эмиль Гилельс - Л. Бетховен (Сонаты "Патетическая" и "Лунная") (1979) [WavPack 2.0|192/32|tracks|Vinyl-Rip] <Classical>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448105.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-Соната №8 до минор "Патетическая", соч. 13
-1. Grave. Allegro Molto E Con Brio  8:22
-2. Adagio Cantabile  5:42(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:35:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D66340AFB8ECE3EEBBF8E2625F9AF15A40949EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943330   (446906) от 04.10.2015
-
-Marilyn Manson - The Pale Emperor (2015) Deluxe Edition [FLAC 2.0 24/96|traсks(Vinyl-Rip)]<Industrial, Alternative Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446906.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Killing Strangers [5:36]
-02. Deep Six [5:02]
-03. Third Day Of A Seven Day Binge [4:30]
-04. The Mephistopheles Of Los Angeles [5:01](   Читать дальше...   )Жанр: Industrial, Alternative RockПродолжительность: 01:05:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA99CAB69897FAB4510C74E7EB34D623F0042E0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248291   (444513) от 19.09.2018
-
-Алексей Покровский - Русские Народные Песни И Романсы (1977) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Poetry, Folk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444513.jpg" />
-</div>
-
-
-###  Подробнее
-
-Русская Поэзия В Народных Песнях
-A1	Сон Русского На Чужбине (Вот Мчится Тройка Удалая)
-A2	Среди Долины Ровныя
-A3	По Посаду Городскому(   Читать дальше...   )Жанр: Poetry, FolkПродолжительность: 00:43:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97447F37DE88FBBF02D0A9F8F29E248D5C3EE8DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944289   (442358) от 06.10.2015
-
-David Gilmour - Rattle That Lock (2015) [LPCM 2.0 96kHz 24bit, DTS 5.1 96/24 | Audio-DVD5 (BD-Audio)] <art rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442358.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rattle That Lock («Греми замкОм») — четвёртый сольный альбом Дэвида Гилмора, выпущенный 18 сентября 2015 года. За выходом альбома последует короткий тур по Европе осенью 2015 и Америке весной 2016 года.
-
-Альбом был записан в Medina Studio и на плавучей студии Гилмора "Астория".
-Титульный сингл альбома был выпущен 17 июля 2015 года и доступен для скачивания (   Читать дальше...   )1. 5 A.M. 03:02
-  2. Rattle That Lock 04:57
-  3. Faces of Stone 05:32
-  4. A Boat Lies Waiting 04:36(   Читать дальше...   )Жанр: Pop/RockПродолжительность: 00:53:53 (+3 bonus video tracks)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AC1920B556EC91436F70CF88776260920C8C67D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 853402   (441849) от 20.09.2018
-
-VA - Антология советского киношлягера - Любимые песни из кинофильмов: Обыкновенное чудо и др. (1996) [FLAC 2.0 (image+.cue)|16/44,1 (MC-Rip)]<Soundtrack>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441849.jpg" />
-</div>
-
-
-###  Подробнее
-
-Песни и музыкальная тема из т/ф "Двенадцать стульев"
-
-01. Белеет мой парус - Андрей Миронов
-02. Танго любви - Андрей Миронов(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:55:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FED43C6456353DABE26831DCE11BD04540C1EEB2
 ```
 
 https://mybot314.ru/tekegram_catalog/

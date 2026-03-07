@@ -1,3 +1,30 @@
+###  Публикация: 1361405   (955217) от 19.02.2020
+
+Проекты - VideoHive - Torn Paper Titles - 25779361 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_955217.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Torn Paper Titles» - стильный элегантный проект для создания креативного слайд шоу.
+Многие оценят по достоинству.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2881A087F0D399BF562F899F3AA0D77E1C3D3358
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1361411   (955204) от 19.02.2020
 
 Проекты - VideoHive - Photo Gallery - Memories Slideshow - 23933553 [AEP]
@@ -656,33 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94A61949C9B714E078AF99ADE1BA2FDF9A495F0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983224   (945280) от 05.02.2016
-
-Проекты - VideoHive - Simple Thinking [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945280.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания слайд шоу.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF58B1075EAD26F1352D2D92A2897B9047521CC8
 ```
 
 https://mybot314.ru/tekegram_catalog/

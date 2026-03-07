@@ -1,3 +1,87 @@
+###  Публикация: 1445547   (1033516) от 06.02.2021
+
+Звонкий - После пяти (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. После пяти (03:15)Жанр: Pop, Hip-HopПродолжительность: 00:03:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9D5BAA6B7581D9E10D94F2A2C3B24D5CEF31F4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444503   (1033280) от 07.02.2021
+
+Onyx - 100 MAD (2019) [FLAC 2.0|24/48|tracks|WEB-DL] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop, RnB, Reggae (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033280.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 100 Mad Movement Intro (00:43)
+02. Fucc Dis Rap Shit (ft. Planet Asia & Tha God Fahim) (03:32)
+03. Drug Dealers (ft. Jay Nice, Makem Pay & Larceny) (02:41)
+04. Goon Squad (ft. Termanology) (02:51)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:33:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7935191B882E7FDC33A76957F6E9D4228029D3FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446605   (1032748) от 09.02.2021
+
+Ka - Behind The Scenes (2020) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Abstract Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032748.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (5:48)
+02. Amsterdam (2:51)
+03. RS6 (3:19)
+04. Donker & Regen (2:51)(   Читать дальше...   )Производство: Hella CashЖанр: Hip-Hop, Abstract Hip-HopПродолжительность: 00:43:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E148F6C0E24BECA56A4CFD5CD7FD28EE8599B55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1446611   (1032744) от 09.02.2021
 
 Odessa Kane - Left to Bear Arms (2015) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Underground Hip-Hop>
@@ -652,93 +736,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0AC9E0216D590356A0D652A7B69BD5F7CEF0E7D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459722   (1023162) от 02.04.2021
-
-zavet - nights before gotika (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023162.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. zanoza sport xtreme [02:15]
-02. 96 слёз [02:02]
-03. ополчение 2 dark [02:15]
-04. ~царапины~ [02:08](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:11:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADCBC0247296FC7B85C7A5AE3ED7F193546D1CDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459719   (1023159) от 02.04.2021
-
-ЗАМАЙ - Lost Tapes 2 (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023159.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Что вам сказать на прощание [00:40]
-02. Мой Антихайп [03:34]
-03. Зенит [02:34]
-04. Ворох [01:45](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:17:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97042D76F61272510753C78D912358B9F2054940
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459568   (1023099) от 02.04.2021
-
-HammAli & Navai - Когда хорошему человеку плохо (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023099.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Друг или враг
-2. Я весь мир обошёл
-3. Нет твоей вины
-4. Техно(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:20:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90BAF76EA32B1B1A426AF566D27CE0E93EF2942C
 ```
 
 https://mybot314.ru/tekegram_catalog/

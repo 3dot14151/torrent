@@ -1,3 +1,236 @@
+###  Публикация: 1805780   (12125) от 08.07.2025
+
+The New Old School - Mississippi Black Police Chief Sykes (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12125.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Chief Sykes (2:32)
+02.  Mississippi Black (4:55)
+03.  One Man (3:24)
+04.  I-57 (3:08)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:55:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:621A639190071A48741230E0F8213819159291B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805750   (12124) от 08.07.2025
+
+VA - Jazz Bello Fresco (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12124.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Hot Latin Spirits - In The Old City (3:54)
+02.  Giulio Campagnolo & The Jazz Funkers - Revli's Mood (5:38)
+03.  Franca Barone - Miss Apleton (2:52)
+04.  Massimo Guerra Xtet - Morgan Beat (6:19)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:31:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0A33B6A2A9D1D1F373186B8E6282B4971627DC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805783   (12123) от 08.07.2025
+
+The Voodoohounds - The Voodoohounds (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Lucy Fixingdiamond - E.T. Woman (4:53)
+02.  Mata Hari (3:35)
+03.  I'm Hooked (4:24)
+04.  Cromwell (3:01)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5B365C56B86D9EDF8F49843419C250E8B4E57CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805774   (12115) от 08.07.2025
+
+Paul Brown - So Much To Say (2025) [FLAC|Lossless|image + .cue] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12115.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаю обратить ваше внимание на релиз артиста, чье одно только имя вызывает тепло, утонченность и мелодичность. С So Much to Say гитарный виртуоз и светило smooth джаза Paul Brown предлагает нам больше, чем просто летний саундтрек, он представляет звуковой гобелен, тщательно сотканный десятилетиями мастерства, вкуса и сердца. Стремление музыканта к чистоте и (   Читать дальше...   )01. So Much To Say (3:57)
+02. Summertime (4:16)
+03. Vice Versa (4:12)
+04. My Sweet Baby (3:46)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:49:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9652204112AD076622CE06E63992EF0EBD1177DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805754   (12113) от 08.07.2025
+
+VA - Jazzy Date Night (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  SLAP CALL - Welcome to Paradise (4:22)
+02.  Marína Ósk - Measuring the Marigolds (2:55)
+03.  Vilhjálmur Guðjónsson - Pago Pra Ver (3:19)
+04.  Stratify - Should I Go, Should I Stay (5:09)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:57:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D87F5E048B82AC15AA9BCC38E315C60113D9B855
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 425798   (12094) от 09.07.2025
+
+VA - The Perfect Jazz Collection: 25 Original Albums (2010) Box Set, 25 CD [FLAC (image+.cue)|Lossless] <Jazz, Blues>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12094.jpg" />
+</div>
+
+
+###  Подробнее
+
+Об изданном Sony бокссете можно сказать, что в нем собрали самых-самых классиков джаза. Большая часть CD ремастирована с дополнительными треками. Каждый альбом упакован в картонный обложку в формате факсимильного винила. Если вам нужна история джаза, то эта раздача для Вас.01 Louis Armstrong - Louis Armstrong plays W. C. Handy (1954)
+02 Sarah Vaughan - Sarah Vaughan In Hi-Fi (1955)
+03 Art Blakey - The Jazz Messengers (1956)
+04 Billie Holiday - Lady in Satin (1958)(   Читать дальше...   )Жанр: Jazz, BluesПродолжительность: 22:52:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AE1815AE93A08BAF0357BC08C5BB3F7DFB00AD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 299621   (12092) от 09.07.2025
+
+VA - Membran Music’s Jazz Ballads Series (2004) 20 x 2CD boxset [FLAC|Lossless]<Jazz, Bop, Vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12092.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаю Вашему вниманию отличную подборку джазовых баллад в исполнении множества легендарных музыкантов после повторной реставрации.
+В жизни каждого человека бывают моменты, когда хочется отдохнуть от этого безумного ритма жизни, присесть у камина, прилечь на диване (тут каждый выбирает то, что ему ближе, как в духовном, так и в финансовом смысле), заварить чашку-другую (   Читать дальше...   )Список альбомов:
+Jazz Ballads 1: Chet Baker & Gerry Mulligan
+Jazz Ballads 2: Ben Webster
+Jazz Ballads 3: Lester Young(   Читать дальше...   )Тип издания: 20 x 2CD boxsetРелиз состоялся: 26 июля 2004Жанр: Jazz, Bop, VocalПродолжительность: 41:03:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:838DCB9AB5586B99148952FFA3163D3A83159BF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771450   (12056) от 09.07.2025
+
+VA - Verve Jazzclub - 154 Albums + Box Set (2006-2013) [FLAC|Lossless|image + .cue, tracks + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_12056.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серии:
+- Verve Jazzclub | Moods
+- Verve Jazzclub | Legends
+- Verve Jazzclub | Highlights(   Читать дальше...   )Жанр: JazzПродолжительность: 165:28:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6E3DCD0FA54C6735BFC2D0F842CE79367EF298A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1805886   (12029) от 09.07.2025
 
 Mark Murphy - Four Classic Albums (1956 - 1961) 2CD, 2022, Avid Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -515,238 +748,6 @@ VA - Funky House Summer 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:06B18E11455B160A13E5F1E72BC6D29C8D8AF4BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811974   (8244) от 12.08.2025
-
-Clark Terry & Chico O'Farrill - Spanish Rice (1966) 2004, Verve [FLAC|Lossless|image + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8244.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peanut Vendor [2:18]
-02. Angelitos Negros [2:41]
-03. El Cumbanchero [2:13]
-04. Joonji [3:37](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:33:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89FB999387F86AD17356E69A8785848D16107CB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812240   (7840) от 14.08.2025
-
-Frank Wess & Johnny Coles - Two At The Top (1983 - 1988) 2CD, 2012, Uptown Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7840.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One for Amos [14:37]
-02. If You Can't Call, Don't Come (aka Don't Come, Don't Call) [9:26]
-03. Morning Star [9:04]
-04. Minority [12:10](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 02:18:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E157927B62043660EC7E2D529155C7BF51198D33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812726   (7424) от 16.08.2025
-
-Chico Hamilton - The Chico Hamilton Special (1960) 2016, Hallmark [FLAC|Lossless|tracks + .cue] <Hard Bop, West Coast Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7424.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Get Lost [4:43]
-02. Autumn Leaves [4:22]
-03. New Rhumba [4:08]
-04. Way Down [5:09](   Читать дальше...   )Жанр: Hard Bop, West Coast Jazz, CoolПродолжительность: 00:34:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E8432AEC40F1D175FE68EE5AFF583D68D98ED7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813122   (7270) от 17.08.2025
-
-The Steel Bones - 3 Legs Chair (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7270.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Luck on My Side (4:00)
-02.  From the Core (4:57)
-03.  3 Legs Chair (4:06)
-04.  Wasted Years (4:27)(   Читать дальше...   )Жанр: Hard Blues RockПродолжительность: 00:43:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E55A96D14C756F7C452B7F39FEAE2F480C0A62E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813021   (7239) от 17.08.2025
-
-Blues Cousins - Call Me (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  She Was Loughting (3:45)
-02.  Never Know (3:11)
-03.  Freezing In The Dark (7:26)
-04.  To Feel Your Love (4:01)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 02:00:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:083CF49AD4256464531C9E887BBCCB4A1ED8A672
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813112   (7227) от 17.08.2025
-
-Long Tall Deb & Colin John - Light It Up (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7227.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Light It Up (3:55)
-02.  My Love (2:57)
-03.  Lessons In The Ground (3:35)
-04.  Sweet Dreams (3:50)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:38:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D178E127D54917E9CAFEE2537685AE80A2BAB256
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813020   (7217) от 17.08.2025
-
-Bart&Baker - International (Electro Swing) (2025) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing, Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7217.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Eva Des Lys - Possession Obsession (Burlesque Electro Swing Version) (4:25)
-02.  Juste Bart - Bossa Lova (2:52)
-03.  Ashley Slater - Love Me, Love Me Now (Radio Version) (4:13)
-04.  Minnie Valentine - Last Night a DJ Saved My Life (3:54)(   Читать дальше...   )Жанр: Electro Swing, JazzПродолжительность: 01:13:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BEA10E785B2C2F9429A7EC3C06D2AD093C2DCB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813006   (7205) от 17.08.2025
-
-8 Ball Aitken, Taya Chani - Nightbird (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7205.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Changed Your Mind (3:00)
-02.  Waiting On Better Days (3:32)
-03.  Nightbird (4:31)
-04.  Keep Believing (3:22)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A410DE58911D60905E33BD3FAED79ED6875904C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,88 @@
+###  Публикация: 1184364   (301295) от 17.11.2017
+
+Death Angel - Sonic German Beatdown (Live In Germany) (2009) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_301295.jpg" />
+</div>
+
+
+###  Подробнее
+
+Релиз содержит выступления группы на фестивалях Rock Hard 2007, Live Factory 2008 и пару клипов (Thicker Than Blood, Dethroned (uncensored))Производство: Nuclear Blast (Germany)Жанр: Thrash MetalПродолжительность: 01:19:01+01:42:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FD1ECC41A3740A3C945E652B451C2B0750B18F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184338   (301180) от 17.11.2017
+
+Dio - Evil Or Divine (Live in New York City) (2003) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_301180.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт группы Dio записанный в Roseland Ballroom (New York City) 13 декабря 2002 и выпущенный на DVD в июле 2013. Релиз содержит сам концерт, интервью, фото, закулисные съемки и видеоклип Push1. Killing The Dragon
+2. Egypt/Children of the Sea
+3. Push
+4. Drum Solo(   Читать дальше...   )Производство: Eagle VisionЖанр: Heavy Metal, Hard RockСубтитры: ОтсутствуютПродолжительность: 01:38:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3BA54F00B3178D99CAD3FB939FBAA77AFA5E4DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 960998   (301135) от 01.12.2015
+
+New Order, Live In Glasgow (2008) DVD9 + DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_301135.jpg" />
+</div>
+
+
+###  Подробнее
+
+DVD1: Концерт в Глазго. Съёмки - октябрь 2006 года. (DVD-9)
+DVD2: Редкие и ранее не опубликованные съёмки. (DVD-5)1	Crystal	7:07
+2	Turn	4:33
+3	True Faith	5:49
+4	Regret	4:05(   Читать дальше...   )Жанр: Alternative Rock, Pop Rock, House, New Wave, Electro, Synth-popПеревод: ОтсутствуетЯзык субтитров: English, French, German, Spanish, Brazilian Portuges.Продолжительность: DVD1:~ 01:47:00, DVD2:~ 00:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04C77EBF0A19EA969F743901AAE6661DBB1C12AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1184348   (301086) от 17.11.2017
 
 Rainbow - Memories In Rock (Live In Germany) (2016) DVD9
@@ -631,93 +716,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:862355E12EA354E38C66196A5275869D32AFB999
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184467   (296941) от 19.11.2017
-
-Сборник клипов - Лучшие казахстанские от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (часть 2)
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296941.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник вошли самые лучшие клипы от казахстанских исполнителей. Я очень старался выбирая клипы. Надеюсь вам понравится моя работа. Это 2я часть сборника. Смотрите слушайте и наслаждайтесь. Все лучшее для вас. ALEXnROCK000 Intro
-061 Бейбит Корган - Сок-сок
-062 Mysterions - Неге ундемедин
-063 Дастан Оразбеков - Сезим(   Читать дальше...   )Жанр: PopПродолжительность: 03:54:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAB81AC541393D0D626E66420C9DECE5AAAF8F2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184757   (296750) от 19.11.2017
-
-Сборник клипов - Best Hits 80 от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (часть 2)
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296750.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник вошли самые хитовые клипы 80х. Позитивная и добрая музыка. Все вспомят себя много лет назад, кто то вспомнит детство, кто то юность и первую любовь, те кто постарше, молодость. Кружитесь в красивом танце с памятью. Это 2я часть сборника. Смотрите,слушайте и наслаждайтесь. Все лучшее для вас. ALEXnROCK000 Intro
-058 Tina Turner - Simply The Best
-059 Sandra - Maria Magdalena
-060 Lisa Stansfield - All Around The World(   Читать дальше...   )Жанр: PopПродолжительность: 03:43:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF54D5903ED92CBD62018A2CE3F78EEBE8BC9C36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915191   (296684) от 19.11.2017
-
-AC/DC - Live at River Plate (2009/2011) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296684.jpg" />
-</div>
-
-
-###  Подробнее
-
-Запись грандиозного тура AC/DC «Black Ice World Tour», снятая 32 HD камерами в декабре 2009 года. 200 000 фанатов, собравшихся на три шоу в Буэнос Айресе, приветствовали группу после 13 лет отсутствия в Аргентине.01. Rock n Roll Train
-02. Hell Ain't a Bad Place to Be
-03. Back in Black
-04. Big Jack(   Читать дальше...   )Производство: США, Columbia RecordsЖанр: Hard RockРежиссер: David MalletПродолжительность: 01:51:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86EF71C25062ADEFAE472ED386C87285F9D2B1A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

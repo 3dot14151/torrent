@@ -1,3 +1,32 @@
+###  Публикация: 1065157   (421631) от 22.10.2016
+
+Tyketto - Reach (2016) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_421631.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Tyketto" является одной из лучших и в то же время одной из самых недооцененных групп, производивших мелодичный радиоформатный рок. Эта нью-йоркская команда так и не смогла добиться значительного успеха, хотя ее симпатичные AOR-песни с величественным вокалом заслуживают гораздо большего внимания.1 - Reach (5:37)
+2 - Big Money (4:03)
+3 - Kick Like a Mule (3:31)
+4 - Circle the Wagons (4:34)(   Читать дальше...   )Жанр: Hard Rock, AORПродолжительность: 00:58:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E0434BCE642A632DC2296E9224979ED3C3E81A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 947369   (420557) от 16.10.2015
 
 Coney Hatch - Coney Hatch (1982) [MP3|320 кб/с]<Hard Rock>
@@ -722,35 +751,6 @@ Loosely Tight - Fightin' Society (1981) Reissue, Not On Label [MP3|320 Kbps] <Ha
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C99917E9306BCAD1569FAFFA910E910210CC9F63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170076   (401425) от 29.09.2017
-
-UFO - Salentino Cuts (2017) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heartful Of Soul
-02. Break On Through (To The Other Side)
-03. River Of Deceit
-04. The Pusher(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5462B383BA8EF2433C7C9048CCB468AA026AE2DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

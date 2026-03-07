@@ -1,3 +1,90 @@
+###  Публикация: 1423435   (299940) от 13.11.2020
+
+ST1M, СД - Аггро 2.0 (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_299940.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Только Mic и я [02:20]
+02. Моби Дик [03:37]
+03. В бой идут одни старики (feat. Schokk & Czar) [03:54]
+04. Эсперанто [03:17](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:17:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:733879A1B11C22D4CC7A666C5154C07E9C7FB604
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423442   (299800) от 13.11.2020
+
+Kizaru - BORN TO TRAP (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_299800.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro [01:52]
+02. Что за бизнес сука? [03:25]
+03. Block Baby [03:28]
+04. G Shit [03:20](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:52:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:466D1A4886409A33B22684BBD13106BF7E51C9CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423439   (299668) от 13.11.2020
+
+Тимати - Транзит (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_299668.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Харлей [03:34]
+02. Звездопад [02:50]
+03. Царь зверей [02:49]
+04. Хавчик (feat. Джиган, Даня Милохин) [03:05](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:57:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:030EC245C2127F0052B9B2EE160728DFA2D0B411
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1423532   (299654) от 13.11.2020
 
 Скриптонит, Niman - PVL is back (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -658,93 +745,6 @@ Cмоки Мо и Zloi Negr - Доспехи Бога 2 (2017) [MP3|320 Kbps] <R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:164CB5CEE69BBCAD03076A39B01FC6962FDA2E1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266702   (269181) от 03.12.2018
-
-VA - Chillhop Essentials - Spring (2018) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Chillhop, Jazz Fusion>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269181.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cap Kendricks – The One (3:29)
-02. j'san. – good morning sunshine (2:29)
-03. Juan RIOS – Azahar (2:25)
-04. HM Surf – Swix (1:55)(   Читать дальше...   )Жанр: Hip-Hop, Chillhop, Jazz Fusion, Trip HopПродолжительность: 00:59:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CB415FE9EBDE99FEC629E82252B3DC1739F451A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189968   (268722) от 08.12.2017
-
-Wu-Tang Clan - The Saga Continues (2017) [FLAC|Lossless|tracks + .cue] <Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_268722.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wu-Tang The Saga Continues Intro (feat. Rza)
-02. Lesson Learn'd (feat. Inspectah Deck And Redman)
-03. Fast And Furious (feat. Hue Hef And Raekwon)
-04. Famous Fighters (Skit)(   Читать дальше...   )Жанр: Hip-HopПродолжительность: 00:51:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C74C6BC8C0E6067833F4BD16BB584AC0EF642B4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189851   (268570) от 08.12.2017
-
-Карандаш - Ролевая модель (2017) [MP3|320 Kbps] <Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_268570.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. $.O.$.
-02. Розетка
-03. Ролевая Модель
-04. Времена(   Читать дальше...   )Жанр: RapПродолжительность: 00:51:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB7091F545543B277B10BE15CB0243F32635CB4B
 ```
 
 https://mybot314.ru/tekegram_catalog/

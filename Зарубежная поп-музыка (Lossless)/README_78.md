@@ -1,3 +1,119 @@
+###  Публикация: 1426608   (185354) от 26.11.2020
+
+The Common Linnets - The Hits (2020) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_185354.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  In Your Eyes  03:25
+02.  We Don't Make The Wind Blow  03:36
+03.  Hungry Hands  03:52
+04.  Soho Waltz  04:29(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A14201D9E5761278F563E0E7C01215214FB685CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426854   (185304) от 26.11.2020
+
+VA - Relax Fall 2020 [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_185304.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calum Scott - Dancing On My Own (4:18)
+02. Rhys Lewis - Better Than Today (3:50)
+03. Kwamie Liv - 17 (3:33)
+04. Conan Gray - Heather (3:18)(   Читать дальше...   )Жанр: PopПродолжительность: 01:57:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCBFB0EF18ADE487D536D2811411D54E85B03B49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427091   (184212) от 27.11.2020
+
+VA - Pop Legends (All Time Pop Classics) (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_184212.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kylie Minogue - Spinning Around (03:26)
+02. All Saints - Never Ever (06:27)
+03. Duran Duran - Ordinary World (04:37)
+04. Tina Turner - What's Love Got to Do with It (2015 Remaster) (03:50)(   Читать дальше...   )Жанр: PopПродолжительность: 01:30:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68E041D0982996B5721181C70F95D6DC7A41A2FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665025   (183845) от 28.09.2023
+
+Ed Sheeran - Autumn Variations (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_183845.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Magical (3:14)
+02. England (3:47)
+03. Amazing (4:06)
+04. Plastic Bag (3:50)(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3D497BAD6A50017149481879B3F358571C8DDE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1664945   (183760) от 28.09.2023
 
 George Michael - Rock In Rio 2 (2021) Remaster, 2023, Gossip[FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -629,122 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A17B01951B5C42AC8F77C0117E067E2DF9A8977
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430478   (173651) от 10.12.2020
-
-VA - Hello 2021 (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_173651.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luis Fonsi, Daddy Yankee - Despacito (3:48)
-02. Jonas Brothers - What A Man Gotta Do (3:00)
-03. NEIKED, Dyo - Sexual (3:08)
-04. Topic, A7S - Breaking Me (2:46)(   Читать дальше...   )Жанр: PopПродолжительность: 01:32:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05409338D2A4EB13926B61B86BF281C078F71564
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669042   (173200) от 14.10.2023
-
-Meduza - Meduza (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173200.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Everything You Have Done [00:02:36]
-02. Upside Down [00:02:54]
-03. Friends [00:02:37]
-04. Ecstasy [00:02:19](   Читать дальше...   )Жанр: Pop DanceПродолжительность: 00:16:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:831F2BCA2BF031430A6EE50C5DC27976C4B9C26D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669175   (172998) от 15.10.2023
-
-Rick Astley - Are We There Yet? (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dippin My Feet
-02. Letting Go
-03. Golden Hour
-04. Never Gonna Stop(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B319D32A9B627BB7DE5D69B2BAECFA700633734
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669186   (172973) от 15.10.2023
-
-Agnetha Faltskog - A+ (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172973.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Where Do We Go From Here?
-02. Back On Your Radio
-03. I Should've Followed You Home (feat. Gary Barlow)
-04. Dance Your Pain Away(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D2445F2BE8D494AF77C3AF4336ABC0DE74C7B25
 ```
 
 https://mybot314.ru/tekegram_catalog/

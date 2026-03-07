@@ -1,3 +1,61 @@
+###  Публикация: 1458970   (1023469) от 31.03.2021
+
+VA - The Dream Dance (2021) [MP3|320 Kbps] <Pop, Dance, Romantic>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023469.jpg" />
+</div>
+
+
+###  Подробнее
+
+Опять о любви, но по-иному. Приятный звук, и мелодия и вокал, а это уже не мало! Лирический стиль звучания и мягкий, доверительный вокал - всё это располагает к душевному романтическому состоянию.001. Reddcross - Soul
+002. Another Level - Whatever You Want
+003. Dou & Lono - Someone To Love You More
+004. Onur Atli - What's Love(   Читать дальше...   )Жанр: Pop, Dance, RomanticПродолжительность: 08:44:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51BEE22F5A2FBA7395FCF298A4143056E0D6DEAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459389   (1023290) от 01.04.2021
+
+VA - Disco Instrumental (2021) [MP3|320 Kbps] <Disco, Instrumental>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anna Jane - Take Me Home (Instrumental Disco Mix) (6:20)
+02. Bananarama - Ecstasy (Wild Style) (5:37)
+03. Bazykina Twins - Moscow Nights (Instrumental) (3:53)
+04. Bon Ton - Video Star (3:27)(   Читать дальше...   )Жанр: Disco, InstrumentalПродолжительность: 05:22:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C99E68C6D57A77E1070CBDA5846CB13B111FC4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1459716   (1022926) от 03.04.2021
 
 VA - Весна на Love Radio (2021) [MP3|320 Kbps] <Pop, Dance>
@@ -684,64 +742,6 @@ VA - NRJ 300 % HITS 2021 (3CD) [MP3|320 Kbps] <Dance, R&B, Hip Hop, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D01DB64D846B9FA734ABBB5C6D34BE0C554E51C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470894   (1015308) от 19.05.2021
-
-VA - 200 Ethnic Pop Songs (2021) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015308.jpg" />
-</div>
-
-
-###  Подробнее
-
-Саунд микса имеет постоянное развитие, отчего назвать его простым и скучным никак не получиться. Музыка, которой присуща своя харизма. Приобретая восточные и этнические мотивы - музыка въедается в мозг, душу и заставляет себя слушать, унося из обычной цивилизации эпохи электроники куда-то в тропики и пещеры.001. Lewis Del Mar - Fever
-002. Calimeros - Du Bist Meine Koenigin
-003. Mickie Krause - Wir Lassen U
-004. Ferdinant. - World Full Of Color(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 12:06:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72C09CC8523CF20A79E337583B77F273E218241E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470906   (1015307) от 19.05.2021
-
-VA - Hardcore Dance: Music For Heavy Fitness (2021) [MP3|320 Kbps] <Hardcore, Hardstyle, Hard Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015307.jpg" />
-</div>
-
-
-###  Подробнее
-
-Занятия спортом и музыка — для многих вещи, друг от друга неотделимые. Особенно это касается бега, где ритм играет едва ли не решающую роль. В настоящей раздаче предлагается скачать хорошую и качественную подборку плейлиста для занятий беговыми тренировками или фитнесом.001. Marius Tiberian - See Yourself
-002. Sasha F - Dead Generation
-003. Jay Reeve - The Nearest Star
-004. Sinister Seven - Ballers(   Читать дальше...   )Жанр: Hardcore, Hardstyle, Hard DanceПродолжительность: 07:44:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:331572CE0C87379718CA66CA56E425AD27E1B1EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

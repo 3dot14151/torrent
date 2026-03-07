@@ -1,3 +1,32 @@
+###  Публикация: 1105987   (874997) от 18.02.2017
+
+Electric Guest - Plural (2017) [FLAC|Lossless|tracks + .cue] <Indie, Rock, Synthpop, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_874997.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zero (3:49)
+02. Glorious Warrior (4:03)
+03. Back & Forth (4:23)
+04. Dear To Me (4:01)(   Читать дальше...   )Жанр: Indie, Rock, Synthpop, ElectronicПродолжительность: 00:41:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D3BD8389B9F2434AD70E29121FB525C2FECA4AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 997455   (873684) от 17.03.2016
 
 Tommy Lee - TommyLand: The Ride (2005) [FLAC|Lossless|image + .cue] <Alternative Rock>
@@ -714,35 +743,6 @@ Paloma Faith ‎ - A Perfect Contradiction (2014) Deluxe Edition [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:151C2C568BEE749714E80285ECBFD755570640E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002856   (841868) от 04.04.2016
-
-Bootleg Rascal - Asleep In The Machine (2016) [FLAC|Lossless|tracks] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841868.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Head in the Clouds
-02. Oh I Know
-03. Holding On
-04. Asleep in the Machine(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:43:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4C2268D1ACA1424EF7CD549744F7951A1D44116
 ```
 
 https://mybot314.ru/tekegram_catalog/

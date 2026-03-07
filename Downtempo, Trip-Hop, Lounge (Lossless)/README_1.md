@@ -1,3 +1,32 @@
+###  Публикация: 1605934   (1044729) от 19.01.2023
+
+VA - A Quiet Healing: Body & Mind Relaxing Playlist (2023) [FLAC|Lossless|WEB-DL|tracks] <Easy Listening, Lounge, Chill Out>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044729.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kool&Klean - River Flows in You (04:37)
+02. Chillaxing Jazz Kollektion - Evening Sun (05:24)
+03. Konstantin Klashtorni - Humble and Kind (04:06)
+04. Chillaxonic - Aurora (05:13)(   Читать дальше...   )Жанр: Easy Listening, Lounge, Chill OutПродолжительность: 02:26:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAD50B0FBABDCB00CA7D0C01C1D37B9E6CC74EB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1607256   (1044156) от 25.01.2023
 
 VA - Chillout Winter Gems 2023: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -716,35 +745,6 @@ Wes Borland - Mutiny on the Starbarge (2023) [FLAC|Lossless|WEB-DL|tracks] <Trip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7EF4A6251E512F19FD23D3BF7ABDDAA4919A3169
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445890   (1033312) от 07.02.2021
-
-The 5th Galaxy Orchestra - The Land of Forgotten Tales (2016) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Chillout, Dream Pop>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033312.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Open Road Ahead (5:13)
-02. My Shiny Old Space Car (4:01)
-03. Dreaming Telescopes (5:08)
-04. Morning View (5:46)(   Читать дальше...   )Жанр: Balearic, Chillout, Dream PopПродолжительность: 00:58:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77BB8C0132206EFEAA6B4C8A22EA73C7CDDB8C80
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1760212   (37486) от 12.11.2024
+
+VA - Deep House Chill 2024 (Cherokee Recordings) [FLAC|Lossless|WEB-DL|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_37486.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep Emotion - One More Night (2:36)
+02. Audioboy - Ocean (3:10)
+03. Whisk - Never Enough (2:29)
+04. Sasha Katana - I Want You To Know (3:22)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:11:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4D40A2CC727415B2B5AF73C8A1918F53923604F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760230   (37482) от 12.11.2024
+
+VA - Deep House Hits 2024 (Cherokee Recordings) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_37482.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep Emotion - One More Night (Original Mix) (2:36)
+02. Audioboy - Secret Enemy (Original Mix) (3:03)
+03. The Tschopp - More Than One Night (Original Mix) (2:23)
+04. Dani Corbalan - Addicted To You (Original Mix) (2:24)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:07:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6995178C03DFF561358D44C15BC50549CD41B6E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760365   (37397) от 13.11.2024
+
+VA - Chillout Lounge 2024 (Cherokee Recordings) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_37397.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep Emotion - Relax, Take It Easy (2:37)
+02. Audioboy - Shining Star (3:10)
+03. Silk Department - All Of My Love (2:47)
+04. Dani Corbalan - Out Of My Mind (2:55)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:10:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84BE63B8D9811F042E1120B5196FCC9B0C3A05DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760533   (37201) от 15.11.2024
+
+VA - Deep House 2024 (Cherokee Recordings) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_37201.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep Emotion - Listen To Your Heart (2:35)
+02. Dani Corbalan - Addicted To You (2:24)
+03. Dropix DJ - Far in Love (2:34)
+04. Audioboy - Oh La La La (3:10)(   Читать дальше...   )Продолжительность: 01:20:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5DEF8C7E57003CF024A1C2982C25FCFD1D81474
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1760820   (36976) от 17.11.2024
 
 Orbital - A Beginner's Guide (Best Of) - 2024 [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive, Techno, Electronic>
@@ -629,122 +745,6 @@ Niel De One - Music 4 Da People (2025) [FLAC|Lossless|tracks] <House, Tech House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88DABF2E5AA8C337C0683F126EE48CAB9C2DFE6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792352   (21004) от 18.04.2025
-
-VA - Tibetania Gold 2022 (Selected by Salvo Migliorini) (Tibetania Records) [FLAC|Lossless|WEB-DL|tracks] <Organic House, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21004.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mikhail Catan - Elegy (5:42)
-02. Darles Flow - Sahra (6:06)
-03. Temple Step Project - Raqsā (Ali Termos Remix) (6:08)
-04. DaDa Sound Project - Golden Desert (MI.LA Remix) (6:12)(   Читать дальше...   )Жанр: Organic House, DowntempoПродолжительность: 02:00:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B9BE60793F1F7A0F2D6A77C256212BD498DAF35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794589   (19842) от 29.04.2025
-
-VA - Summer Pool Party 2025 (Deep Strips Records) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_19842.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ilnurg - Mind (3:03)
-02. V.O.P. - Tell Me That (2:43)
-03. Jayanth Ak - I Wanna Lose Control (2:12)
-04. Fly - Night Pulse (5:12)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:48:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A835630627286BE7F8C6DC15C5888C18F14BE9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794738   (19763) от 30.04.2025
-
-VA - Chill Electronica (Deep Strips Records) (2025) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_19763.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kmoba - Goodbye (3:52)
-02. Dellahouse - It's a promise we will keep (3:39)
-03. Melecdo - Be With You (3:18)
-04. Abee Sash - Your Love (3:03)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:12:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A609172393E02E7FE77D2B93D6960D57296672EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794981   (19562) от 02.05.2025
-
-Blacktree - The Sexual Revolution (2015) [FLAC|Lossless|image + .cue] <Deep House, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19562.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stephan Bodzin - Odyssee (D-Nox & Beckers Remix) [2015, Herzblut Recordings]
-02. Justus Kohncke - Loop [2013, Kompakt]
-03. Bjorn Storig - The Return of the Trompetenfrosch [2012, Stil Vor Talent]
-04. Animal Trainer feat. Jan Blomqvist - Keep Control (Nicone & Sascha Braemer Remix) [2014, Stil Vor Talent](   Читать дальше...   )Жанр: Deep House, TechnoПродолжительность: 01:12:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0ED357E9C3326EDADD13EFD8CC845F70EA00BFF
 ```
 
 https://mybot314.ru/tekegram_catalog/

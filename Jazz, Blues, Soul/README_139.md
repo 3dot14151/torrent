@@ -1,3 +1,235 @@
+###  Публикация: 1013769   (777326) от 05.05.2016
+
+Late Night Union - Connections (2016) [MP3|320 кб/с] <Blues, Instrumental>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777326.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mountain
+02. Life On Hold
+03. Drinking
+04. Beautiful Eyes(   Читать дальше...   )Жанр: Blues, InstrumentalПродолжительность: 00:46:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66994179E991444C17C79480A0FF216A7D6394DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211635   (777286) от 08.03.2018
+
+Michel Donato - Maree Bass...e (1995) Label Bleu [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777286.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bleu sur le vif [03:31]
+02. Not Yet [06:22]
+03. Good Morning [05:06]
+04. Very Early [05:17](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:44:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2220F82861173742E67C1D76FD779DF83A207E8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211633   (777285) от 08.03.2018
+
+Brother Jack McDuff - Hot Barbeque & Live! (1963, 1965) 1993, BGP Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777285.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hot Barbeque [03:00]
+02. The Party's Over [06:53]
+03. Briar Patch [02:57]
+04. Hippy Dip [06:28](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 01:11:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:592A9BFBEA088E5938B5D2F61496AB59B863B662
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211645   (777284) от 08.03.2018
+
+Thomas Morris - 1923 - 1927 (1995) Classics [FLAC|Lossless|tracks + .cue] <Early Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777284.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. E Flat Blues No. 2 [03:15]
+02. Original Charleston Strut [02:50]
+03. Lonesome Journey Blues [02:53]
+04. When The Jazz Band Starts To Play [02:29](   Читать дальше...   )Жанр: Early Jazz, Big BandПродолжительность: 01:06:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFEF21C921FDEBE0CB076BAA58FCFF31B052E350
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211638   (777281) от 08.03.2018
+
+Jazz Orchestra Of The Concertgebouw (2000) RN Discs [FLAC|Lossless|image + .cue] <Big Band, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777281.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Upper Manhattan Medical Group (B. Strayhorn) [07:09]
+02. Rumbone (M. Mengelberg) [06:52]
+03. All The Things You Are (J. Kern) [06:43]
+04. Reach For The Rose (Toon Roos) [08:30](   Читать дальше...   )Жанр: Big Band, Mainstream JazzПродолжительность: 01:06:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77D69972B98BF94598B549474041BDDF7B7C80B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211648   (777240) от 08.03.2018
+
+Reloaded - My Longest Mile (2018) [MP3|320 Kbps] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_777240.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bigger balls (02:53)
+02. Saturday night diva (03:51)
+03. My longest mile (05:58)
+04. Devil's kiss (03:06)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEB3E2325BAC9DA4D6D17196ED9E644B201B5EBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013991   (776970) от 06.05.2016
+
+Fred Hersch - Solo (2015) Palmetto Records[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776970.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Olha Maria - O Grande Amor [12:40]
+ 02.Caravan [07:43]
+ 03.Pastorale [08:51]
+ 04.Whirl [07:58](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:00:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDA2651C64C823CE4E0F04C60DD3C2EFD9451AFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013980   (776967) от 06.05.2016
+
+Moacir Santos - Maestro (1972) Remaster, 2012, EMI Music[FLAC|Lossless|tracks + .cue] <Latin Jazz, World Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776967.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Monologue [01:04]
+ 02.Nana [04:28]
+ 03.Bluishmen [04:53]
+ 04.Luanne [03:01](   Читать дальше...   )Жанр: Latin Jazz, World FusionПродолжительность: 00:36:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15325739E5AC39C6AF9AFC9AA84BF31EE6AD971F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1014111   (776964) от 06.05.2016
 
 Shirley Scott - Something (1970) Remaster, 2013, Warner[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
@@ -513,238 +745,6 @@ Eve Seltzer & Terminal Swing - Live at Shapeshifter Lab (2016) [FLAC|Lossless|WE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:67CA3437F05B1789C45102D8AFBF4DC45B521186
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212081   (776545) от 10.03.2018
-
-The Benny Goodman Quartet - Together Again! (1963) 2016, Sony Music [FLAC|Lossless|image + .cue] <Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776545.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seven Come Eleven [04:26]
-02. Say It Isn't So  [03:56]
-03. I've Found a New Baby [03:42]
-04. Somebody Loves Me  [04:26](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 00:41:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3888AB133C6B42CB1BAFEA4C20FE31F46FAFC4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212167   (776543) от 10.03.2018
-
-Mick Abrahams (Мик Абрахамс) - All Said And Done (1991) Elite [MP3|320 Kbps] <Blues Rock, Rock, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776543.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мик Абрахамс (англ. Michael Timothy 'Mick' Abrahams; 7 апреля 1943, Лутон, Бедфордшир, Англия) — британский гитарист, участник оригинального состава группы Jethro Tull. В 1968 году Абрахамс вместе с группой Jethro Tull записал альбом This Was. Вскоре после выхода этого альбома Мик был вынужден покинуть группу, ввиду конфликтов, возникших у него с Йеном Андерсоном (   Читать дальше...   )01. Road Roller 3:07
-02. Watch Your Step 3:51
-03. Billy The Kid 3:33
-04. Let Me Love You Baby 3:12(   Читать дальше...   )Жанр: Blues Rock, Rock, SoulПродолжительность: 01:04:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB7ACC23D0BE61CC01B955010370FD6EC9317CA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014062   (776533) от 07.05.2016
-
-Michael Juan Nunez - Rise (2016) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776533.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Betta
-2. Come into the Light
-3. Lost It
-4. Trouble(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:46:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B11897304D0DAFDCBFA86C9D0A51D69A8E064490
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014496   (776529) от 07.05.2016
-
-Robert Burton Hubele & Brad Steckel - She Won't Talk To Me (2016) [MP3|320 кб/с] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776529.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. She Won't Talk to Me (03:55)
-02. Life Is Funny (03:21)
-03. Sweet Talk (03:44)
-04. Get to the Bottom (04:19)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDC9D5F13C9B7E21410EF4E8D61A4D46DDE1C424
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014343   (776526) от 07.05.2016
-
-Dan Patlansky - Introvertigo (2016) [MP3|320 кб/с] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776526.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Run
-2. Poor Old John
-3. Sonova Faith
-4. Loosen Up The Grip(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:35:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3A8539145646BB119C9ACE2839D0559C1AD031B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212169   (776516) от 10.03.2018
-
-Mick Abrahams (Мик Абрахамс) - Mick's Back (1996) Indigo Delux Records [MP3|320 Kbps] <Blues Rock, Rock, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776516.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мик Абрахамс (англ. Michael Timothy 'Mick' Abrahams; 7 апреля 1943, Лутон, Бедфордшир, Англия) — британский гитарист, участник оригинального состава группы Jethro Tull. В 1968 году Абрахамс вместе с группой Jethro Tull записал альбом This Was. Вскоре после выхода этого альбома Мик был вынужден покинуть группу, ввиду конфликтов, возникших у него с Йеном Андерсоном (   Читать дальше...   )01. The Rivers Invitation 3:32
-02. Bad Feeling 3:46
-03. Cold Women With Warm Hearts 3:26
-04. Time To Love 5:01(   Читать дальше...   )Жанр: Blues Rock, Rock, SoulПродолжительность: 00:53:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6305F4E0EE3B173B7DC5CA1ABC53445F8F98E53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212124   (776513) от 10.03.2018
-
-Mick Abrahams (Мик Абрахамс) - Mick Abrahams (1971) A&M Records [MP3|320 Kbps] <Blues Rock, Classic Rock, Prog Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776513.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мик Абрахамс (англ. Michael Timothy 'Mick' Abrahams; 7 апреля 1943, Лутон, Бедфордшир, Англия) — британский гитарист, участник оригинального состава группы Jethro Tull. В 1968 году Абрахамс вместе с группой Jethro Tull записал альбом This Was. Вскоре после выхода этого альбома Мик был вынужден покинуть группу, ввиду конфликтов, возникших у него с Йеном Андерсоном (   Читать дальше...   )01. Greyhound Bus 4:48
-02. Awake 8:46
-03. Wind Of Change 4:46
-04. Why Do You Do Me This Way 3:26(   Читать дальше...   )Жанр: Blues Rock, Classic Rock, Prog RockПродолжительность: 00:44:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8B6E76FA7F8B03AA5A119234EF3FC24D28E6A63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014419   (776487) от 07.05.2016
-
-VA - Blind Pig Presents: Night Time Blues (2016) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776487.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tommy Castro - The Crossanova (2:38)
-02. Arthur Adams - Backup Man (3:45)
-03. Billy Branch & The Sons Of Blues - Song For My Mother (5:21)
-04. Albert Cummings - Blues Makes Me Feel So Good (3:18)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 01:01:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A50CAF531EB29910CF07576D872988594E49F65F
 ```
 
 https://mybot314.ru/tekegram_catalog/

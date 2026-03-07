@@ -1,3 +1,227 @@
+###  Публикация: 1838605   (260639) от 23.11.2025
+
+L’Amour Fané - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Vocal, Easy listening, AI>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_260639.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Feu Sous Or
+ 02 - Ne Reviens Pas
+ 03 - Je Suis Folle De Toi
+ 04 - Amour Faux(   Читать дальше...   )Жанр: Vocal, Easy listening, AIПродолжительность: 00:59:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28981CF4B2A92BC63EA010645D981E35225C43EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838448   (260616) от 23.11.2025
+
+VA - No name compilation part 14 Instrumental, Other (2025) [MP3|320 Kbps] <Instrumental, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_260616.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Dj Artur - Deep Into the Nothingness
+02 - Сергей  Грищук - А  На Душе  Метель
+03 - Smtve - Morning Smile
+04 - Silent Night - Giovanni Marradi(   Читать дальше...   )Жанр: Instrumental, OtherПродолжительность: 00:50:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A15783D5C11D9F4519EADA9EF6286303765CD238
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 504530   (260523) от 02.06.2012
+
+VA - Сборник медленных хитов Vol.7 (2012) [MP3|320 kbps]<Pop | Rock | Blues>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_260523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Melanie C - Burn
+02. Mark Knopfler - Nobody's Got The Gun
+03. Lionel Richie - Forever
+04. Eros Ramazzotti - Stella Gemella
+05. Jason Derulo - Dumb
+06. Morten Harket - Tell Me What You See
+07. Lara Fabian - I Guess I Loved You
+08. Bryan Adams - Home Again
+09. Westlife - That's Where You Find Love
+10. Jessica Mauboy - No One Like You(   Читать дальше...   )2012Жанр: Pop | Rock | BluesПродолжительность: 06:44:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDC2646EFA51DB5B0204BEB5053AD9C357AF856F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 504765   (260414) от 02.06.2012
+
+VA - Metal Compilation - Best III (2012) [MP3|128-320 кб/с]<Symphonic, Black, Gothic, Power, Folk, Doom Metal>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_260414.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Garden of Eden - Бlomkйz
+02. Garden of Eden - Az цrdцg tбnca
+03. Garden of Eden - Vampires of eden
+04. Moonspell - Alma Mater
+05. Moonspell - Opium
+06. Moonspell - Rowen clows
+07. Diablo Swing Orchestra - A Rancid Romance
+08. Diablo Swing Orchestra - Vodka Inferno
+09. Diablo Swing Orchestra - Zodiac Virtues
+10. Far Beyond - An Angel's Requiem(   Читать дальше...   )2012Жанр: Symphonic, Black, Gothic, Power, Folk, Doom MetalПродолжительность: 11:37:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F58A87B47E2FD7E615DC7C8673079ACB998BA18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 504751   (260384) от 02.06.2012
+
+VA - Ассорти Зарубежных Новинок (2012) [MP3|256 кб/с]<Dance, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_260384.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Don Omar - Zumba
+002. DJane Housekat feat. Rameez - My party (Groove Coverage remix)
+003. Lmfao Feat. Lauren Bennett & Goon Rock - Party Rock Anthem
+004. T-Moor Rodriguez - Welcome to the night
+005. Nicki Minaj - Starships (Gordon & Doyle Summer Bootleg Edit)
+006. Lasgo - Sky High (Radio Edit)
+007. Leventina - Freak It Out (Original Mix)
+008. Tanzamomo ft. El 3Mendo - Rum & Coca (Radio Edit)
+009. David Guetta feat. Jennifer Hudson - Night of your life
+010. DJ Drama feat. Drake & Future - We In This Bitch (Remix)(   Читать дальше...   )2012Жанр: Dance, PopПродолжительность: 06:28:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5538C6B4F84B1F0277E477EFE9230E234B5D7C46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 504145   (260354) от 01.06.2012
+
+VA - Хит-Парад Наше Радио (2012) [MP3|256 кб/с]<Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_260354.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: RockПродолжительность: 06:29:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EFDE3C69CB6081F040ADB613BCD4FDB16F82BF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 504279   (260257) от 01.06.2012
+
+VA - Радио Energy - NRJ HOT30 (31.05.2012) [MP3|320 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_260257.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michel Telo - Ai Se Eu Te Pego (2:46)
+02. Global Deejays - Hardcore Vibes (Original Mix) (3:52)
+03. Michael Mind Project feat. Bobby Anthony amp Rozette - Rio De Janeiro (3:15)
+04. DJ Bobo - Everybody's Gonna Dance (Bryce rmx) (4:58)
+05. Avicii - Levels (5:33)
+06. Example - Changed the way you kiss me (Mike Candys rmx) (4:39)
+07. BEL SUONO Dj Magic Finger - Te Quiero (3:06)
+08. Leventina - Freak It Out (Original Mix) (6:37)
+09. Fonzerelli - Moonlight Party 2011 (6:23)
+10. Basto - Again And Again (Extended Mix) (5:07)(   Читать дальше...   )31.05.2012Жанр: Pop, DanceПродолжительность: 02:02:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2B5B4F90BB979648AB50A9202F273E65724FEB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 504231   (260165) от 01.06.2012
 
 VA - Зарубежные Новинки Vol.53 from AGR (2012) [MP3|320 кб/с]<Pop>
@@ -590,245 +814,6 @@ VA - Sexy Bath 7 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF6514FBD9B3B44FABAB86203C098961A994E696
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 499705   (256341) от 21.05.2012
-
-VA - Fitness Health Creator (2012) [MP3|320 кб/с]<Funky, Club House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mistow - "Fear My Love" (Dazt Glitch remix) (04:44)
-02. Krueger & Leu - "Pour Annabelle" (Fred Wendekinds Early Friedrichshain mix) (07:45)
-03. Martin Hedegaard - "Rhythm Of" (Maksy remix) (06:41)
-04. Martin Hedegaard - "Rhythm Of" (Armando Cooper remix) (04:28)
-05. Sergio Pardo - "Lucian Night" (07:37)
-06. G&O - "Nordic" (Yenk remix) (07:39)
-07. Crooper - "Earn Money" (06:13)
-08. Jack Fennessy - "Bouncey" (05:27)
-09. Beckmann - "Breaking Headlines" (radio edit) (03:45)
-10. Patrick MC Culkgin - "Nasty Sexy Girls" (03:46)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:42:58
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836479   (256337) от 10.11.2025
-
-VA - National Pop Dance Music Vol.122 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256337.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Misamo - Message (04:05)
- 002. Nolive - A Fragile Heart (02:23)
- 003. Soonone - A Mind Without Greed (03:46)
- 004. Robia - Basic Needs (02:17)(   Читать дальше...   )Жанр: Pop, Folk, DanceПродолжительность: 13:45:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F532839AA67AE66346B667C3A150DC0738B9F134
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 499526   (256315) от 21.05.2012
-
-VA - Зарубежные Новинки Vol.52 from AGR (2012) [MP3|320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256315.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Emma Hewitt & 16 Bit Lolitas - Circles
-02. Sandra - Maybe Tonight (Extended Version)
-03. Adam Lambert - Nirvana
-04. Emma Hewitt - Foolish Boy
-05. M.O.B - Every Single Day (Radio Edit)
-06. T.I. - Like That
-07. Lana Del Rey - Never Let Me Go
-08. Karmin - Brokenhearted (Razor N Guido Radio Edit)
-09. Claydee - Mamacita Buena
-10. Melanie C x Jodie Harsh - Set You Free2012Жанр: PopПродолжительность: 03:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A10BC05562B60F74099B81E9D8FF33B1842AFA94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 499522   (256294) от 21.05.2012
-
-VA - Танцевальная Dискотека from AGR (2012) [MP3|320 кб/с]<Pop, Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256294.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deadmau5 feat. Chris James - The Veldt (Original Mix)
-02. Tiesto & Swanky Tunes feat. Ben McInerney - Make Some Noise (Original Mix)
-03. Тринна - Взорви Моё Сердце
-04. Tony Ray Project - Send Me An Angel (Radio Edit)
-05. David Guetta & Nicky Romero - Metropolis (PAKD Remix)
-06. Иван Дорн n Co - Co'n'Dorn
-07. Eva Simons - I Don't Like You (Nicky Romero Remix)
-08. Afrojack & Shermanology - Can't Stop Me (Tiesto Remix)
-09. Скрябин - Держи её за руку
-10. Music People Deejays (Mpdj's) - Выпускной (New 2012 Extended Mix)2012Жанр: Pop, Club, DanceПродолжительность: 04:54:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AD1971A471BAB45B63A6F7D0BE8A782C41555EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 499509   (256261) от 21.05.2012
-
-VA - Клубные Новинки Vol.81 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256261.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Toni Braxton - I Heart You (Peter Rauhofer Club Mix)
-02. Circulation - Turquoise (Guy J Remix)
-03. Gary Afterlife - Dreaming Of You (Original Mix)
-04. Thomas Schwartz - Africa (Original Mix)
-05. Jay Marks - Dont Talk (Original Mix)
-06. Pulsar - Dedicated To All Women
-07. Audien - Keep This Memory (Karanda Remix)
-08. Min&Mal & Doublewave - Darkness (Original Mix)
-09. Andy Moor & Ashley Wallbridge feat. Gabriela - World To Turn (Club Mix)
-10. Simon Doty – Ladders (Jerome Robins Mix)2012Жанр: Club, DanceПродолжительность: 04:24:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:234B09B3FF4D3FF4E5EC9E9CE5032C8D92D3B24E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 499177   (256097) от 20.05.2012
-
-VA - XXXL Союз: Super новинки 50/50 (2012) [MP3|236-320 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256097.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dan Balan - Не Любя
-02. Sandra - Maybe Tonight (Extended Version)
-03. Юрий Шатунов - Летний Ливень
-04. Labrinth - Express Yourself (Radio Edit)
-05. Olly Murs feat. Chiddy Bang - Heart Skips a Beat
-06. MC Zali & Fidel Wicked - Носом По Кокосам
-07. Эрика (Ерика) - Порцеляна
-08. Sammy Adams - Only One
-09. NY - Music
-10. A-Sen - Давай Поженимся(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:12:33
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 499050   (256068) от 20.05.2012
-
-VA - Ночное движение хитов (2012) [MP3|256-320 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256068.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dan Balan - Люби
-02. V2G Feat. Женя Юдина - Если Не Ты (Dj Goman Remix)
-03. Dj Fudge - Мы Будем Вместе
-04. Настя Кочеткова - Жара
-05. Пальчики Оближешь - Любовь, Как Сон
-06. Винтаж - Стерео
-07. Юрий Шатунов - Летний Ливень (320 кб/с)
-08. Лоя - Розы Темно-Алые
-09. Ассорти - Плакала
-10. Титан Feat. Тамерлан И Алена Омаргалиева - Seninle(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:14:01
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

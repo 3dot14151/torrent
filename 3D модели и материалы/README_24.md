@@ -1,3 +1,81 @@
+###  Публикация: 1260999   (307110) от 09.11.2018
+
+3D модели - VizPeople - Canon EOS-1DX [V-Ray|*.max]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_307110.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как некоторые из вас заметили, мы обновили нашу самую популярную коллекцию 3d моделей «3D Home Gadgets». Теперь это называется ремиксом. Мы сняли некоторые модели и заменили их на новую. Но большинство старых моделей по-прежнему великолепны, и я хотел бы поделиться некоторыми с вами. Первой - отличная камера Canon EOS-1DXФормат: V-Ray|*.max
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B57A66C74EE64D15C8C99DCA3BB8A9A29F76C1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1183519   (306758) от 14.11.2017
+
+3D модели - Moooi - Collection 3D models [MAX, 3DS]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_306758.jpg" />
+</div>
+
+
+###  Подробнее
+
+Moooi - Collection 3D models: сборник оригинальных и уникальных 3D-моделей мебели, освещения и аксессуаров от производителя. Коллекция 2016-2017 гг. Также в сборник вошли текстуры дизайнерских ковров Moooi.Формат: MAX, 3DS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2520D738D58020E744A0C83F6868B3DD692B0B77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1183830   (304941) от 15.11.2017
+
+3D модели - Dream Land - Дизайнерская мебель для спальни [MAX]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_304941.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коллекция дизайнерской мебели Dream Land. Все для спальни.Формат: MAX
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:111681E1FB8F01CF8CB3E40788F8193C14E23362
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1261589   (302733) от 11.11.2018
 
 3D материалы - Gumroad - 56 Fabric Materials - COMPLETE PACK - 4K - Tileable [SBSAR, JPG, PNG]
@@ -593,85 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84DACFA75696FFECB1649434C8C075FDBB661593
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263076   (289404) от 18.11.2018
-
-3D модели - ArtStation - Humvee Ambulance [MAX, FBX, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289404.jpg" />
-</div>
-
-
-###  Подробнее
-
-Моделирование в Maya, шины в Max, uv в 3DCoat и текстурирование в Substance Painter. Представлено с помощью Marmoset.Формат: MAX, FBX, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8532A5AF66428D4C8834E7DB9DBAF00B21B917DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263108   (289046) от 18.11.2018
-
-3D модели - 3ddd - Free Wardrobe & Display cabinets - Шкафы 2018 [Corona|V-Ray|*.max, FBX, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289046.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник моделей с сайта 3ddd/3dsky.
-Количество моделей: 48шт.Формат: Corona|V-Ray|*.max, FBX, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF7E51530C81B98B133833FC2CDF2BC942C67AB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335714   (285678) от 03.11.2019
-
-CGTrader - Renault Master Van L2H2 2020 [MAX, OBJ, FBX]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285678.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель микроавтобуса марки RenaultФормат: MAX, OBJ, FBX
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFD81C3C2D7C6A02304D19E07B16807DFCF69ADE
 ```
 
 https://mybot314.ru/tekegram_catalog/

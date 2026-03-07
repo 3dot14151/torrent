@@ -1,3 +1,198 @@
+###  Публикация: 818408   (541029) от 03.09.2014
+
+Pink Floyd - The Division Bell (1994) 2LP, 20th Anniversary /2014, Parlophone Records/ [FLAC 2.0 24/96|image (Vinyl-Rip)]<Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_541029.jpg" />
+</div>
+
+
+###  Подробнее
+
+C1. Take It Back (6:18)
+C2. Coming Back To Life (6:14)
+C3. Keep Talking (6:07)
+D1. Lost For Words (5:13)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:32:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:643BE2B96630075DE560959D2BEF05EC6203370D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 531893   (539717) от 06.08.2012
+
+Lady Gaga - 2 альбома (2008, 2011) [DTS 5.1|Tracks (upmix)]<Pop, dance>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_539717.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just Dance feat. Colby O'donis (4:04)
+02. Lovegame (3:36)
+03. Paparazzi (3:28)
+04. Poker Face (3:57)
+05. Eh, Eh (Nothing Else I Can Say) (2:55)
+06. Beautiful, Dirty, Rich (2:52)
+07. The Fame (3:43)
+08. Money Honey (2:52)
+09. tarstruck feat. Space Cowboy And Flo Rida (3:37)
+10. Boys Boys Boys (3:21)(   Читать дальше...   )01. Born This Way (Zedd Remix) (6:31)
+02. Judas (Goldfrapp Remix) (4:41)
+03. The Edge of Glory (Foster the People Remix) (6:10)
+04. You and I (Wild Beasts Remix) (3:51)
+05. Marry The Night (The Weeknd and Illangelo Remix) (4:04)
+06. Black Jesus Amen Fashion (Michael Woods Remix) (6:11)
+07. Bloody Mary (The Horrors Remix) (5:19)
+08. Scheisse (Guena LG Club Remix) (5:45)
+09. Americano (Gregori Klosman Remix) (6:08)
+10. Electric Chapel (Two Door Cinema Club Remix) (3:59)(   Читать дальше...   )Жанр: Pop, danceПродолжительность: 01:11:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:638ECCAF0B71D7E2996E9C7BC9A31B6600EA569A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 531769   (539714) от 06.08.2012
+
+Tina Turner - Simply The Best (1991) [DTS 5.1|image (Upmix)]<Pop, Rock, R&B>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_539714.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Best (4:21)
+02. Better Be Good To Me (4:04)
+03. Can't Stand The Rain (3:34)
+04. What's Love Got To Do With It (3:47)
+05. Typical Male (4:44)
+06. Private Dancer (4:22)
+07. We Don't Need Another Hero (4:48)
+08. What You Get Is What You See (4:08)
+09. I Don't Wanna Lose You (4:16)
+10. Look Me In The Heart (3:38)(   Читать дальше...   )Жанр: Pop, Rock, R&BФормат: wav+cue'Продолжительность: 01:28:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15B1BAFAD6408CFA58F7B07C733E469005AD2B15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 818710   (539388) от 04.09.2014
+
+Electric Light Orchestra - Zoom (2001) 2LP /2013, Big Trilby Records/ [FLAC 2.0 24/96|image (Vinyl-Rip)]<Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_539388.jpg" />
+</div>
+
+
+###  Подробнее
+
+C1. A Long Time Gone (3:16)
+C2. Melting In The Sun (3:10)
+C3. All She Wanted (3:14)
+C4. Lonesome Lullaby (4:04)Жанр: Progressive RockПродолжительность: 00:50:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F19D02D023E97C2EA64943DC103E289DEFD80C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 696921   (538090) от 04.09.2013
+
+Nicole - Alles fliesst (2005) [DTS 5.1 CD-Extra|44.1/16| .bin+.cue (Audio-DVD)] <pop>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_538090.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Alles Fließt 4:05
+2. Engel Ohne Flügel 3:50
+3. Gib Mir Eine Stunde 3:48
+4. Mehr Davon 4:22(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4F9578FFFEAF93FD029DDEE1B0484BE6EE009BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049566   (537639) от 08.09.2016
+
+Genesis - SACD Anthology (1970-1998) [FLAC 2.0|96/24|tracks+.cue|SACD] <Progressive Rock, Pop Rock, Art Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_537639.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Invisible Touch (3:29)
+02. Tonight, Tonight, Tonight (8:54)
+03. Land Of Confusion (4:46)
+04. In Too Deep (5:03)(   Читать дальше...   )Жанр: Progressive Rock, Pop Rock, Art RockПродолжительность: 14:37:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B345F4CCF1B7F126269C2A5139016902BCAF921C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 531394   (537637) от 07.08.2012
 
 Чиж - 2 альбома (1996, 2010) [DTS 5.1|Image (Upmix)]<Рок, блюз-рок, фолк-рок, рок-н-ролл>
@@ -575,177 +770,6 @@ B1 To The Unknown Man(   Читать дальше...   )Жанр: New AgeПро
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10969C4F1F95E26EBFF2388AF0F51039C120C967
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315486   (512612) от 20.07.2019
-
-В. С. Высоцкий - Лучшие песни 3 (1980/1996) [FLAC 2.0|44,1/24|image+.cue|MC-Rip] <Chansone>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512612.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Песня о погибшем лётчике
-02. Мой друг уехал в Магадан
-03. ''Гололёд на земле, гололёд...''
-04. Прерванный полёт(   Читать дальше...   )Жанр: ChansoneПродолжительность: 01:13:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C1BF96D00DE9F5E9CDD3449344D853F184B62BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932372   (508167) от 30.08.2015
-
-С. Рахманинов - Симфонические танцы, соч. 45 (Е. Светланов, ГАСО СССР) (1973) [FLAC 2.0 24/96|image+.cue (Vinyl-Rip)]<Classical>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508167.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-С. Рахманинов - Симфонические танцы, соч. 45
-01. I - Non allegro
-02. II - Andante con moto (Tempo di valse)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:37:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA39587AED78E12860FA0A7BF1BCE6710E2E3842
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932775   (508163) от 30.08.2015
-
-Francoise Hardy - Star (1977) [FLAC 2.0 24/96 | image+.cue|(Vinyl Rip)]<Chanson>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508163.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1	Star
-Lyrics By (Adaptation) – F. Hardy
-Written-By – J. Ian
-A2	Chanson Sur Toi Et Nous(   Читать дальше...   )Жанр: ChansonПродолжительность: 00:35:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D97A9DE8AC54A9F4CDA30F63A87D4A3FFF4350E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932885   (507968) от 30.08.2015
-
-Electric Light Orchestra - Time (1981) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507968.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Prologue (1:15)
-A2. Twilight (3:38)
-A3. Yours Truly, 2095 (3:16)
-A4. Ticket to the Moon (4:07)(   Читать дальше...   )Производство: Jet RecordsЖанр: Progressive RockПродолжительность: 00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B4EDA75A73593D727ECC5A0C8403C68FA1D9CA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932261   (507957) от 30.08.2015
-
-Antonio Vivaldi - The Four Seasons (1982) [FLAC 2.0 24/192|image+.cue (Vinyl-Rip)]<classic,organ>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507957.jpg" />
-</div>
-
-
-###  Подробнее
-
-Антонио Вивальди "Времена года"
-Четыре концерта для скрипки с оркестром
-Переложение для органа Евгении Лисициной
-(   Читать дальше...   )Жанр: classic,organПродолжительность: 00:43:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10065BBF2F627A103D82DBF637E9841EC005C1E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 232130   (507316) от 02.09.2010
-
-Bill Mize - Coastin' (1998) (DTSCD OF) <new age, bakersfield sound>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507316.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Guitar New AgeПродолжительность: 00:41:16
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

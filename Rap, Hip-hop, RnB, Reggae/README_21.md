@@ -1,3 +1,90 @@
+###  Публикация: 1411575   (425475) от 26.09.2020
+
+Jahmal TGK, Регион снега - Бархатный сезон (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_425475.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Пока стучат наши сердца [03:14]
+02. Талантливые лентяи [03:56]
+03. Да, братан [03:23]
+04. С ночи до утра [03:43](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:32:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17A59C34B8EDABC878D4A17413A8AA2832CBC394
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411539   (425192) от 26.09.2020
+
+Гио ПиКа, DJ Puza TGK - Пикабидзе (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_425192.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Где бы ты не была [01:56]
+02. Серенады Равшаны [02:27]
+03. Летний дождь [02:28]
+04. Новогодний джаз [03:44](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:24:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D14D882BCB764784DDFAA43A6C207D00F5A3876
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1167029   (419090) от 19.09.2017
+
+Миша Маваши - Питбуль (2017) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_419090.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Невозможное возможно
+02. Четыре унции
+03. Бегал волк, да в лес глядел
+04. Бойня (feat. Валера Бунт)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:48:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:888B1A8BD83E68B1ACDE88CA28EE81EAD29B634E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1167618   (415037) от 21.09.2017
 
 Артем Лоик - Крысолов (2017) 2CD [MP3|320 Kbps] <Rap>
@@ -666,93 +753,6 @@ Billy Milligan - 6 Albums (2015-2022) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C0B09080816D704028C948FF7FEBB012C076935
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327137   (378490) от 23.09.2019
-
-ГРОТ - Акустика (2019) [MP3|320 Kbps] <Acoustic, Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378490.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Я тебя вспомнил
-2. Дорога к себе
-3. Баллада о северном племени
-4. Духовная археология(   Читать дальше...   )Жанр: Acoustic, RapПродолжительность: 00:25:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B28BB225DB3FEA04093CEE3B9D5BC0F7795A11A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253906   (377053) от 12.10.2018
-
-Anacondaz - Я тебя никогда (2018) [MP3|320 Kbps] <Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377053.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ни капли не больно
-02. Дубак
-03. Твоему новому парню
-04. На..уй тебя и твоих друзей(   Читать дальше...   )Жанр: Hip-HopПродолжительность: 00:40:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D487652445DD35383D9D59B5F43883CA01A047C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069504   (373452) от 04.11.2016
-
-Alicia Keys - Here (2016) Deluxe Edition [FLAC|Lossless|image + .cue] <R&B, Soul>
-
->>Rap, Hip-hop, RnB, Reggae
->>RnB, Reggae (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373452.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Beginning (Interlude)
-02. The Gospel
-03. Pawn It All
-04. Elaine Brown (Interlude)(   Читать дальше...   )Жанр: R&B, SoulПродолжительность: 00:52:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E061E4EF12A23DD6EDF3D6E7D83CEB84D35386BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

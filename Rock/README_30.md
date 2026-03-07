@@ -1,3 +1,32 @@
+###  Публикация: 1026279   (706071) от 14.06.2016
+
+Trapeze - Medusa (1970) Remastered, 1994, Threshold Records [MP3|320 кб/с] <Rock, Hard Rock, Psych Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706071.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Black Cloud
+2. Jury
+3. Your Love Is Alright
+4. Touch My Life(   Читать дальше...   )Жанр: Rock, Hard Rock, Psych RockПродолжительность: 00:40:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3932C231AD79DBF457C483C865BBC0C10B198395
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1533528   (705180) от 24.02.2022
 
 Beth Hart - A Tribute To Led Zeppelin (2022) [MP3|320 Kbps] <Rock>
@@ -716,35 +745,6 @@ The Winter Tree (Magus) - Mr. Sun (2017) [MP3|320 Kbps] <Neo Progressive Rock, A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:882E9DA9055D9256F97338F805FBE9565A114E69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221867   (691264) от 26.04.2018
-
-Foreigner - With the 21st Century Symphony Orchestra & Chorus (2018) Live [MP3|320 Kbps] <Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691264.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Overture (Live)
-2. Blue Morning, Blue Day (Live)
-3. Cold as Ice (Live)
-4. Waiting for a Girl Like You (Live)(   Читать дальше...   )Жанр: Rock, AORПродолжительность: 01:19:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DBE0E74D660094523CD9DCEFD6B5059316BA60D
 ```
 
 https://mybot314.ru/tekegram_catalog/

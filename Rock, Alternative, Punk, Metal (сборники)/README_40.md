@@ -1,3 +1,32 @@
+###  Публикация: 1427686   (181505) от 30.11.2020
+
+VA - Alternative Rock Music Event (2020) [MP3|320 Kbps] <Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_181505.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Machine Gun Kelly - My Ex's Best Friend
+002. Glass Animals - Tokyo Drifting
+003. Kandle - Just To Bring You Back
+004. Even As We Speak - Someone(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 07:45:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4A9D01E69CA3FDC83852D56882ABC8B3E250C8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1427691   (181411) от 30.11.2020
 
 VA - Instrumental Rock Classic (2020) [MP3|192-320 Kbps] <Rock>
@@ -716,35 +745,6 @@ VA - Alternative Rebel Rock (CD.03) (2021) [MP3|320 Kbps] <Rock, Alternative>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8EDB33641CF5F29B32A016582F76BD66DC5E7DFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672791   (167706) от 29.10.2023
-
-VA - Acoustic Rock (2023) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Green Day - Good Riddance (Time of Your Life) (2:33)
-02. Coldplay - Sparks (3:47)
-03. Disturbed - The Sound of Silence (4:08)
-04. Stone Temple Pilots - Plush (Acoustic Version) (4:49)(   Читать дальше...   )Жанр: RockПродолжительность: 04:08:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB4C8897F9B75E4E95E1CAF61A9A344E7462F4E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

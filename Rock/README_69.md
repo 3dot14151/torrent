@@ -1,3 +1,32 @@
+###  Публикация: 1422377   (310713) от 08.11.2020
+
+Juicy Lucy - Juicy Lucy (1995) Reissue, Remastered, 2010, Japanese Edition [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_310713.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. She Makes Me Go Down (04:29)
+ 02. Please Please (05:04)
+ 03. Mom's Apple Pie (03:52)
+ 04. Come For Me Lady (05:29)(   Читать дальше...   )Жанр: RockПродолжительность: 01:14:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA1D6874A4C1DC2E21C4B518856E0232F01624EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1183387   (310077) от 13.11.2017
 
 Janis Joplin - The Television Broadcast Sessions 1968 -1970 (2017) [MP3|320 Kbps] <Classic Rock, Blues Rock>
@@ -722,35 +751,6 @@ Freddie Mercury - Mr. Bad Guy (Alternative Extended Version) (2014) 2CD [MP3|320
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9FEA7C94B33802A189F2C10B13EC11827176DFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078433   (299581) от 01.12.2016
-
-Mgzavrebi - Iasamani (2016) [MP3|320 Kbps] <Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299581.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Iasamani
-02. Fanduri
-03. Zurgchanta
-04. Gzaze(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 00:51:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA3DA96293232F4A92C9D858F02066EA1CC1D7F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

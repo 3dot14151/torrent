@@ -1,3 +1,241 @@
+###  Публикация: 1543879   (625960) от 13.04.2022
+
+Sylvain Beuf - Time Feel (2021) Bonsai Music [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_625960.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dear Peter [5:32]
+02. Stella by Starlight [5:55]
+03. Billie's Bounce [4:10]
+04. Rekochee [6:12](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:15:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C58921E7BAF1EA459EDF7E678B375D82BFB87E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1543868   (625949) от 13.04.2022
+
+Stanley Turrentine - The Blue Note Stanley Turrentine Quintet & Sextet Studio Sessions (1961 - 1969) 5CD, 2002, Mosaic Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_625949.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. My Girl Is Just Enough Woman For Me [6:45]
+02. Then I'll Be Tired Of You [6:09]
+03. Fine Li'l Lass [6:15](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 04:45:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19C23589AABCAB7362C2D4F2B7717F7B2E23FDDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144847   (625938) от 23.06.2017
+
+L. Subramaniam - Fantasy Without Limits (1980) Remaster, 1985, Trend [FLAC|Lossless|image + .cue] <Indian Classical, Folk, World>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_625938.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fantasy Without Limits (7:40)
+02. Feeling Lonely (6:48)
+03. Mani Talks (5:03)
+04. 5 3/4 (7:52)(   Читать дальше...   )Жанр: Indian Classical, Folk, WorldПродолжительность: 00:32:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B13BAEEF8F91B5BC28D6888ACAB0664A0AE14E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144840   (625936) от 23.06.2017
+
+Jimmy Smith - Peter & The Wolf (1966) Remaster, 1999, Verve Records [FLAC|Lossless|image + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_625936.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Bird/The Duck/The Cat/The Grandfather/The Wolf/The Hunter/Peter (4:09)
+     1a. The Bird
+     1b. The Duck
+     1c. The Cat(   Читать дальше...   )Жанр: JazzПродолжительность: 00:32:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:647A91BCD3D8D9990C5448E528EDBEA9DE2BD36D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909305   (625850) от 18.06.2015
+
+Ирина Отиева - 5 Альбомов (1984-2001) [MP3|320 кб/с]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_625850.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ирина Отиева родилась 22 ноября в Тбилиси. С ранних лет была связана с музыкой: окончила музыкальную школу по классу фортепиано, выступала в различных вокально-инструментальных ансамблях, участвовала в конкурсах. Первая победа Ирины Отиевой - лауреат на джазовом фестивале, который проходил в Москве в 1976 году. В этот же год Ирина Отиева поступает на эстрадное отделение (   Читать дальше...   )Список альбомов:
+1984 - Музыка - любовь моя (с Оркестром Олега Лундстрема)
+1988 - Ностальгия по себе
+1994 - Что ты думаешь об этом?(   Читать дальше...   )Жанр: JazzПродолжительность: 04:40:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72B1D7718226EDE483D395733A90FFB7FB9F3B31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144866   (625646) от 23.06.2017
+
+Welshly Arms - Covers (2014) EP [MP3|320 Kbps] <Blues Rock, Blues, Covers>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_625646.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hold on I'm Coming
+02. Time Has Come Today
+03. You Got It
+04. Radar Love(   Читать дальше...   )Жанр: Blues Rock, Blues, CoversПродолжительность: 00:26:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA3E155A80DCC1B81FD761963FF23E26975BD844
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144850   (625516) от 23.06.2017
+
+Welshly Arms - Welcome (2013) EP [MP3|320 Kbps] <Blues Rock, Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_625516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Two Seconds Too Late
+02. The Touch
+03. Your Picture
+04. That Voodoo(   Читать дальше...   )Жанр: Blues Rock, BluesПродолжительность: 00:21:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A94F621347E86442391DE241D834E008825ED694
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 522080   (625233) от 12.07.2012
+
+Billy Taylor - It's A Matter Of Pride (1994) [FLAC|Lossless]<Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_625233.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. At La Caroussel (5:56)
+02. Picture This (4:51)
+03. It's A Matter Of Pride (5:13)
+04. His Name Was Martin (6:07)
+05. Titoro (5:04)
+06. Back Home (8:45)
+07. Lookin' Up (6:06)
+08. Paraphrase (7:30)
+09. I'm A Lover (4:48)
+10. If You Really Are Concerned (5:54)(   Читать дальше...   )Жанр: BopПродолжительность: 01:04:11
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 521653   (625228) от 12.07.2012
 
 Blinddog Smokin - Start Packin' (1999) [MP3|~256 кб/с ]<Blues>
@@ -566,238 +804,6 @@ Benny Waters - Live At The Pawnshop (1976) 1999, Opus 3 Records [FLAC|Lossless|i
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7AE70AF285C6369B8DE1D2B463397065D2B72BE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910003   (624240) от 19.06.2015
-
-Brilleaux - Pictures Of The Queen (2015) [MP3|320 кб/с]<Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624240.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ellas McDaniels (3:10)
-02. Hand Me Downs (3:52)
-03. Strapped For Cash (5:19)
-04. Jack The Lad (4:04)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:45:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50DDDAC2B8EFEA08D8259A4DA662396AD926CF0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294954   (624123) от 10.04.2019
-
-Benny Waters - From Paradise (Small's) To Shangri-La (1989) Muse Records [FLAC|Lossless|tracks + .cue] <Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Topsy [4:18]
-02. Everything Happens to Me [8:53]
-03. Hit That Jive Jack [3:36]
-04. Strollin' Along the Rhine [5:59](   Читать дальше...   )Жанр: SwingПродолжительность: 00:50:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1D15E65EA55BADEFF793ECD27BF6E1736DE13B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145075   (624034) от 24.06.2017
-
-Jenny Scheinman - Mischief & Mayhem (2012) Tzadik [FLAC|Lossless|tracks + .cue] <Modern Creative, Violin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624034.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Ride with Polly Jean [06:22]
-02. Sand Dipper [04:24]
-03. Blues for the Double Vee [03:57]
-04. Devil's Ink [07:42](   Читать дальше...   )Жанр: Modern Creative, Violin JazzПродолжительность: 00:43:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:551A620943B37336F443B5D85E9C76BD33A821DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294952   (623980) от 10.04.2019
-
-Anthony Wilson - Anthony Wilson (1997) Mama Foundation [FLAC|Lossless|image + .cue] <Hard Bop, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623980.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fargas Shuffle [6:51]
-02. The Parisian Knights [5:59]
-03. Karaoke [10:09]
-04. Leila [7:03](   Читать дальше...   )Жанр: Hard Bop, Guitar JazzПродолжительность: 01:14:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93D9C25614FAF74D12D55D1372538B3139AFD825
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294962   (623975) от 10.04.2019
-
-Dexter Gordon - Four Classic Albums: Second Set (1961, 1962) 2CD, 2019, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623975.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. I Was Doing All Right [9:26]
-02. You've Changed [7:35]
-03. For Regulars Only [5:52](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:35:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9E5240988FA5B89D03D6FA09B5A8F92F5C2941A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909594   (623936) от 19.06.2015
-
-The Pasadena Roof Orchestra - A Talking Picture, Night Out (1978, 1979 ) 2CD in 1/2015, Herzog Records/ [MP3|320 кб/с]<Jazz, Big Band, Swing, Vocals>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. If I Had A Talking Picture Of You (03:06)
-02. 42nd Street (02:35)
-03. Pennies From Heaven (03:11)
-04. Panama Rag (03:35)(   Читать дальше...   )Жанр: Jazz, Big Band, Swing, VocalsПродолжительность: 01:12:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DCC3BB471E920CF86A31B85D8508930478B9B88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544079   (623924) от 14.04.2022
-
-Christian McBride & Inside Straight - Live At The Village Vanguard (2014) 2021, Mack Avenue Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623924.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet Bread [12:02]
-02. Fair Hope Theme [13:42]
-03. Ms. Angelou [10:03]
-04. The Shade of the Cedar Tree [8:19](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:19:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF74574346318CD678A6DCCB5A8FE06B2D9EF859
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145092   (623795) от 24.06.2017
-
-Tape Five - Bossa For A Coup (2014) Reloaded, Remastered [FLAC|Lossless|image + .cue] <Electro Swing, Nu Jazz, Bossa Nova>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A New Mission
-02. Soulsalicious
-03. Senorita Bonita
-04. Cancun (A Tribute To Henry Mancini)(   Читать дальше...   )Жанр: Electro Swing, Nu Jazz, Bossa NovaПродолжительность: 01:09:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85F02443C9D1A3DC9E1A9855EAC0E08CCCD0C3F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

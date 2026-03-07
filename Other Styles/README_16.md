@@ -1,3 +1,32 @@
+###  Публикация: 280254   (953564) от 08.01.2011
+
+Enya - The Very Best of Enya (2009) [FLAC|Lossless|image + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_953564.jpg" />
+</div>
+
+
+###  Подробнее
+
+Родилась Эния Бреннан, больше известная нам как Enya, 17 мая 1961 года в маленькой деревне Dore (Dobhair по-ирландски) в области Gweedore (Gaoth Dobhair) графства Donegal (произносится как Донегол - ударение на последний слог) на северо-западе Республики Ирландия. В этом местечке сохранился и старинный гэльский язык, и древние кельтские напевы. В семье она четвертая (   Читать дальше...   )01. Trains and Winter Rains (3:44)
+02. My! My! Time Flies! (3:01)
+03. Stars and Midnight Blue (3:08)
+04. Amarantine (3:12)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:19:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F64776E07B4B633142CD96FBF7552DFA69C01541
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1088521   (953506) от 02.01.2017
 
 Abel Korzeniowski - Nocturnal Animals / Под покровом ночи (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
@@ -713,35 +742,6 @@ Volker Bertelmann - Downhill / Под откос (Original Motion Picture Soundt
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF3D033A850C529FAA465694DD7BD3A03E0462D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362469   (949562) от 23.02.2020
-
-Nathan Whitehead - Days Gone (Original Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949562.jpg" />
-</div>
-
-
-###  Подробнее
-
-|03:41| 01. Days Gone
-|03:36| 02. The Freakshow
-|03:36| 03. We've All Done Things
-|03:07| 04. Rest in Peace(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:19:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F04830CAE3EDC15EA4A6D0F2107A86AAE34E456E
 ```
 
 https://mybot314.ru/tekegram_catalog/

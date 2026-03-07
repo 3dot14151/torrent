@@ -1,3 +1,180 @@
+###  Публикация: 1007249   (612896) от 20.04.2022
+
+Louis Armstrong - Louis Armstrong In Prague (live at the Lucerna Hall 1965) 1983 [FLAC 2.0|96/192|image+cue|Vinyl-Rip] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612896.jpg" />
+</div>
+
+
+###  Подробнее
+
+01	When It's Sleepy Time Down South
+02	The Bucket's Got A Hole In It	2:30
+03	Tiger Rag	1:10
+04	Indiana	4:05(   Читать дальше...   )Жанр: JazzПродолжительность: 00:47:46
+Издатель (лейбл): Panton (Czechoslovakia)
+Номер по каталогу: 8015 0075
+Кодек: FLAC (image + .cue)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B25F4519AE89CB7FB61F29A1E98178D96B090DAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994866   (612888) от 20.04.2022
+
+Ricky Martin & Christina Aguilera - Nobody Wants To Be Lonely (2001) [FLAC 2.0|44,1/16|image+cue|MC-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612888.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nobody Wants To Be Lonely - Ricky Martin & Christina Aguilera
+02. El Amor De Mi Vida - Ricky Martin
+03. El Beso Del Final - Christina Aguilera
+04. Fuego Contra Fuego - Ricky Martin(   Читать дальше...   )Жанр: PopПродолжительность: 01:28:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7CC2854478CFE1F4CA45DFFB2832C3DBA08BF60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1017131   (612792) от 20.04.2022
+
+Herrey's (Херриз) - Diggi Loo, Diggi Ley (Дигги Лу, Дигги Лей) (1985) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Europop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612792.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1	Дигги Лу, Дигги Лей • Diggi Loo, Diggi Ley
+A2	Освободись • Kom Loss
+A3	Мне Ничто Не Помешает • Ingenting Som Hindrar Mej
+A4	Если Это Любовь • If It's Love(   Читать дальше...   )Жанр: EuropopПродолжительность: 00:38:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:144B902D35787771A20BED814A6FD8C06452B448
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1017177   (612789) от 20.04.2022
+
+Раймондс Паулс - Мой Путь (1980) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Instrumental, Ragtime, Chanson>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612789.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1	Увеселитель · The Entertainer
+A2	Как Велика Твоя Любовь · How Deep Is Your Love
+A3	Здравствуй! · Salut!
+A4	Мой Путь · My Way(   Читать дальше...   )Жанр: Instrumental, Ragtime, Disco, Easy ListeningПродолжительность: 00:34:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:283E20E2AD4C0C598BE7D96DAC5AF35F018B2241
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 947912   (611135) от 21.04.2022
+
+VA - Fantastic Rio Carnaval (1976) [FLAC 2.0 24/96|Limage+.cue (Vinyl-Rip)]<Latin, Samba>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_611135.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1	Gres Acadêmicos Do Salgueiro - Nossa Madrinha, Mangueira Querida-Tengo Tengo
+A2	Gres Mocidade Independente De Padre Miguel - Rio Zê Pereira
+A3	Gres Imperatriz Leopoldinense - Martin Cererê
+A4	Gres Imperatriz Leopoldinense - Abc Do Carnaval À Maneira Da Literatura De CordelЖанр: Latin, SambaПродолжительность: 01:24:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59AE3967469FF42A285440EB9241E02902912507
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993458   (611043) от 21.04.2022
+
+Hana & Dana, ORM - Talisman (1984) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Synth-pop, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_611043.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1	Ciao Pepino	3:36
+A2	My Summer Holidays	3:22
+A3	Sad Old Clown	3:54
+A4	All Right	4:01(   Читать дальше...   )Жанр: Synth-pop, DiscoПродолжительность: 00:38:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E6B9B50A0982929C243746FBAD88DA3B5FA5C83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 991825   (611041) от 21.04.2022
 
 Валерий Леонтьев - По вашим письмам: Горькие яблоки (1985) [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Pop>
@@ -568,182 +745,6 @@ Exile on Main St. (рус. Изгнанник на Главной улице) �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:888BE73BAA3576213F9F48C752C8F44B3F2FA48C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038473   (606196) от 28.07.2016
-
-Bryan Adams - Reckless (1984) 2014, A&M [DTS-HD MA, LPCM, Dolby TrueHD 2.0, 5.1|96/24|Blu-ray] <Rock, Pop Rock, Soft Rock>
-
->>HD Audio и Многоканальная Музыка
->>Blu-ray Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606196.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stereo Mix 2014 - Remaster
-  5.1 Mix - Original album
-01. One Night Love Affair
-02. She's Only Happy When She's Dancin'(   Читать дальше...   )Жанр: Rock, Pop Rock, Soft Rock, Hard RockПродолжительность: 01:04:11 + 00:37:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C17EC9358DFC0B9F6F8BB89AE6D7DEE208AD76B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546483   (606113) от 24.04.2022
-
-VA - Старинные вальсы (1983) [FLAC 1.0|96/24|tracks|Vinyl-Rip] <Folk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606113.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Хор Московских Студентов - Амурские Волны
-(слова народные)
-Худ. рук. В. Соколов
-02. Хор Московского Городского Управление Трудовых Резервов - Березка(   Читать дальше...   )Жанр: FolkПродолжительность: 00:13:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C240B8BDB80E89D342FB1C3A1C4F73B7104DCF9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038340   (606068) от 28.07.2016
-
-Bon Jovi - Slippery When Wet (1986) 2015,  Mercury [DTS-HD MA, Dolby TrueHD 5.1|96/24|BD-Audio] <Hard Rock, Glam Metal>
-
->>HD Audio и Многоканальная Музыка
->>Blu-ray Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606068.jpg" />
-</div>
-
-
-###  Подробнее
-
-Slippery When Wet — третий студийный альбом группы Bon Jovi, выпущенный в августе 1986 года на Vertigo Records. Альбом включает в себя песни, которые сейчас считаются самыми известными песнями Bon Jovi, например «You Give Love a Bad Name», «Livin' on a Prayer» и «Wanted Dead Or Alive». Альбом провёл восемь недель на 1 месте The Billboard 200.
-
-Slippery When Wet является (   Читать дальше...   )01. Let It Rock
-02. You Give Love A Bad Name
-03. Livin' On A Prayer
-04. Social Disease(   Читать дальше...   )Жанр: Hard Rock, Glam MetalПродолжительность: 00:46:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DAB18CE42DE92A5A0606CD96ADA91A48D5EA4E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038353   (606058) от 28.07.2016
-
-George Michael - Symphonica (2014) [DTS-HD MA, LPCM, Dolby TrueHD 2.0|96/24|BD-Audio] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Blu-ray Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606058.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Through
-02. My Baby Just Cares For Me
-03. A Different Corner
-04. Praying For Time(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A66957B1ECBB571D882CEDB7FC5B879B99DD9B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059832   (605809) от 24.04.2022
-
-Трио Леонида Чижика - Джордж Гершвин: Популярные Мелодии (1978) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Post Bop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Лебедь
-02. Не Для Меня
-03. Присмотри За Мной, Мой Пастушок
-04. Будьте Добры(   Читать дальше...   )Жанр: Jazz, Post BopПродолжительность: 00:40:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F8FD220B73130F0574CC2BD6F4AE5083DEE0A4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059823   (605808) от 24.04.2022
-
-Sy Oliver/Сай Оливер - Только Для Танцоров (1990) Переписи с пластинок 1940-х годов [FLAC 1.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Big Band, Swing>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605808.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Только Для Танцоров
-02. Четыре Или Пять Раз
-03. Ничего, Кроме Любви
-04. Шарманщик(   Читать дальше...   )Жанр: Jazz, Big Band, SwingПродолжительность: 00:44:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E54A5A8CB9938DBFD862DCBF68C914F74853E951
 ```
 
 https://mybot314.ru/tekegram_catalog/

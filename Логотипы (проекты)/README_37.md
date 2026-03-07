@@ -1,3 +1,55 @@
+###  Публикация: 1252383   (408908) от 05.10.2018
+
+Проекты - VideoHive - Power Logo - 22026268 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408908.jpg" />
+</div>
+
+
+###  Подробнее
+
+Power Logo - продемонстрируйте свой логотип или бренд в неоновом свечении с разрядом молнии.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3991B87E660E12F8032704CD5578A977AB55F80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1325880   (408311) от 17.09.2019
+
+VideoHive - 3D Particles Logo - 21839649 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408311.jpg" />
+</div>
+
+
+###  Подробнее
+
+Визуализация Вашего логотипа ("particular effects")... Дерзайте!Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F71B22734B32762642FDA0A04BBBFCE9FD748256
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 715460   (396321) от 26.10.2013
 
 VideoHive - Crysis V.2 - 946341 [AEP]
@@ -632,60 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FEC14EE7AB6CACC1FAFCD7DC6D11DEDD8B24F900
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949130   (376733) от 23.10.2015
-
-Проекты - VideoHive - 3D Gravity Logo [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376733.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для эффектного представления логотипа.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5748202136B5C67990F69B5DE763C48A131EFB68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949190   (376724) от 23.10.2015
-
-Проекты - VideoHive - Cinematic Space Particles Explosion Logo Intro [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376724.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для эффектного представления логотипа.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDC0672CFB7600E7BE55FAA931742FB2CB06376D
 ```
 
 https://mybot314.ru/tekegram_catalog/

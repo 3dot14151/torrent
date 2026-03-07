@@ -1,3 +1,177 @@
+###  Публикация: 1089953   (948549) от 05.01.2017
+
+Chris Rea - 9 Albums (1979-1989) [WavPack 2.0|192/32|image + .cue|Vinyl-Rip] <Pop-Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948549.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 The Road To Hell (Part I)
+A2 The Road To Hell (Part II)
+A3 You Must Be Evil
+A4 Texas(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 07:17:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FAB54180658E49682BA09E4CE562340867C4279
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 174227   (947635) от 24.02.2020
+
+Yello - The New Mix In One Go (Upmix) (1980-1985) [DTS]<Electro, Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_947635.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daily Disco (4:06)
+02. Swing (3:29)
+03. The Evening's Young (3:08)
+04. Pinball Cha Cha (3:35)(   Читать дальше...   )Жанр: Electro, Synth-popПродолжительность: 01:03:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCBAD84BED350E8EF134E553B31CE8B0A25A0EC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090476   (947206) от 06.01.2017
+
+Annie Lennox - Diva (1992) Unofficial Release [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_947206.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Why (4:54)
+A2. Walking on Broken Glass (4:13)
+A3. Precious (5:10)
+A4. Stay by Me (6:26)(   Читать дальше...   )Производство: Not On Label - ДRT 1008Жанр: PopПродолжительность: 00:41:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F90EFB35DE2E7ADE63B7B4637B29FD79445BDAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 859025   (947050) от 12.01.2015
+
+Phil Collins - ...But Seriously (1989)  Incomplete version /1992, DRT/ [FLAC 2.0 24/96|image (Vinyl-Rip)]<Pop-Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_947050.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. That's Just The Way It Is (5:21)
+A2. Do You Remember? (4:36)
+A3. Something Happened On The Way To Heaven (4:53)
+A4. I Wish It Would Rain Down (5:26)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:40:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A83C0E242383563370901987D24639BC1F65DDE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090723   (945504) от 07.01.2017
+
+VA - RETROспектива, часть V: Эстрадные оркестры V (1929-1966) [FLAC 1.0|48/24|tracks|Vinyl-Rip] <Retro, Instrumental>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_945504.jpg" />
+</div>
+
+
+###  Подробнее
+
+01  Гос. эстрад. орк. п.у. Л. Утесова - Быстрый вальс (вальс)
+02. Гос. эстрад. орк. п.у. Л. Утесова - Бальная полька (танец)
+03. Дух. орк. МО СССР п.у. Г. Ф. Запорожца - Над волнами (вальс)
+04. Эстрад. орк. ВР п.у. Б. П. Карамышева - Оборванные струны (старинный вальс)(   Читать дальше...   )Жанр: Retro, InstrumentalПродолжительность: 00:57:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F64EC1438CFF672E72B126F86D5C54F55209E3FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983407   (943614) от 06.02.2016
+
+Black Sabbath - Группа Блэк Саббат (1989) [FLAC 2.0|192/24|tracks|Vinyl-Rip] <Hard Rock, Psychedelic Rock, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943614.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. Black Sabbath · Черная суббота  6:16
+2. N.I.B. · Эн.Ай.Би.  6:04
+3. Behind The Wall Of Sleep · За стеной сна  3:40(   Читать дальше...   )Жанр: Hard Rock, Psychedelic Rock, Heavy MetalПродолжительность: 00:40:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4F7CA1DFB055F827D8A4D5B3632AE2936C4CE02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 983450   (943612) от 06.02.2016
 
 Dire Straits - Dire Straits (1978) Phonogram [FLAC 2.0|192/24|image+cue|Vinyl-Rip] <Rock>
@@ -567,180 +741,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA048C84A7B3E6E28B541B41379CA89C081A2C4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093929   (930459) от 17.01.2017
-
-Камерный оркестр Латвийской государственной филармонии, скрипка В. Зариньш, дирижер Т. Лифшиц - Антонио Вивальди - Времена года (1977) [WavPack|192/32|tracks|Vinyl-Rip] <Classical, Baroque>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930459.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-Концерт №1 Ми Мажор «Весна»
-01. Allegro  3:20
-02. Largo E Pianissimo Sempre  2:36(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 00:39:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:589C997DF13C3AB2E0145E339B178A345581DFFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093948   (930129) от 17.01.2017
-
-VA - RETROспектива, часть VIII: Эстрадные оркестры VIII (1930-1966) [FLAC 1.0|48/24|tracks|Vinyl-Rip] <Retro, Instrumental>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Оркестр п.у. П. Урмузеску - Кумушки
-02. Оркестр п.у. Депрайнс - Дождь идет (танго)
-03. Инстр. квартет п.у. Б. Тихонова - Белорусская полька (танец)
-04. Э. Пибоди - Хороший день (фокстрот)(   Читать дальше...   )Жанр: Retro, InstrumentalПродолжительность: 00:55:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6578E7B6701879EA24E97E97C93A31DD24FA782
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986813   (928780) от 15.02.2016
-
-Оркестр Поля Мориа - Бабье лето (1981) [FLAC 2.0|192/24|tracks|Vinyl-Rip] <Romantic, Ballad>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_928780.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-1. Бразильский карнавал · Brasilia Carnaval  2:44
-2. Бабье лето · L'ete Indien «Africa»  3:30
-3. Мелиза · Melisa  2:56(   Читать дальше...   )Жанр: Romantic, BalladПродолжительность: 00:35:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25EBD896D2DE870517140CC1B3FE3CB6487D3C98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986948   (928765) от 15.02.2016
-
-Владимир Кузьмин - Моя любовь (1985) 1987, Мелодия ТЗГ [FLAC 2.0|96/24|image + .cue|Vinyl-Rip]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_928765.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Только ты и я (4:43)
-02. Влюблённый в музыку (5:15)
-03. Ты, ты, ты (3:57)
-04. Моя любовь (3:25)(   Читать дальше...   )Производство: Мелодия ТЗГ - C60 25375 009Жанр: RockПродолжительность: 00:35:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:303EBE4045F4ACB6E8E3BC5B50AF9F369B49513A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987552   (925762) от 17.02.2016
-
-Def Leppard - Hysteria (1987) [FLAC 2.0|96/24|image + .cue|Vinyl-Rip]<Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Woman (5:45)
-02. Rocket (6:39)
-03. Animal (4:05)
-04. Love Bites (5:48)(   Читать дальше...   )Производство: Mercury – 830 675-1 Q-1Жанр: Hard RockПродолжительность: 01:02:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0F8994506E24FC87802F2081FCB124399FDA3E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366254   (925285) от 10.03.2020
-
-Mark Knopfler – Shangri-La (2004) [DTS 5.1 CD-DA|44.1/16|image+.cue|SACD] <Folk Rock, Soft Rock>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925285.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.    5:15 a.m.    05:55
-02.    Boom, Like That    05:49
-03.    Sucker Row    04:56
-04.    The Trawlerman’s Song    05:02(   Читать дальше...   )Жанр: roots rock, country folk, bluesПродолжительность: 01:06:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A82E678A012D4DA5609CDC2DE8879C4F9067418A
 ```
 
 https://mybot314.ru/tekegram_catalog/

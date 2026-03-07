@@ -1,3 +1,206 @@
+###  Публикация: 1010558   (802250) от 25.04.2016
+
+VA - Русский хит на все 100 №3 (2016) [MP3|256-320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802250.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Бьянка - Крыша
+002. Серебро - Отпусти меня ( Tony Kart & D&S
+003. Руслан Исаков - Как Жил я Без Тебя
+004. Пропаганда & TRES - Я ухожу от тебя (DJ Evgeny Breeze remix)(   Читать дальше...   )Жанр: PopПродолжительность: 06:12:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4C3EE475E66775A48641C5B7389F59D2CAB0C6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199172   (801699) от 15.01.2018
+
+VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0001  (2018)
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801699.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Etolie Vipe - Cheats For Glory ( 2014 )
+02. Chris Luis - The Heart Of The City ( 1984 )
+03. T.J. Thornberry - Release Yourself ( Original Mix 2016 )
+04. AmbrA - Dream the Summer Back ( Club Mix Version 2005 )(   Читать дальше...   )Жанр: Italo disco, HI-NRG, Eurodance, Disco House, ElectropopПродолжительность: 01:08:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66B0E5B77F908D1EC633B84FF644A61B3CE300A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120603   (801614) от 31.03.2017
+
+VA - Discoteka Dance Club. Best Hits of Year (2017) [MP3|320 Kbps] <Dance , Club House , Electro House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801614.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Turbotronic - Iriwa (Radio Edit) 3:03
+002. Jason Derulo - In My Head (Kr8 x CandyCrash Remix) 3:19
+003. Imad Kotbi Ft. Ryan McTogy - Wild (Original Mix) 3:42
+004. Steven Nicola & Karim Razak feat. Honorebel - Bootyshake 3:13(   Читать дальше...   )Жанр: Dance , Club House , Electro HouseПродолжительность: 07:55:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F863B9CE920A71101298D799F736881AF8CA8683
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120606   (801611) от 31.03.2017
+
+VA - Старые песни по-новому. Русский выпуск (2017) [MP3|320 Kbps] <Pop , Disco , Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801611.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Demo - Солнышко (DJ Jurbas Mix) 3:17
+002. Татьяна Штырёва - Видео (Prod. by Ayur Tsyrenov - Мираж Cover) 3:34
+003. Вирус - Ты меня не ищи (Pavel Velchev & Dmitriy RS Version) 3:47
+004. Евгений Белоусов - Вечерок ( Anton Pavlovsky Cover) 4:18(   Читать дальше...   )Жанр: Pop , Disco , DanceПродолжительность: 10:31:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C80D02801B333D9D93F6A363878DC84C1BA59F57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1167419   (801549) от 15.01.2018
+
+VA - Back To The Past To Listen To The Disco From Ovvod7 vol.1-4 (2017)
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801549.jpg" />
+</div>
+
+
+###  Подробнее
+
+Back To The Past To Listen To The Disco From Ovvod7 - 0001
+01. Arabesque - Dance Dance Dance ( 1983 )
+02. Stars On 45 - Beatles Medley ( 1982 )
+03. Boney M - Sunny ( 1976 )(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: ~05:09:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BD51F912A9FE1E344E8F371676EED8601263771
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506281   (801045) от 30.10.2021
+
+VA - Music News vol.145 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801045.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Geo Da Silva feat. Alpha Squad - Love & Desire (02:54)
+ 002. A7S - Nirvana (Lum!x & Gabry Ponte Remix) (02:24)
+ 003. Abi Shine - Говорил, Что Некрасивая (03:19)
+ 004. AIDA - Je T'aime, J'adore (03:14)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 07:10:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:955ADB007F30D6E0F3753ABEB1D33930B8ABD754
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199489   (800799) от 16.01.2018
+
+VA - Зайцев.Нет: Январь (Музыкальные Новинки) (2018) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Kenn Colt F & Nari & Milan  -  Come Back To Me  2:43
+02.  Didrick & Adam Young  -  Ready To Fly  3:10
+03.  SEREBRO  -  Новый год!  4:02
+04.  Enrique Iglesias & Bad Bunny  -  El Bano  3:48(   Читать дальше...   )Жанр: PopПродолжительность: 05:44:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C6AA6D7653A7179BAB610138ECFF10F06826D88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1385026   (800345) от 23.05.2020
 
 VA - The Official UK Top 40 Singles Chart 22.05.2020 [MP3|320 Kbps] <Pop, Dance, Other>
@@ -542,209 +745,6 @@ VA - Хитовая Автодискотека 50х50 (2017) [MP3|320 Kbps] <Hou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E503C267A8BF949ED73A310D792273D53EFB9642
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506574   (799129) от 02.11.2021
-
-VA - Halloween Party (2021) [MP3|320 Kbps] <Pop, Rock, R&B>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bobby 'Boris' Pickett & The Crypt-Kickers - Monster Mash (3:11)
-02. Rockwell - Somebody's Watching Me (Single Version) (3:55)
-03. Lady Gaga - 911 (2:51)
-04. Stevie Wonder - Superstition (4:27)(   Читать дальше...   )Жанр: Pop, Rock, R&BПродолжительность: 01:20:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02482DCBECE6E61C73AAB0FD6B7ED26D5C35F124
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506578   (799128) от 02.11.2021
-
-VA - Halloween Songs (2021) [MP3|320 Kbps] <Pop, Rock, Electronic>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799128.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Duran Duran - Hungry Like the Wolf (2009 Remaster) (3:38)
-02. Talking Heads - Psycho Killer (2005 Remaster) (4:19)
-03. Warren Zevon - Werewolves of London (2007 Remaster) (3:27)
-04. Ava Max - Sweet but Psycho (3:05)(   Читать дальше...   )Жанр: Pop, Rock, ElectronicПродолжительность: 01:51:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA684F327E5248E061D9EC3FF0B4A9F21AD81418
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506764   (798949) от 02.11.2021
-
-VA - Жирные Хиты Осени Remix NNM (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798949.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andrew Spencer Andre Picar feat. Ice MC - It's A Rainy Day 2021 (Bigroom Mix) (3:43)
-02. RASA x Chris Lake Green Velvet - DIOR (NEIJI Edit) (2:50)
-03. DJ Yankovski - Foule sentimentale (Ayur Tsyrenov remix) (2:26)
-04. Riton x Nightcrawlers feat. Mufasa Hypeman - Friday (Arteez DMC Cox Radio Edit) (2:36)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:02:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F5E168C7866099DF09183AC042C696FEFFD5171
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507248   (798391) от 04.11.2021
-
-VA - Свежаки Осени Remix NNM (2021) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Estradarada - Вите Надо Выйти (Mamoru Max Flame Radio Remix) (3:03)
-02. Unity - Im dollar ( Yura Sychev Remix) (4:11)
-03. Maya Tk Gangsterlova - Алый закат (4:19)
-04. Клава Кока - Ла Ла Ла (John Bis.T Myron Remix) Radio Edit (3:15)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:33:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF9D410FA77679B1CEAA5FCD9EEE8CFBB0BCAC48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507035   (798390) от 04.11.2021
-
-VA - Shazam & Apple Music Chart (Россия Топ 100 Октябрь) (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798390.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. JONY, HammAli - Наверно, ты меня не помнишь (3:10)
-002. Akmal' - Из-за тебя (2:52)
-003. MOT - Август - это ты (2:45)
-004. DOROFEEVA, Scriptonite - Невеста (3:30)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:00:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13D8948C012546E6FAFA08F1431112BD43DE8E7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385374   (797865) от 24.05.2020
-
-VA - Music News vol.7 (2020) [MP3|320 Kbps] <Rock, Pop, Soul>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797865.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 3D - Can We Have (02:24)
- 02. 7раса -  Любовь сбивающая с ног (03:41)
- 03. 7раса -  Масло (03:37)
- 04. 7раса -  Обезьяньи куплеты (03:45)(   Читать дальше...   )Жанр: Rock, Pop, SoulПродолжительность: 03:36:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13208BFE3C7DB33FBADD03A5EA187D50EA7EA092
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385286   (797769) от 24.05.2020
-
-VA - Slow Rock Songs 70s 80s 90s (2020) [MP3|320 Kbps] <Pop, Rock, Ballads>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797769.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad English - When I See You Smile
-02. Extreme - More Than Words
-03. Mr. Big - To Be With You
-04. 4 Non Blondes - What's Up?(   Читать дальше...   )Жанр: Pop, Rock, BalladsПродолжительность: 03:53:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C424836DF44B3F0E19C10EA15DCA7B3B4BA86BDB
 ```
 
 https://mybot314.ru/tekegram_catalog/

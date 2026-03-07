@@ -1,3 +1,31 @@
+###  Публикация: 1702300   (115560) от 26.02.2024
+
+VA - Peaceful Classical (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_115560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leonard Slatkin - Satie - 3 Gymnopédies - No. 1 in D Major (3:19)
+02. John O'Conor - Debussy - Préludes, Book 1, L. 117 - No. 8, La fille aux cheveux de lin (2:35)
+03. John O'Conor - Debussy - Suite bergamasque, L. 75 - III. Clair de luneЖанр: ClassicalПродолжительность: 03:55:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22A4DC888BA0BEF1C3D3BE06F59C6BE13987267B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1712786   (112131) от 03.04.2024
 
 VA - The Most Famous Classical Music (2023) [FLAC|Lossless|WEB-DL|tracks] <Classical>
@@ -721,35 +749,6 @@ VA - Best Classical Music: 50 Masterpieces (2024) [FLAC|Lossless|WEB-DL|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FEEF7036112792DE82F8C0453008E94729E12FD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732524   (52002) от 25.06.2024
-
-VA - The Great Romantic Composers (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52002.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Katya Kramer-Lapin - Gymnopédie No. 1 (2:36)
-02. Katya Kramer-Lapin - Suite Bergamasque, L. 75 Clair de Lune (5:13)
-03. Katya Kramer-Lapin - Piano Sonata No. 14 in C-Sharp Minor, Op. 27 No. 2 Moonlight Sonata I. Adagio sostenuto (5:43)
-04. Katya Kramer-Lapin - Lieder aus Franz Schubert's Schwanengesang, S. 560 No. 7, Ständchen (6:04)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 04:27:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4A27317C18E043FDD6A0E0E4B899E5AC0236265
 ```
 
 https://mybot314.ru/tekegram_catalog/

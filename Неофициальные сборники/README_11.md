@@ -1,3 +1,293 @@
+###  Публикация: 1611317   (1041329) от 11.02.2023
+
+VA - Музыка для машины Vol.7 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041329.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 5Утра - Рядом (Luna Abn & Mght Remix) (02:16)
+02. Soldout  - Холодный Дым (02:52)
+03. Ангалия - За Любовь Мою (03:51)
+04. Moonsound Feat. & Na-No & Bubblezz - High (02:48)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:36:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:095F0176803C66D5B101237E0F6F83DE5729D16F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438260   (1041059) от 08.01.2021
+
+VA - Radio Discomania (2021) [MP3|320 Kbps] <Pop, Italo-Disco, Euro-Disco, Synthdance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041059.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MarcelDeVan - Day of Dreams, Pt. 2 (3:45)
+02. Italove - The Mirror (Radio Edit) (4:09)
+03. Fresh Fox - Don't Stop The Night (4:08)
+04. Silent Circle - Night Train (Radio Edit Remastered) (3:52)(   Читать дальше...   )Жанр: Pop, Italo-Disco, Euro-Disco, SynthdanceПродолжительность: 03:44:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB7EAD783F78139BED3FFC764C4A7283F4AACFD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438492   (1040885) от 09.01.2021
+
+VA - Music News vol.62 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040885.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Raikhana Mukhlis - Дышу (03:07)
+ 002. Above & Beyond feat. Richard Bedford - Thing Called Love (Oliver Heldens Remix) (05:38)
+ 003. Alle Farben & Fools Garden - Lemon Tree (03:16)
+ 004. Alok & Daniel Blume - Rapture (02:46)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:24:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:540B91E41612DA56F023F5A09E8E64C6983A60D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611945   (1040787) от 13.02.2023
+
+VA - I'm Listening Now 3 (2023) [MP3|320 Kbps] <Club, House, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040787.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. ELI & DANI, Adam Sellouk feat. Luke Coulson - Restless (6:42)
+002. MIDIN - Ультрачувства (3:01)
+003. Miki Mouse,Krocodile - Today Snow (Original Mix) (3:46)
+004. Olsein feat. Sofia Lecubarri - Lullaby Stranger (AFX & Hypercode Remix) (4:27)(   Читать дальше...   )Жанр: Club, House, OtherПродолжительность: 09:07:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BCA715D955B860D61086C303A38273FCF13F5CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438874   (1040640) от 10.01.2021
+
+VA - Top Female Artists of 2020 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040640.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adele - Someone Like You (4:45)
+02. Alessia Cara - Scars To Your Beautiful (3:50)
+03. Alicia Keys - Underdog (3:28)
+04. Anitta, Myke Towers, Cardi B - Me Gusta (3:00)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:43:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:477A98FC1E45A03B995EB1CFAAFF6D1F6F6B676A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612058   (1040526) от 14.02.2023
+
+VA - Music News vol.245 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040526.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Azi - Just Wanna (02:48)
+ 002. Albina - Scusa (03:00)
+ 003. Alyona Poli - Убийца (02:10)
+ 004. Aquaneon - Девчонка Со Двора (02:00)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:20:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC61344E058B34DCD3F964E039D1984B3BD85112
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438955   (1040475) от 10.01.2021
+
+VA - Дискотека Пионер FM По-Русски vol.14 (2021) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040475.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Евгений Кемеровский - Белая зима
+002. Gallina - Белым Снегом
+003. София Ротару - Ты позови меня
+004. Премьер-Министр - Дорогая(   Читать дальше...   )Жанр: Pop, Dance,Продолжительность: 06:28:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB37B7A53AAEC7B2AC0BEBC006A9C3B69D32BE76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438640   (1040468) от 10.01.2021
+
+VA - Русское Радио. Лучшее '2020 (2021) MP3 от DON Music [MP3|320 Kbps] <Поп>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040468.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ульяна Ми - Города
+002. Татьяна Буланова и Михаил Боярский - Единственный дом
+003. Филипп Киркоров - Главное верить
+004. Юлия Савичева - Больше не терять(   Читать дальше...   )Жанр: ПопПродолжительность: 13:49:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BDC15BDB8D81DBDB3A62ACDB4D5276160F98C20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612196   (1040445) от 14.02.2023
+
+VA - Power & Hot (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040445.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Supermode - Tell Me Why - MEDUZA Remix (8:28)
+02. Majestic Feat Boney M. - Rasputin (Majestic Club Vip Remix) (5:45)
+03. Deborah de Luca - Children - Radio Edit (5:43)
+04. Drake - Massive (5:37)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:38:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F7B23B1BCAD104A20E223D4B456B5FBE49317C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439078   (1040375) от 11.01.2021
+
+VA - Sunset Chillout Area (2021) [MP3|320 Kbps] <Chillout, Ambient, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040375.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыка сборника "Sunset Chillout Area" не только для эстетического удовольствия, но и музыка позволяющая поправить здоровье и исцелить душу. Красивая и спокойная музыка вступает в резонанс с организмом посредством человеческого слуха и тогда происходит сонастройка, что дает положительный оздоравливающий результат для всего организма.001. Rust404 - Martha (Original Mix)
+002. Beamy - Balearic Dawn
+003. Buddha Bar - Deep Days
+004. Paul Jove - Claro Oscuro(   Читать дальше...   )Жанр: Chillout, Ambient, DowntempoПродолжительность: 08:59:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:778ECF4F50F40F361179EF023B3C31A4083B31EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1439081   (1040373) от 11.01.2021
 
 VA - Beatport Techno: Electro Sound Pack #219 (2021) [MP3|320 Kbps] <Techno, Minimal>
@@ -455,296 +745,6 @@ VA - After Work: Weekends Friends Party (2023) [MP3|320 Kbps] <Dance, Club, Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DDEEF18246D02B0DCE227D3525534BEEAFB3F974
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612606   (1039621) от 18.02.2023
-
-VA - Музыка для машины Vol.8 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039621.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мурат Гамидов  - Сам Себе Друг (03:09)
-02. Ninety One  - Synbaim (03:57)
-03. Мария Запольская  - Обними (02:48)
-04. Алик Бендерский  - Приезжай Ко Мне На Север! (03:34)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:40:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F669E5733CAB3074F0EFADD968BF5E339FB1113E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613366   (1039592) от 18.02.2023
-
-VA - Music News vol.246 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039592.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bebe Rexha - Heart Wants What It Wants (03:02)
- 002. 2xA - Falling Apart (02:31)
- 003. 3333 feat. Джарахов - Трезвым (02:57)
- 004. a.Ja - Крылья (02:22)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 13:36:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4B820120803A22A57F3469396C1650EAF4AA5D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613121   (1039585) от 18.02.2023
-
-VA - Музыка для машины Vol.9 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сергей Одинцов  - Нам До Разлуки Полчаса (03:54)
-02. Nola  - Тебя Любить (03:08)
-03. Dj. Sava & Md & Dj Feat. & Adriana Onci - Island Of Love (03:38)
-04. Флорида  - Кто Я (03:13)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:33:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E308871F2EDBB32DBAF8CD22AE5F58E2C9D37790
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439561   (1039560) от 14.01.2021
-
-VA - Beatport Deep House: Electro Sound Pack #220 (2021) [MP3|320 Kbps] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039560.jpg" />
-</div>
-
-
-###  Подробнее
-
-Январский 220-й выпуск европейского мегамикса от Beatport будет радовать своих слушателей новыми композициями от самых известных и популярных исполнителей. Лонгплей представит слушателю подборку из 130 треков электронной музыки в стиле Deep House.001. Raw Main - Garden Of Eden
-002. Local F - Bold Cruisin
-003. Invert Of Playground - Drooling Diablo
-004. Daniel Grant - My Perfect Match(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 11:33:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FB48D79A84BE286FF1771A111AFDAF76A8EF241
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439745   (1039555) от 14.01.2021
-
-VA - Glam Deep House (2021) [MP3|320 Kbps] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039555.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы хотите послушать действительно качественную музыку, которая будет в меру спокойная и в меру энергичная, то представляемый Вам альбом под названием "Glam Deep House" это то, что нужно чтобы скоротать вечер.001. Adryiano - She's Alright
-002. A Vision Of Panorama - Atlantic Dawn
-003. Skyline Project - Mountain Ride
-004. Richard Scholtz - Belmont Apartment(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 12:23:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B51B07DF59AFC1EE56E798ED9AD765AFE946044A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439555   (1039528) от 14.01.2021
-
-VA - Music News vol.63 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039528.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. DIMA - Я Рядом (03:24)
- 002. Aize - Falling For You (02:43)
- 003. Alex Ferrari - Dueto Do Tik Tok (Mi Pan Su Su Sum) (Funk Remix 2021) (02:32)
- 004. ARCHI - Там Где Хулиганы (02:47)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:53:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B732780AA73E8E7D20DA9656F1434F15B3B9E320
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439685   (1039515) от 14.01.2021
-
-VA - Best Pop Плейлист (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039515.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sia - Courage to Change (4:52)
-02. Bon Iver, Taylor Swift - exile (4:45)
-03. Hurts - Redemption (4:18)
-04. Taylor Swift - cardigan (3:59)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:40:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CBA514238831777733DA462C8529B44D5A40165
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612536   (1039514) от 18.02.2023
-
-VA - Trance 2023 | Trance Music | Trance Top 100 [MP3|320 Kbps] <Trance, Progressive, Uplifting Trance, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039514.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Armin van Buuren & Cosmic Gate - REFLEXION (ASOT 2023 Anthem) (Extended Mix) [5:34]
-002. Gaia - Tuvan (AVIRA Extended Remix) [7:19]
-003. Ben Nicky x Distorted Dreams - Adagio For Strings (Extended Mix) [4:14]
-004. Luminn vs. Yoshi & Razner - Out Of The Cage (Extended Mix) [7:23](   Читать дальше...   )Жанр: Trance, Progressive, Uplifting Trance, ElectronicПродолжительность: 10:09:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAD2F85276B0F5E7B2F155AAE9D71FCB63C100D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439748   (1039513) от 14.01.2021
-
-VA - National Pop Dance Music Vol.10 (2021) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039513.jpg" />
-</div>
-
-
-###  Подробнее
-
-У каждого меломана есть свой личный плейлист самых любимых музыкальных композиций, которые не надоедают спустя годы и всегда звучат по-новому. И сегодня пополнить этот список представляется возможным еще больше, с 10-м выпуском сборника популярной музыки под названием "National Pop Dance Music".001. Heavy-K - Sele Sele
-002. Dj Space'c - Water Me
-003. Doubl3 Mask - Let You Go (Radio Edit)
-004. Ravi, Yeri - Sorrow(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 08:35:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91B53E1AA7C8AA5D1E075CFA11825DF9DFD6457C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439560   (1039505) от 14.01.2021
-
-VA - Have Respect (2021) [MP3|320 Kbps] <Rap, Hip Hop>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039505.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать на территорию музыки, где слово больше чем мелодия! Вашему вниманию выразительная и чрезвычайно эмоциональная музыка в представляемом сборнике под названием "Have Respect" от реперов и хип-хопщиков со всего света.001. Optimum - Satanic Park
-002. A-One - Breakin The Law
-003. Demun Jones - My Name's Demun
-004. Hnic Pesh - No Drama(   Читать дальше...   )Жанр: Rap, Hip HopПродолжительность: 10:28:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41F885847682EF05FEB93F34F061D2A3894B664B
 ```
 
 https://mybot314.ru/tekegram_catalog/

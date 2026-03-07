@@ -1,3 +1,293 @@
+###  Публикация: 1544739   (241225) от 16.04.2022
+
+VA - Дискотека 2022 Dance Club Vol. 211 от NNNB [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241225.jpg" />
+</div>
+
+
+###  Подробнее
+
+Part 1 (Discoteka):
+01. ALEKS ATAMAN feat. Finik.Finya - Девочка (Lavrushkin & Larichev Radio Mix) 3:07
+02. Geo Da Silva feat. Alpha Squad - All You Need 2:34
+03. Margad feat. Tim Dian - Love Is Gone 2:33(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 20:38:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C8FB8CD91ACFAE6E498DD8CD987213E8316E6BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119775   (241162) от 29.03.2017
+
+VA - Best of Deep-House. Volume 3. The Strong Rhythm [Compiled by Firstlast] (2017) [MP3|320 Kbps] <Deep-House, Funky-House, Tribal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241162.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vozmediano - Back2Soul (Original Mix) (7:44)
+02. Walter & Lomax - Don't Gamble with Marijuana (4:38)
+03. Aberton - Just Dance (Original Mix) (6:45)
+04. Johan S - Walk Away (Original Mix) (6:35)(   Читать дальше...   )Жанр: Deep-House, Funky-House, TribalПродолжительность: 03:35:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3F418589D9F5ED7867E2515D0946D0465C59044
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570200   (241156) от 16.08.2022
+
+VA - Шансон Лето 2022 [MP3|320 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241156.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Шамхан - Любимым Женщинам (5:19)
+02. Евгений Путилов & Алёна Фактарович - Помни Нас (5:15)
+03. Игорь Ашуров - Любовь Награда (4:57)
+04. Алексей Саморуков - Моя Девчонка (4:46)(   Читать дальше...   )Жанр: ШансонПродолжительность: 03:09:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:434D4F90A067B8D5633169BE59F1891FF26A8741
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121033   (241105) от 02.04.2017
+
+VA - Весенний хит русского шансона. Сборник № 2 (2017) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241105.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Станислав Перелыгин - Любоваться 3:42
+002. Ильдар Южный - Побежали Ручьи 3:44
+003. Сергей Декабрьский - Моя Любимая Жена 3:33
+004. Дмитрий Фомин - Что Это Такое 3:42(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24704228DEA2FD78F68CCD8370404C961C8FB130
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121027   (241088) от 02.04.2017
+
+VA - Шальной шансон в дорогу. Выпуск № 3 (2017) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241088.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Сергей Пинсон & Нора - Песня О Невнимательной Девочке 4:10
+002. Савелий Котов - О Бесконечности 5:04
+003. Виктор Гурченко - Ча-Ча-Ча  Синьор 3:43
+004. Сергей Сорос - Тоннеля Свет 3:32(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30555F1D21D28FBA91BEE0EEA7D40E2CDB9A0267
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121028   (241077) от 02.04.2017
+
+VA - Весенний хит-парад на радио Шансон (2017) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241077.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Павел Филатов - Исполняется Cегодня 18 3:39
+002. Александр Вестов - Миллион Облаков 3:42
+003. Александр Талин - Арина 3:39
+004. Олег Шак - Нежданная Встреча 3:42(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:07:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:277D58B4F04452E4E75E47416DB18372A1725F8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121037   (241070) от 02.04.2017
+
+VA - Козырная песня от радио Шансон выпуск № 6 (2017) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241070.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Виктор Гурченко - Моя Любимая 3:54
+002. Алексей Ром - Чайки 3:17
+003. Сергей Палычъ - Туман 3:49
+004. Олег Верд - Пулями 3:51(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7B05784C9EC494AFB7C57B26BED9CF35A37EBFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1636295   (241046) от 29.05.2023
+
+Kaz Hawkins - Compilation (2023) [MP3|320 Kbps] <Soul, Soft Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_241046.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hallelujah Happy People
+02. Because You Love Me (2022 Remastered)
+03. Dont Slip Away
+04. Get Up and Go(   Читать дальше...   )Жанр: Soul, Soft RockПродолжительность: 01:13:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52BE014A9682FEB2272EF600B5F8F833028A5AD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121538   (241039) от 02.04.2017
+
+VA - Вечеринка на радио Шансон выпуск № 8 (2017) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241039.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Александр Шапиро - Ты Прости 4:32
+002. Марина Александрова - С Глаз Долой 3:05
+003. Сергей Серафимов - А Ты Такая Разная 3:42
+004. Владимир Тимофеев - Оба-На 3:06(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DA0E9CF8D14AD318374FAFE01267565D241AEAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121040   (241018) от 02.04.2017
+
+VA - Ресторан Кураж от радио Шансон выпуск № 10 (2017) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241018.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Сборная Союза - Я Подарю Тебе Мир 3:58
+002. Оксана Иванова - Давайте Выпьем За Мужчин 3:56
+003. Ирина Коган - Кавказская Душа 3:52
+004. Вячеслав Анисимов - Последний Командир 5:13(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:04:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96D5DE05D395401AC9368596FA755C293D72D39C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1121287   (241001) от 02.04.2017
 
 VA - Сотка популярных весенних хитов от Европы Плюс выпуск № 3 (2017) [MP3|256 Kbps] <Pop>
@@ -455,296 +745,6 @@ VA - TOP Non-Stop 2010-2019 - Progressive House (2022) [MP3|192-320 Kbps] <Progr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F579A9296D5B9A18A6F56B01603944A18638C930
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545555   (239872) от 23.04.2022
-
-VA - Rock Classics (2022) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239872.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Led Zeppelin - Rock and Roll - Remaster (3:40)
-002. KISS - Rock And Roll All Nite (4:01)
-003. Nirvana - Smells Like Teen Spirit (4:38)
-004. Rush - Limelight (4:20)(   Читать дальше...   )Жанр: RockПродолжительность: 10:32:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2363F2FABA2011B76C14268387BF671B9C0D0A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546030   (239795) от 23.04.2022
-
-VA - Жирные Хиты Весны Remix NNM (2022) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Guetta feat Akon - Sexy Bitch (M1eb & Sergey Hobs Remix) (4:15)
-02. Casanovy - I need your lovin' (Ayur Tsyrenov DFM remix) (4:08)
-03. Spiller feat. Sophie Ellis-Bextor - Groovejet (Ayur Tsyrenov DFM remix) (2:57)
-04. Delerium feat. Sarah McLachlan - Silence (Ayur Tsyrenov DFM remix) (2:53)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:42:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:277837E24D331B63C0F2EF33094F032E663FA475
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472626   (239430) от 26.05.2021
-
-VA - Favorite Techno (2021) [MP3|320 Kbps] <Techno, Minimal, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239430.jpg" />
-</div>
-
-
-###  Подробнее
-
-В некоторой степени ретроспектива - звучание треков сборника "Favorite Techno" было действительно актуальным еще полгода или год тому назад, однако это не умаляет всех достоинств этих работ. Стильный, выдержанный инструментал и отличная завораживающая ритмика главный плюс треков этой подборки!001. Bass Modulators - Chemicals Lsd
-002. Dance Spirit - Famous Last Words
-003. Jerry Full - Abc Sound
-004. Lost Kontrol - The Drug(   Читать дальше...   )Жанр: Techno, Minimal, ElectronicПродолжительность: 09:44:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC9447F671ABE80FDBE264A7210CFA2AB33FF680
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627617   (239382) от 19.04.2023
-
-VA - Music News vol.258 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_239382.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Chezara - Береги (02:56)
- 002. Alana O. - Время (03:30)
- 003. Albi - Like That (02:42)
- 004. Alethia - По Краю Луны (03:30)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:43:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43607C7455AB1E0F38936EBDB4C5DA83C0D60E39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1474003   (239330) от 01.06.2021
-
-VA - Exclusives HGM: DnB Collection (2021) [MP3|320 Kbps] <Drum & Bass, Bassline, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239330.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Resound - Aftermath
-002. Technical Itch - Remember
-003. Minor Forms - Reality
-004. Gold Dubs - Tiger Balm(   Читать дальше...   )Жанр: Drum & Bass, Bassline, ElectroПродолжительность: 10:26:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7059EB0F70C0EE79C8BF93F477CE6040E270CD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1476704   (239214) от 12.06.2021
-
-VA - Beatport Electro House: Sound Pack #295 (2021) [MP3|320 Kbps] <Club, Dance, House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239214.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Angelala - Tech Us
-002. Mind Against - Isolate
-003. Soljee - Hoso
-004. Soane - Leap Of Faith(   Читать дальше...   )Жанр: Club, Dance, House, ElectroПродолжительность: 10:22:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D75EC0C36CE686BBD4B149248D015729E92629EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1476702   (239200) от 12.06.2021
-
-VA - Beatport Funky House: Sound Pack #296 (2021) [MP3|320 Kbps] <Funky, Disco House, Nu Disco>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239200.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Audio Jacker - Love Ballad
-002. Sao & Misudj - Funky Trip
-003. Lee Cox - Back On The Boogie
-004. Horse Meat Disco - Love If You Need It(   Читать дальше...   )Жанр: Funky, Disco House, Nu DiscoПродолжительность: 09:04:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27AF5FA3B312C3FA6F97610F9CB5096DE422226F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627947   (239193) от 22.04.2023
-
-VA - TOP Non-Stop 2000-2009 - Dance House Music. Part 3 (2023) [MP3|192-320 Kbps] <Funky House, Progressive House, Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_239193.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. House Royale - Happy Privée (2008) (2:46)
-02. Cosy Creatures - Sex Education (2003) (3:31)
-03. Magik Johnson - The Funk (2003) (5:15)
-04. Schmoov! - Monkey Nut (2002) (5:09)(   Читать дальше...   )Жанр: Funky House, Progressive House, Electro HouseПродолжительность: 15:37:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C30490FDEB8BD12735E5CBB150E229DE7ACC49C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1476700   (239142) от 12.06.2021
-
-VA - Galactic Beats Future: House Mixtape (2021) [MP3|320 Kbps] <House, Electro, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239142.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bonsai - Forward Unto Darkness
-002. Clawz Sg, Strinner - Parallax
-003. Jakob Reiter - Strato
-004. Francesco Pico - I Hear The Wind(   Читать дальше...   )Жанр: House, Electro, ProgressiveПродолжительность: 11:40:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A21CBD5C19C3588CB36A88E5F24E779F42CCD14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547022   (239025) от 27.04.2022
-
-VA - Rap NNM (2022) Русский Выпуск [MP3|320 Kbps] <Rap>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239025.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. БЫБА - Когда наступит рассвет (4:49)
-02. Честер Небро & НЕ.KURILI - Никому не нужные (4:46)
-03. Брутто, SLIMUS - Печенье (4:40)
-04. GUF feat. Slimus - Глаза к небу (4:27)(   Читать дальше...   )Жанр: RapПродолжительность: 02:50:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1A8AAB1502A0C3AE625358D37ABD79CE43CDFB6
 ```
 
 https://mybot314.ru/tekegram_catalog/

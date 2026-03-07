@@ -1,3 +1,204 @@
+###  Публикация: 1051969   (529267) от 13.09.2016
+
+VA - Promo September Technology (2016) [MP3|256-320 Kbps] <UK Garage, Speed Garage, UK Funky, R&B, Post-Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_529267.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Presents Booom & Boris Dlugosch - Hold Your Head Up High (Julian Jonah's Bad Boy Mix) 07:01
+02. Disclosure - You & Me (Feat. Eliza Doolittle)Жанр: UK Garage, Speed Garage, UK Funky, R&B, Post-DiscoПродолжительность: 04:42:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAE1D42247CD200959D19FE3E194712C78C099A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927603   (528689) от 13.08.2015
+
+VA - Dance Around The World (2015) [MP3|320 кб/с]<Club, Indie Dance, Nu Disco, Funky, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_528689.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cicada - The Things You Say (Modjuno & Casey Cover Remix)
+02. Ferreck Dawn - Heaven Sent (Original Mix)
+03. Major Lazer x DJ Snake feat. MO - Lean On (TVKiller Remix)
+04. Man Of Goodwill Vs Lala Hattaway – My Everything (Original Mix)(   Читать дальше...   )Жанр: Club, Indie Dance, Nu Disco, Funky, HouseПродолжительность: 09:28:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67F28C44FDC338587DC40B507F190E35D157EBC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1156189   (528493) от 06.08.2017
+
+VA - Золотые семидесятые vol. 7-9 (2017) [MP3|192-320 Kbps] <Pop, Rock, Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_528493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alvin Stardust - You, You, You
+02. Andrea True Connection - More, More, More
+03. Baccara - The Devil Send You To Lorado
+04. Georges Garvarentz - Woman Is Free (Blonde On Blonde)(   Читать дальше...   )Жанр: Pop, Rock, DiscoПродолжительность: 05:59:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA0ECCE13392376BF27F2B1F48BEED65ECBAB65D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1313010   (528238) от 07.07.2019
+
+VA - The Official UK Top 40 Singles Chart 05.07.2019 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_528238.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Ed Sheeran, Justin Bieber - I Don't Care (3:39)
+2.Shawn Mendes & Camila Cabello - Senorita (3:11)
+3. Ed Sheeran feat. Khalid - Beautiful People (3:17)
+4.Stormzy - Crown (3:33)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:08:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA8D334F3859175D2DC891804D69875DB92F04E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1052552   (527907) от 14.09.2016
+
+VA - My Favourite Hits of 1966 (8CD) от DON Music (2016) [MP3|320 Kbps] <Easy Listening, Pop, Funk>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_527907.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Beatles - Paperback Writer (02:16)
+002. The Beach Boys - Good Vibrations (03:35)
+003. Four Tops - Standing In The Shadows Of Love (02:34)
+004. Bobby Hebb - Sunny (02:43)(   Читать дальше...   )Жанр: Easy Listening, Pop, Funk, Soul, Pop Rock, Rock, Blues RockПродолжительность: 09:12:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD8994BB96E4D0696695B23884381D1ED0D5A180
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1156450   (527637) от 07.08.2017
+
+VA - Золотые семидесятые vol. 10-12 (2017) [MP3|192-320 Kbps] <Pop, Rock, Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_527637.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 5000 Volts - I'm On Fire
+02. Al Martino - Volare (Nel Blu Dipinto Di Blu..Long Version)
+03. Barbara Mandrell - Sleeping Single in a Double Bed
+04. Bob And Marcia - To Be Young, Gifted And Black(   Читать дальше...   )Жанр: Pop, Rock, DiscoПродолжительность: 06:12:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A728757D1F164CB1CC4AF911CB5160276EE02F73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1156442   (527592) от 07.08.2017
+
+VA - Автодискотека Клубная (2017) [MP3|320 Kbps] <Dance, Club, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_527592.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fleur East x Pep & Rash - Sax Rabbit (DJ Agamirov & DJ Stylezz MashUp)
+02. Basement Jaxx - Never Say Never (Galin Remix)
+03. Justin Bieber - Sorry (Dj Natasha Baccardi & Dmitriy Rs Extended)
+04. T-killah - Невидимая (Dj Squeeze & Dj Vlad Hardy Remix)(   Читать дальше...   )Жанр: Dance, Club, HouseПродолжительность: 07:15:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01854F68EED85845C8F949F3F8C3D6FA9287E185
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1052691   (527311) от 15.09.2016
 
 VA - Music For Running Club House Mix (2016) [MP3|320 Kbps] <Club, Dance, Electro House>
@@ -542,206 +743,6 @@ VA - Kingston Reggae Dancehall (2019) [MP3|320 Kbps] <Dancehall, Reggae, Latin>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DDE36886214EA467D04568C7F8108DB8E001428A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559839   (522614) от 27.06.2022
-
-VA - New Vol.18 (2022) [MP3|320 Kbps] <Pop, Dance, Shanson>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522614.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сергей Одинцов - Девчонка
-02. Рустам Нахушев - Белые розы
-03. Сергей Рудов - Июньские цветы
-04. Соня Белькевич & Илья Родин - Гори(   Читать дальше...   )Жанр: Pop, Dance, ShansonПродолжительность: 02:58:58 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D61345013535C92A078C55C3A0A0D3C3B0854007
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559875   (522566) от 27.06.2022
-
-VA - Супер зарубежные хиты 90-х (2022) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522566.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 2 Brothers On The 4th Floor - Come Take My Hand (4:03)
-002. 2 Brothers On The 4th Floor - Dreams (Will Come Alive) (4:23)
-003. 2 Brothers On The 4th Floor - Fly (Through The Starry Night) (3:28)
-004. 2 Brothers On The 4th Floor - Mirror Of Love (3:29)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 16:31:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:028E49E4D87789B5CCC110E9695F2CBE0739B633
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928255   (522533) от 16.08.2015
-
-VA - Top Club 40 - August (2015) [MP3|320 кб/с]<Dance, Club, Electro>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522533.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Willy William – Te Quiero (Extended Mix)
-02 – Kendi Girac – Cool (DJ MARTIN B. INTRO EDIT RMX)
-03 – Dj Kikfat Ft. Edalam x Willy William – Helicopta Collector (Club Mix)
-04 – Eva Simons – Policeman (Club Mix)(   Читать дальше...   )Жанр: Dance, Club, ElectroПродолжительность: 04:24:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9F0EE8E3648E1514090278EEFCC2F913BD8FEC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928424   (522487) от 16.08.2015
-
-VA - Best Of Dance 2000s (2015) [MP3|320 кб/с]<Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522487.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Switch - A Bit PatchyЖанр: Club, DanceПродолжительность: 09:03:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00AFBD3FAC4756EF940CA7D9BF119640D981EA1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313856   (522266) от 11.07.2019
-
-VA - Romantic Indie Pop-Rock (2019) [MP3|320 Kbps] <Indie, Pop-Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522266.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Wingtip Sloat - Spanish EncoresGiddy In Palestine
-002. Annika Norlin - Failure
-003. Calvin Johnson - (I've Still Got) Sand in My Shoes
-004. Georgia feat Shygirl - Mellow(   Читать дальше...   )Жанр: Indie, Pop-RockПродолжительность: 09:44:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:186310D011E906BADB0C6EDDC1E0AFD25E935DC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313908   (522264) от 11.07.2019
-
-VA - Little Known Disco (2019) [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522264.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arirang Singers - Dark Eyes (1979) (4:02)
-02. Arpeggio - Let The Music Play (1978) (8:21)
-03. Barrabas - (Be Me) Rebel (1982) (6:32)
-04. Benelux & Nancy Dee - Rico (1980) (3:02)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 03:38:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:561F0F4EE41AAADD718E1F82A1E1BF28384AED46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928420   (522219) от 16.08.2015
-
-VA - The Best Dance Hits Of 90's-2 (2015) [MP3|320 кб/с]<Pop, Eurodance, House,Techno, Trance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522219.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 La Bouche-Be My Lover 4:01
-002 Masterboy-Feel The Heat Of The Night 6:43
-003 Sash!-Adelante 6:49
-004 Jam & Spoon-Right In The Night(Fall In Love With Music) 3:47(   Читать дальше...   )Жанр: Pop, Eurodance, House,Techno, TranceПродолжительность: 16:48:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60F1D30122D7DEE9608F826206A4452CE3907E62
 ```
 
 https://mybot314.ru/tekegram_catalog/

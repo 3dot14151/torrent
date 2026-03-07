@@ -1,3 +1,32 @@
+###  Публикация: 513757   (888049) от 01.04.2020
+
+VA - Музыка гармонии сна (2008) [FLAC|Lossless|image + .cue] <Relax, New age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_888049.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Прохлада и чайки (1:57)
+02. Прилив (5:28)
+03. Музыка океана (9:03)
+04. Южный закат (1:41)(   Читать дальше...   )Жанр: Relax, New ageПродолжительность: 01:16:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA9956FA93FC0AEAF0AE3B965974A5648A7A9FA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 224083   (887981) от 01.04.2020
 
 Bliss - 8 Альбомов (1997-2007) [FLAС|Lossless|tracks] <Ambient, New Age>
@@ -714,35 +743,6 @@ Dan Gibson - Ocean Surf: Timeless And Sublime (1995) Solitudes - Nature Sound Co
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8FF50D3AE2E9596310D3C4599444EEA4C45C8E12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996346   (881167) от 13.03.2016
-
-Agrelia's Castle - Elders and Ancestors (2015) [MP3|320 кб/с] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881167.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elders and Ancestors
-02. Adrift
-03. Breathe
-04. Spirit Dreaming(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:06:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F68A97102CF5E3CD03987A8EC40BCAF96547C4B
 ```
 
 https://mybot314.ru/tekegram_catalog/

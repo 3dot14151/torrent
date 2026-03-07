@@ -1,3 +1,235 @@
+###  Публикация: 855323   (962440) от 01.01.2015
+
+Duke Ellington & Count Basie - First Time! Count Meets Duke (2001) [FLAC|Lossless]<Jazz, Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_962440.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Battle Royal [05:35]
+02. To You [03:55]
+03. Take the A Train [03:47]
+04. Corner Pocket [04:55](   Читать дальше...   )Жанр: Jazz, Swing, Big BandПродолжительность: 01:13:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D835E0F207D8D3CD7FBBC49D201E9D788BA7BBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978598   (962418) от 24.01.2016
+
+Konstantin Klashtorni - Love Suggestions/Guitar Night (2014) [FLAC|Lossless|image + .cue] <Smooth Jazz, Chill Out>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_962418.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It’s Our Time (5:48)
+ 02. Stay (4:39)
+ 03. Life Is Love (4:45)
+ 04. Little Talks (5:02)(   Читать дальше...   )Жанр: Smooth Jazz, Chill OutПродолжительность: 00:53:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8E17A7F2357F541DE56B4E7DC3CD4BC1338857A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978520   (962413) от 24.01.2016
+
+Konstantin Klashtorni - Kool & Klean (Volume V) (2014) [FLAC|Lossless|image + .cue] <Smooth Jazz, Chill Out>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_962413.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turn Me On (4:18)
+ 02. Kiss the Rain (4:52)
+ 03. Counting Stars (5:18)
+ 04. River Flows in You (4:37)(   Читать дальше...   )Жанр: Smooth Jazz, Chill OutПродолжительность: 01:02:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1716C64F526F8D3F57F54AEC8C03484F85B8BC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978552   (962411) от 24.01.2016
+
+Konstantin Klashtorni - Love Suggestions: Piano Night (2013) [FLAC|Lossless|image + .cue] <Smooth Jazz, Chill Out>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_962411.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hey Girl (5:11)
+ 02. Treasure (4:18)
+ 03. Come & Get It (5:26)
+ 04. What Makes You Beautiful (4:37)(   Читать дальше...   )Жанр: Smooth Jazz, Chill OutПродолжительность: 00:52:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C94DE2DDB2B9459FC719EAD74D716864CD3CAA6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978766   (962155) от 24.01.2016
+
+Alfa Mist - Nocturne (2015) [FLAC|Lossless|WEB-DL|tracks] <Indie, Nu Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_962155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alfa Mist feat. Racheal Ofori & Barney Artist - Intro (2:06)
+02. Alfa Mist feat. Rick David & Kaya Thomas-Dyke - Answers (3:35)
+03. Alfa Mist feat. Kaya Thomas-Dyke - Blaze (2:30)
+04. Alfa mist - What If (Interlude) (1:23)(   Читать дальше...   )Жанр: Indie, Nu JazzПродолжительность: 00:31:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8133C79D020E5ACBE2825A14F9C85BE904796F9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978916   (962154) от 24.01.2016
+
+Zucchero - Una Rosa Blanca (2013) (2 CD) [MP3|320 кб/с] <Pop, Rock, Folk, Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_962154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ave Maria No Morro
+02. Diamante
+03. Pronto
+04. Bacco Perbacco(   Читать дальше...   )Жанр: Pop, Rock, Folk, BluesПродолжительность: 01:53:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E53F27C74FBCEA936AD35266E098988DCF907024
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360070   (961927) от 14.02.2020
+
+Thelonious Monk - The Complete Albums Collection 1954-57 (2015) 5CD, Enlightenment [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_961927.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. 'Round About Midnight [3:12]
+02. Off Minor [3:02]
+03. Ruby, My Dear [3:08](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 06:20:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5486CDD5889165E7B1E3BCFC3A7255C403EF2813
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979081   (961242) от 25.01.2016
+
+One For All - What's Going On? (2007) Venus Records[FLAC|image+.cue] <Post-Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_961242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.What's Going On? [06:50]
+ 02.How Sweet It Is (To Be Loved By You) [05:23]
+ 03.Let's Stay Together [08:07]
+ 04.Reasons [06:54](   Читать дальше...   )Жанр: Post-Bop, Mainstream JazzПродолжительность: 00:57:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B697A8186A00E49261525BD8DCCC0D546A91FF7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 979075   (960951) от 25.01.2016
 
 Earl Bostic - The Earl Bostic Story (1950-e) 4CD, 2006, Proper Records[FLAC|tracks+.cue] <Swing, Jump Blues, R&B, Standards>
@@ -512,235 +744,6 @@ Teddy Charles And His Sextet - Salute To Hamp (1958) Remaster, 2014, Solid Recor
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B050D004D0663948FD64AEA8A500A31648416A74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980232   (957469) от 28.01.2016
-
-Clark Terry - Clark Terry 1955 (1997) [FLAC|tracks+.cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_957469.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Swahili [06:10]
- 02.Double Play [03:40]
- 03.Slow Boat [04:31]
- 04.Co-op [03:50](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:52:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0ED867BB3132548BFC090D03CB9C742611416D9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980053   (957465) от 28.01.2016
-
-Dave McKenna - My Friend The Piano (1986) 1990, Concord[FLAC|tracks+.cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_957465.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Margie [04:44]
- 02.Only Trust Your Heart [04:31]
- 03.Mean To Me [04:24]
- 04.Slowly [04:29](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:54:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1934DF5B9D4E98086778FD3A1CBEE7AD4D5977C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980170   (957439) от 28.01.2016
-
-Giovanni Guidi Trio - 2 Albums - City Of Broken Dreams / This Is The Day (2013 / 2015) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_957439.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trilly (05:19)
- 02. Carried Away (06:07)
- 03. Game Of Silence (07:27)
- 04. The Cobweb (03:14)(   Читать дальше...   )Жанр: Contemporary Jazz |Продолжительность: 01:13:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F5B2F4B9885DA6F410A265816BF46AD8B26F885
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980097   (957355) от 28.01.2016
-
-Northern Lite vs. The White Noize - Wooden Playground (2014) [FLAC|Lossless|image + .cue] <Acoustic, Easy Listening, Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_957355.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Even When [3:40]
- 02. Begging You [3:49]
- 03. In Japan [6:43]
- 04. Enemy [3:25](   Читать дальше...   )Жанр: Acoustic, Easy Listening, JazzПродолжительность: 00:41:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB77901035B1B98B27A3F3B3BD231D7EC72B09BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979824   (957298) от 28.01.2016
-
-Tritono Blues - Tritono Blues Plays Ray Charles (2016) [MP3|320 кб/с] <Blues Soul, Harmonica Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_957298.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mary Ann (2:46)
-02. Let The Good Times Roll (3:11)
-03. Hit The Road Jack (3:57)
-04. I Got A Woman (3:30)(   Читать дальше...   )Жанр: Blues Soul, Harmonica BluesПродолжительность: 00:49:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB039EABD1C55B891822F9B566D721B23803B4D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361034   (956998) от 18.02.2020
-
-VA - Soul Love (2020) [FLAC|Lossless|WEB-DL|tracks] <Soul, R&B, Jazz>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aretha Franklin - (You Make Me Feel Like) A Natural Woman
-02. Ben E. King - Stand by Me
-03. Frankie Valli - Can't Take My Eyes off You (2007 Remaster)
-04. Dionne Warwick - What the World Needs Now (Is Love)(   Читать дальше...   )Жанр: Soul, R&B, JazzПродолжительность: 01:14:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CAE8C20C0A60872CD9659A336A1411BC5F59D4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 623126   (956739) от 25.02.2013
-
-Matt Bianco - Hideaway (2012) [FLAC|Lossless]<Smooth Jazz, Bossanova>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956739.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Smooth Jazz, BossanovaПродолжительность: 00:52:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980578   (956052) от 29.01.2016
-
-Kenny G - The Very Best Of (1994) limited Edition [FLAC|Lossless|tracks + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956052.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forever in Love
-02. Waiting for You
-03. By the Time This Night is Over
-04. Jasmine Flower(   Читать дальше...   )Жанр: JazzПродолжительность: 01:10:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68136AE8AF79386F318D79B3144359CE1117562D
 ```
 
 https://mybot314.ru/tekegram_catalog/

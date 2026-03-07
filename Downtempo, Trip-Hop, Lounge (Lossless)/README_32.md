@@ -1,3 +1,32 @@
+###  Публикация: 1771568   (71838) от 07.01.2025
+
+VA - When Time Stops: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71838.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matt Sour - First Breath (Binaural) (4:36)
+02. Scott Reich - Tranquility (Original Mix) (5:09)
+03. Free Spirit Muse - Breath-Ful Moments (20:21)
+04. Peter Pearson - Blissful Journey (Original Mix) (4:51)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:26:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E1EFDEE648BA1E14A65353C258ABCDA27A0D940
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1772893   (71756) от 12.01.2025
 
 VA - Relaxation Hub, Vol 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
@@ -716,37 +745,6 @@ V.A. - Cafe del Mar Ibiza Chillout Mix V (DJ Mix) (2025) [FLAC|Lossless|WEB-DL|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4969F5BF1BC51A83BD6DAFA377CD506FA36CF08E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801694   (66185) от 12.06.2025
-
-Kim & Buran - MAMA (2025) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Space disco, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66185.jpg" />
-</div>
-
-
-###  Подробнее
-
-Впервые запись в виде цифрового демо увидела свет в 2010 году. Коллектив планировал доработать программу, но история распорядилась иначе. Больше 10 лет материал ждал своего часа, и в 2023 году музыканты возобновили работу над альбомом.
-
-Новая версия «Мамы» не только получила новую обложку, но и зазвучала фактурнее. Многие партии были переписаны с использованием аналоговых (   Читать дальше...   )01. Polar lights
-02. I'm Flying With You
-03. Robot Love
-04. Beautiful Way(   Читать дальше...   )Жанр: Synthpop, Space disco, DowntempoПродолжительность: 00:57:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3179EBD9540C7F71F4AC1ECC912CEFF35044A02
 ```
 
 https://mybot314.ru/tekegram_catalog/

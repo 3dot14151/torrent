@@ -1,3 +1,179 @@
+###  Публикация: 1104616   (879781) от 15.02.2017
+
+Beth Hart - Better Than Home (2015) [WavPack|192/32|image + .cue|Vinyl-Rip] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_879781.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что говорят о Бет Харт (Beth Hart)? Да всякое, (особенно критики-женщины старались), но все сходились в одном - такое бешеной энергетики, невероятной страстности при абсолютной естественности, такой феноменальной рок-блюз певицы не помнят уже давно.
+
+Бет Харт (Beth Hart) родилась в Лос-Анджелесе в 1972 году. Игре на фоно научилась очень рано, бросила играть классику (   Читать дальше...   )A1. Might As Well Smile 4:01
+A2. Tell 'Em To Hold On 4:24
+A3. Tell Her You Belong To Me 5:56
+A4. Trouble 4:42(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:48:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D5431EF63FAA91ABF6E1B1F7EE07F350DE67922
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1104385   (879773) от 15.02.2017
+
+Frank Sinatra - Duets (1993) First Press [WavPack|192/32|image + .cue|Vinyl-Rip] <Jazz, Easy listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_879773.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Lady Is A Tramp With Luther Vandross (3:24)
+02. What Now, My Love? With Aretha Franklin (3:15)
+03. I've Got A Crush On You With Barbra Streisand (3:25)
+04. Summer Wind With Julio Iglesias (2:32)(   Читать дальше...   )Жанр: Jazz, Easy listeningПродолжительность: 00:45:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0D9756435C197DF0E5FB0857CBB9191D5FA30D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 996679   (878696) от 14.03.2016
+
+Nightwish - Endless Forms Most Beautiful (2015) [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Symphonic Metal, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_878696.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Shudder Before The Beautiful
+A2. Weak Fantasy
+A3. Elan
+B1. Yours Is An Empty Hope(   Читать дальше...   )Жанр: Symphonic Metal, Heavy MetalПродолжительность: 01:19:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04FAF093F6150CCE86D55D0F1BB354A025FD6C63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1105134   (878009) от 16.02.2017
+
+Manfred Mann's Earth Band - Messin' (1973) 1983, Reissue [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_878009.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Messin' (9:55)
+A2. Buddah (7:03)
+A3. Cloudy Eyes (5:35)
+B1. Get Your Rocks Off (2:51)(   Читать дальше...   )Производство: Bronze - 28 856-270Жанр: Progressive RockПродолжительность: 00:40:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BD7F480458F1482862DE7FE14CA7DB2AE2E64B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997355   (875456) от 16.03.2016
+
+Manfred Mann's Earth Band - Nightingales & Bombers (1975) [FLAC 2.0|192/24|image|Vinyl-Rip]<Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_875456.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Spirits In The Night (6:27)
+A2. Countdown (3:06)
+A3. Time Is Right (6:33)
+A4. Crossfade (3:41)(   Читать дальше...   )Производство: Bronze Records - 89 059 XOTЖанр: Progressive RockПродолжительность: 00:38:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6438D39027558495235AE58EBC30CBE7229CD865
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997330   (875254) от 16.03.2016
+
+a-ha - Cast In Steel (2015) [WavPack 2.0|192/32|image +.cue|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_875254.jpg" />
+</div>
+
+
+###  Подробнее
+
+sideA
+A1 Cast In Steel 3:50
+A2 Under The Makeup 3:25
+A3 The Wake 3:45(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84A8B87831341F03980378CAD74954B95B1EEC13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1105409   (874934) от 18.02.2017
 
 Duran Duran - Notorious (1986) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Synth-pop>
@@ -574,177 +750,6 @@ A4. It Makes Me Wonder (4:36)(   Читать дальше...   )Произво�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62D7B74C9687207F5BCF687A193EC843CBB9B74C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498981   (851019) от 30.09.2021
-
-Кино - Ночь (1986) 2LP Reissue 2021 [FLAC 2.0|48/24|image+.cue|Vinyl-Rip] <New Wave, Alternative Rock, Post-Punk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851019.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: New Wave, Alternative Rock, Post-Punk
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F40BB283B82A4D442549D97DB437185B8B260542
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110805   (850179) от 04.03.2017
-
-Passengers - Casino (1981) [FLAC|96/24|image+.cue|Vinyl-Rip] <Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850179.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа была популярна в начале 80-х, в основном благодаря своему основателю и идейному вдохновителю Kim Arena, который по слухам, был племянником телеведущей Ave Ninchi. Группа получила свою известность благодаря синглу "Casino", в 1981 году вышел и одноименный виниловый диск-гигант. Именно этот сингл вдохновил Вечяслава Добрынина написать свое "Казино-казино-казино". (   Читать дальше...   )01. Casino (3:32)
-02. Mister Mouse (3:58)
-03. Touch And Go (5:27)
-04. Annalisa (3:33)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:32:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC8F9C9C63354292D7A3CC369D8281FCD251AA5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 776615   (850127) от 30.03.2016
-
-Electric Light Orchestra - Discovery (1979)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850127.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Shine A Little Love (4:40)
-A2. Confusion (3:41)
-A3. Need Her Love (5:09)
-A4. The Diary Of Horace Wimp (4:22)(   Читать дальше...   )Производство: Jet Records - FZ 35769Жанр: Progressive RockПродолжительность: 00:38:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0409C9979B742FE6F320BD4223B7C9C18EDFAF7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377896   (849794) от 23.04.2020
-
-Frank Sinatra - Portrait Of Sinatra: Forty Songs From The Life Of A Man (1977) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849794.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Let's Face The Music
-(Berlin)
-A2 Nancy (With The Laughing Face)
-(Van Heusen, Silvers)(   Читать дальше...   )Жанр: JazzПродолжительность: 02:09:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02336EA0A829CF4CFEE91C33486053D831570B8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 877180   (849033) от 11.03.2015
-
-Fleetwood Mac - Rumours (1977) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Soft Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849033.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Second Hand News (2:48)
-A2. Dreams (4:20)
-A3. Never Going Back Again (2:05)
-A4. Don't Stop (3:15)(   Читать дальше...   )Жанр: Soft RockПродолжительность: 00:39:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8D21AE3BE8E830387C475552ED04087ED25D739
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002332   (848601) от 31.03.2016
-
-Группа Стаса Намина - Гимн Солнцу (1980) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848601.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вступление и "Гимн Солнцу"
-02. После Дождя
-03. Где Живет Ветер
-04. Ты Только Слушай(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:36:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A286BC7EC7C1FC1FF6F538F985372B748D34FA1
 ```
 
 https://mybot314.ru/tekegram_catalog/

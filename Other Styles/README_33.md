@@ -1,3 +1,32 @@
+###  Публикация: 1112256   (843188) от 08.03.2017
+
+VA - Yoga Balance: Asian Traditional Music for Meditation, Yoga Pilates, Relaxed Body and Soul, Deep Relaxation (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_843188.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hatha Yoga Music Zone - Yoga 101
+02. Namaste Healing Yoga - Philosophy of Yoga
+03. Healing Meditation Zone - Soothing Rain
+04. Buddha Music Sanctuary - Balance Body(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:42:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92D12D4464A1BACF30241ABAB2E63081EED9E5D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1112341   (843110) от 08.03.2017
 
 Dan Gibson's & Donald Quan - Asian Spa (2004) [FLAC|Lossless|tracks + .cue] <New Age>
@@ -717,35 +746,6 @@ Gelka - Wishful Thinking (2020) [MP3|192 Kbps] <Electronica>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:501072ACDC65DC5805F98291A2F3BFAB8C27FD55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380107   (835912) от 01.05.2020
-
-Luca Stricagnoli - Change Of Rules (2020) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Acoustic Guitar>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835912.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Lonely Shepherd
-02. For A Few Dollars More
-03. Lose Yourself
-04. Hold The Line(   Читать дальше...   )Жанр: Instrumental, Acoustic GuitarПродолжительность: 01:14:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81C5DE0FC8D45A7FE0D1456CE3D2E1DABFFE2E1D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1328719   (358926) от 02.10.2019
+
+Jordi Savall, La Capella Reial de Catalunya, Hesperion XXI - Don Quijote de la Mancha, Miguel de Cervantes - Romances y Musicas [2CD] (2005) Alia Vox [MP3|320 Kbps] <Classical, Baroque>
+
+>>Классика
+>>Концерты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_358926.jpg" />
+</div>
+
+
+###  Подробнее
+
+Среди множества хвалебных речей в дань уважения, опубликованных в ознаменование четвертого столетия со дня рождения Дон Кихота, мало кто задумывался о музыкальном аспекте гения Мигеля де Сервантеса, и еще меньше задумывались о том, что литературное величие Сервантеса принесло ему столь же мало мирского успеха, как и величие духа его героя. Как и наши музыканты прошлого, (   Читать дальше...   )01. Fanfarra (instrumental) (01:44)
+02. Recitado En un lugar de la Mancha (00:50)
+03. La Folia Yo soy la locura (02:32)
+     .II. Первые приключения(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 02:34:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7917C9DCA5B1119D682048BD1DCA9763F6BB3ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 407896   (357734) от 08.11.2011
 
 Franz Liszt - Grandes Etudes Pour le Piano (2004) [DST64 2.0 5.0 1 bit/2822,4 кГц]|SACD-R]<Classical>
@@ -749,35 +778,6 @@ Piano Concerto No. 17 in G major, K. 453
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB8D9C9B56CF1161B0E842A4FAF44806AE2E8769
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954422   (339829) от 08.11.2015
-
-Tchaikovsky - Symphonies Nos. 4, 5 & 6 (Pierre Monteux & Boston Symphony Orchestra) (2010) [FLAC|image +.cue]<Classical. Romantic Period, Symphony>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339829.jpg" />
-</div>
-
-
-###  Подробнее
-
-Symphony No. 5 in E minor, Op. 64
-01. Valse- Allegro moderato (06:07)
-02. Finale- Andante maestoso (12:12)
-Symphony No. 6 in B minor ("Pathtique"), Op. 74(   Читать дальше...   )Жанр: Classical. Romantic Period, SymphonyПродолжительность: 02:08:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:283E8A684BA7137EC72D3399CE5A7F0FB6AE6592
 ```
 
 https://mybot314.ru/tekegram_catalog/

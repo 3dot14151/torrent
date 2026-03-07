@@ -1,3 +1,38 @@
+###  Публикация: 523179   (619032) от 15.07.2012
+
+VA - Jim Beam Authentic Rock - 50 Pub Jukebox Anthems (2012) [MP3|320 кб/с]<Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_619032.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Rock, Classic RockПродолжительность: 01:10:29
+
+01. Faith No More — Easy
+ 02. Foreigner — Urgent
+ 03. Boston — More Than A Feeling
+ 04. Baby Animals — One Word
+ 05. Hunters & Collectors — Say Goodbye
+ 06. The Angels — No Secrets
+ 07. Live — Lightning Crashes
+ 08. Tom Cochrane — Life Is A Highway(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B559AC3CD2340735F37BB7FB26CE87B779104560
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1230047   (618893) от 10.06.2018
 
 VA - 90s Rock Party (2018) [MP3|320 Kbps] <Classic Rock, Pop Rock>
@@ -728,35 +763,6 @@ Herman's Hermits - The Best Of Herman's Hermits (2015) [MP3|320 Kbps] <Rock, Bea
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5213F1853547ADB2E08A2C938854EBBCD44E0F48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912090   (610886) от 26.06.2015
-
-Sanguine Hum - 3 альбома (2012-2015) [MP3|320 кб/с]<Neo-Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610886.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just A Prelude
-02. Cat Factory
-03. On The Beach
-04. End Of The Line(   Читать дальше...   )Жанр: Neo-ProgПродолжительность: 00:43:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28BCC2F75ADE05519A282CF90E716AF65A822E76
 ```
 
 https://mybot314.ru/tekegram_catalog/

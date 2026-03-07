@@ -1,3 +1,94 @@
+###  Публикация: 154155   (363685) от 22.11.2009
+
+Сурганова и Оркестр - Программа "Весь этот рок" [2009 г., Rock, SATRip]
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_363685.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа "Весь этот рок": Сурганова и оркестр
+Запись с телеканала "Парк Развлечений" 15.11.09 .Жанр: Концерт, VIP-Punk-Decadence, интервьюРежиссер: Ольга МихешкинаПродолжительность: 00:27:38
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 575922   (363572) от 17.11.2012
+
+Осмондс / The Osmonds - Live 72 (1972) VHSRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_363572.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы помните эту семейку? Для всех поклонников The Osmonds! (Для немного ностальгирующих...)01. One Bad Apple
+02. Yo Yo
+03. Hold Her Tight
+04. Meet The Osmonds
+05. Too Young
+06. Sweet & Innocent
+07. Why
+08. Crazy Horses
+09. Puppy Love
+10. Down By The Lazy River(   Читать дальше...   )Жанр: Музыка, Pop-RockПродолжительность: 00:30:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DA1F60E4278BA846F1BB1C4F43B4F87B48589DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255406   (363460) от 18.10.2018
+
+Rammstein - 100 Jahre Rammstein, Arena Berlin (1996) VHSRip [H.264]
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_363460.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rammstein - культовая немецкая рок-группа, образованная в январе 1994 года в Берлине. Музыкальный стиль группы относится к жанру индастриал-метала (конкретно - его немецкой сцене Neue Deutsche Härte).1. Rammstein
+2. Herzeleid
+3. Bestrafe mich (demo)
+4. Der Meister(   Читать дальше...   )Жанр: Rock, Metal, IndustrialСубтитры: отсутствуютПродолжительность: 01:16:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AEBB49EC17C870262B58F629230786D2590C8DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1328499   (363376) от 30.09.2019
 
 Квартирник НТВ у Маргулиса. Группа Мегаполис (28.09.2019) WEB-DL [H.264/1080p-LQ]
@@ -613,84 +704,6 @@ Nelly Furtado - Spirit Indestructible (2012) [H.264/1080p]  WEB-DLRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79AF792345187D7656F1B6C9E2D7B8FE8C2B16B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577666   (358221) от 19.11.2012
-
-Alloise - Love me or leave me (2012) [H.264/1080p]  HDTVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358221.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: РОР
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:181CCEE2223589BC5E54990E2820F343EABCBE44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577519   (358213) от 19.11.2012
-
-Robbie Williams - Candy (2012) [1080p] HDTVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358213.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: POP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7450B2FCCB47F86EEB5713D95247FAC404BD0289
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577924   (358211) от 19.11.2012
-
-Pitbull - Get It Started ft. Shakira (2012) [H.264/1080p]  WEB-DLRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358211.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: POP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96CD23A2DE62CEE880D1715E5AACCE13A8AC99FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

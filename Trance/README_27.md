@@ -1,3 +1,90 @@
+###  Публикация: 1568762   (459615) от 09.08.2022
+
+VA - Dream Dance Vol 93 (2022) [MP3|320 Kbps] <Trance, Progressive>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_459615.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dream Dance Alliance - Chasing Stars (Extended Mix) (3:19)
+02. Armin van Buuren & Florentin feat. Jordan Grace - Echoes (Extended Mix) (5:41)
+03. Cosmic Gate & Olivia Sebastianelli - We Got The Fire (Extended Mix) (7:04)
+04. Paul van Dyk & Troels Hammer - Alternative Sphere (Paul van Dyk's SHINE Remix) (5:46)(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 07:24:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28F612373110A65832DB38791F299FC2F7BA51DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1162397   (459148) от 01.09.2017
+
+Frainbreeze - A Year With Suanda (2017) [MP3|320 Kbps] <Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_459148.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Roman Messer - For You (feat. Clare Stagg) (Frainbreeze Remix)  3:27
+02.  Frainbreeze - Signs Of Time (feat. Natune & Angel Falls) (Vadim Bonkrashkov Remix)  4:26
+03.  Frainbreeze & Vadim Bonkrashkov - Walhall (Radio Edit)  3:54
+04.  Frainbreeze & ThoBa - Border Lines (Radio Edit)  3:16(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 01:36:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08C3A447120D69264B9FCA7AC11025898ADD098E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568821   (458047) от 10.08.2022
+
+VA - Uplifting Trance Essentials Vol. 6 (2022) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_458047.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Synthetic Fantasy - Valiente (Original Mix)
+02. Micro Out - Wake Up (Original Mix)
+03. Edplacid Patiño - The Phoenix (Extended Mix)
+04. Roman Sand - 7 Colors (Original Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:23:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C2758670A2BCFC0B6270BBA7A46C299D41ECD05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1568824   (457936) от 10.08.2022
 
 VA - Gravitation Music Vol.2 (2022) [MP3|320 Kbps] <Trance>
@@ -662,93 +749,6 @@ VA - Epic Trance Vol.3 (2018) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF42D6D43364C16EC9A144C38E508575FA4F5F29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409727   (443264) от 18.09.2020
-
-VA - Female Vocal Trance Vol. 2 (2020) [MP3|320 Kbps] <Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443264.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Suncatcher & Exolight feat. Ellie Lawson - Let It Shine (Original Mix)
-02. Phillip J feat. Kim Casandra - Ocean's Call (Original Mix)
-03. Craving feat. Manon Polare - When Oceans Collide (Original Mix)
-04. Costa & Ana Criado - The Secret Garden (Original Mix)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 04:05:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85E46C5FA41C631FBABC324D8BF8B7920E72ECFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944358   (443126) от 06.10.2015
-
-VA - Unique Sense History Vol. 1 (Mixed By Abstract Vision) (2015) [MP3|320 кб/с]<Trance, Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abstract Vision - Excalibur (Original Mix) (5:49)
-02. Digital X - Raveland (Original Mix) (4:52)
-03. Behind The Sunset - Actus Secundus (Arisen Flame Remix) (6:05)
-04. Tolga Uzulmez - Nihavend (Mino Safy Remix) (6:55)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 03:12:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF113E3CF2F6611F2CEE909CD1183E21A3E3E632
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248696   (442559) от 20.09.2018
-
-VA - Markus Schulz - Global DJ Broadcast: Top 20 September (2018) [MP3|320 Kbps] <Trance, Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442559.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Markus Schulz & Emma Hewitt - Safe from Harm (Giuseppe Ottaviani Extended Remix)
-02.Jam El Mar & Adina Butar - Right in the Night (Extended Mix)
-03.Dennis Sheperd & Bjorn Akesson - Memoria (Extended Mix)
-04.Darren Tate - Timeless (Original Mix)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 02:19:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7965DBF961739D8181DC0EA2D40DD50DF16627C0
 ```
 
 https://mybot314.ru/tekegram_catalog/

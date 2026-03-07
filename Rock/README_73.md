@@ -1,3 +1,38 @@
+###  Публикация: 505137   (260845) от 03.06.2012
+
+Richard Marx - Inside My Head (Compilation 2CD) (2012) [MP3|256 кб/с]<Melodic Rock, Soft Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_260845.jpg" />
+</div>
+
+
+###  Подробнее
+
+2012Жанр: Melodic Rock, Soft RockПродолжительность: 00:53:55
+01. Don't Mean Nothing (4:40)
+ 02. Should've Known Better (4:26)
+ 03. Endless Summer Nights (4:25)
+ 04. Keep Coming Back (5:23)
+ 05. Take This Heart (4:02)
+ 06. Hold On To The Nights (5:12)
+ 07. Angelia (4:52)
+ 08. Hazard (4:57)
+ 09. Too Late To Say Goodbye (4:45)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A2F7C602F298E84851AA2B456BD8A301350ECD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1838561   (260671) от 23.11.2025
 
 Garrison - The Final Chapter (2025) [MP3|320 Kbps] <AOR, Arena-Rock>
@@ -801,35 +836,6 @@ Moonlight Benjamin - Wayo (2023) [MP3|320 Kbps] <Blues Rock, Voodoo Rock, Native
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3CFCE11847B1647E79ACCC1BAC120C184EC8ED2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624564   (245078) от 07.04.2023
-
-The Adekaem - 5 Albums (2015-2023) [MP3|320 Kbps] <Progressive Rock, Neo-Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245078.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2015 - The Adekaem (0)
-2017 - Sound Coloring (0)
-2021 - Exile(   Читать дальше...   )Жанр: Progressive Rock, Neo-ProgПродолжительность: 00:48:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCC149DDA75D13D072C92444E4AF327CDE5EBD2A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 825825   (453178) от 30.09.2014
+
+Тролль Гнёт Ель - 8 Альбомов + Совместные проекты (2003-2013) [MP3|320 кб/с]<Folk-Rock, Beer Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_453178.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Тролль Гнёт Ель и Михаил Горшенев - Пивоварня Ульва
+02. Альфа-Стрекозы и Тролль Гнёт Ель - Чернокнижник
+03. Алтырь и Тролль Гент Ель - Гимн вину
+04. Garlic Kings и Тролль Гнет Ель - Мёртвая шлюха(   Читать дальше...   )Жанр: Folk-Rock, Beer FolkПродолжительность: 00:19:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28003E6DDBC017B2984ADF60E6254B7B6DCEF738
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1060366   (452464) от 08.10.2016
 
 Wardruna - Runaljod - Ragnarok (2016) [MP3|320 Kbps] <Dark Folk, Pagan Folk>
@@ -741,36 +770,6 @@ Enigma - The Cross Of Changes (1993) [OGG|485 Kbps] <Ambient, New Age, Downtempo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EADC6E3243D8BA9A1B77DE83CA366CAC48B309A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 154434   (446680) от 16.09.2020
-
-James Last - 16 альбомов (1987 – 2019) [FLAC|Lossless|image, track + .cue] <Jazz, Pop, Folk, World & Country>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446680.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джеймс Ласт был лидером немецкого биг-бэнда с большим количеством фанов в Европе, хотя у него никогда не было подобной популярности в Соединенных Штатах. Фирменным знаком Ласта была аранжировка поп-хитов в стиле биг-бэнда. За свою карьеру он продал более 50 миллионов альбомов.
-Он научился играть на фортепиано в детстве, а подростком перешел на бас. Он присоединился (   Читать дальше...   )Альбомы:
-1987 James Last spielt Bach
-1988 Abendglocken (Вечерний звон)
-1990 James Last - Classics By Moonlight(   Читать дальше...   )Жанр: Pop, Easy Listening, InstrumentalПродолжительность: 37:21:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BA63E01C760892AC3DFB211AC77580EA3F6D6C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

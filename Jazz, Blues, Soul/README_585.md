@@ -1,3 +1,235 @@
+###  Публикация: 1811974   (8244) от 12.08.2025
+
+Clark Terry & Chico O'Farrill - Spanish Rice (1966) 2004, Verve [FLAC|Lossless|image + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_8244.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peanut Vendor [2:18]
+02. Angelitos Negros [2:41]
+03. El Cumbanchero [2:13]
+04. Joonji [3:37](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:33:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89FB999387F86AD17356E69A8785848D16107CB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812240   (7840) от 14.08.2025
+
+Frank Wess & Johnny Coles - Two At The Top (1983 - 1988) 2CD, 2012, Uptown Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_7840.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One for Amos [14:37]
+02. If You Can't Call, Don't Come (aka Don't Come, Don't Call) [9:26]
+03. Morning Star [9:04]
+04. Minority [12:10](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 02:18:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E157927B62043660EC7E2D529155C7BF51198D33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812726   (7424) от 16.08.2025
+
+Chico Hamilton - The Chico Hamilton Special (1960) 2016, Hallmark [FLAC|Lossless|tracks + .cue] <Hard Bop, West Coast Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_7424.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Get Lost [4:43]
+02. Autumn Leaves [4:22]
+03. New Rhumba [4:08]
+04. Way Down [5:09](   Читать дальше...   )Жанр: Hard Bop, West Coast Jazz, CoolПродолжительность: 00:34:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E8432AEC40F1D175FE68EE5AFF583D68D98ED7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813122   (7270) от 17.08.2025
+
+The Steel Bones - 3 Legs Chair (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_7270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Luck on My Side (4:00)
+02.  From the Core (4:57)
+03.  3 Legs Chair (4:06)
+04.  Wasted Years (4:27)(   Читать дальше...   )Жанр: Hard Blues RockПродолжительность: 00:43:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E55A96D14C756F7C452B7F39FEAE2F480C0A62E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813021   (7239) от 17.08.2025
+
+Blues Cousins - Call Me (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_7239.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  She Was Loughting (3:45)
+02.  Never Know (3:11)
+03.  Freezing In The Dark (7:26)
+04.  To Feel Your Love (4:01)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 02:00:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:083CF49AD4256464531C9E887BBCCB4A1ED8A672
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813112   (7227) от 17.08.2025
+
+Long Tall Deb & Colin John - Light It Up (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_7227.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Light It Up (3:55)
+02.  My Love (2:57)
+03.  Lessons In The Ground (3:35)
+04.  Sweet Dreams (3:50)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:38:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D178E127D54917E9CAFEE2537685AE80A2BAB256
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813020   (7217) от 17.08.2025
+
+Bart&Baker - International (Electro Swing) (2025) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing, Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_7217.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Eva Des Lys - Possession Obsession (Burlesque Electro Swing Version) (4:25)
+02.  Juste Bart - Bossa Lova (2:52)
+03.  Ashley Slater - Love Me, Love Me Now (Radio Version) (4:13)
+04.  Minnie Valentine - Last Night a DJ Saved My Life (3:54)(   Читать дальше...   )Жанр: Electro Swing, JazzПродолжительность: 01:13:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BEA10E785B2C2F9429A7EC3C06D2AD093C2DCB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813006   (7205) от 17.08.2025
+
+8 Ball Aitken, Taya Chani - Nightbird (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_7205.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Changed Your Mind (3:00)
+02.  Waiting On Better Days (3:32)
+03.  Nightbird (4:31)
+04.  Keep Believing (3:22)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A410DE58911D60905E33BD3FAED79ED6875904C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1813012   (7204) от 17.08.2025
 
 Al Jones - Still in Charge (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -512,238 +744,6 @@ VA - Soul Summer On The Beach (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Smoo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2835478A97B882DED27805451CEC634F423CB8B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1814564   (5932) от 25.08.2025
-
-Dj Moy - Funk Beach (2025) [FLAC|Lossless|WEB-DL|tracks] <Funk, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5932.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Play The Cool Hand (3:43)
-02.  Retro Funk (4:18)
-03.  Psiche Funk (4:20)
-04.  Party In The Jungle (4:00)(   Читать дальше...   )Жанр: Funk, SoulПродолжительность: 01:56:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5213A3FFA3EB018D3F36509C21D2166EA54201AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815119   (5506) от 28.08.2025
-
-North Mississippi Allstars - Still Shakin' (2025) [FLAC|Lossless|tracks + .cue] <Blues Rock, Psychedelic Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5506.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Preachin’ Blues
-02. Stay All Night (feat. Robert Kimbrough & Joey Williams)
-03. My Mind Is Ramblin’
-04. Pray for Peace(   Читать дальше...   )Жанр: Blues Rock, Psychedelic RockПродолжительность: 00:48:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AEBE6ABB3B3D9E1495069AA8064F3015D93451E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815249   (5332) от 29.08.2025
-
-Sadao Watanabe - Peace (2024) Victor [FLAC|Lossless|image + .cue] <Smooth Jazz, Jazz-Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5332.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peace [3:37]
-02. I Fall In Love Too Easily [6:10]
-03. Last Night When We Were Young [5:02]
-04. Deep In A Dream [6:52](   Читать дальше...   )Жанр: Smooth Jazz, Jazz-PopПродолжительность: 01:00:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C5BA974ECF305C8F2B15D845065198A1CBDC278
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815746   (4928) от 31.08.2025
-
-Leroy Vinnegar Quintet - Leroy Walks Again!! (1962, 1963) 1990, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4928.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hard to Find [6:48]
-02. Down Under [4:35]
-03. I'll String Along with You [4:08]
-04. Subway Grate [5:39](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:41:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5578893A1A506EF18F51F8FC0A0F69A2281D11D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816004   (4647) от 02.09.2025
-
-Hans Koller - Minor Meetings (1958) 2014, Sonorama Records [FLAC|Lossless|image + .cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4647.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hard Blues [2:28]
-02. Hi-Fi [4:14]
-03. Blues Around Joe [3:29]
-04. Saba [4:03](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:53:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD47D61BA080AD686E066D8180BBE8E15AA7321A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816204   (4381) от 04.09.2025
-
-Zoot Sims - On The Korner (1983) 1994, Pablo [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4381.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Hear a Rhapsody [8:20]
-02. Tonight I Shall Sleep [6:40]
-03. Pennies from Heaven [8:20]
-04. If You Could See Me Now [5:40](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:51:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F2DA6745BC114B7932DA369F3C8DDE854150FA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816593   (4274) от 05.09.2025
-
-Zoot Sims - I Wish I Were Twins (1981) 1998, Pablo [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4274.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Wish I Were Twins [5:13]
-02. Georgia on My Mind [5:41]
-03. Changes [5:17]
-04. The Touch of Your Lips [5:34](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:43:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A2AAE4ECF2AFBC321A5E0CAC9F0D7EF959E0CAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816697   (4080) от 06.09.2025
-
-Walter Trout - Sign of the Times (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Artificial (4:23)
-02.  Blood on my Pillow (5:17)
-03.  Sign of the Times (5:11)
-04.  Mona Lisa Smile (4:23)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:49:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1C62BE02D59D49437FD138B6CCF415EBC619C3A
 ```
 
 https://mybot314.ru/tekegram_catalog/

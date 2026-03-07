@@ -1,3 +1,235 @@
+###  Публикация: 1202214   (790560) от 28.01.2018
+
+Peter Weniger - Point of Departure (2014) 2016, Skip Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Point of Departure [05:25]
+02. Kinch [05:47]
+03. I Can See You from Here [05:35]
+04. Jack in the Back [17:21](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:05:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34F023448844D7FE513217E514CFFAFA1ACEEB07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202245   (790538) от 28.01.2018
+
+VA - The Story Of Bossa Nova (2000) [FLAC|Lossless|tracks + .cue] <Самба, Джаз>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790538.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leila Pinheiro - Chega De Saudade [2:36]
+02. Marcos Valle - Samba De Verao [2:30]
+03. Pery Ribeiro - Garota De Ipanema [2:13]
+04. Joyce With Gilson Peranzzetta - Corcovado [3:38](   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5867374473C11AE564C56409D4EE8BAB74CCB910
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202154   (790532) от 28.01.2018
+
+Kazumi Watanabe - Guitar Renaissance V (2012) [FLAC|Lossless|image + .cue] <Jazz, New Age, Guitar>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790532.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hey Jude (6:19)
+02. Fly Me To The Moon (5:34)
+03. Going Home (6:10)
+04. Menuetii (3:51)(   Читать дальше...   )Жанр: Jazz, New Age, GuitarПродолжительность: 01:00:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E19BB2222E71DE937AF8008F4FE6B3D631B0720B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202304   (790526) от 28.01.2018
+
+Beth Hart / Бет Харт - Screamin' For My Supper (1999) Atlantic, Lava, 143 Records, 83192-2, US [MP3|320 Kbps] <Blues Rock, Rock, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just a Little Hole 5:16
+02. Delicious Surprise 3:48
+03. L.A. Song 3:56
+04. Is That Too Much To Ask 3:33(   Читать дальше...   )Жанр: Blues Rock, Rock, SoulПродолжительность: 01:00:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D88D622DE28AF934017944298BB8D8B90D98397
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275452   (790524) от 11.01.2019
+
+Jimmie Noone - 1930 - 1934 (1992) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790524.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When You're Smiling [2:49]
+02. I Lost My Gal From Memphis [2:27]
+03. On Revival Day [2:34]
+04. I'm Drifting Back To Dreamland [2:45](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:10:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4793E3A5CCF7B4DE4DAAEDE171FC7E7C6AF02A31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275479   (790522) от 11.01.2019
+
+David Tixier Trio - Universal Citizen (2018) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790522.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Far From the World
+02. Tokyo
+03. Lost Among Ghosts
+04. Tribute to an Old Man(   Читать дальше...   )Жанр: Contemporary Jazz, FusionПродолжительность: 00:46:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18B083EAFAED5EBCBAEAA6CF333F7050D123D796
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275280   (790521) от 11.01.2019
+
+Chris Whitehouse's Connected - Grounded (2015) [FLAC|Lossless|WEB-DL|tracks] <Fusion, Jazz-Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790521.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Double Down
+02. Head Honcho
+03. Yes, And?
+04. Two Four One(   Читать дальше...   )Жанр: Fusion, Jazz-RockПродолжительность: 00:59:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4D4D637B13C485C93B586C4A256BF0DA740D090
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275284   (790518) от 11.01.2019
+
+David Linx - 7000 Miles (2018) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790518.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Poses
+02. From One Family To Another
+03. 7000 Miles
+04. America(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:45:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AE12ACC6E5A39A378338B109933EEB58EF46CEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1275432   (790517) от 11.01.2019
 
 Charlie Haden & Kenny Barron - Night And The City (1996) 1998, Verve [FLAC|Lossless|tracks + .cue] <Post-Bop, Mainstream Jazz, Piano Jazz>
@@ -512,238 +744,6 @@ Adele - 30 (2021) [FLAC|Lossless|tracks + .cue] <Pop-Jazz, Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82179E9EF67C455113BB3122FAC8A47826226C6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387999   (790134) от 04.06.2020
-
-Ella Fitzgerald - Clap Hands, Here Comes Charlie! 1961 (2012) Analogue Productions [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Night in Tunisia [4:10]
-02. You're My Thrill [3:39]
-03. My Reverie [3:20]
-04. Stella by Starlight [3:19](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:50:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44AC7EE482A2E94A6B252BF0982AA59E8DAF015D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387997   (790133) от 04.06.2020
-
-Dizzy Gillespie - Soul Time (2002) Castle Pulse [FLAC|Lossless|tracks + .cue] <Bop, Soul-Jazz, Jazz-Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790133.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slewfoot [5:01]
-02. Soul Mama [3:45]
-03. Azure Blue [4:37]
-04. Sweet Stuff [4:18](   Читать дальше...   )Жанр: Bop, Soul-Jazz, Jazz-FunkПродолжительность: 00:39:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99A78A5C05FFE3A7BB200D2327FA350A120D1044
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388007   (790075) от 04.06.2020
-
-Marvin Gaye - What's Going On 1971 (2009) Limited Edition [FLAC|Lossless|tracks + .cue] <Funk / Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790075.jpg" />
-</div>
-
-
-###  Подробнее
-
-В годы активной борьбы чернокожих за свои права, к которой подключились ведущие музыканты (Сэм Кук, Джеймс Браун, Отис Реддинг, Арета Франклин), артистам «Мотауна» было указано всячески избегать социальных шероховатостей. Эта установка вызывала острое неприятие Гэя, который считал предлагавшийся ему незамысловатый и откровенно коммерческий ритм-энд-блюз недостойным (   Читать дальше...   )Live At The Kennedy Center (May 1 1972):
-
-01. Sixties Medley (Live) (13:23)
-02. Right On (Live) (7:34)(   Читать дальше...   )Жанр: Funk / SoulПродолжительность: 01:17:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD2DEAFD9BA01AB8B60E0683C964F0BA65F03BD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275523   (789937) от 12.01.2019
-
-Duende Libre - Drift (2018) [FLAC|Lossless|tracks + .cue] <Latin Jazz, Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789937.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zephyr (for Meltem) (feat. Chava Mirel) (6:10)
-02. Drift (6:17)
-03. Spain (feat. Chava Mirel) (8:11)
-04. Subway (feat. Chava Mirel) (6:46)(   Читать дальше...   )Жанр: Latin Jazz, FunkПродолжительность: 00:46:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C508AC14385AF285821424886D3BDB8D3920CF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275497   (789935) от 12.01.2019
-
-Dragon's Brew - Cold Brew (2018) [FLAC|Lossless|WEB-DL|tracks] <Fusion, Jazz-Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. VNH
-02. Bekaphobia
-03. Kuligin C
-04. Aktivovany Jelen(   Читать дальше...   )Жанр: Fusion, Jazz-RockПродолжительность: 00:56:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D90EACCBD006E49FF1D9AFE05ED6A6B3355A84DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275634   (789921) от 12.01.2019
-
-Nat Adderley - "That's Nat" Adderley (1955) 1991, Savoy Jazz [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789921.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Porky [5:16]
-02. I Married An Angel [4:33]
-03. Big 'E' [10:41]
-04. Kuzzin's Buzzin' [5:11](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:37:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:159A3D64DEE7324D4FDB3C7405CCB23A9F58A912
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275521   (789918) от 12.01.2019
-
-Alex Skolnick Trio - Conundrum (2018) [FLAC|Lossless|tracks + .cue] <Fusion, Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789918.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unbound
-02. Django Tango
-03. Conundrum
-04. Gymnopedie No.1(   Читать дальше...   )Жанр: Fusion, JazzПродолжительность: 00:54:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:844FA36D0A1A1457F8A12EDED066F1D787D7CA0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275491   (789916) от 12.01.2019
-
-Denny Jiosa - Mueve Tu Cuerpo (2018) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fumarlo Bebe
-02. Mueve Tu Cuerpo
-03. Missing You
-04. Dance In Heaven(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:53:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF818EA76F2BFE374B074BA406424327E491F8B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

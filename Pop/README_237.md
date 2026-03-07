@@ -1,3 +1,206 @@
+###  Публикация: 1421480   (317480) от 05.11.2020
+
+Ольга Воронец - Гляжу в озера синие... (2002) [FLAC|Lossless|tracks + .cue]<Ретро>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_317480.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Гляжу в озера синие...
+02. А где мне взять такую песню
+03. То не ветер ветку клонит
+04. Живет моя красотка(   Читать дальше...   )Жанр: РетроПродолжительность: 01:04:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82C3E66A77D1FD6648D66515CEA2C4B25B3225A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421482   (317478) от 05.11.2020
+
+Тамара Миансарова - Золотой век русской эстрады  (2003) [FLAC|Lossless|tracks + .cue]<Ретро>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_317478.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Память
+02. Берёза
+03. Мой смешной Гаргантюа
+04. Бабушка, научи меня танцевать(   Читать дальше...   )Жанр: РетроПродолжительность: 00:55:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:928CF96BE61F7C6ECFC9E6D5799EF93307138A18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421319   (317475) от 05.11.2020
+
+VA - Rare80 Records - Rare80 Volume 1 (2012) 2CD, Unofficial Release [FLAC|Lossless|image + .cue] <Italo-Disco, New Wave, Synth-pop, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_317475.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rare80 Volume 1 CD1
+01. Sign System - Man On The Run (Extended Version)
+02. One To One - There Was A Time (Dance-Mix)
+03. Style - Empty Bed (Full Version)(   Читать дальше...   )Жанр: Italo-Disco, New Wave, Synth-pop, DiscoПродолжительность: 02:36:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF887A78FFEC06EBC5BD274598FF37BD4A2D83A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421322   (317474) от 05.11.2020
+
+VA - Rare80 Records - Rare80 Volume 2 (2012) 2CD, Unofficial Release [FLAC|Lossless|image + .cue] <Italo-Disco, New Wave, Synth-pop, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_317474.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rare80 Volume 2 CD1
+01. Shanghai - Ballerina (Club Mix)
+02. Andrea - Macho Man (Macho Man Version)
+03. Rewind - Rosalie (Pop & Go) (Extended Version)(   Читать дальше...   )Жанр: Italo-Disco, New Wave, Synth-pop, DiscoПродолжительность: 02:36:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EFFF599D4AAD54D4B729FD873A96691D2AF8AC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959406   (317210) от 24.11.2015
+
+Texas - Texas 25 (2015) 2CD Deluxe Edition [MP3|320 кб/с]<Pop, Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_317210.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шотландцы Texas выпустили новый альбом «Texas 25». Стандартное издание включает в себя 12 треков, - в том числе восемь перезаписанных известных хитов (а ля «Black Eyed Boy», «Halo», «I Don't Want a Lover», «Say What You Want», «Summer Son» и «The Conversation») и четыре совершенно новых. Специально в честь юбилейного релиза, старые песни были переработаны и перезаписаны (   Читать дальше...   )01. Start A Family
+02. Black Eyed Boy
+03. Say What You Want
+04. Supafly Boy(   Читать дальше...   )Жанр: Pop, Pop-RockПродолжительность: 01:44:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10121EE9E296439A6316A5477D7CE2CC7EB3EFCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959420   (317206) от 24.11.2015
+
+Anastacia - Ultimate Collection (2015) [FLAC|tracks + .cue]<Pop, Pop Rock, Funk, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_317206.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Outta Love (04:04)
+ 02. Left Outside Alone (04:17)
+ 03. Sick and Tired (03:30)
+ 04. Paid My Dues (03:21)(   Читать дальше...   )Жанр: Pop, Pop Rock, Funk, SoulПродолжительность: 01:15:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:879671592EBD72749C5082483E2CDA6C2A563D19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959261   (317083) от 24.11.2015
+
+VA - 538 Hitzone: Best Of 2015 (2015) 2CD [FLAC|image+.cue]<Pop, Dance, Top40>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_317083.jpg" />
+</div>
+
+
+###  Подробнее
+
+К концу года многие радиостанции стали подводить итоги своих хит-парадов и публиковать серии Best Of. Не осталась в стороне и Нидерландская 538 Hitzone. Эта серия хорошо знакома нашим членам клуба, она давно и основательно прописалась на страницах нашего трекера. Тем интереснее послушать годовой топ.CD1:
+01. Years & Years - King  (3:34)
+02. OMI - Cheerleader (Felix Jaehn Remix)  (3:02)
+03. Major Lazer feat. MO & DJ Snake  - Lean On  (2:57)(   Читать дальше...   )Тип издания: 2CD, CompilationЖанр: Pop, Dance, Top40Продолжительность: 02:36:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C29F0E61D324681D8C9F00211FEE80486F00D0FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1182224   (317066) от 10.11.2017
 
 Collage - I Grandi Successi (1997) CD [MP3|320 Kbps] <Electronic, Pop Rock, Disco, Europop>
@@ -539,209 +742,6 @@ The Ting Tings - The Black Light (2018) [FLAC|Lossless|WEB-DL|tracks] <Alternati
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69F3C1EB65ACEBE59CC192E6C755A8A778CA31DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182823   (314516) от 11.11.2017
-
-VA - BRAVO The Hits 2017 (2017) [FLAC|Lossless|WEB-DL|tracks] <Top 40, Pop, Electronic, R&B, Dancepop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ed Sheeran - Shape Of You (3:52)
-02. Luis Fonsi feat. Daddy Yankee - Despacito (3:49)
-03. Post Malone feat. 21 Savage - rockstar (3:38)
-04. J Balvin & Willy William - Mi gente (3:05)(   Читать дальше...   )Жанр: Top 40, Pop Compilation, Pop, Rock, Electronic, Dance, Indie Pop, Europop, R&B, Hip Hop, Pop Rap, House, Euro House, Deep House, Electro, Synthpop, Pop Rock, Alternative RockПродолжительность: 02:41:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F20D5F5B06F72ECB50EF94886E4C9D600A51FF32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182551   (314463) от 11.11.2017
-
-Taylor Swift - reputation (2017) Scene [FLAC|Lossless|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314463.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ...Ready For It?
-02. End Game (Feat. Ed Sheeran & Future)
-03. I Did Something Bad
-04. Don’t Blame Me(   Читать дальше...   )Жанр: PopПродолжительность: 00:55:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B06CFC7078868CEED8CB462BFAC0871D3D34DC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182496   (314454) от 11.11.2017
-
-Давид Тухманов - Белый танец (Лучшие песни 70х и 80х гг) (1997) [APE|Lossless|image + .cue] <Ретро>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314454.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ольга Вардашева И Людмила Невзгляд	- Белый Танец 2:42
-02. Валерий Ободзинский	- Эти Глаза Напротив 3:28
-03. София Ротару - В Доме Моём 3:58
-04. Вадим Мулерман - Налетели Вдруг Дожди 3:06(   Читать дальше...   )Жанр: РетроПродолжительность: 01:02:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EB3B3C8F5F04226E086C6975950BC745BC4B058
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959437   (314381) от 25.11.2015
-
-VA - Disco Discharge (2009-2012) [MP3|184-320 кб/с]<Disco, Italo Disco, Hi NRG, Funk>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314381.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dr. Buzzard's Original Savannah Band - Cherchez La Femme/Se Si Bon (5:47)
-02. Double Discovery - Thanks For Loving Me (8:45)
-03. Cheryl Lynn - Got To Be Real (5:08)
-04. Rose Royce - Do Your Dance (9:19)(   Читать дальше...   )Жанр: Disco, Italo Disco, Hi NRG, Funk|Продолжительность: 39:07:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AB3CD71DF6506A72378672615223EC780283105
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182510   (314360) от 11.11.2017
-
-Technotronic - Best Of (2012) Compilation [FLAC|Lossless|tracks + .cue] <Euro House, Technopop>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314360.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pump Up The Jam (3:36)
- 02. Get Up (Before The Night Is Over) (3:29)
- 03. This Beat Is Technotronic (feat. MC Eric) (3:38)
- 04. Rockin Over The Beat (Rockin' Over Manchester) (7'' rmx) (4:08)(   Читать дальше...   )Жанр: Euro House, TechnopopПродолжительность: 01:08:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F1E43EC0C42B741578D95A00A2F0C9DA66B7179
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260157   (314350) от 06.11.2018
-
-VA - 90s 00s and 10s Love Songs (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314350.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meg Birch - One Last Time
-02. The Shaken Bakers - Love Will Keep Us Alive
-03. Shannon & Keast - Yours
-04. Karizma Duo - A Thousand Miles(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00AAB8A708D1AE7DAA2982034F8BA620C4CEC1A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583119   (314343) от 13.10.2022
-
-Long Tall Ernie & The Shakers - Meet The Monsters (1979) LP [MP3|320 Kbps] <Electronic, Pop Rock, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314343.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. (I'm The) Mummy (2:57)
-02. Frankenstein (3:21)
-03. Quasimodo (3:18)
-04. Phantom Of The Opera (5:20)(   Читать дальше...   )Жанр: Electronic, Pop Rock, DiscoПродолжительность: 00:30:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DDAEC7344A16AD2BFE88FD560C300C02F1E6176
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,56 @@
+###  Публикация: 1397667   (737468) от 22.07.2020
+
+Microsoft Windows 10.0.17763.1339 Version 1809 (Updated July 2020) - Оригинальные образы от Microsoft MSDN [Ru]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_737468.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 1809 Build 17763.1339.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1F102ED3911728319BD67C3EB46AEC297B667C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397675   (737432) от 22.07.2020
+
+Windows Server, Version 2004 (10.0.19041.388) (Updated July 2020) - Оригинальные образы от Microsoft MSDN [Ru/En]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_737432.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows Server SAC - канал Semi-Annual Channel идеально подходит для клиентов, быстро внедряющих инновации. Он помогает им начать использовать возможности новой операционной системы раньше. Это касается как приложений, особенно основанных на контейнерах и микрослужбах, так и программного гибридного центра обработки данных. В рамках канала Semi-Annual Channel для (   Читать дальше...   )Язык интерфейса: Английский, Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA00C64BB36B7D5515BF43AD1358FE78C90F3FB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1397674   (736951) от 23.07.2020
 
 Microsoft Windows 10.0.19041.388 Version 2004 (Updated July 2020) - Оригинальные образы от Microsoft MSDN [Ru]
@@ -636,61 +689,6 @@ Microsoft Windows 10.0.19041.450 Version 2004 (Updated Aug 2020) - Оригин�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:970AD7C20A4E0BE1510D79CC2AE1F8FB14D50A11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289010   (687717) от 15.03.2019
-
-Microsoft Windows 10.0.17763.316 Enterprise LTSC Version 1809 (Updated March 2019) - Оригинальные образы от Microsoft MSDN=VLSC [Ru]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687717.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальные образы - Windows 10 Enterprise LTSC Version 1809 Build 17763.316
-Windows 10 «Корпоративная с долгосрочным обслуживанием» (англ. Enterprise LTSC, ранее — Enterprise LTSB) — специальный вариант «Корпоративной», отличается от остальных редакций долгосрочной поддержкой одной версии и отсутствием Магазина и UWP приложений (кроме приложения «Параметры»).Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02CCEC8491E7BE5FEB9A42091895FA104951E81B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029015   (683685) от 25.06.2016
-
-Recovery USB-flash for Sony VAIO SVF152A29V (SVF1521H1R) Windows 8 [Ru]
-
->>ОС Windows
->>Windows OEM Recovery СD/DVD
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683685.jpg" />
-</div>
-
-
-###  Подробнее
-
-В раздаче содержится образ USB-Recovery флешки созданной на ноутбуке Sony VAIO svf152a29v с помощью программы VAIO Care
-Образ флешки создан программой Acronis True Image Home 2014.
-Служит для восстановления ноутбука к заводским настройкам.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D87C3D2CE4838C995167EA435E639664CD770F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

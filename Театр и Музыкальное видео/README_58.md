@@ -1,3 +1,87 @@
+###  Публикация: 1031248   (651128) от 04.07.2016
+
+Легенды Ретро FM полная версия (2015) HDTV [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_651128.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полная версия международного музыкального фестиваля "Легенды Ретро FM-2015"! Зрители увидят потрясающее шоу, собравшее аншлаг в "Олимпийском".01. Наталья Гулькина - Дискотека
+02. Наталья Гулькина - Айвенго
+03. Лайма Вайкуле - Я вышла на Пикадилли
+04. Лайма Вайкуле - Листья Желтые(   Читать дальше...   )Производство: РоссияЖанр: PopРежиссер: 1 каналАктеры: Наталья Гулькина, Ricchi e Poveri, Лайма Вайкуле, Boney M, Виктор Салтыков, C.C.Catch, Евгений Осин и др.Перевод: не требуетсяПродолжительность: 03:44:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C92EF0C382DE10A13D679A83A33AE2A94E05D8FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 903332   (651102) от 05.06.2015
+
+Muse - BBC Radio 1's Big Weekend (2015) HDTVRip [H.264/720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_651102.jpg" />
+</div>
+
+
+###  Подробнее
+
+Запись выступления на музыкальном фестивале BBC Radio 1 в Норвиче 23 мая 2015 г.Производство: Earlham Park, Norwich, EnglandЖанр: Alternative RockПродолжительность: 01:04:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1370C927F391C027F51795458DB951DC3A6C4B4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031224   (650914) от 04.07.2016
+
+David Gilmour - Live in Wroclaw (2016) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_650914.jpg" />
+</div>
+
+
+###  Подробнее
+
+Запись телетрансляции выступления Дэвида Гилмора в польском Вроцлаве 25.06.2016гSet 1:
+01. 5 A.M. (with orchestra)
+02. Rattle That Lock (with orchestra)
+03. Faces of Stone (with orchestra)(   Читать дальше...   )Производство: TVP2Жанр: Progressive Rock / Psychedelic Rock / Art RockРежиссер: TVP2Актеры: David GilmourПеревод: ОтсутствуетПродолжительность: 02:44:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A3945EE37D1E772227911F46F6CB73DB215001B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031665   (649416) от 05.07.2016
 
 BRUTTO - Live in Atlas (2016) WEBRip [H.264/720p-LQ]
@@ -668,100 +752,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7411635E50EAE2DF61BC00448EF1D3688F8357E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 770600   (637650) от 11.07.2016
-
-Motörhead Videography / Motorhead Видеография (29 клипов) (1980-2010) TVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637650.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Rock Out
-02 - God Save The Queen (2000)
-03 - Get Back In Line (2010)
-04 - I Ain't No Nice Guy (1992)(   Читать дальше...   )Сборник из 29 видеоклипов. Скачано из сети.
-Некоторые видео пришлось вытягивать или восстанавливать...
-Использовались программы - Corel , AVS, SolveigЖанр: Heavy metal, hard rock, speed metal, rock and rollПеревод: ОтсутствуетСубтитры: нетПродолжительность: 01:52:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DC160063C88CD43182A6EE9F30B6DADAE79FE5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 519218   (636690) от 06.07.2012
-
-Whitesnake:  "Live In The Still Of The Night" (MTV-HD) (2004) HDTV 1080i [H.264]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_636690.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это запись концерта группы01. Burn
-02. Bad Boys
-03. Love Ain"t No Stranger
-04. Is This Love
-05. Give Me All Your Love
-06. Ain"t No Love in the Heart of the City
-07. Don"t Break My Heart Again
-08. Here I Go Again
-09. Still of the NightЖанр: RockАктеры: David Coverdale, Doug Aldrich, Reb Beach,  Timothy Drury,  Tommy Aldridge,  Marco MendozaПеревод: Не требуетсяПродолжительность: 00:58:58
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 800246   (636310) от 01.07.2014
-
-Tarja Turunen & Mike Terrana - Beauty & The Beat (2014) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636310.jpg" />
-</div>
-
-
-###  Подробнее
-
-First Part
-* Orchestra — Carmen Overture
-* Mike — Concert For Violin & Oboe (Bach)
-* Tarja — Blute Nur (Bach)(   Читать дальше...   )Жанр: Neoclassical, ClassicalПродолжительность: 02:03:02+00:07:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:670ECCC46B3C42EDA5EF6313A60270D3940FB5C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

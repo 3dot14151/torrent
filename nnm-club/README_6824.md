@@ -1,254 +1,25 @@
-###  Публикация: 1209635   (779148) от 28.02.2018
+###  Публикация: 1207291   (780277) от 20.02.2018
 
-Н.В. Тулупов, П.М. Шестаков (ред.) | Пасхальный сборник (1913) [JPG]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779148.jpg" />
-</div>
-
-
-###  Подробнее
-
-Повести и рассказы русских писателей.Жанр: Детская прозаФормат: JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DDC1B5707AFA634AE613434ECBE39DDA480D403
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209849   (779147) от 28.02.2018
-
-VA - Yoga Love - The Full Moon Sessions 2 (2018) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Ambient>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779147.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Arrival  11:20
-02.  Polyshake Bells  13:13
-03.  Interludium  02:54
-04.  Good Mooning  29:22(   Читать дальше...   )Жанр: Downtempo, AmbientПродолжительность: 03:53:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43DACBB21C71435799AB69AE5DCDA848288AED39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209670   (779146) от 28.02.2018
-
-Amanda Ginsburg - Jag har funderat pa en sak (2018) [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779146.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I de manga valens land (4:09)
-02. Vem ar du? (4:20)
-03. En romantisk komedi (2:07)
-04. Flykten fran vardagen (feat. Nils Landgren) (4:25)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:45:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:552814170AD452FC25A6BBEE37B7A773EA9D65A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209701   (779145) от 28.02.2018
-
-VA - Winter Deep House (2018) [MP3|320 Kbps] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779145.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 7even (GR) - Make It Hot (Original Mix)
-002. The Models - Twist & Bounce
-003. Jaques Le Noir - Now It's Time (Original Mix)
-004. Beach Coffee Ensemble - Bsospicius Area(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 12:30:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D29F35AE37201735FF339649FB03D75B24836FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209763   (779144) от 28.02.2018
-
-VA - Vocal Endless Story (2018) [MP3|320 Kbps] <Energy, Blissful, Uplifting>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779144.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matt Bukovski & Andy Elliass & Arczi With Aneym - All I Can Do (Extended Mix) 6:34
-02. Andy Moor & Michele C - We Can Be Free (Evan Pearce Remix) 6:33
-03. Rene Ablaze Ft. Crystal Blakk - Torn Into Pieces (Extended Mix) 7:11
-04. Sarah Lynn - Put You Together Again (Extended Mix) 7:28(   Читать дальше...   )Жанр: Energy, Blissful, UpliftingПродолжительность: 01:45:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7D440E783B59C3F11E9818248B75880C6A4F652
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209676   (779143) от 28.02.2018
-
-Frantic Amber - Burning Insight (2015) Reissued, 2017 [FLAC|Lossless|image + .cue] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779143.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Burning Insight
-03. Bleeding Sanity
-04. Soar(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:54:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93273802989F67CAA6E95F916EE694C97D364151
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209582   (779142) от 28.02.2018
-
-Ball Park Music - Good Mood (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779142.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The End Times (04:07)
-2. I Am A Dog (03:36)
-3. Frank (03:49)
-4. The Perfect Life Does Not Exist (03:22)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:41:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0FF1D303812463549C6117A98990C291FE938C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209819   (779141) от 28.02.2018
-
-Cary Brothers - Who You Are (2007) [FLAC|Lossless|tracks + .cue] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779141.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jealousy (4:52)
-02. Ride (3:41)
-03. Who You Are (3:41)
-04. The Glass Parade (4:50)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:53:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58B57B5A34CCC76279F6E13B4FEEE6D6EA105E08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209719   (779140) от 28.02.2018
-
-Smolik - Smolik3 (2006) [FLAC|Lossless|tracks + .cue] <Downtempo, Nu-Jazz, Chillout>
+Хеnturiоn Prime - Humаnitу Plus (2017) [FLAC|Lossless|image + .cue] <FuturePop, SynthPop, EBM>
 
 >>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
+>>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779140.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780277.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. S.Dreams (07:26)
-02. Cmyk (04:45)
-03. Cye (03:26)
-04. 50 Trees (04:10)(   Читать дальше...   )Жанр: Downtempo, Nu-Jazz, ChilloutПродолжительность: 00:47:41
+01. Artifact I (4:27)
+ 02. Propulsion (4:58)
+ 03. Milestone (4:52)
+ 04. Artifact II (2:14)(   Читать дальше...   )Жанр: FuturePop, SynthPop, EBMПродолжительность: 00:52:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F3BD9858ED6B31B85875105937A2F3CD84113FE1
+magnet:?xt=urn:btih:A6AC40A212BFCDB5CF356175763F1ABE700BC0BA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -256,57 +27,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209639   (779139) от 28.02.2018
+###  Публикация: 1207769   (780276) от 20.02.2018
 
-The Bad Flowers - Starting Gun (2018) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thunder Child (03:57)
-02. Lions Blood (03:47)
-03. Secrets (03:44)
-04. Rich Man (03:16)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A7ADB84445B9A84D10A955ADB35E2332E2C0464
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209694   (779138) от 28.02.2018
-
-Flunk - Morning Star (2004) [FLAC|Lossless|tracks + .cue] <Downtempo, Synth-pop>
+PeakHour 4.0.8 [En]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779138.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780276.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Morning Star (03:52)
-02. On My Balcony (03:11)
-03. Spring To Kingdom Come (05:01)
-04. Six Seven Times (04:39)(   Читать дальше...   )Жанр: Downtempo, Synth-popПродолжительность: 00:35:04
+PeakHour красивый, визуализатор сетевого трафика, который живет в строке меню macOS. Он обеспечивает мгновенное отображение текущего трафика, подсчитает количество переданных и принятых данных или состояние WiFi, в режиме реального времени.
+
+PeakHour идеально подходит для мониторинга ваших сетевых устройств: Интернет, WiFi, NAS, серверы и многое другое. PeakHour (   Читать дальше...   )Тип издания: macOS SoftwareРазработчик: Digitician Inc.Поддерживаемая ОС: OS X 10.9 или вышеЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1DB52D5E84007984AD67EF40BB0C91F7FA7CFE66
+magnet:?xt=urn:btih:F348794DFF7E792D929C1F12A2C7AE0CFB0214D6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -314,28 +55,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209656   (779137) от 28.02.2018
+###  Публикация: 1207910   (780275) от 20.02.2018
 
-Camp Cope - How to Socialise & Make Friends (2018) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Rock, Indie Rock>
+Эмиль Золя | Тереза Ракен (2018) [MP3]
 
->>Архив торрентов
->>Архив Музыки
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779137.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780275.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Opener (03:40)
-02. How to Socialise & Make Friends (03:14)
-03. The Face of God (03:50)
-04. Anna (05:52)(   Читать дальше...   )Жанр: Alternative, Rock, Indie RockПродолжительность: 00:38:10
+От автора - В «Терезе Ракен» я поставил перед собой задачу изучить не характеры, а темпераменты. В этом весь смысл книги. Я остановился на индивидуумах, которые всецело подвластны своим вершам и голосу крози, лишены способности свободно проявлять свою волю и каждый поступок которых обусловлен роковой властью их плоти. Тереза и Лоран — животные в облике человека, (   Читать дальше...   )Жанр: КлассикаПродолжительность: 09:28:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7F65CF405A55D52B7834489AEDE86F7B6F407CB6
+magnet:?xt=urn:btih:B0D6AC601925844BEB49CF16A56B21DF8FFABE26
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -343,141 +81,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209714   (779136) от 28.02.2018
+###  Публикация: 1207299   (780274) от 20.02.2018
 
-Журнал | Salon-interior №3 (235) (март 2018) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779136.jpg" />
-</div>
-
-
-###  Подробнее
-
-Авторитетный российский журнал по архитектуре и дизайну представляет на своих страницах все новое, уникальное, эксклюзивное, что создается в стране и мире, помогая читателям всегда быть в курсе современных тенденций архитектуры и дизайна. События, мировые выставки, обзоры аксессуаров, исторические здания, интервью с мировыми звездами, ландшафтные и флористические (   Читать дальше...   )Жанр: Архитектура, дизайн, строительствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7467BE84CA48390D3734AD076CDEC65F2A1DC1DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209740   (779135) от 28.02.2018
-
-Molecule (Molécule) Collection 4 Releases (2016-2018) Because Music [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Techno, Electro, Experimental, Field Recording>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779135.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aria (05:08)
- 02. Elements (04:19)
- 03. Sila (04:05)
- 04. 5951Hz (05:26)(   Читать дальше...   )Тип издания: CD, WebЖанр: Ambient/Techno/Electro/Experimental/Field RecordingПродолжительность: 01:05:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDC7493AD6D5BA65930F85381E36AF5D720EC9F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209580   (779134) от 28.02.2018
-
-Angra - OMNI (ØMNI) (2018) [FLAC|Lossless|image + .cue] <Progressive Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Light of Transcendence
-02. Travelers of Time
-03. Black Widow’s Web
-04. Insania(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 01:00:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BEE7049534303D7D367C0A79EC50913E6C99B3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209351   (779133) от 28.02.2018
-
-VA - Future Trance Vol.83 (2018) [MP3|320 Kbps] <Trance, Progressive House, Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779133.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD:1
-01.  Axwell & Ingrosso  -  Dreamer  4:11
-02.  Jax Jones feat. Ina Wroldsen  -  Breathe  3:28
-03.  Martin Garrix, Matisse & Sadko  -  Forever  3:38(   Читать дальше...   )Жанр: Trance, Progressive House, Progressive TranceПродолжительность: 01:18:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1D2F3714AE39444CB864A859E6817948675859B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209767   (779132) от 28.02.2018
-
-Г. А. Белов и др. (ред.) | Из истории Всероссийской чрезвычайной комиссии (1958) [DJVU]
+А.А. Борисяк | Курс исторической геологии [2-е изд.] (1931) [PDF]
 
 >>Научная и техническая литература
->>Историческая литература
+>>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779132.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780274.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Документы настоящего сборника систематизированы в двух разделах: «Военно-революционный комитет в борьбе с контрреволюцией в первые дни Советской власти», «Создание и деятельность Всероссийской Чрезвычайной комиссии».
-
-Внутри этих разделов документы расположены в строго хронологическом порядке по дате событий.
-(   Читать дальше...   )Жанр: История, политология, документалистикаФормат: DJVU
+Второе издание „Курса исторической геологии" построено по тому же общему плану, как и первое. В основу его положены те же обобщения (учение о геосинклиналях), лишь с изменениями, которые они претерпели за истекшие десять лет. Как и в первом издании, автор ставит себе задачей дать по возможности (поскольку он имеется) равномерный фактический материал для всей (   Читать дальше...   )Жанр: История, науковедение, геология, палеонтологияФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8AE4FEFE6433F8CC0A688AC9A40147261B742BCE
+magnet:?xt=urn:btih:F6F874508EBEF078253282CEB2743F2877793759
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -485,249 +107,590 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209716   (779131) от 28.02.2018
+###  Публикация: 1207923   (780273) от 20.02.2018
 
-Беседа с Евгением Федоровым (16.02.2018) WEBRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779131.jpg" />
-</div>
-
-
-###  Подробнее
-
-Руководитель направления НОД по взаимодействию с казачеством и представители Фонда социально-экономического развития регионов «Казна Творца РА» встретились с депутатом Государственной Думы, координатором Национально-Освободительного Движения Евгением Федоровым. Депутат и гости обсудили исторические и  правовые вопросы прекращения существования СССР.Производство: Телевидение Национально-Освободительного ДвиженияЖанр: ПолитикаПродолжительность: 00:52:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EAA2E950E40D7293CA6EF9A0FC208526C606501
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209816   (779130) от 28.02.2018
-
-VA - Galactic Dream Synthspace Version (2018) [MP3|192-320 Kbps] <Synthspace, Synthwave, Electronic>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779130.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Pavel Kuznetsov - Introduction
-002. SellorektLA Dreams - Evolution of Dreams
-003. Son of Mars - Orbital Voyage
-004. Secret Space - Space Odyssey(   Читать дальше...   )Жанр: Synthspace, Synthwave, ElectronicПродолжительность: 08:20:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E77CCE5E7E3714914C58E6597F017F1D5602F9FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209772   (779129) от 28.02.2018
-
-VA - De Top 100 Aller Tijden 1982 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, Rock, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779129.jpg" />
-</div>
-
-
-###  Подробнее
-
-"De Top 100 Aller Tijden" (Топ 100 на Все Времена) от голландской радиостанции "Radio-Veronica" .001. June Lodge & Prince Mohammed - Someone Loves You Honey (3:51)
-002. Ph.D - I Won't Let You Down (4:06)
-003. O. M. D. - Maid Of Orleans (4:08)
-004. Musical Youth - Pass The Dutchie (3:22)(   Читать дальше...   )Жанр: Pop, Rock, DiscoПродолжительность: 06:32:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04A6266A57A9F5A8508C313FD33473524154B2D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209910   (779128) от 28.02.2018
-
-Midori - The Healer (2018) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779128.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Those Loving Hands (10:29)
-2. The Orbs (10:11)
-3. Light and Warmth (11:50)
-4. Gentle was the Moment (6:47)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:51:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76B07D438DBA32E548A2E46D8AFF2A7476428048
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209859   (779127) от 28.02.2018
-
-Журнал | Полный привод 4x4 №1-2 (170) (январь-февраль 2018) [PDF]
-
->>Автомобили
->>Автомобильные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779127.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал рассказывает о том, как правильно управлять полноприводной машиной, чтобы максимально эффективно и безопасно использовать весь ее потенциал на всех типах дорог - от асфальтированных магистралей до лесовозных усов. Дает практические рекомендации: по тюнингу автомобиля: что можно сделать, чем усовершенствовать и дополнить внедорожник, квадроцикл, снегоход; как (   Читать дальше...   )Жанр: Автомобильный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44451596BA457A22A47A2655C5A6655B4CDED4BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209770   (779126) от 28.02.2018
-
-Двойной КОПец / Cop Out (2010) HDRip [H.264] [MP4|1280x534]
-
->>Мультимедиа и прочее
->>Мобильное Видео
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_779126.jpg" />
-</div>
-
-
-###  Подробнее
-
-История двух давних напарников — нью-йоркских полицейских, занятых поисками очень редкой и чертовски дорогой бейсбольной карточки, украденной у одного из них. Они вынуждены противостоять беспощадному гангстеру, просто помешанному на коллекционных вещицах.Производство: СШАЖанр: Боевик, Комедия, КриминалРежиссер: Кевин СмитАктеры: Брюс Уиллис, Трэйси Морган, Хуан Карлос Хернандез, Кори Фернандез, Ана Де Ла Регуера, Джейсон Харт, Джефф Лима, Шон Каллен, Кевин Поллак, Адам Броди, Мишель Трахтенберг, Джейсон Ли, Шонн Уильям СкоттПеревод: Дублированный (Лицензия)Субтитры: Русские (форсированные, полные), Английские (полные)Продолжительность: 01:47:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F527586D2D4727C5F006CD666587305D6D14399
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209214   (779125) от 28.02.2018
-
-Hitoshi Sakimoto, Masaharu Iwata, Mitsuhiro Kaneda - Odin Sphere Original Soundtrack (2007) [FLAC|Lossless|tracks + .cue] <Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779125.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1:
-01. ODIN SPHERE's Theme [1:48]
-02. Opening Title [0:55]
-03. Attic Archive [3:15](   Читать дальше...   )Жанр: ScoreПродолжительность: 02:21:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2502ACAA8F3CE9D767C4A1681C3A3B7B34CDAB3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209775   (779124) от 28.02.2018
-
-Alaska - Jasheri (V2) / Zoranine (V2) (2017) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass, Drumfunk, Atmospheric>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779124.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jasheri (V2) (10:24)
- 02. Zoranine (V2) (09:07)Жанр: Drum & Bass, Drumfunk, AtmosphericПродолжительность: 00:19:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF18D9EDA088D22F6094B09C562AD9E580607441
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209854   (779123) от 28.02.2018
-
-VA - ZYX Italo Disco New Generation Vol. 11 (2017) 2CD [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
+VA - Nu Disco Love (2018) [MP3|320 Kbps] <Disco, Nu-Disco>
 
 >>Pop
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779123.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780273.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Victor Ark feat. Matt Doll - Dark Affair (7:09)
-02. Stylove feat. Naoky - Now Close Your Eyes (6:15)
-03. Don Leone - In The Middle Of Love (4:47)
-04. R.B. Project feat. Brian Ice - I Am What I Am (Vocal Version) (7:42)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 02:33:09
+01. Audio Jacker – Come On Baby (Original Mix)7:38
+02. Discotron – Feel The Need (Original Mix)4:24
+03. Disko Junkie – Without Love (Original Mix)5:56
+04. Giorgio Rodgers – Somebody Else (Original Mix)5:02(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 01:12:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3D75BE753BC2045380AA1A641A2B1209B2CCF54D
+magnet:?xt=urn:btih:4256EC97C0BE1D93B9DB0492D11645B45F0FE308
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207949   (780272) от 20.02.2018
+
+Журнал | Добрые советы. Люблю готовить! №3 (март 2018) [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780272.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал о вкусной еде, не похожий на другие кулинарные издания. Все опубликованные в нем рецепты присланы в редакцию самими читателями. Каждый рецепт прошел конкурсный отбор, а его автор получил денежный приз. Ежемесячно на страницах журнала — более 100 коронных блюд, которые многократно проверены опытными хозяйками и которые можно смело брать в свою коллекцию рецептов (   Читать дальше...   )Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EA2BB6F9BD600422797D915306004713015BC92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207901   (780271) от 20.02.2018
+
+Eguana - Flashback (2018) Plexus Music [FLAC|Lossless|WEB-DL|tracks|24Bit] <Ambient, Drone, Soundscape, Dark Ambient>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780271.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Holy Shepherd (06:29)
+02. Irrelevant Fragment (08:00)
+03. Father Of The Sea Winds (06:05)
+04. Nasty Mountain Pass (07:05)(   Читать дальше...   )Жанр: Ambient, Drone, Soundscape, Dark AmbientПродолжительность: 00:49:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32E507C864FC64CC9C518E3ADCB0B71CC3296F69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207799   (780270) от 20.02.2018
+
+Visions of Atlantis - The Deep & the Dark (2018) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780270.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Deep & the Dark (4:08)
+ 2. Return to Lemuria (4:09)
+ 3. Ritual Night (3:59)
+ 4. The Silent Mutiny (3:45)(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:41:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:406FE628375B0DD32232461025589F9B6C0D988A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207869   (780269) от 20.02.2018
+
+VA - Lounge Of Sleep (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780269.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Cayo Largo  -  I Don't Need Your Number (Original Mix)  3:55
+002.  Marga Sol  -  Feelings For Free (Original Mix)  5:06
+003.  Stuce The Sketch feat. Wenawedwa  -  Silver Days (Original Mix)  4:15
+004.  CJ RcM  -  Tidal Bore (Original Mix)  4:38(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 09:13:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F7D952AB3752269B54774B8BB1729C7EC3AB544
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208029   (780268) от 20.02.2018
+
+Беседа с Евгением Федоровым (14.02.2018) WEBRip [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780268.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видеоблогер Виктория Гарсия-Берналь встретилась с депутатом Государственной Думы, координатором Национально-Освободительного Движения Евгением Федоровым. Темы беседы: что такое НОД, его штабы и что объединяет участников НОД; с какой целью СМИ раскручивают тему забрасывания яйцами, обливания зелёнкой; что означает термин «пятая колонна»; что будет, если НОД проиграет; (   Читать дальше...   )Производство: Телевидение Национально-Освободительного ДвиженияЖанр: ПолитикаПродолжительность: 01:10:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36061DD8A7CD17C6FAA7473D26ECB6187E94200D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207989   (780267) от 20.02.2018
+
+Амос Оз | Фима. Третье состояние (2018) [FB2]
+
+>>Художественная литература
+>>Современная поэзия и проза
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780267.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фима живет в Иерусалиме, но всю жизнь его не покидает ощущение, что он должен находиться где-то в другом месте. В жизни Фимы хватало и тайных любовных отношений, и нетривиальных идей, в молодости с ним связывали большие надежды – его дебютный сборник стихов стал громким событием. Но Фима предпочитает размышлять об устройстве мира и о том, как его страна затерялась (   Читать дальше...   )Жанр: Современная зарубежная литератураПеревод: Виктор РадуцкийФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA232859A9ABFB0960424056E3291899B6A72FD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207688   (780266) от 20.02.2018
+
+Джоанна Линдсей | Зимние костры (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780266.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джоанна Линдсей (Johanna Lindsey - полное имя Helen Johanna Howard Lindsey). "Зимние костры" - Неукротимая леди Бренна поклялась отомстить викингам, похитившим ее из родного дома. Девушке предназначена участь рабыни, но может ли она смириться с этим? И смирится ли ее гордость в объятиях нового хозяина Гаррика Хаардада? Ведь только любовь имеет силу связать (   Читать дальше...   )Жанр: Исторический любовный романПродолжительность: 14:22:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDFEF671A99D8D9EAA5ADFFA7D0F4DBC10A24151
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208097   (780265) от 20.02.2018
+
+Китай времен Мао / Inside Mao’s China (2016) HDTVRip
+
+>>Документалистика и Телепередачи
+>>История
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780265.jpg" />
+</div>
+
+
+###  Подробнее
+
+В расцвете маоизма Китай был столь же закрытым, как сейчас Северная Корея. В 1966 году иностранцы, жившие в Китае, своими глазами наблюдали за культурной революцией. Уникальные личные истории в сочетании с редкими историческими материалами дают новую точку зрения на утопию Мао.Телекомпания: Германия, Sagamedia, MDR, ARTEЖанр: Документальный, историяРежиссер: Мартин ГронмейерПеревод: Документальный дубляж «SDI Media» (Голос рассказчика - полный дубляж, интервью - слышна оригинальная речь)Продолжительность: 00:52:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF1253E7655F352F06C9E8DC1412024A4AC4BEF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208030   (780264) от 20.02.2018
+
+iMazing 2.5.4 (8418) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780264.jpg" />
+</div>
+
+
+###  Подробнее
+
+iMazing: отличная альтернатива iTunes
+Согласитесь, iTunes – отличный инструмент для работы с iДевайсами и медиафайлами, однако в нем чего-то не хватает. Разобраться, чего именно, решили разработчики софтины iMazing, которая не только может стать шикарной заменой «яблочному» сервису, но и неотъемлемым инструментом для полноценного функционирования вашего iPhone или (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: DigiDNAПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A32B9A844F2B6DD33752B1E596E195D04E1CFE66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208123   (780263) от 20.02.2018
+
+Векторный клипарт - Happy Women's Day vector illustration #5 [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780263.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Иллюстрации на 8 марта
+11 EPS + previewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD6318A39F4DBDF80CFB0C6D80CD4401F06CCAE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208129   (780262) от 20.02.2018
+
+Векторный клипарт - Happy Women's Day vector illustration #3 [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780262.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Иллюстрации на 8 марта
+11 EPS + previewФормат: EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F413F07AD7D99A04ACABE556AC77151367074565
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207854   (780261) от 20.02.2018
+
+Обои - Desktop Wallpapers Full HD. Part (131) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780261.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в Full HD. формате.Формат: JPGРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA941EB3548AED47E2BD6A108B022141CD42078D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207851   (780260) от 20.02.2018
+
+Журнал | Квант №11 (ноябрь 2017) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780260.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Квант» — научно-популярный физико-математический журнал, рассчитанный на массового читателя. Материалы, накопленные в журнале за годы его существования, практически бесценны. Идею создания издания такой тематики высказал П.Л. Капица в 1964 году. Издается с 1970-го года.Жанр: Научно-популярный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BE05A4BD5461288257B03910AB81EE8B08400CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208098   (780259) от 20.02.2018
+
+Обои - Desktop Wallpapers Full HD. Part (123) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780259.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка картинок на различную тематику.Формат: JPGРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CBEA9EA83F61EB06E9E75FCE30D89FB59212739
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206703   (780258) от 20.02.2018
+
+Протоиерей Александр Соколов (сост.) | Библия для детей. Священная история в простых рассказах для чтения в школе и дома, Ветхий и Новый Заветы (2017) [PDF, DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780258.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга, воспроизводящая знаменитый труд протоиерея Александра Соколова «Священная история в простых рассказах для чтения дома и в школе» (1896), познакомит читателей с важнейшими событиями, описанными в Библии, а выразительные иллюстрации сделают чтение более увлекательным и запоминающимся.
+
+Автор рассказывает о том, что значит «хамское поведение», откуда появилась (   Читать дальше...   )Жанр: Православие. Духовно-просветительское изданиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39D40F8D7D5D72EF47FF12DA0F1240E852A97BBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207969   (780257) от 20.02.2018
+
+Растровый клипарт - Fotolia - Urban building skyscrapers in Shanghai [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780257.jpg" />
+</div>
+
+
+###  Подробнее
+
+Городские небоскребы в Шанхае с Fotolia, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 6000x4002-7952x5304
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2FC1BA9C52FA19BD7855CCA0D931000E1052AFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207852   (780256) от 20.02.2018
+
+Журнал | Квант №12 (декабрь 2017) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780256.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Квант» — научно-популярный физико-математический журнал, рассчитанный на массового читателя. Материалы, накопленные в журнале за годы его существования, практически бесценны. Идею создания издания такой тематики высказал П.Л. Капица в 1964 году. Издается с 1970-го года.Жанр: Научно-популярный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD36F5C37B00D9BE7D2A071F89DAB99723153D41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207682   (780255) от 20.02.2018
+
+Джоанна Линдсей | Принцесса (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780255.jpg" />
+</div>
+
+
+###  Подробнее
+
+Таня, круглая сирота, служанка в таверне маленького городка на Миссисипи, и вообще-то не верила ни одному мужскому слову - что уж говорить о совершенно невероятной истории, с которой обрушился на нее таинственный незнакомец Штефан! Он всерьез утверждал, что нищая служанка - ни больше ни меньше, как наследная принцесса, ребенком похищенная и увезенная в Америку, к (   Читать дальше...   )Жанр: Исторический любовный романПродолжительность: 11:26:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8694FC374C66A620203BC02B2D2D7360A8BD8AD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208107   (780254) от 20.02.2018
+
+Рон Хэлл, Николас Томалин | Гонка века. Самая громкая авантюра столетия (2018) [FB2]
+
+>>Художественная литература
+>>Приключенческая проза
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780254.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самая громкая авантюра XX века! Хотелось ли вам когда-нибудь бросить все и отправиться в кругосветное путешествие? Осенью 1968 года английский яхтсмен Дональд Кроухерст решил прославиться и разбогатеть, совершив в одиночку морское кругосветное путешествие в рамках гонки на приз «Золотой Глобус». Но когда победа уже была у него в кармане, Кроухерст перестал выходить (   Читать дальше...   )Жанр: Истории из жизни, Книги о путешествиях, Авантюрные приключенияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E6DF129EECA1DE7F69D3A84AD33FC660AD6D4DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207855   (780253) от 20.02.2018
+
+Обои - Desktop Wallpapers Full HD. Part (132) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780253.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка картинок на различную тематику.Формат: JPGРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CB9D84263F82784232D2D9479527ED97BE3F360
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207972   (780252) от 20.02.2018
+
+Растровый клипарт - Fotolia - Beautiful young woman with bouquet of roses [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780252.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красивая молодая женщина с букетом роз с Fotolia, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 3008x4296-6720x4480
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91BD0717DE500D55C51E385AE000424296EF7E5B
 ```
 
 https://mybot314.ru/tekegram_catalog/

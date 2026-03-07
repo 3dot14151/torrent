@@ -1,3 +1,32 @@
+###  Публикация: 1309453   (550347) от 20.06.2019
+
+VA - The Paradoxes: Alternative Rock Collection (2019) [MP3|320 Kbps] <Alternative, Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550347.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Inglorious - Queen
+002. Ashley Cleveland - Up From The Ether
+003. Passcode - Bite The Bullet
+004. Quantum Leap - Sea(   Читать дальше...   )Жанр: Alternative, Hard RockПродолжительность: 09:58:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CBFC2D7FDB795E3962D55C2B759F0D1AE4138CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1048640   (546424) от 02.09.2016
 
 VA - Dr. Metal Presents: Vol.8 (2016) [MP3|224 Kbps] <Heavy, Speed, Power Metal>
@@ -716,35 +745,6 @@ Family Of The Year - Collection (2010 - 2015) [MP3|320 кб/с]<Alternative, Ind
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65D017F17F20075D4C07BCFE4C9568F7B8823F03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314031   (521419) от 12.07.2019
-
-VA - Tree Of Life: Rock Digest June (2019) [MP3|320 Kbps] <Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521419.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Devon Church - A Wave On Land
-002. Ace Frehley - I Wanna Go Back
-003. Ken Hensley - Set Me Free
-004. The Hazytones - The Hand That Feeds(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 13:16:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F3AD5EDA0372D7F6D11FE5D168112FAF53559EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

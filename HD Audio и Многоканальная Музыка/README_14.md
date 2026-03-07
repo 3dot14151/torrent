@@ -1,3 +1,184 @@
+###  Публикация: 1008740   (813553) от 19.04.2016
+
+Smokie - The Montreux Album, The Other Side Of The Road (1978, 1979) [PCM 2.0|96/24|Audio-DVD|Vinyl-Rip] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813553.jpg" />
+</div>
+
+
+###  Подробнее
+
+• The Montreux Album •
+
+01. The Girl Can't Help It  3:48
+02. Power of Love  1:58(   Читать дальше...   )Жанр: Rock
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67992160EA2E9783A7BD32C0A985BA50F6B2D98B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 657142   (813537) от 16.05.2013
+
+Alice Cooper - Welcome To My Nightmare (1975) [FLAC 2.0 24/96 |tracks (Vinyl-Rip)]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813537.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome To My Nightmare (5:16)
+02. Devil's Food (3:35)
+03. The Black Widow (3:37)
+04. Some Folks (4:15)
+05. Only Women Bleed (5:46)
+06. Department Of Youth (3:18)
+07. Cold Ethyl (2:53)
+08. Years Ago (2:51)
+09. Steven (5:47)
+10. The Awakening (2:25)(   Читать дальше...   )Жанр: Rock
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65DA53995E74B98AA39E14DC51B0B5FA07B18EEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008816   (813097) от 19.04.2016
+
+Denon Sonic Boom - DVD Audio Demonstration Disc (2002) [DTS 5.1 CD-DA|44.1/16|image+cue|DVD-Audio] <classic, jazz, samplers>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813097.jpg" />
+</div>
+
+
+###  Подробнее
+
+• Musical Demonstration Section: Classical •
+
+01. Richard Strauss: Also Sprach Zarathustra (2001, A Space Odyssey) - Opening - Herbert Blomstedt conducting the Staatskapelle Dresden Orchestra
+02. Ludwig van Beethoven: Symphony No. 5 - Opening - Otmar Suitner conducting the Saatskapelle Berlin(   Читать дальше...   )Жанр: Classical, JazzПродолжительность: 01:00:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8D70DAE65B730B2219A655361B7BAACE3EEC3B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 882873   (812853) от 31.03.2015
+
+Кино - запись студии "Тон" (1991) [FLAC 2.0 24/96|image (Tape-Rip)]<русский рок>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_812853.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Это не Любовь
+02.Спокойная ночь
+03.Троллейбус
+04.Закрой за мной дверь я ухожу
+05.Попробуй спеть вместе со мной(   Читать дальше...   )Жанр: русский рокПродолжительность: 0:22:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9B9DFEF0958E0E409EF36361E761A7DC95B7479
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197258   (811616) от 09.01.2018
+
+Каролина (Люба Гусева) - Наш Летний Дискобар (2017) [DSD2.0|5,64MHz/1bit|image+.cue|Tape-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811616.jpg" />
+</div>
+
+
+###  Подробнее
+
+[3:29] 01. Дискобар (Версия-1)
+[3:53] 02. Не надо слёз
+[4:10] 03. Звёздный Вечер
+[4:18] 04. Нарисую Я(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:41:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A41964A9AC5540E1E1BDB807569FE45378B9B3C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009102   (811472) от 20.04.2016
+
+Sound In Color / MU.SIC - Pixelated Pulse (2003) [DTS 5.1 CD-DA|44.1/16|image+cue|DVD-Audio] <downtempo, trip-hop>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811472.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. GB - 208 Strings
+2. Platonic - Alternate Thursday
+3. Mainframe & Platonic - Future's Oldest Story
+4. GB - Nocturnal Tribe(   Читать дальше...   )Жанр: downtempo, trip-hopПродолжительность: 00:42:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B17C9EACAA889C650C2322E8E1ECD3BE63BE360A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 657445   (811111) от 17.05.2013
 
 Arabesque - 6 Альбомов (1977-1982) [FLAC 2.0 24/192|image/tracks (Vinyl-Rip)]<Disco>
@@ -575,180 +756,6 @@ Inside The Music: Classic Rock (2001) [DTS 5.1 CD-DA|44.1/16|image+cue|DVD-Audio
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8FEF7D230B8CAD933A76473113D32317132CB7FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200363   (796143) от 20.01.2018
-
-Sade - Stronger Than Pride (1988) Unofficial Release [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <R&B, Downtempo>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796143.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Love Is Stronger Than Pride (4:17)
-A2. Paradise (4:02)
-A3. Nothing Can Come Between Us (4:24)
-A4. Clean Heart (4:01)(   Читать дальше...   )Производство: Not On Label - BL 1017Жанр: R&B, DowntempoПродолжительность: 00:42:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3048926114DED2031AAFC5845A63E24A651E54E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274259   (794133) от 06.01.2019
-
-Pete Seeger - Waist Deep In The Big Muddy And Other Love Songs (1993) 1967 [FLAC 2.0|48/24|image+.cue|MC-Rip] <Folk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794133.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Oh Yes I'd Climb (The Highest Mountain Just For You)
-A2 Seek And You Shall Find
-A3 The Sinking Of The Reuben James
-A4 Waist Deep In The Big Muddy(   Читать дальше...   )Жанр: FolkПродолжительность: 00:47:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C26BC584BA47B69EE368832E6EF611C4C2D147F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509028   (793669) от 13.11.2021
-
-The Alan Parsons Project - Eye In The Sky (1982) Remastered 2021, Mobile Fidelity [DSD 2.0 1bit/2822,4kHz |SACD-R] <Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793669.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Sirius (1:56)
-02 - Eye In The Sky (4:36)
-03 - Children Of The Moon (4:51)
-04 - Gemini (2:10)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:42:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25416AEB363B4EF9A15529C3FDA4E3A85B09123C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123383   (792403) от 07.04.2017
-
-The Alan Parsons Project - Vulture Culture (1984) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792403.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Let's Talk About Me (4:33)
-A2. Separate Lives (4:32)
-A3. Days Are Numbers (The Traveller) (4:56)
-A4. Sooner Or Later (4:25)(   Читать дальше...   )Производство: Arista - 206 577Жанр: Progressive RockПродолжительность: 00:37:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA32A8782BAB0FA456CFD2F447A6D73301B9257E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510148   (791953) от 15.11.2021
-
-ABBA - Voyage (2021) [WavPack 2.0|32/192|image + .cue|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791953.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Still Have Faith In You (5:09)
-02. When You Danced With Me (2:51)
-03. Little Things (3:09)
-04. Don't Shut Me Down (3:56)(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE53AF75DA6560AE91499E8166AC24BC6F283FC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510163   (791928) от 15.11.2021
-
-Moby - Reprise (2021) [WavPack 2.0|32/192|image + .cue|Vinyl-Rip] <Downtempo, Electronic, Orchestral>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791928.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Everloving
-02. Natural Blues (with Gregory Porter and Amythyst Kiah)
-03. Go
-04. Porcelain (with Jim James)(   Читать дальше...   )Жанр: Downtempo, Electronic, OrchestralПродолжительность: 01:10:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73D656F1944EBED68A845F91F95F65ABEF25BD27
 ```
 
 https://mybot314.ru/tekegram_catalog/

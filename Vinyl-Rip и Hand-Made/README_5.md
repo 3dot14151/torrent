@@ -1,3 +1,208 @@
+###  Публикация: 599817   (996846) от 15.01.2013
+
+Ария - 3 альбома (1987-1991) [WavPack 2.0 24/192|image + .cue (Vinyl-Rip)]<Hard Rock, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_996846.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Прощай, Норфолк! 5:20
+A2. Зомби 4:32
+A3. Антихрист 5:08
+A4. Не Хочешь, Не Верь Мне 4:00
+B1. Кровь За Кровь 7:43
+B2. Бесы 3:22
+B3. Всё, Что Было 5:15
+B4. Следуй За Мной! 4:40Жанр: Hard Rock, Heavy MetalПродолжительность: 00:39:59
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605460   (995507) от 20.01.2013
+
+Борис Гребенщиков - Русский альбом (1992) [WavPack 2.0 24/192|image + .cue (Vinyl-Rip)]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995507.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Архистратиг 1:14
+A2. Никита Рязанский 2:41
+A3. Государыня 3:07
+A4. Ласточка 3:53
+A5. Волки И Вороны 8:12
+B1. Заповедная Песня 3:07
+B2. Сирин Алконост Гамаюн 4:02
+B3. Кони Беспредела 6:04
+B4. Елизавета 3:00
+B5. Бурлак 4:09(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB9234807F15B44A4C3BBE0736860F9F71F35496
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605189   (995474) от 20.01.2013
+
+Аквариум - 4 альбома (1987-1991) [FLAC 2.0 24/96|image + .cue (Vinyl-Rip)]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995474.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Иван-чай 3:35
+A2. Великий дворник 3:23
+A3. Наблюдатель 3:02
+A4. Партизаны полной луны 3:26
+A5. Лебединая сталь 4:53
+B1. Аделаида 3:05
+B2. Золото на голубом 2:55
+B3. Дерево 3:04
+B4. Очарованный тобой 3:11
+B5. Поколение дворников 5:20Жанр: RockПродолжительность: 00:35:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:104337D6EF716672631DB2BEDF31C96305492E11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 604905   (995462) от 20.01.2013
+
+ДДТ (DDT) - Мир Номер Ноль (2LP) (1999/2012) [WavPack 2.0 24/192|image + .cue (Vinyl-Rip)]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995462.jpg" />
+</div>
+
+
+###  Подробнее
+
+LP1:
+01. Музыкальный образ - I (Ю. Шевчук) (2:28)
+02. Одноразовая жизнь (4:57)
+03. Он (5:55)
+04. Мы (4:07)
+05. Метель (7:40)
+06. Небо на Земле (6:41)Жанр: RockПродолжительность: 01:10:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2960B93CD33EDA0DBCA02FE275A2050B0A0FD75B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605261   (995442) от 20.01.2013
+
+Кино (Виктор Цой) - Это не любовь (1985/1993) [WavPack 2.0 24/192|image + .cue (Vinyl-Rip)]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995442.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Это Не Любовь 3:34
+02. Весна 2:05
+03. Уходи 4:43
+04. Город 3:48
+05. Проснись (Это — любовь) 3:39
+06. Рядом Со Мной (Ты Выглядишь Так Несовременно) 3:56
+07. Я Объявляю Свой Дом 2:25
+08. Саша 3:20
+09. Верь Мне 5:39
+10. Дети Проходных Дворов 2:00(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C2A7317D47CDAE2A85CB0157AA5A33176DD2B32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605263   (995432) от 20.01.2013
+
+Linkin Park - Hybrid Theory (2000/2001) [FLAC 2.0 24/192|image + .cue (Vinyl-Rip)]<Alternative Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995432.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Papercut 3:04
+A2. One Step Closer 2:35
+A3. With You 3:23
+A4. Points Of Authority 3:20
+A5. Crawling 3:28
+A6. Runaway 3:05
+B1. By Myself 3:09
+B2. In The End 3:36
+B3. A Place For My Head 3:04
+B4. Forgotten 3:13(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:37:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E747D6D4A323544ABAFEAE884BCC79E1448A55F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 605570   (995428) от 20.01.2013
 
 Linkin Park - 3 альбома (2002-2007) [FLAC 2.0 24/96|image + .cue (Vinyl-Rip)]<Alternative Rock>
@@ -612,203 +817,6 @@ VA - Место встречи - Выпуск 4 (1988) [FLAC 2.0 24/192] image+.
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:455619579D282BF72742EB0247C87405ACDD2B3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972228   (981736) от 06.01.2016
-
-Amadeus Veberzinke/Амадеус Веберзинке - J. S. Bach/И. С. Бах: Mass For Organ/Органная месса (1990) [FLAC 2.0 24/96|image+.cue (Vinyl-Rip)] <Classical, Organ>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981736.jpg" />
-</div>
-
-
-###  Подробнее
-
-Органная Месса (Фрагменты)
-А1	Praeludium, B. 552
-А2	Kyrie ("Kyrie, Gott Vater In Ewigkeit", B. 669, "Christe, Aller Welt Trost", B. 670, "Kyrie, Gott Heilige Geist", B. 671)
-В1	Gloria ("Allein Gott In Der Höh' Sei Ehr' ", B. 676)(   Читать дальше...   )Жанр: Classical, OrganПродолжительность: 01: 23:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E524E0F0CA3702DC2C129FFD097E0E153AC9E7A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972345   (981733) от 06.01.2016
-
-Мумий Тролль - Икра (1997/2012) [FLAC 2.0 24/96] image + .cue (Vinyl-Rip) <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981733.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Доля риска
-02 - Шамаманы
-03 - Сиамские сердца
-04 - Не звезда(   Читать дальше...   )Жанр: RockПродолжительность: 00:44:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0CC07C4374A94223E87EBE50F15DBE08B142442
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 614019   (981133) от 05.02.2013
-
-ДДТ - Чёрный пёс Петербург (1992/1994) [APE 2.0 24/96|image + .cue (Vinyl-Rip)]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981133.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Пролог [4:32]
-02. Новые блокадники [5:22]
-03. Styx [4:29]
-04. Храм [4:27]
-05. Беда [7:57]
-06. Ты не один [5:08]
-07. Я остановил время [5:06]
-08. В это [5:02]
-09. Чёрный пёс Петербург [11:28]
-10. Дождь [3:59](   Читать дальше...   )Жанр: RockПродолжительность: 01:27:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:788853C62705A6DB44C7F01C393D0462E8AF84EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 742624   (978883) от 06.01.2014
-
-Electric Light Orchestra - Discovery (1979) [FLAC 2.0 24/192|traks(Vinil-Rip)]<Prog Rock, Symphonic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978883.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-1. Shine A Little Love  4:40
-2. Confusion  3:42
-3. Need Her Love  5:08
-4. The Diary Of Horace Wimp  4:16
-Сторона 2
-1. Last Train To London  4:30
-2. Midnight Blue  4:18
-3. On The Run  3:58
-4. Wishing  4:10(   Читать дальше...   )Жанр: Prog Rock, Symphonic RockПродолжительность: 00:38:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:397EC607483D91CDA4647D23B7448F3D62F88C11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 615136   (978389) от 07.02.2013
-
-Depeche Mode - Playing The Angel (2005) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]<Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978389.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. A Pain That I'm Used To 4:08
-A2. John The Revelator 3:45
-A3. Suffer Well 3:54
-B1. The Sinner In Me 4:59
-B2. Precious 4:07
-B3. Macro 4:09
-C1. I Want It All 6:11
-C2. Nothing's Impossible 4:22
-C3. Introspectre 1:41
-C4. Damaged People 3:30(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:52:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0043B9363B5FB929FAFA7DCD46C7259F88EF7598
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 614646   (978302) от 07.02.2013
-
-Deep Purple - 9 альбомов (1970-1990) [FLAC 2.0 24/192 |image + .cue (Vinyl-Rip)]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978302.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. King Of Dreams 5:28
-A2. The Cut Runs Deep 5:42
-A3. Fire In The Basement 4:46
-A4. Fortuneteller 5:48
-B1. Truth Hurts 5:15
-B2. Love Conquers All 3:45
-B3. Breakfast In Bed 5:18
-B4. Too Much Is Not Enough 4:18
-B5. Wicked Ways 6:32Жанр: RockПродолжительность: 00:46:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A46BFC05513E57F36CC3C67C285C0D88061F7D6E
 ```
 
 https://mybot314.ru/tekegram_catalog/

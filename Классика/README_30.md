@@ -1,3 +1,38 @@
+###  Публикация: 542415   (495106) от 05.09.2012
+
+Murray Perahia with ASMF Plays Bach Concertos (2011) [FLAC|Lossless]<Classical>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_495106.jpg" />
+</div>
+
+
+###  Подробнее
+
+Concerto for flute, violin, harpsichord, BWV 1044 [21:29]
+1    I. Allegro
+2    II. Adagio ma non tanto e dolce
+3    III. Tempo di Alla breve
+Brandenburg Concerto No 5, BWV 1050 [21:18]
+4    I. Allegro
+5    II. Affetuoso
+6    III. Allegro
+Italian Concerto, BWV 971 [12:34]
+7    I. Allegro(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:55:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21672605765FFFBB58181BBEA5B545C4214843BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 543136   (494765) от 05.09.2012
 
 Симфонический оркестр Государственного Эрмитажа - Симфоническое Кино (2012) [MP3|128 kbps] <Acoustic>
@@ -749,32 +784,6 @@ Jordi Savall + Montserrat Figueras + Arianna Savall - 6 альбомов (2000-2
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 342986   (473527) от 05.09.2018
-
-С.В.Рахманинов - Полное собрание сочинений 31CD (2009, Brilliant Classics) [MP3|320 kbps]<Classical>
-
->>Классика
->>Полные собрания сочинений
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473527.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Classical |Продолжительность: 33:39:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AB106B8022455F5FCF6E16FBBABF665526ED173
 ```
 
 https://mybot314.ru/tekegram_catalog/

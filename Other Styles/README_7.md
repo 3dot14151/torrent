@@ -1,3 +1,32 @@
+###  Публикация: 1349436   (1004436) от 01.01.2020
+
+VA - Fiesta Latina 2019 (80 Big Latin Hits 2019/2020!) [MP3|320 Kbps] <Latin, Reggaeton, Salsa>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Somos del Barrio – Con Calma (Reggaeton Version)
+02. Grupo Extra – A Traves del Vaso (Bachata Version)
+03. Charanga Habanera – Traicionera
+04. Somos del Barrio – Loco Contigo (Reggaeton Version)(   Читать дальше...   )Жанр: Latin, Reggaeton, Salsa, BaciataПродолжительность: 04:54:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:549987BF72CA37B8B95B71D040DC2423D12207EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1348680   (1004272) от 02.01.2020
 
 Ani Tsering Wangmo - Immeasurable Joy (2006) [FLAC|Lossless|tracks + .cue] <Tibetan Chants>
@@ -719,35 +748,6 @@ Frantz Amathy - Heavenly Ways (2004) [FLAC|Lossless|tracks + .cue] <New Age, Rel
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51E93916572FEA2A13FB4147D40AFDB908FDF11B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351473   (1000892) от 15.01.2020
-
-7 часов спустя (Обратный отсчёт) / 7 Hours to Go (Original Motion Picture Soundtrack) - EP (2016) [MP3|128 Kbps] <OST, Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000892.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mohammed Irfan feat. Sarodee Borah & Sugat Shubham - Tere Naina
-02. Nikhil DSouza feat. SugaT, Shubham & Hanif Shaikh - Zinda Hota Mein
-03. Jubin Nautiyal feat. SugaT, Shubham & Hanif Shaikh - Zinda Hota Mein (Reprise)
-04. Hanif Shaikh - Dalinder Dance(   Читать дальше...   )Жанр: OST, SoundtrackПродолжительность: 00:21:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E8328AC2162823F2C45010D643862284D0D468E
 ```
 
 https://mybot314.ru/tekegram_catalog/

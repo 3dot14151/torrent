@@ -1,3 +1,89 @@
+###  Публикация: 947680   (411098) от 20.10.2015
+
+VA - Осенний марафон № 198 / Видеоклипы (Лучшая Дискотека  Россыпью) (2015) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_411098.jpg" />
+</div>
+
+
+###  Подробнее
+
+Осенние (17.10.2015) поп. новинки зарубежной и русской эстрады. Не пропустите, держите новые треки.01. AOA - Oh Boy (Official Video) (00:04:25)
+02. Bielfield - Frequency (Official Video) (00:03:21)
+03. Corina Smith - La Difícil (Official Video) (00:03:16)
+04. Danielle Bradbery - Friend Zone (Official Video) (00:02:59)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, Soul, DubstepПродолжительность: 01:25:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4903100F533A3FF55E533127203DAF552F612A5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 559270   (409693) от 12.10.2012
+
+Linkin Park - Castle Of Glass (Featured in Medal of Honor Warfighter) (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_409693.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: AlternativeПродолжительность: 00:04:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48C6AF648336ADEE814BD995A2F102492D6D906C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 556976   (409681) от 12.10.2012
+
+Freddie Mercury And Montserrat Caballe - Barcelona (Special Edition Disc 3 - DVD) (2012) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_409681.jpg" />
+</div>
+
+
+###  Подробнее
+
+С момента выхода одного из самых успешных соло синглов солиста легендарной группы Queen, Фредди Меркьюри (Freddie Mercury), прошло более 25 лет, но тем не менее альбом «Barcelona» не теряет своей популярности, и вот уже совсем скоро выходит новая специальная орекстровая версия этого легендарного альбома.
+
+Напомним, что сингл Barcelona записан совместно с легендарой (   Читать дальше...   )1. Barcelona - Ku Club Ibiza performance
+2. Barcelona - La Nit performance
+3. How Can I Go On - La Nit performance
+4. The Golden Boy - La Nit performance(   Читать дальше...   )Жанр: Classic Rock / OperaПродолжительность: 00:34:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CD86860149166F6F5DC748E8BFF8D39C2676780
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 559503   (409588) от 12.10.2012
 
 Рок'н'Ролл / Rock N Roll Meltdown (1988) DVDRip
@@ -621,87 +707,6 @@ Die Antwoord - Fatty Boom Boom (2012) [H.264/1080p-LQ] WEBRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:648B3A5A91D62B0751075FCB1CFC548DAEDF3ECD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 562338   (405428) от 19.10.2012
-
-Stockholm Syndrome - Pretty Girl (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405428.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ElectropopПродолжительность: 00:03:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:315A6B5C4F2D2120FD27809AAF5DA3840C3B6575
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 395867   (404307) от 08.10.2011
-
-Кабаре Мулен Руж - Феерия / Bal du Moulin Rouge - Feerie (2008) DVDRip
-
->>Театр и Музыкальное видео
->>Опера, Балет, Мюзиклы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404307.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мулен Руж (фр. Moulin Rouge, буквально «Красная мельница») — знаменитое классическое кабаре в Париже, построенное в 1889 году, одна из достопримечательностей французской столицы. В «Мулен Руж» собирались не только представители среднего класса, но и аристократы, люди искусства (Пикассо, Оскар Уайльд) и даже члены королевских семей, например, принц Уэльский. Главной (   Читать дальше...   )Жанр: Шоу, Спектакль, МюзиклПеревод: ОригинальныйСубтитры: НетПродолжительность: 01:19:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10B988405CFE8023A02E8D031546E804CB1D1266
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 712155   (404232) от 18.10.2013
-
-Tristeria - Epoka (clip) [H.264 720p](2013) WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Darkness
-02. Ashrouk
-03. Liburnae
-04. I Love You (Dimitra)(   Читать дальше...   )Жанр: Музыкальный, New age, EnigmaticРежиссер: Kiruha5432101Продолжительность: 01:09:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02A14BF95914BF996D8CEBAF4A554C21C55FD820
 ```
 
 https://mybot314.ru/tekegram_catalog/

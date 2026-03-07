@@ -1,3 +1,29 @@
+###  Публикация: 914251   (597453) от 02.07.2015
+
+Проекты - VideoHive - Quick Slideshow Opener | Festival Event Promo - 11557345 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_597453.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания трейлера к фильму. Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25D9CFD9210DEAD633ED5C774B2E8DC8C81857E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1150014   (596432) от 13.07.2017
 
 Проекты - Motion Array - Stomp - 37822 [AEP]
@@ -659,32 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A22054B976BDDBA62CA82F68326E5BB99D254A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918893   (585678) от 16.07.2015
-
-Проекты - VideoHive - Watercolor Slideshow - 10111239 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585678.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания слайд шоу . Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB72A509F1251699BB8756645544320E91587491
 ```
 
 https://mybot314.ru/tekegram_catalog/

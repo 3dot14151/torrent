@@ -1,3 +1,237 @@
+###  Публикация: 1145727   (619678) от 26.06.2017
+
+Diana Krall - Turn Up the Quiet (2017) Japan, SHM-CD [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_619678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Like Someone In Love
+02. Isn't It Romantic
+03. L-O-V-E
+04. Night And Day(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:53:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F84FB9516697D8AC43AAED30311F71DBFDF4F62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145823   (619677) от 26.06.2017
+
+VA - Buddha Jazz Bar Lounge: Best Relaxation Instrumental Soft Music (2017) [MP3|320 Kbps] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_619677.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good Morning Jazz Academy - Buddha Jazz Bar
+02. Wake Up Music Paradise - Pleasure (Erotic Games)
+03. Jazz Music Collection - Unforgettable Moments
+04. Instrumental Jazz Music Ambient - Emotional Music(   Читать дальше...   )Жанр: JazzПродолжительность: 01:23:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE98398E9D8E32B2EC249019BD2BC3A772D45F39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 682112   (619516) от 28.07.2013
+
+Etta James - 44 CDs (1960..2011) Discography [MP3|152..320 kbps]<Blues, R&B, Soul, Rock & Roll, Jazz, Gospel>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_619516.jpg" />
+</div>
+
+
+###  Подробнее
+
+Jamesetta "Etta James" Hawkins (25.01.1938 - 20.01.2012) — американская блюзовая и R&B певица.
+Джемисетта Хокинс родилась 25 января 1938 года в Лос-Анджелесе. Её матери, афроамериканке Дороти Хоукинс, на тот момент было всего 14 лет. Отец остался неизвестен, хотя сама Дороти утверждала, что им был знаменитый бильярдист Рудольф Вандерон.
+Уже в пять лет (   Читать дальше...   )Список альбомов:
+1960 - At Last!
+1965 - The Queen Of Soul
+1968 - Tell Mama(   Читать дальше...   )Жанр: Blues, R&B, Soul, Rock & Roll, Jazz, GospelПродолжительность: 37:45:11
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036587   (619335) от 21.07.2016
+
+Warren Bernhardt Trio - Ain't Life Grand (1990) Digital Music Products[FLAC|Lossless|image + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_619335.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Sara's Touch [07:03]
+ 02.Blue Lake [06:13]
+ 03.Ain't Life Grand [04:38]
+ 04.Sweet Gardenia [05:50](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:00:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5297544F4A3D914B57AD62F62538AAB0C6B6345D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036552   (619247) от 21.07.2016
+
+VA - King & Deluxe Acetate Series: Beef Ball Baby - New Orleans R&B Sessoions (2015) [MP3|320 Kbps] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_619247.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eddie Gorman - Answer To Chubby's Bedroom Blues (2:54)
+ 02. Eddie Gorman - Beef Ball Baby (2:37)
+ 03. Paul Gayten & His Band, vocal Eddie Gorman - Don't Worry 'Bout Nothin' (2:44)
+ 04. Eddie Gorman - Hey Now (2:22)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:05:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FC557D818FE06563461EC5F1A93BFA1DA1D14A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036613   (619147) от 21.07.2016
+
+Larry Miller - Unfinished Business (2010) [APE|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_619147.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Mad Dog    04:14
+02.  As Blue As It Gets    04:13
+03.  Cruel Old World    09:21
+04.  Still Aint Done With The Blues    03:58(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:48:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58C0BF063C42DF8B26EA915A900F7A6912445AF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036820   (619146) от 21.07.2016
+
+VA - When the Saints Go Marching in: Jazz Greatest (2005) [FLAC|Lossless|tracks + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_619146.jpg" />
+</div>
+
+
+###  Подробнее
+
+Название диска происходит от известнейшей композиции впервые исполненной Louis Armstrong - When The Saints Go Marching In (Когда святые маршируют). Впоследствии практически каждый джазист почитал своим долгом перепеть (и переиграть) эту, ставшую классикой, композицию. Ну и, конечно, только от одного перечисления имен тех, кто представлен на этом сборнике может у (   Читать дальше...   )01. Louis Armstrong - When The Saints Go Marching In  (3:12)
+02. Duke Ellington - The Mooche  (5:26)
+03. Benny Goodman - King Porter Stomp  (3:08)
+04. Nat King Cole - It's Only A Paper Moon  (1:59)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:52:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:517A7391146DB05EBA9E7797CD0829796A611CB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036753   (619145) от 21.07.2016
+
+The Stumble - The Other Side (2016) [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_619145.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New Orleans    04:43
+02. Just Stop    04:16
+03. Be My Slave    05:57
+04. Freedom Like a Woman    07:25(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:56:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF81A869B9D16098045600579E151BA2747BC7A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1230067   (619076) от 10.06.2018
 
 Betty Carter - Social Call (1955, 1956) 2016, Sony Music [FLAC|Lossless|image + .cue] <Vocal Jazz>
@@ -513,238 +747,6 @@ The Mike Henderson Band - If You Think It's Hot In Here (2015) [MP3|320 кб/с]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B51C1757740C4370E730778B6A25C705FFA5BA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911438   (618419) от 22.06.2015
-
-Bobby Blue Bland - Jazz & Blues collection (1996) [MP3|320 кб/с]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618419.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mel's Groove (8:13)
-02.  Ain't That Lovin' You (3:26)
-03.  I'll Take Care Of You (4:30)
-04.  The Soul Of A Man (3:52)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:51:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F2AC68584B98E92E7388747243406BD75D99B44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911220   (618416) от 22.06.2015
-
-The Ramble Riders - Super Fat Bitch (2015) [MP3|320 кб/с]<Heavy Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618416.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Super Fat Bitch
-2. Money Stench
-3. Dizzy
-4. The Hangover(   Читать дальше...   )Жанр: Heavy Blues RockПродолжительность: 00:35:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60C9E4BD2E05313D9B7BA5428839D36A92CA3E0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911370   (618412) от 22.06.2015
-
-Benny Goodman - Jazz & Blues Collection Vol. 16 (1995) [MP3|320 кб/с]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618412.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  King Porter stomp (3:12)
-02.  Down south camp meeting (3:18)
-03.  Sugar foot stomp (2:51)
-04.  Cristopher Columbus (3:35)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:54:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75F64F5B8FDC6F95D64C92144D34B7347ED08BBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911360   (618411) от 22.06.2015
-
-Ben Webster - Jazz & Blues collection (1996) [MP3|320 кб/с]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618411.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  One For The Guv'nor (6:20)
-02.  Drop Me Off In Harlem (6:14)
-03.  Worksong (10:22)
-04.  The Preacher (6:54)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:05:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E40EDA92E379E3A85DA53BF4630578B233D6AFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145943   (618353) от 27.06.2017
-
-Albert Sanz Trio - O Que Sera (2012) Nuba Records [FLAC|Lossless|tracks + .cue] <Latin Jazz, Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618353.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soberana Rosa [04:51]
-02. O Que Sera [06:07]
-03. Antes Que Seja Tarde [05:37]
-04. Outros Sonhos [05:34](   Читать дальше...   )Жанр: Latin Jazz, Post-Bop, Piano JazzПродолжительность: 00:57:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8A3DF5E8E71D5E309946CAA612207A67A6FA637
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145941   (618242) от 27.06.2017
-
-The Joe Newman Septet - The Midgets (1956) 1998, BMG Music [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Moon At All [02:50]
-02. Valerie [02:58]
-03. My Dog Friday [03:32]
-04. Scooter [02:58](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:37:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A9C1523774ADC1CF1083E4757B85FEDBDC564AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145679   (618229) от 27.06.2017
-
-The Modern Jazz Quartet - Fontessa - The Little Comedy (1960) Remaster, 1996, Giants Of Jazz [FLAC|Lossless|image + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618229.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Little Comedy: La Cantatrice-Harlequine, Fontessa (24:00)
-02. Cylinder (6:36)
-03. A Social Call (4:55)
-04. How High The Moon (8:21)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:02:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AE6CA128824C7A1C962C284E3EF5385BC6B75B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145894   (618225) от 27.06.2017
-
-Rita Reys - The Real… Rita Reys (The Ultimate Collection) (2017) 3CD [FLAC|Lossless|tracks + .cue] <Jazz, Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618225.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-01. Summertime
-02. Raindrops Keep Fallin' On My Head
-03. The Windmills Of Your Mind(   Читать дальше...   )Жанр: Jazz, VocalПродолжительность: 03:25:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6304E1128B9C815E70621C44412F2B7AD9DB15D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

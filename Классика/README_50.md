@@ -1,3 +1,30 @@
+###  Публикация: 1721494   (109809) от 10.05.2024
+
+Trance Opera - 11 Albums (1995-2017) [FLAC|Lossless|WEB-DL|tracks] <Classical Crossover, Neoclassical, Opera, Trance>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_109809.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Spente Le Steele (Vocal Club Mix)
+02 - Spente Le Steele (Club Dub)Жанр: Classical Crossover, Neoclassical, Opera, TranceПродолжительность: 11CD, 09:49:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:567CFE7CC4C6255F6A5EA0B5BA48A237B34CA1D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1727599   (108424) от 03.06.2024
 
 VA - Slow Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
@@ -759,37 +786,6 @@ Johann Friedrich Fasch - Johann Friedrich Fasch Oboe Sonatas: Burkhard Glaetzner
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A75EF4A1461CEB4E306510DFC82F4B6DFEE3E20B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478792   (86785) от 06.04.2012
-
-Telemann, Schaffrath, Fasch, Torriani, Waterson, Donizetti - Virtuosity of Bassoon 2: Valery Popov, Alexander Bakhchiev etc. (1983-1991)/2003, Vista Vera/[FLAC|Lossless]<Classical>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86785.jpg" />
-</div>
-
-
-###  Подробнее
-
-Georg Philipp Telemann
-Sonata f-moll 
-1.	Triste (2:29)
-2.	Allegro (4:18)
-3.	Andante (1:55)
-4.	Vivace (2:22)2003Жанр: Chamber musicПродолжительность: 01:11:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFC2B8782C5DFD23E93E5D0BA3B29796A657ED44
 ```
 
 https://mybot314.ru/tekegram_catalog/

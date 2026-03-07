@@ -1,3 +1,119 @@
+###  Публикация: 1207545   (780560) от 18.02.2018
+
+Руслана - Дикі Танці (2003) [FLAC|Lossless|image + .cue]<Pop, Folk>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ой заграй ми, музиченьку
+02. Знаю я
+03. Плєс
+04. Аркан(   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 00:40:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78C588391433016AE89F9EBDBF787F9B9D26C156
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207602   (780546) от 18.02.2018
+
+Eros Ramazzotti - Duets (2017) Compilation [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780546.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eros Ramazzotti feat. Tina Turner - Cose Della Vita (Can't Stop Thinking Of You) 4:50
+02. Eros Ramazzotti feat. Nicole Scherzinger - Fino All'estasi 3:46
+03. Eros Ramazzotti feat. Giorgia - Inevitabile 3:56
+04. Eros Ramazzotti feat. Anastacia - I Belong To You (Il Ritmo Della Passione) 4:26(   Читать дальше...   )Жанр: PopПродолжительность: 01:06:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B3237C933BC43E6328A7E7ECFE07673E60CC813
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208130   (780105) от 21.02.2018
+
+Club 8 - Golden Island (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Female Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780105.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Swimming With The Tide 02:56
+02. Breathe 03:37
+03. Lost 02:35
+04. Pacific 03:20(   Читать дальше...   )Жанр: Indie Pop, Female VocalПродолжительность: 00:30:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:934695FB15525297626ED67764FCF3593DA2BBE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209084   (779666) от 24.02.2018
+
+Totally Mild - Her (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Indie Rock, Dream Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779666.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sky 04:00
+02. Pearl 03:31
+03. Working Like a Crow 04:05
+04. From One Another 02:54(   Читать дальше...   )Жанр: Indie Pop, Indie Rock, Dream PopПродолжительность: 00:34:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80DAF4CBE8EFD0BE605796B77523623AB3454DBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1209290   (779452) от 25.02.2018
 
 ABBA - The Ultimate Collection (2004) [FLAC|Lossless|tracks + .cue] <Pop>
@@ -629,122 +745,6 @@ Jamiroquai - Automaton (2017) Japanese Edition [FLAC|Lossless|tracks + .cue] <Ac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:517D734BCDB4290814E1AABC410D8BEEAE262E32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277957   (773166) от 24.01.2019
-
-Shakira - Laundry Service (2001) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773166.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Objection - (Tango) (3:44)
-02.Underneath Your Clothes (3:45)
-03.Whenever, Wherever (3:16)
-04.Rules (3:40)(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E17998B6BCEDA3EC16492936A1DDB2FC2A5A5945
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391737   (772797) от 21.06.2020
-
-VA - NOW 100 Hits Summer (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772797.jpg" />
-</div>
-
-
-###  Подробнее
-
-На машине будущего перенеситесь на несколько дней вперед - в 26 июня 2020 года. Именно тогда состоится релиз от известного лейбла NOW! Это те треки, которые будут вас сопровождать всё лето (а оно уже наступило). Слушайте хорошую музыку каждый день!001. Dua Lipa - Don't Start Now  (3:03)
-002. Doja Cat - Say So  (3:58)
-003. Justin Timberlake - CAN'T STOP THE FEELING! (from TROLLS)  (3:56)
-004. Shakira feat. Wyclef Jean - Hips Don't Lie  (3:37)(   Читать дальше...   )Тип издания: 5CD (пока вэб-релиз)Релиз состоялся: 26 июня 2020 годаЖанр: Pop, Rock, DanceПродолжительность: 06:02:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84875F42AAB1F6DD1222D93CEBD7BF11ECCFC47A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278228   (771829) от 25.01.2019
-
-VA - Dance Classics '80 Part I (1994) [FLAC|Lossless|image + .cue] <Euro-House>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771829.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad Boys Blue - You're A Woman
-02. Hot Chocolate - You Sexy Thing
-03. Ottawan - Hands Up
-04. Boney M - Rasputin(   Читать дальше...   )Жанр: Euro-HouseПродолжительность: 01:15:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49F4EB2D647D11850316EE640CAE3C4062F8CFF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 779118   (771219) от 22.04.2014
-
-VA - 538 Hitzone 69 (2014) 2CD [FLAC|Lossless]<Top 40, Pop Compilation>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771219.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Clean Bandit feat. Jess Glynne - Rather Be (3:50)
-02. Katy Perry feat. Juicy J - Dark Horse (3:37)
-03. George Ezra - Budapest (3:23)
-04. Pharrell Williams - Marilyn Monroe (Radio Edit) (3:46)(   Читать дальше...   )Жанр: Top 40, Pop, Rock, Electronic, Ballad, Hip Hop, Electronic, Dance, Dancepop, Electro, Pop Rock, Alternative Rock, R&B, Soul, Hip Hop, Pop RapПродолжительность: 02:28:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F773F1A6470441A585CDEB5EFBC96D67DBFACEFC
 ```
 
 https://mybot314.ru/tekegram_catalog/

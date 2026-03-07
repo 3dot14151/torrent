@@ -1,3 +1,119 @@
+###  Публикация: 1405154   (485596) от 29.08.2020
+
+Kelly Lee Owens - Inner Song (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electronic, Alternative>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_485596.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arpeggi (04:45)
+02. On (05:57)
+03. Melt! (03:34)
+04. Re-Wild (03:42)(   Читать дальше...   )Жанр: Pop, Electronic, AlternativeПродолжительность: 00:49:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11692DB95D8E3861A8197DB8B4238954E471C5F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405085   (485484) от 29.08.2020
+
+VA - Relaxing Pop (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_485484.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tones and I - Dance Monkey (Stripped Back) (02:51)
+02. Dua Lipa - Be the One (Acoustic) (03:12)
+03. Maisie Peters - Take Care of Yourself (Live Acoustic) (03:19)
+04. Jess Glynne - My Love (Acoustic) (03:02)(   Читать дальше...   )Жанр: PopПродолжительность: 02:22:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1527E5BD937F2FE3FC8E348242832611667ACE3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1159619   (484042) от 20.08.2017
+
+The Jungle Giants - Quiet Ferocity (2017) [FLAC|Lossless|tracks] <Alternative Pop, Indie Pop, Indie Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_484042.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On Your Way Down
+02. Feel the Way I Do
+03. Bad Dream
+04. Used to Be in Love(   Читать дальше...   )Жанр: Alternative Pop, Indie Pop, Indie RockПродолжительность: 00:41:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7F00EA3E2AFB526496D9EE2E3CA176FDFCA988F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1055792   (483883) от 24.09.2016
+
+Tom Jones - The Golden Hits (1970) Reissue, 1986, London [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_483883.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Green, Green Grass Of Home
+02. I'm Coming Home
+03. (It Looks Like) I'll Never Fall In Love Again
+04. Not Responsible(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C18F66332B9B4F23CCECB2B1C62E317773378C0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 821452   (483415) от 16.09.2014
 
 VA - 101 Love Songs: The Greatest Love Songs of all Time (2003) [FLAC|Lossless]<Pop, Rock, Classical , Soul, Funk, Jazz>
@@ -643,125 +759,6 @@ VA - 101 Voices (2012) 5CD [FLAC|Lossless]<Pop>
 08. Jennifer Rush - The Power of Love [04:26]
 09. Heart - Alone [03:40]
 10. Bonnie Tyler - Total Eclipse of the Heart [04:28](   Читать дальше...   )Жанр: PopПродолжительность: 06:26:57
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 258418   (473621) от 15.09.2012
-
-Barbra Streisand - 2 альбома (1980, 2005) [FLAC|Lossless]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473621.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Guilty" - самый популярный альбом певицы (продано более 20 миллионов экземляров).
-Через 25 лет был выпущен альбом "Guilty Pleasures" который стал тоже весьма популярен.
-И конечно обе эти работы объединяет совместная работа с Barry GibbАльбомы:
-1980 - Guilty
-2005 - Guilty PleasuresЖанр: PopПродолжительность: 01:29:43
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245719   (470085) от 07.09.2018
-
-Citizen King - Mobile Estates (1999) [FLAC|Lossless|tracks + .cue] <Hip Hop, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470085.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Under The Influence (4:23)
- 02. Better Days (And The Bottom Drops Out) (3:27)
- 03. Safety Pin (3:45)
- 04. Jalopy Style (3:13)(   Читать дальше...   )Жанр: Hip Hop, PopПродолжительность: 00:42:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A25CB6748C37039DB1F732E123CBC6B1B60F1D3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161225   (469657) от 27.08.2017
-
-VA - Love Songs (2017) [FLAC|Lossless|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469657.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. En Vogue - Don't Let Go (Love) (4:52)
-02. INXS - Never Tear Us Apart (3:06)
-03. Donna Lewis - I Love You Always Forever (4:00)
-04. a-ha - This Alone Is Love (Remastered 2015) (5:15)(   Читать дальше...   )Жанр: PopПродолжительность: 01:54:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07FDDD23C8A96CAACBC572B65979A46FCF128B5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 547786   (469551) от 17.09.2012
-
-Carly Rae Jepsen - Curiosity (EP) (2012) [FLAC|Lossless]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469551.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Call Me Maybe [03:14]
-2. Curiosity [03:26]
-3. Picture [03:04]
-4. Talk To Me [02:52]
-5. Just A Step Away [03:47]
-6. Both Sides Now [03:52]Жанр: PopПродолжительность: 00:20:15
 
 ## Скачать торент
 ```bash

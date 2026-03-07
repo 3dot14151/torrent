@@ -1,3 +1,32 @@
+###  Публикация: 1030627   (672290) от 01.07.2016
+
+Night Sky (aka Afternova) - Visions (2016) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Chillout>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Summer Wind (2:27)
+02. Visions (2:43)
+03. Reminiscence (2:02)
+04. A New Way (2:01)(   Читать дальше...   )Жанр: Ambient, ChilloutПродолжительность: 00:24:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E50A2BB0C8F1D9CFEF0CA6A0E49903FE4D0A6D3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1291400   (670355) от 24.03.2019
 
 Schiller - Morgenstund (2019) Sony Music Media [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambient, Downtempo, Synthpop>
@@ -707,35 +736,6 @@ Michael E - Behind Closed Doors (2017) [FLAC|Lossless|WEB-DL|tracks] <Downtempo,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87CB3405EC0D36D339B6F5947E4B0EB8953D03DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146171   (615952) от 28.06.2017
-
-V.A. - Vintage Cafe: Lounge & Jazz Blends Vol.10 (2017) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Lounge, Jazz>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615952.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Cooltrane Quartet - Purple Rain
-02. Michelle Simonal - This Is What You Came For
-03. Stella Starlight Trio - Get The Party Started
-04. Michelle Simonal - When We Were Young(   Читать дальше...   )Жанр: Downtempo, Lounge, JazzПродолжительность: 01:26:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C65990ABAF8531D264034925F296D0881DCC23A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

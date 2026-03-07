@@ -1,3 +1,90 @@
+###  Публикация: 1192220   (263529) от 16.12.2017
+
+VA - Best of Trance (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263529.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The-Thirst For-Flight - Seven Seconds of Happiness
+02. 2D project - Gladiator
+03. James Fiby feat. Anna Miracles - History Love (Vocal Mix)
+04. DJ Grand Defence - First Contact(   Читать дальше...   )Жанр: TranceПродолжительность: 02:43:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3833623630A0F2039C7F2482993642C13A1B54A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191757   (263378) от 16.12.2017
+
+VA - A State Of Trance Year Mix (Mixed by Armin Van Buuren) (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263378.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Armin van Buuren  -  A State of Trance Year Mix 2017 Once Upon a Time (Intro)  2:16
+002.  Omnia, DRYM  -  Enigma  2:58
+003.  Yoel Lewis  -  Tuviana  2:53
+004.  Sound Quelle, Max Meyer, Brandon Mignacca  -  Andromeda  3:34(   Читать дальше...   )Жанр: TranceПродолжительность: 08:16:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EE6D79AEE632BDF24020EE8D0FFE21C0A5CF152
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192539   (263256) от 17.12.2017
+
+VA - Alter Ego: Best Of 2017 (Mixed by Luigi Palagano & Duncan Newell) (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. BRKDWN X Joel Freck - Because Of Love (feat Amy Kirkpatrick - Nathan Red radio edit/Remixes)
+02. Joaquin Limon & Straight Up - Voices (Michael Fearon radio edit)
+03. Anden State - Tranquility (radio edit)
+04. Vast Vision - Hello Sunshine (Ander One radio edit)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:22:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:101136174F3DA1379828C19CAA56BA5EBD0808A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1192461   (263254) от 17.12.2017
 
 VA - Outburst Presents: Prism Vol. 2 (Mixed by Tempo Giusto & Mark Sherry) (2017) [MP3|320 Kbps] <Trance>
@@ -658,93 +745,6 @@ VA - The Best Of Suanda Dance 2025 (2025) [MP3|320 Kbps] <Dance, Club, Trance, E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C78B661F78CFBD6BECA5DF18ED7D47F1B3B5D1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838036   (257744) от 20.11.2025
-
-VA - New Year Trance Rave 2026 (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257744.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andrew Mactire - Irruption 07:28
-02. Andrew Modens - Dreaming 05:04
-03. Betelgeuze - Dissolution 06:49
-04. Chris Pryde - The Last Fight 05:37(   Читать дальше...   )Жанр: TranceПродолжительность: 01:26:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D541E9B1C94CEC29162DBAC093F039AE337E30EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838003   (257740) от 20.11.2025
-
-VA - The Best Of Suanda Progressive 2025 (2025) [MP3|320 Kbps] <Trance, Progressive>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257740.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rospy - Value Of A Teardrop (Extended Mix) [6:31]
-02. Adip Kiyoi & ZUZAH - Together (Extended Mix) [5:17]
-03. PoLYED & Max Denoise - The Sundays (Extended Mix) [6:15]
-04. Everi - Memories (Extended Mix) [7:45](   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 01:03:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BED2523EF9468FB88B70F7CF3501EB80723DF10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838000   (257737) от 20.11.2025
-
-VA - Autumn Trance 2025 (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257737.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Glassman - Never Do More (Original Mix) [6:35]
-02. Master Beat Projekt - Free Your Mind (Original Mix) [4:22]
-03. Mazeev - 21st Century (Original Mix) [5:56]
-04. Dimassive - Immensity (Extended Mix) [6:11](   Читать дальше...   )Жанр: TranceПродолжительность: 02:15:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94580E90911452CB341E54825DBC6EAC478CB6C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

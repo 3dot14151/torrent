@@ -1,3 +1,32 @@
+###  Публикация: 1574591   (383855) от 06.09.2022
+
+Ends With A Bullet - I´m Still Standing (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Metal, Metalcore, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_383855.jpg" />
+</div>
+
+
+###  Подробнее
+
+00. I_m Still Standing [00:04:10]
+00. No Matter What [00:03:49]
+00. Save Me From Myself [00:04:42]
+00. Fright Night [00:04:14](   Читать дальше...   )Жанр: Modern Metal, Metalcore, ElectronicПродолжительность: 00:45:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:082CCD78A5BA77D0EAB3C11EBC83A719B5E6C5B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1414782   (383630) от 09.10.2020
 
 Crust (aus) - The Wake (2020) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Garage Rock>
@@ -719,35 +748,6 @@ Dave Gahan & Soulsavers - Angels & Ghosts (2015) [FLAC|tracks|WEB-DL]<Alternativ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1AAB33B4E6D06D8605E7366DC19831C7AFF0B1A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575242   (377194) от 09.09.2022
-
-Until I Wake - Inside My Head (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post-Hardcore, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377194.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Sacrifice
-2. Forsaken
-3. Fake
-4. Octane(   Читать дальше...   )Жанр: Metalcore, Post-Hardcore, ElectronicПродолжительность: 00:42:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3756E5AA72EF6CA443F564364C2BDB3F1E087FE0
 ```
 
 https://mybot314.ru/tekegram_catalog/

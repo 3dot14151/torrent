@@ -1,3 +1,30 @@
+###  Публикация: 1009703   (805473) от 23.04.2016
+
+Проекты - MotionVFX - Music Festival [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_805473.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания фото-видео слайдшоу.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FA8016CA7B90098E331D8611AE5C641D54F0A5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1009713   (805469) от 23.04.2016
 
 Проекты - MotionVFX - Futuristic Slideshow [AEP]
@@ -646,32 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60DDCE8400147A0EAB26840E5809E86FF275517A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011293   (796848) от 27.04.2016
-
-Проекты - VideoHive - Multicolor Slideshow [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796848.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Multicolor слайд-шоу", создан в After Effects CS6. Проект отлично подходит для демонстрации ваших фотографий, портфолио связанные с темой моды.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86F30AEBBA9AA0E942A73CEC470D112C9BBEAAE6
 ```
 
 https://mybot314.ru/tekegram_catalog/

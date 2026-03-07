@@ -1,3 +1,32 @@
+###  Публикация: 1549408   (593318) от 07.05.2022
+
+Vikingur Olafsson - Mozart & Contemporaries: Galuppi, C.P.E. Bach, Cimarosa, Haydn (2021) [FLAC|Lossless|image + .cue] <Classical>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593318.jpg" />
+</div>
+
+
+###  Подробнее
+
+Baldassare Galuppi
+01. Piano Sonata No. 9 in F minor - Andante spiritoso
+Wolfgang Amadeus Mozart
+02. Rondo in F major, K 494(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:24:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE201550A3E8B14D216219925895CA73FF6BEB94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 916945   (589932) от 10.07.2015
 
 S.Richter - Mozart, Beethoven, Schumann, Schubert, Grieg (4CDs) (1993) [FLAC|image+.cue]<Classical, Romantic Period, Concerto, Classical Period, Sonata, Fantasy>
@@ -722,35 +751,6 @@ VA - Шедевры Классики В Современной Обработк�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE0A1BB45929A4C67A45BEEB7D5C470781CBB079
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044210   (566569) от 19.08.2016
-
-VA - Шедевры Классики В Современной Обработке (2016) [MP3|320 Kbps] <Классика, Classic>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566569.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wagner - Also schprech Zarathustra (Ventura)
-02. Rimsky-Korsakov - Fly of the bumble bee (Steinberg)
-03. Bach - Suite nr.2 A joke (Last)
-04. Cirelli-Giocco - Rondo veneziano (Zamfir)(   Читать дальше...   )Жанр: Классика, ClassicПродолжительность: 04:50:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6C836B33F65FA15BB736BF3D0D90B2453E8CA70
 ```
 
 https://mybot314.ru/tekegram_catalog/

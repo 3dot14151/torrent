@@ -1,3 +1,30 @@
+###  Публикация: 1464253   (1019908) от 21.04.2021
+
+Проекты - VideoHive - Elegant Opener - 21109686 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1019908.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Elegant Opener» - стильный элегантный проект для создания креативного слайд шоу с эффектом параллакса.
+Многие оценят по достоинству.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C033F7C511F8D307F794FD8CFAB12077FA49A2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1464392   (1019729) от 22.04.2021
 
 Проекты - VideoHive - Vintage Lovely Album Slideshow - 31745884 [AEP]
@@ -648,32 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9686E0D5E95137E6CD4AF422D791BB4C0802D66D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351297   (1002360) от 09.01.2020
-
-Проекты - VideoHive - Endless Story Stylish Slideshow / Youtube Travel Blog/ Digital Slide/ Bright Presentation/ Art Promo - 21586821 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002360.jpg" />
-</div>
-
-
-###  Подробнее
-
-Endless Story Stylish Slideshow - это стильный и современный проект, с помощью которого Вы сможете создать стильный слайд-шоу, яркую презентацию, историю путешествий или арт промо.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5916665113A8DF3520575C6EF8C1714034B29EA7
 ```
 
 https://mybot314.ru/tekegram_catalog/

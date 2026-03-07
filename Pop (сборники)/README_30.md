@@ -1,3 +1,61 @@
+###  Публикация: 1123511   (786401) от 08.04.2017
+
+VA - Популярные весенние новинки (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786401.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Жанна Прохорихина - Стилистам 3:31
+002. Алиса Кожикина - В Стране Чудес 3:32
+003. Caravella - Твой Последний Уикенд 3:24
+004. Виктор Поплеев - Половина Мира 3:21(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4FFF823DDC6B81916687EBFD88E13FDACFAA0E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123529   (786397) от 08.04.2017
+
+VA - Весенние заводные хиты. Выпуск № 3 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786397.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Миша Майер - Вспоминай 3:29
+002. Alex Kafer & Lera - Я У Твоих Ног 3:36
+003. Proвокация - Два Сердца 3:35
+004. Елка - Впусти Музыку 3:36(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5F219625DA59877AAADC70F17D8C09B01E2EE18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1123545   (786218) от 09.04.2017
 
 VA - Любимые хиты весны. Выпуск № 8 (2017) [MP3|256 Kbps] <Pop>
@@ -687,64 +745,6 @@ VA - Лидеры чартов танцевальных FM станций 8 (201
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F4D2393A5DF3E6F5F897CED2F85461CA1D26FCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277625   (785023) от 21.01.2019
-
-VA - German Top 100 Single Charts 28.01.2019 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785023.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Shindy - DODI
-002. Ava Max - Sweet but Psycho
-003. Capital Bra - Benzema
-004. Farid Bang - #niemalsantäuschen(   Читать дальше...   )Жанр: PopПродолжительность: 05:38:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7D83DB0F79E914A87B5F5311BBD0818CB9B0F23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205051   (784089) от 08.02.2018
-
-VA - German Top 100 Single Charts 09.02.2018 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_784089.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ed Sheeran - Perfect
-002. Bausa - Was du Liebe nennst
-003. Eminem - River (feat. Ed Sheeran)
-004. Camila Cabello - Havana (feat. Young Thug)(   Читать дальше...   )Жанр: PopПродолжительность: 05:40:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCEA2BC81BD7F311EEF8F3871D3F958CFFABBB8B
 ```
 
 https://mybot314.ru/tekegram_catalog/

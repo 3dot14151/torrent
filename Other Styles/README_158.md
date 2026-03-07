@@ -1,3 +1,32 @@
+###  Публикация: 1674880   (160636) от 07.11.2023
+
+Pasarea Colibri - Cantece de bivuac (1999) [APE|Lossless|image + .cue] <Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_160636.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Incripюie pe-o tobг 0:19
+ 02. Vis de primгvarг 2:38
+ 03. Pe Corso 3:54
+ 04. Dealul cu dor 3:13(   Читать дальше...   )Жанр: FolkПродолжительность: 00:58:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D090BC548F5171377180F749B81B2353DA4E38F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1599135   (160026) от 22.12.2022
 
 Lindsey Stirling - Snow Waltz (2022) [FLAC|Lossless|image + .cue] <Instrumental, Easy listening, Christmas>
@@ -720,35 +749,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:16C8077C76C9F68E474B621F402C08027EC1889A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270982   (154231) от 21.12.2018
-
-Laura Sullivan - Healing Music for Meditation and Well Being (2017) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, New Age>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154231.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. In the Palm of My Hand
-2. Ocean Sunrise
-3. Forgiveness
-4. Lighter Than AirЖанр: Instrumental, New AgeПродолжительность: 01:02:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A56B39BBD40AE714362FF56E36664F6862244B9B
 ```
 
 https://mybot314.ru/tekegram_catalog/

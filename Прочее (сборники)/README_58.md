@@ -1,3 +1,208 @@
+###  Публикация: 1282605   (743617) от 13.02.2019
+
+VA - Billboard Hot 100 Singles Chart 16.02.2019 (2019) [MP3|320 Kbps] <Pop, Dance, Euro>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743617.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ariana Grande - 7 rings
+002. Marshmello - Happier
+003. Halsey - Without Me
+004. Post Malone - Sunflower (Spider-Man_ Into the Spider-Verse)(   Читать дальше...   )Жанр: Pop, Dance, EuroПродолжительность: 05:31:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AECC74432DC5988E40A720D2E7F39F34FDF3CF11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282597   (743604) от 13.02.2019
+
+VA - Drum Star Bass (2019) [MP3|320 Kbps] <DnB, Dubstep, Bass Electronic>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743604.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Danger - Unknown Object
+002. Maverick Soul - Stranded
+003. Aweminus - Pants Floor
+004. Fourward - Make Some(   Читать дальше...   )Жанр: DnB, Dubstep, Bass ElectronicПродолжительность: 10:01:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0A5C3B80157CBFE10664123496E01026CCFC93E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020691   (743583) от 27.05.2016
+
+VA - Romantico Latino (2016) [MP3|320 кб/с] <Latin Pop, Dance, Bachata>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743583.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Gente de Zona - La Gozadera (feat. Marc Anthony)
+002. Romantico Latino - Loco Corazon (Extended Version)
+003. Estilo Libre - Hace Calor 2015 (feat. Rasel)
+004. Daddy Yankee - Sigueme y Te Sigo(   Читать дальше...   )Жанр: Latin Pop, Dance, BachataПродолжительность: 05:56:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76E4F1EC2837D418AF58DA8B6445948DF5F66106
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217456   (742958) от 04.04.2018
+
+VA - Neon RetroSynth (2018) [MP3|320 Kbps] <Synthwave, Retrosynth, Dreamwave>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_742958.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Neon Droid - Ordinary Neon
+002. SNTHWVRS - Neon Waves
+003. Neon City Murder - Neon City Murder
+004. Crusader - Neon Childhood(   Читать дальше...   )Жанр: Synthwave, Retrosynth, DreamwaveПродолжительность: 10:11:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F43AEC9AF527F7924B823AEEB83BDB384CC90279
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 783740   (742615) от 06.05.2014
+
+VA - The Official UK Top 40 Singles Chart (04-05-2014) [MP3|320 кб/с]<Pop, Dance, Rock, R&B, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_742615.jpg" />
+</div>
+
+
+###  Подробнее
+
+Публикую традиционный UK Singles Chart  - официальный хит-парад синглов Великобритании, отсортированных по результатам продаж за неделю.
+Все изменения по сравнению с прошлым чатом Вы можете посмотреть здесь.
+Во все треки вшиты обложки альбомов.01. Calvin Harris - Summer  (3:45)
+02. Mr. Probz - Waves  (3:28)
+03. Kiesza - Hideaway  (4:12)
+04. Sigma - Nobody To Love  (4:12)(   Читать дальше...   )Жанр: Pop, Dance, Rock, R&B, OtherПродолжительность: 02:34:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E5E3708822A33C895B5C34B62F9FF786AD5F339
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217418   (741611) от 05.04.2018
+
+VA - Дискотека 2018 Dance Club Vol. 177 от NNNB (2018) [MP3|320 Kbps] <Club, Deep House, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741611.jpg" />
+</div>
+
+
+###  Подробнее
+
+Part 1
+Продолжительность: 10:39:26
+
+001. Ana Mena, Becky G. & De La Ghetto - Ya Es Hora(   Читать дальше...   )Жанр: Club, Deep House, OtherПродолжительность: 15:28:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6FCE512E566E8B2EEB78E2F5D5C7A830D44E50E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397031   (741366) от 19.07.2020
+
+VA - The Official UK Top 40 Singles Chart 17.07.2020 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741366.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jawsh 685 & Jason Derulo - Savage Love (Laxed - Siren Beat) 2:51
+02. Dababy - Rockstar (Feat. Roddy Ricch) 3:02
+03. Joel Corry, Mnek - Head & Heart 2:46
+04. Lady Gaga & Ariana Grande - Rain On Me 3:02(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:04:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2520CF7382FA315A157DB76E7111B1258863832B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1021311   (740979) от 29.05.2016
 
 VA - Музыкальный заряд бодрости 3 (2016) [MP3|256 кб/с] <Pop, Dance>
@@ -547,211 +752,6 @@ VA - The Official UK Top 40 Singles Chart 24.07.2020 [MP3|320 Kbps] <Pop, Dance,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72D96B8C60F5F429FF86D5A3C97C20F0FABB412E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398235   (736184) от 25.07.2020
-
-VA - Music News vol.29 (2020) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736184.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Daasha - Истерики (02:12)
- 002. Mia Martina feat. 19 Mafia - Day Dreams (03:42)
- 003. Mick Mazoo - I Say Sun (02:29)
- 004. Mike Singer - 100Tausend (02:50)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 08:32:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D85414F6A2364AEAB404DC6FBE99A1B2041F6BD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398204   (736161) от 25.07.2020
-
-VA - ЕвроХит Топ 40 Europa Plus 24.07.2020 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736161.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Weeknd - Blinding Lights (3:21)
-02. NRD1 - All Good Things (Come To An End) (3:27)
-03. Pascal Letoublon - Friendships (4:01)
-04. Мари Краймбрери - Пряталась в ванной (3:10)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:11:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25C8504F070DDE73A29765DF411DAC19562C6F44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398233   (736151) от 25.07.2020
-
-VA - Music News vol.28 (2020) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736151.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. MONATIK & Вера Брежнева - ВЕЧЕРиНОЧКА (Shnaps & Kolya Funk Remix) (02:36)
- 002. 2VINA - Манекен (02:22)
- 003. Abik - Недоступная (02:49)
- 004. Ahmed Shad feat. Rhalli - Малая (02:43)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 08:12:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6492D4C2E291C1E6AB64A7CA518132629925701A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 787916   (735651) от 19.05.2014
-
-VA - The Official UK Top 40 Singles Chart (18-05-2014) [MP3|320 кб/с]<Pop, Dance, Rock, R&B, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735651.jpg" />
-</div>
-
-
-###  Подробнее
-
-Публикую традиционный UK Singles Chart  - официальный хит-парад синглов Великобритании, отсортированных по результатам продаж за неделю.
-В нынешнем чате 8 новых исполнителей, в том числе жено-дядька Conchita Wurst. Все новинки под спойлером NEW. Все изменения по сравнению с прошлым чатом Вы можете посмотреть здесь.
-Во все треки вшиты обложки альбомов.01. Rita Ora - I Will Never Let You Down  (3:23)
-02. Mr. Probz - Waves  (3:28)
-03. John Legend - All Of Me  (4:30)
-04. Calvin Harris - Summer  (3:45)(   Читать дальше...   )Жанр: Pop, Dance, Rock, R&B, OtherПродолжительность: 02:32:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F362C64EFA3B5F87AA96C5714E5091B16E928EA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397796   (735550) от 26.07.2020
-
-VA - не Громкие новинки недели 75 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735550.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2VINA - Манекен (2:21)
-02. Ahmed Shad feat. Rhalli - Малая (2:42)
-03. Alina Goman - Лететь (2:49)
-04. Anet Fadeeva - Сладкий Мальчик (3:33)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:36:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA45451157A9944896F4E164A38B1B60E2C04E6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528087   (735279) от 31.01.2022
-
-VA - Свежаки Зимы Remix NNM (2022) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735279.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zivert - Три Дня Любви (Silver Ace & Witzin Radio Edit) (2:57)
-02. Yachevskiy, Нискуба - Топовая (Dj Jan White & M-DimA Remix) (2:54)
-03. Renata - Нас бьют мы летаем (Mixon Spencer & Kuriev Radio Edit) (2:36)
-04. Лёша Свик - Плакала (DJ DeN PoZitiVe Radio Edit) (3:10)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:30:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5958549052EA35D897923617AF736DA6732EDE75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398834   (734651) от 28.07.2020
-
-VA - 100 Greatest Driving Songs (2020) [MP3|320 Kbps] <Pop, Rock, R&B>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734651.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fleetwood Mac - Go Your Own Way (2018 Remaster) (03:39)
-02. Chris Rea - The Road to Hell, Pt. II (04:32)
-03. Jackson Browne - Running on Empty (04:58)
-04. Eagles - Take It Easy (2013 Remaster) (03:31)(   Читать дальше...   )Жанр: Pop, Rock, R&BПродолжительность: 06:46:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1ECDD03AE28BBB6A2CA8CD1BF3B7C3F49A9F3BDC
 ```
 
 https://mybot314.ru/tekegram_catalog/

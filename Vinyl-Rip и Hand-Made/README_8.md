@@ -1,3 +1,177 @@
+###  Публикация: 986285   (930906) от 14.02.2016
+
+Калинов мост - Дарза (1992) Not On Label [FLAC 2.0|192/24|image+cue|Vinyl-Rip] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_930906.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Тропы в Китай
+02 - По-прежнему
+03 - Даждо (Для его стрелы)
+04 - Колывань(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA048C84A7B3E6E28B541B41379CA89C081A2C4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093929   (930459) от 17.01.2017
+
+Камерный оркестр Латвийской государственной филармонии, скрипка В. Зариньш, дирижер Т. Лифшиц - Антонио Вивальди - Времена года (1977) [WavPack|192/32|tracks|Vinyl-Rip] <Classical, Baroque>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_930459.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+Концерт №1 Ми Мажор «Весна»
+01. Allegro  3:20
+02. Largo E Pianissimo Sempre  2:36(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 00:39:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:589C997DF13C3AB2E0145E339B178A345581DFFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093948   (930129) от 17.01.2017
+
+VA - RETROспектива, часть VIII: Эстрадные оркестры VIII (1930-1966) [FLAC 1.0|48/24|tracks|Vinyl-Rip] <Retro, Instrumental>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_930129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Оркестр п.у. П. Урмузеску - Кумушки
+02. Оркестр п.у. Депрайнс - Дождь идет (танго)
+03. Инстр. квартет п.у. Б. Тихонова - Белорусская полька (танец)
+04. Э. Пибоди - Хороший день (фокстрот)(   Читать дальше...   )Жанр: Retro, InstrumentalПродолжительность: 00:55:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6578E7B6701879EA24E97E97C93A31DD24FA782
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986813   (928780) от 15.02.2016
+
+Оркестр Поля Мориа - Бабье лето (1981) [FLAC 2.0|192/24|tracks|Vinyl-Rip] <Romantic, Ballad>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_928780.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. Бразильский карнавал · Brasilia Carnaval  2:44
+2. Бабье лето · L'ete Indien «Africa»  3:30
+3. Мелиза · Melisa  2:56(   Читать дальше...   )Жанр: Romantic, BalladПродолжительность: 00:35:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25EBD896D2DE870517140CC1B3FE3CB6487D3C98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986948   (928765) от 15.02.2016
+
+Владимир Кузьмин - Моя любовь (1985) 1987, Мелодия ТЗГ [FLAC 2.0|96/24|image + .cue|Vinyl-Rip]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_928765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Только ты и я (4:43)
+02. Влюблённый в музыку (5:15)
+03. Ты, ты, ты (3:57)
+04. Моя любовь (3:25)(   Читать дальше...   )Производство: Мелодия ТЗГ - C60 25375 009Жанр: RockПродолжительность: 00:35:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:303EBE4045F4ACB6E8E3BC5B50AF9F369B49513A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987552   (925762) от 17.02.2016
+
+Def Leppard - Hysteria (1987) [FLAC 2.0|96/24|image + .cue|Vinyl-Rip]<Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_925762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Woman (5:45)
+02. Rocket (6:39)
+03. Animal (4:05)
+04. Love Bites (5:48)(   Читать дальше...   )Производство: Mercury – 830 675-1 Q-1Жанр: Hard RockПродолжительность: 01:02:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0F8994506E24FC87802F2081FCB124399FDA3E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1095519   (924184) от 21.01.2017
 
 The Alan Parsons Project - Ammonia Avenue (1984) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
@@ -568,181 +742,6 @@ C. Columbia (07:31)(   Читать дальше...   )Жанр: TranceПрод�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:204F40F5614F2DEF168C111DAB845727B9D4294A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098631   (907982) от 30.01.2017
-
-Enigma - The Fall Of A Rebel Angel (2016) [WavPack 2.0|32/192|image+.cue|Vinyl-Rip] <Downtempo, New Age, Ambient>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Circle Eight (2:24)
-02. The Omega Point (5:41)
-03. Diving (2:48)
-04. The Die Is Cast (4:15)(   Читать дальше...   )Жанр: Downtempo, New Age, AmbientПродолжительность: 00:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63980C31979D75EE5D2953BEAD32229CC25F6BE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991508   (905852) от 28.02.2016
-
-Круиз - Волчок (1981-82) [FLAC 2.0|44.1/16|tracks|Tape-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905852.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Виза Для Круиза (4:55)
-02. Волчок (3:41)
-03. Душа (5:24)
-04. Попугай (3:19)(   Читать дальше...   )Жанр: PopПродолжительность: 00:58:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6246DFA48BE8681B8C2E686E26414BF65AC8DE48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991305   (905838) от 28.02.2016
-
-Машина времени - Реки и мосты (1987) 2LP [FLAC 2.0|192/24|tracks|Vinyl-Rip] <Classic Rock, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905838.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-1. Реки и мосты  6:00
-2. Флюгер  4:08
-3. Гололед  3:42(   Читать дальше...   )Жанр: Classic Rock, Pop RockПродолжительность: 01:03:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4D0035C691C96D7A0092C5C0E2E572764FDCF4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990964   (905768) от 28.02.2016
-
-Веселые Ребята - Музыкальный Глобус (1979) [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905768.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Никогда Не Поверю (4:31)
-02. Мона Лиза (5:55)
-03. Уходило Лето (2:55)
-04. Люба-Любовь (3:35)(   Читать дальше...   )Жанр: PopПродолжительность: 00:34:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ADBE19D66A9FC120E884B5789554675713E9B21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099256   (903056) от 02.02.2017
-
-Simply Red - Stars (1991) [FLAC 2.0|192/24|tracks+.cue|Vinyl-Rip] <Funk, Soul, Pop, Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903056.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Something Got Me Started 4:01
-A2 Stars 4:07
-A3 Thrill Me 5:03
-A4 Your Mirror 3:59(   Читать дальше...   )Жанр: Funk, Soul, Pop, RockПродолжительность: 00:40:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B86B57DC8AB150CB300F0A12D89EC9B9739167C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 867152   (902749) от 08.02.2015
-
-Оркестр Олега Лундстрема - Серенада солнечной долины (1976) [FLAC 2.0 24/192|traks(Vinil-Rip)]<Jazz>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902749.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-1. В хорошем настроении - Разаф, Гарланд  3:30
-2. Лунная серенада - Г. Миллер  2:42
-3. Дорога на Чаттанугу - Гордон, Уоррен  2:42
-4. Я знаю, почему - Уоррен  1:58(   Читать дальше...   )Жанр: JazzПродолжительность: 00:34:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9C3BFB4F9B7C3FD7367A8F77C080FDBF9482366
 ```
 
 https://mybot314.ru/tekegram_catalog/

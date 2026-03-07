@@ -1,3 +1,29 @@
+###  Публикация: 1799735   (16220) от 30.05.2025
+
+Книжная иллюстрация - E A G L E - Creative Fabrica - 220 Decora Anime Girls Coloring Pages [JPG, PNG, PDF]
+
+>>Графика, Арт, Разное
+>>Книжная иллюстрация
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_16220.jpg" />
+</div>
+
+
+###  Подробнее
+
+220 Раскрасок девочек из аниме.Формат: JPG, PNG, PDFРазрешение файлов: 960 x 1248 - 2550 x 3300
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E52C51FB4FE24AEF8C0BEF9D6F71A6563BA698E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1799798   (16213) от 30.05.2025
 
 Книжная иллюстрация - E A G L E - Creative Fabrica - 275 Stained Glass Fairies Coloring Pages [JPG, PNG, PDF]
@@ -648,32 +674,6 @@ TrueRef имел удовольствие провести съемку с мо�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:52C17C17B8797B3B79BC2EF099FE8291BD374515
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806037   (11958) от 10.07.2025
-
-Промты - SevenUnited LLC - 412 Midjourney Prompts for Portrait Photography - 4832212 [TXT, JPG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11958.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пакет из 412 настраиваемых промтов Midjourney для портретной фотосъемки.Формат: TXT, JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BABC5AEFFA011A0F87847E998402C680CB0439A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

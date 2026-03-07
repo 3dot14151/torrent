@@ -1,3 +1,177 @@
+###  Публикация: 1851860   (1055392) от 04.02.2026
+
+Protector - Studio Albums (10 releases) (1987-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash/Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055392.jpg" />
+</div>
+
+
+###  Подробнее
+
+Protector — метал-группа из Вольфсбурга, Нижняя Саксония, Германия, образованная в 1986 году.1987 - Misanthropy
+1988 - Golem
+1989 - Urm The Mad
+1990 - Leviathan's DesireЖанр: Thrash/Death MetalПродолжительность: 06:02:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08E2FCB44B10665A07D81233729FC2A48FE89BFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851666   (1055280) от 03.02.2026
+
+Cliff Richard - Always Guaranteed (1987) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055280.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 One Night
+A2 Once Upon A Time
+A3 Some People
+A4 Forever(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:42:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A58C67463F6F1E01AB056714C2D4AF97188FC4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851280   (1055201) от 01.02.2026
+
+Cliff Richard - Love Songs (1981) Compilation, Remastered, Stereo, Mono [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Soft Rock, Pop Rock, Ballad>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055201.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Miss You Nights
+A2 Constantly
+A3 Up In The World
+A4 Carrie(   Читать дальше...   )Жанр: Soft Rock, Pop Rock, BalladПродолжительность: 01:00:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A77A8D9A5B131DF7F5CA97E7FD12F303D9F055BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851514   (1055135) от 02.02.2026
+
+Queens of the Stone Age (QotSA) - Studio Albums (8 releases) (1998-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock, Stoner Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055135.jpg" />
+</div>
+
+
+###  Подробнее
+
+Queens of the Stone Age - рок-группа, образованная в 1997 году в Палм-Дезерте, Калифорния, США.1998 - Queens of the Stone Age
+2000 - Rated R
+2002 - Songs for the Deaf
+2005  - Lullabies to ParalyzeЖанр: Hard Rock, Stoner RockПродолжительность: 08:25:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F9808055C37CCF3A1964065AC27EBEA7B489D71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851520   (1055134) от 02.02.2026
+
+Cliff Richard - 100th Single (1989) Single, 45RPM, Limited Edition [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055134.jpg" />
+</div>
+
+
+###  Подробнее
+
+A The Best Of Me
+B1 Move It
+B2 Lindsay Jane
+B3 High Class Baby(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:14:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5586CFE591AE092C5124B271D1D8043899C3B871
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850692   (1054470) от 29.01.2026
+
+Avatarium - Studio Albums (6 releases) (2013-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Doom Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054470.jpg" />
+</div>
+
+
+###  Подробнее
+
+Avatarium — шведская рок-группа из Стокгольма, основанная в 2013 году.2013 - Avatarium
+2015 - The Girl With The Raven Mask
+2017 - Hurricanes And Halos
+2019 - The Fire I Long ForЖанр: Doom Metal, Progressive RockПродолжительность: 4:54:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1CA7CB64211C5FE3D234649BB84FAEA65674A16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1850729   (1054436) от 29.01.2026
 
 Ahola - Studio Albums (2 releases) (2012-2014) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal/Hard Rock>
@@ -569,179 +743,6 @@ A4 Wrap Your Troubles In Dreams(   Читать дальше...   )Жанр: Jaz
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BBBB73BA74D4BA55089CBD86B0BA6D53CD03A3F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848181   (1052538) от 16.01.2026
-
-VA - Guardians Of The Galaxy. Awesome Mix Vol. 1 & Vol. 2 (2017) Deluxe Vinyl Edition, Songs From The Motion Picture Original Score By Tyler Bates [FLAC 2.0|48/24|image +.cue|MC-Rip] <Soundt ...
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052538.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-Awesome Mix Vol. 1
-01. Blue Swede - Hooked On A Feeling
-02. Raspberries - Go All The Way(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:30:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:671C7A96701D9AFFBDA1B76DD8C36C2BF1A1A4B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848186   (1052534) от 16.01.2026
-
-Frank Sinatra - Songs For Young Lovers (1959) Reissue, Records 1954 [FLAC 1.0|96/24|image +.cue|Vinyl-Rip] <Jazz, Big Band, Swing>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052534.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 My Funny Valentine
-A2 The Girl Next Door
-A3 A Foggy Day
-A4 Like Someone In Love(   Читать дальше...   )Жанр: Jazz, Big Band, SwingПродолжительность: 00:21:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89CB6632FFC71BFB3AF7A3DEB9847F62D32766F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848196   (1052525) от 16.01.2026
-
-Frank Sinatra - This Is Sinatra! (1956) [FLAC 1.0|192/24|image +.cue|Vinyl-Rip] <Jazz, Big Band, Swing>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052525.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 I've Got The World On A String
-A2 Three Coins In The Fountain
-A3 Love And Marriage
-A4 From Here To Eternity(   Читать дальше...   )Жанр: Jazz, Big Band, SwingПродолжительность: 00:36:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43C1A143686C134759EE47E8E8DAEF9513D778E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848192   (1052524) от 16.01.2026
-
-Frank Sinatra - Sunday And Every Day With Frank Sinatra (1969) Music For Pleasure Series [FLAC 1.0|192/24|image +.cue|Vinyl-Rip] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052524.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Sunday
-A2 I'll Never BeThe Same
-A3 Tell Her You Love Her
-A4 Close To You(   Читать дальше...   )Жанр: JazzПродолжительность: 00:38:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64E33C86D8602B02C22B53B6A53C593245AFB5EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847962   (1052388) от 15.01.2026
-
-Dust In Mind - Studio Albums (6 releases) (2013-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Industrial, Melodic Death Metal, Nu Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052388.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dust In Mind - французская рок-группа из Страсбурга, основана в 2013 году2013 - Dust in Mind (EP)
-2015 - Never Look Back
-2017 - Oblivion
-2018 - From Ashes to FlamesЖанр: Industrial, Melodic Death Metal, Nu MetalПродолжительность: 03:43:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BC7784923DE601EE1EBA9E54CC396C0A7219F02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847782   (1052312) от 14.01.2026
-
-Vermocracy - Studio Albums (3 releases) (2020-2026) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052312.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vermocracy - австрийская дэт-метал группа из Вены, основана в 2017 году.2020 - Vermocracy
-2022 - Age of Dysphoria
-2026 - Of Failing and FadingЖанр: Melodic Death MetalПродолжительность: 01:56:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90E100A0D51077CC7157072AFDD978B7AF26C98F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,115 @@
+###  Публикация: 1262589   (293501) от 16.11.2018
+
+Cherry (UA) - Hello (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_293501.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hello (Original Mix)
+02. Noi (Original Mix)Жанр: Progressive HouseПродолжительность: 00:11:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:982FC83DE91D480F11A9D46CC6D69D1882A850C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262571   (293500) от 16.11.2018
+
+Jacob Singer - Elohim (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_293500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elohim (Original Mix)
+02. The Book Of Enoch (Original Mix)Жанр: Progressive HouseПродолжительность: 00:14:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92FA980DB4F96820799092268BA6D046CEE4D5AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 960899   (292839) от 05.12.2015
+
+VA - Terry Lee Brown jr. - Terry's Cafe vol. 1-14 (1997-2012) [FLAC|Lossless|tracks+.cue]<House, Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_292839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Logique - Ambiophonique [5:02]
+02. Bobby Forester - I Got Pressure Control [4:35]
+03. T.V. Babies - Funkin' Situation [5:12]
+04. The Mulder - The Police [5:20](   Читать дальше...   )Жанр: House, Deep House, Tech HouseПродолжительность: 20:25:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F538E1219B5C8E126632726FB686CF234C9680E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334651   (291526) от 31.10.2019
+
+VA - Rock the Disco (2018) [FLAC|Lossless|WEB-DL|tracks] <Electro, House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_291526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gizelle Smith - Dust (Dimitri From Paris vs. Cotonete Remix) (4:32)
+02. Smoove & Turrell feat. Izo Fitzroy - You're Gone (3:43)
+03. D'Stephanie - Rock the Disco (5:15)
+04. Izo Fitzroy - Hope You Can Wait (Hot Toddy Remix) (5:06)(   Читать дальше...   )Жанр: Electro, HouseПродолжительность: 01:45:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1B285E35FF03D65626B9FF64E5D0A298B9350E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1263016   (291406) от 17.11.2018
 
 Rompasso - Angetenar (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronic, House, Deep House>
@@ -629,119 +741,6 @@ SMX - Hinterland EP (2018) Blank Mind [FLAC|Lossless|WEB-DL|tracks] <Techno, Amb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8D56A9A1C2C6B180B6AFF97A8E77FC85D907FC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964857   (280782) от 12.12.2015
-
-Hardwell - United We Are Remixed (Extended Mixes) (2015) [FLAC|Lossless|WEB-DL]<Trance, House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280782.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hardwell - Eclipse (Chocolate Puma Remix)
-02. Hardwell feat. Jason Derulo - Follow Me (Bingo Players Remix)
-03. Hardwell feat. Harrison - Sally (Frontliner Remix)
-04. Hardwell feat. Bright Lights - Let Me Be Your Home (Dave Winnel Remix)(   Читать дальше...   )Жанр: Trance, HouseПродолжительность: 01:14:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DA4D765E240BF670F048D696CBB9957230E54C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081974   (280754) от 11.12.2016
-
-VA - Mixmag Germany Presents Kittball (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280754.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paji & Juliet Sikora - Dimension (original mix) (05:57)
-02. KANT - Never U Mind (original mix) (06:30)
-03. Purple Disco Machine - Walls (original mix) (06:38)
-04. Tube & Berger - Set Free (feat Ghost Loft) (06:50)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 03:30:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22FF990C5E12F629142AF8581BBCF9B228A88ADC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 272153   (280522) от 18.12.2010
-
-Opus III - Guru Mother (1994) [APE|Lossless]<Vocal House, Ambient, Electronica>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280522.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Vocal House, Ambient, ElectronicaПродолжительность: 00:54:50
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336724   (279167) от 07.11.2019
-
-VA - From Disko to Disko (Winter 2018 Compilation) (2018) [FLAC|Lossless|WEB-DL|tracks] <House, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279167.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Telussa & Tijssen - The Groove (5:59)
-02. Lophius Rec - Don't Wanna Be (Genaro Fernandez Remix) (6:50)
-03. Phonista - Dyadic (7:25)
-04. Denace 2 Society - Come On (6:22)(   Читать дальше...   )Жанр: House, TechnoПродолжительность: 01:56:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8247198AF9A5EE6D3B351F8F18E35F1B88BBCE78
 ```
 
 https://mybot314.ru/tekegram_catalog/

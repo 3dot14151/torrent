@@ -1,3 +1,206 @@
+###  Публикация: 957374   (327597) от 17.11.2015
+
+Alison Moyet - Singles (1995) [FLAC|image + .cue]<Pop, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_327597.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The First Time Ever I Saw Your Face (03:20)
+ 02. Only You (03:13)
+ 03. Nobody's Diary (04:32)
+ 04. Situation (02:25)(   Читать дальше...   )Жанр: Pop, Synth-popПродолжительность: 01:13:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03C2A6A93F9B39751B5EAEFAC0EFC39DB9ACED45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957276   (327501) от 17.11.2015
+
+VA - Now That's What I Call Music! 92 (2015) [MP3|320 кб/с]<Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_327501.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Sam Smith - Writings On The Wall
+02. Justin Bieber - What Do You Mean?
+03. The Weeknd - I Can\'t Feel My Face(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:50:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A5DCEC583880E642A1D0FA3E516706872C0D41D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957420   (327442) от 17.11.2015
+
+One Direction - Made In The A.M. (2015) Deluxe Edition [FLAC|Lossless|image + .cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_327442.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hey Angel
+02. Drag Me Down
+03. Perfect
+04. Infinity(   Читать дальше...   )Жанр: PopПродолжительность: 00:58:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2E2B8AADF5AB2BF1C64F9290A6BD5AB52376A48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957304   (327428) от 17.11.2015
+
+VA - Радуга (1 пластинка) (1980) [MP3|320 кб/с]<Instrumental, Pop, Retro>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_327428.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Оркестр Макса Грегера - Хелло, Долли (Дж.Герман)
+MAX GREGGER ORCHESTRA - Hello Dolly (Jerry Herman) ©197?
+02. Джо Дассен - Если в мире нет тебя (Паллавичини - Лемеси)
+JOE DASSIN - Et si Tu N’Existais pas (Salvatore Cutugno - Vito Pallavicini - Pasquale Losito - Claude Lemesle) ©1969(   Читать дальше...   )Жанр: Instrumental, Pop, RetroПродолжительность: 00:36:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9881D8F8681A3A2D75AB8DC3C9D58E306418382
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957498   (327322) от 17.11.2015
+
+МакSим - Хорошо (2015) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_327322.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Любовь алого цвета
+02. Золотыми рыбками
+03. Иди
+04. В лето(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E86090CD7455E4C1C66044212C05199B48DE0A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 956989   (327276) от 17.11.2015
+
+VA - BRAVO The Hits 2015 (2015) [FLAC|Lossless|tracks|WEB-DL]<Top 40, Pop, Electronic, R&B, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_327276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Glasperlenspiel - Geiles Leben (Madizin Single Mix) (3:32)
+02. Louane - Avenir (Radio Edit) (3:03)
+03. Avicii - Broken Arrows (3:52)
+04. Sido feat. Andreas Bourani - Astronaut (3:59)(   Читать дальше...   )Жанр: Top 40, Pop Compilation, Pop, Rock, Electronic, Hip Hop, R&B, Europop, Indie Pop, Euro House, Electro, Synthpop, Pop Rap, Reggae Fusion, Pop Rock, Indie RockПродолжительность: 02:40:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E2CCEDF1BC1955D276D6088E9339D9EFA77D2F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1581301   (327209) от 05.10.2022
+
+Dido - Greatest Hits (2013) 2 CD [OGG Vorbis|484 Kbps] <Electronic, Pop, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_327209.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Here With Me
+02. Thank You
+03. Hunter
+04. White Flag(   Читать дальше...   )Жанр: Electronic, Pop, BalladПродолжительность: 02:22:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B16A3141A1856FE0EABE475531FD4C1B8C5CFFA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1581509   (327130) от 05.10.2022
 
 Richard Marx - Songwriter (2022) [FLAC|Lossless|image + .cue] <Pop, Rock, Country...>
@@ -542,209 +745,6 @@ Sarah Brightman - Classics (2001) [OGG Vorbis|484 Kbps] <Electronic, Pop, Classi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47595C5B9CABB7A10882F2D15208E014A440405F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582197   (324586) от 08.10.2022
-
-Sarah Brightman - Symphony (2007) [OGG Vorbis|484 Kbps] <Electronic, Pop, Classical>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324586.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gothica
-02. Fleurs Du Mal
-03. Symphony
-04. Canto Della Terra (Duet With Andrea Bocelli)(   Читать дальше...   )Жанр: Electronic, Pop, ClassicalПродолжительность: 01:01:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7341D82EA3F41F260F6F3364196E66EEDFBCD03E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581988   (324585) от 08.10.2022
-
-Sarah Brightman - Eden (1998) Reissue, 1999, EastWest [OGG Vorbis|484 Kbps] <Electronic, Rock, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In Paradisum
-02. Eden
-03. So Many Things
-04. Anytime, Anywhere(   Читать дальше...   )Жанр: Electronic, Rock, Synth-popПродолжительность: 00:55:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:253D5EEBE8A7B3F4EDC7F6AAA78C1DA93D9288A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582066   (324492) от 08.10.2022
-
-Sarah Brightman - The Very Best Of 1990-2000 (2001) [OGG Vorbis|484 Kbps] <Electronic, Pop, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Question Of Honour (Part 2 - Radio Edit)
-02. Heaven Is Here
-03. Who Wants To Live Forever (With The London Symphony Orchestra)
-04. Time To Say Goodbye (Con Te Partiro) (With Andrea Bocelli)(   Читать дальше...   )Жанр: Electronic, Pop, Synth-popПродолжительность: 01:03:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:785E130CC682AAFF6AF321160E349008FE65B095
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582216   (324488) от 08.10.2022
-
-Sarah Brightman - A Winter Symphony (2008) [OGG Vorbis|484 Kbps] <Electronic, Pop, Classical>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324488.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arrival
-02. Colder Than Winter
-03. Ave Maria (Duet With Fernando Lima)
-04. Silent Night(   Читать дальше...   )Жанр: Electronic, Pop, ClassicalПродолжительность: 00:54:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5ECAC121ACBEEA1A813617C4619156BECC31DAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180930   (323827) от 07.11.2017
-
-VA - Zouk Monster Vol 1. (2017) [MP3|320 Kbps] <Pop, Latin>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323827.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love virtuel - Carbeti, Stephane Moreau 3:43
-02. Une vie sans couleur - Myl's 4:29
-03. Je m'enfuis - Lindsey Lin's 3:44
-04. I ja tro ta - Cedrick Vernon 4:42(   Читать дальше...   )Жанр: Pop, LatinПродолжительность: 00:56:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BEF46D4F0FC4DFE1C5C3B89C7B2326AFEDDC97A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958486   (323654) от 21.11.2015
-
-Ёлка - Я не такая, как вы! (неизданный альбом) (2015) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Огонь
-02. Красная роза
-03. Моя звезда
-04. Ночь - я твоя!(   Читать дальше...   )Жанр: PopПродолжительность: 00:30:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBCFF28EC269F5494BD15DD932D0AA5EC8A1DA9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180704   (323617) от 07.11.2017
-
-Mark Ashley - I Will Not Forget You (2017) [FLAC|Lossless|tracks + .cue] <Euro-Disco, EuroPop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323617.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jenny Come Home 4:00
-02. Please Believe Me 3:05
-03. Breath of an Angel 3:20
-04. I Will Not Forget You 3:10(   Читать дальше...   )Жанр: Euro-Disco, EuroPopПродолжительность: 00:55:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72BBC1187533D21B36DF3E2AA53C2EC962FCED75
 ```
 
 https://mybot314.ru/tekegram_catalog/

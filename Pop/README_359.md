@@ -1,3 +1,206 @@
+###  Публикация: 1756819   (39505) от 23.10.2024
+
+Blue System - Диско 80-х (2007) [OGG Vorbis|480 Kbps] <Electronic, Pop, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39505.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sorry Little Sarah
+02. My Bed Is Too Big
+03. Laila
+04. Under My Skin(   Читать дальше...   )Жанр: Electronic, Pop, DiscoПродолжительность: 01:08:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29F168A38287AA8BDAD640D400C256A1FC01B66D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756751   (39485) от 23.10.2024
+
+Sapho - El sol y la luna (1987) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39485.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Atahualpa
+02. Mauvais Song
+03. Petite Fille Veut Le Monde
+04. Malaise Avec Lezard(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ECEA33D63FA7C1C34CC9078CAF31959DCBA7728
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756972   (39402) от 24.10.2024
+
+ABBA - The Singles (The First Fifty Years) (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39402.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. People Need Love (2:45)
+02. He Is Your Brother (3:19)
+03. Ring Ring (English Version) (3:06)
+04. Love Isn't Easy (But It Sure Is Hard Enough) (2:56)(   Читать дальше...   )Жанр: PopПродолжительность: 02:29:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA518A24EF0BE322A36CF60ACC2A7BE8715C602C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756861   (39392) от 24.10.2024
+
+Samantha Fox - Диско 80-х (2007) [OGG Vorbis|480 Kbps] <Rock, Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Touch Me (I Want Your Body)
+02. Wild Kinda Love
+03. You Started Something
+04. (I Cant Get No) Satisfaction(   Читать дальше...   )Жанр: Rock, Pop, Pop RockПродолжительность: 01:18:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37941AC1DAAB480B1FDA8B881DDB824A6392C55A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756924   (39381) от 24.10.2024
+
+Baccara - Диско 80-х (2008) [OGG Vorbis|480 Kbps] <Electronic, Pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39381.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cara Mia
+02. Yes Sir, I Can Boogie
+03. Sorry. Im A Lady
+04. Yummy, Yummy, Yummy(   Читать дальше...   )Жанр: Electronic, Pop, DiscoПродолжительность: 01:18:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9C4F162F305B07CC52E30B601C1BA66CF6232D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756914   (39379) от 24.10.2024
+
+Smokie - Диско 80-х (2007) [OGG Vorbis|480 Kbps] <Pop Rock, Rock, Soft Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39379.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Play Your Rock'N'Roll To Me
+02. Living Next Door To Alice
+03. I'll Meet You At Midnight
+04. Oh Carol(   Читать дальше...   )Жанр: Pop Rock, Rock, Soft RockПродолжительность: 01:11:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C03B8B1F0B281C8D287E9FD810498E5DAD6B35C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757121   (39297) от 25.10.2024
+
+Boney M - Диско 80-х (2008) [OGG Vorbis|480 Kbps] <Electronic, Pop, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39297.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunny
+02. Daddy Cool
+03. Hooray! Hooray! Its A Holi-Holiday
+04. Rivers of Babylon(   Читать дальше...   )Жанр: Electronic, Pop, DiscoПродолжительность: 01:11:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68AEC08EBE5228081DD130924E10438573F32BA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 522351   (39257) от 26.10.2024
 
 Lama (Лама) - 4 Albums + 11 Single's (2006-2023) [APE, FLAC|Lossless|image + .cue, tracks] <Pop, Rock>
@@ -542,209 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A99794483978E811E76A20F05EF3B00A72F46FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760671   (37198) от 15.11.2024
-
-Алиса Фрейндлих - Избранное, Часть 1 (2024) [MP3|320 Kbps] <Retro>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37198.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Посвящение (Из спектакля "Люди и страсти")
-2. Вопросы (Из спектакля "Люди и страсти")
-3. Мария-Антуанетта (Из спектакля "Люди и страсти")
-4. Ход жизни (Из спектакля "Люди и страсти")(   Читать дальше...   )Жанр: RetroПродолжительность: 00:47:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3D7F0ABB443936C1452E79D8BD44B00250CFA6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760553   (37196) от 15.11.2024
-
-Gwen Stefani - Bouquet (2024) [FLAC|Lossless|WEB-DL|tracks] <RnB/Swing, Electronic, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Somebody Else's [3:44]
-02 - Bouquet [3:26]
-03 - Pretty [3:14]
-04 - Empty Vase [2:59](   Читать дальше...   )Жанр: RnB/Swing, Electronic, PopПродолжительность: 00:33:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFB4FEE2F4CDFF279FF7B80AB701AF72BB3633F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760708   (37176) от 15.11.2024
-
-Антон Агеев - Сейчас или никогда (2024) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37176.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Джин и тоник [00:02:55]
-02 - Засветло [00:02:49]
-03 - В медленном танце [00:03:20]
-04 - Не вдвоём [00:02:57](   Читать дальше...   )Жанр: PopПродолжительность: 00:27:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EED01BB5684A7A38897DC628587C6344D71F996
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760724   (37064) от 16.11.2024
-
-VA - Sex Music 2024 [MP3|320 Kbps] <Pop, RnB, Other>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37064.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DaniLeigh - Tasty (2:30)
-02. Two Feet - I Feel Like I'm Drowning (3:05)
-03. Jujuboy - James Bond (2:22)
-04. Muni Long - Made For Me (3:08)(   Читать дальше...   )Жанр: Pop, RnB, OtherПродолжительность: 03:14:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B991134DAD4EE75A0DFFC828F9789C4DD10AAB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761221   (36859) от 18.11.2024
-
-VA - WORKOUT HITS (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36859.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Troye Sivan - Rush (2:36)
-02. Sam Smith - Unholy (2:36)
-03. James Hype - Ferrari (3:06)
-04. Jazzy - Giving Me (2:49)(   Читать дальше...   )Жанр: PopПродолжительность: 02:55:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63D63F801A4D209D4A470043559F6604379EE1CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761316   (36800) от 19.11.2024
-
-VA - Союз 8 Альбомов (1994-1997) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36800.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сергей Демидович - Любовь
-02. Татьяна Овсиенкo - Не забудь
-03. Александр Иванов - Ночь
-04. Владимир Шурочкин - Губы в губы(   Читать дальше...   )Жанр: PopПродолжительность: 08:48:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DAAA761CE61BF3EEDB89BE7E7FCC4F7314A013D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761484   (36703) от 20.11.2024
-
-Bee Gees - 3 Albums (2020-2023) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36703.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-Radio Sessions 1967-1969 + Digital Booklet
-Melbourne 1971
-Live On Air 1967 - 1968Жанр: PopПродолжительность: 3 CD, 03:17:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34E916B9FCD279F28A2DA78E122A88BA09FE7B34
 ```
 
 https://mybot314.ru/tekegram_catalog/

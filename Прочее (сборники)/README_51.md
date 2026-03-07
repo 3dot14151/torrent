@@ -1,3 +1,206 @@
+###  Публикация: 1209829   (779082) от 28.02.2018
+
+VA - Europa Plus Euro Hit Top-100 Взгляд в прошлое vol.24 (2018) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779082.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Britney Spears Feat Will.i.am - Scream & Shout
+002. Girls Aloud - Something New
+003. Винтаж - Свежая вода (ft. ChinKong)
+004. Nelly Furtado - Waiting for the Night(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:10:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E33FBAC166A69CB3D847555520AB1B12704848DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209960   (778968) от 01.03.2018
+
+VA - NRJ Hot 30 от Радио ENERGY 23.02.2018 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MARUV & BOOSIN - Drunk Groove
+02. Post Malone & 21 Savage - Rockstar
+03. Alice Merton - No Roots
+04. Merk & Kremont - Sad Story (Out Of Luck)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:48:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C828DB9D6203A9CC6C560299E8C8243073C55F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210179   (778885) от 01.03.2018
+
+VA - Новинки С Разных Популярных MP3 Сайтов Vol.70 (2018) [MP3|320 Kbps] <Pop, House, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778885.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  2Маши  -  Босая (DOBRYNIN Remix)  3:06
+002.  Dabro  -  Ты меня ждёшь  3:54
+003.  5sta Family  -  Снова вместе (Andy Light  Ramirez Radio Remix)  2:58
+004.  Deep Purple  -  Smoke On The Water (XM & Alexander Holsten Remix)  3:52(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 06:44:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7D991A0D928F0791BE64D32A4F57CD8D940A111
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210519   (778575) от 03.03.2018
+
+VA - Зайцев.Нет: Март (Музыкальные Новинки) (2018) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778575.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Анастасия Спиридонова  -  Прыжок в облака  3:17
+02.  Роман Рябцев  -  Вернуться домой (Radio Version)  4:56
+03.  Дана Соколова и L'One  -  Голос  3:36
+04.  Moby  -  This Wild Darkness  3:21(   Читать дальше...   )Жанр: PopПродолжительность: 02:34:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD1F3246512C3350A703513118F0FE6A23FEEDAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210455   (778574) от 03.03.2018
+
+VA - Top 100 Зайцев.Нет Февраль 2018 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778574.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ SLON & KATYA ft. Роман Василенко - LIFE IS GOOD
+02. Элджей - Минимал
+03. Элджей & Feduk - Розовое вино
+04. Время и Стекло - Тролль(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:44:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:677E18A7D66B612C7613E60464CC9C24CF8BBAD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210742   (778463) от 04.03.2018
+
+VA - The Best World Ballads - 34 (2018) [MP3|320 Kbps] <Pop, Rock, R'n'B>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778463.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Anastacia  -  Not Coming Down  3:22
+002.  The Score  -  Revolution  3:52
+003.  Demi Lovato  -  Cry Baby  3:43
+004.  Chris Rea  -  Nothing Left Behind  5:29(   Читать дальше...   )Жанр: Pop, Rock, Blues, Rap, R'n'BПродолжительность: 16:09:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B09E7D96473C8AA77599C092F81999893825191
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012925   (778383) от 02.05.2016
+
+VA - Awesome 80s Romance (2016) [MP3|320 кб/с] <Pop, Easy Listening, Jazz Vocal>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778383.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Chaka Khan - Through the Fire
+2. Al Jarreau - We're In This Love Together
+3. Chicago - You're the Inspiration
+4. Anita Baker - Sweet Love(   Читать дальше...   )Жанр: Pop, Easy Listening, Jazz VocalПродолжительность: 01:01:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F068B4BC23F0E9A457721DC1F2593AA20F8DC69B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1012829   (778360) от 02.05.2016
 
 VA - Blues Women: Collection April (2016) [MP3|320 кб/с] <Rock Blues, Country>
@@ -541,204 +744,6 @@ VA - Popsologia: Lemon Mix (2018) [MP3|320 Kbps] <Dance, Club, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:191AAFE73432A17412A1252D172783A7D6DBFE13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015179   (775690) от 09.05.2016
-
-VA - Vinyl Nostalgia 80s (2016) [MP3|320 кб/с] <Pop, Rock, RnB>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775690.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Joyce Sims - Come Into My Life
-002. Gloria Estefan - Don't Wanna Lose You Now
-003. Haircut 100 - Love Plus One
-004. Luther Vandross - Stop To Love(   Читать дальше...   )Жанр: Pop, Rock, RnB, ReggaeПродолжительность: 07:24:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07461DCDD6BAB17B9BE70E30F8A3046A9F5A5021
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212594   (775576) от 12.03.2018
-
-Линда - Мало огня (2018) Remix [MP3|256 Kbps] <Dubstep>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775576.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Мало огня
-2. Up MusicЖанр: DubstepПродолжительность: 00:04:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A48347848C7FF8428507DC1B9F9635BC47300A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276985   (775505) от 21.01.2019
-
-VA - Super Disco Еxclusive Vol.4 (2019) [MP3|320 Kbps] <Pop, Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775505.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Arash and Helena  - Oneday
-002. Manuel Santini - Caliente
-003. 2 Unlimited - No Limit (Explo Radio Edit)
-004. Alok feat. Bruno Martini & Zeeba - Never Let Me Go(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 06:19:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59586E9274FC43836C5B990F74F9EDD0B817B385
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276969   (775504) от 21.01.2019
-
-VA - Super Disco Еxclusive Vol.3 (2019) [MP3|256-320 Kbps] <Pop, Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775504.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Constanzo - Ltaliano
-002. Dan Balan - Hold On Love
-003. Madame Monsieur - Mercy
-004. Soriani Brothers, Joe Berte & Daniel Tek feat. Deborah - Na Na Song (Radio Edit)(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 06:10:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD6CFD2160CD863FE689655AAE72522AF6922827
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276967   (775503) от 21.01.2019
-
-VA - Super Disco Еxclusive Vol.2 (2019) [MP3|256-320 Kbps] <Pop, Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775503.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Captain Jack - In The Army Now (Radio Mix)
-002. A. Rassevich - The Red Space (QRVZH Remix)
-003. DJ BeeCo - Give me kiss, kiss
-004. Jayan - Hasta Luego(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 06:11:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ED55B6610F1BA59617CDCC6F10FFA802ED5A096
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276966   (775500) от 21.01.2019
-
-VA - Super Disco Еxclusive Vol.1 (2019) [MP3|320 Kbps] <Pop, Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775500.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dr. Alban - Its My Life (DJ SAVIN  Alex Pushkarev Remix)
-002. Above & Beyond feat. Justine Suissa - Cold Feet
-003. Michelle Andrade - Hasta la Vista
-004. Ennio Morricone - Chi Mai (A-Mase Remix)(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 06:28:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06E3A53F485E176E94A9E1226D99612AF7A8EC31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277754   (775499) от 21.01.2019
-
-Roxette - Listen To Your Heart (2016) Remix [MP3|320 Kbps] <Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775499.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Roxette - Listen To Your Heart (Ennis Remix)Жанр: Club, DanceПродолжительность: 00:04:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BFD024F94A845CAF77CEB819A66E3D1CD9CEB68
 ```
 
 https://mybot314.ru/tekegram_catalog/

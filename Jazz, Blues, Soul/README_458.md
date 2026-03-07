@@ -1,3 +1,235 @@
+###  Публикация: 1271194   (150000) от 23.12.2018
+
+London Gay Big Band - Freedom (2018) [MP3|320 Kbps] <Vocal Jazz, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_150000.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's A Man's Man's Man's World 03:18
+02. Dancing In The Street 03:27
+03. This Can't Be Love 02:16
+04. Me And Mr. Jones 04:21(   Читать дальше...   )Жанр: Vocal Jazz, SoulПродолжительность: 00:38:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FD24562D040C77B82F1570A4A924A8AB1AD24E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434628   (149957) от 25.12.2020
+
+Andy Lindquist - Dead in Your Lies (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_149957.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All I Got's the Whisky (4:59)
+02. Dead in Your Lies (4:10)
+03. The Grass Is Greener on the Other Side (3:19)
+04. Two Barrels (3:28)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:53:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1337EDB5D150B9BA0B83C95859B74025E568952B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434570   (149945) от 25.12.2020
+
+Etienne Charles - Creole Christmas (2015) [FLAC|Lossless|tracks + .cue] <Afro-Caribbean Jazz, Calypso, Christmas>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_149945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Father Christmas (5:05)
+02. Chocolate (Spanish Dance) (4:47)
+03. Go Tell It on the Mountain (6:10)
+04. Make a Friend for Christmas (5:12)(   Читать дальше...   )Жанр: Afro-Caribbean Jazz, Calypso, ChristmasПродолжительность: 01:07:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33824410BF4377ED15E66284232CC3EE339121F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434631   (149943) от 25.12.2020
+
+Bad Mileage - A Bridge Too Far (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_149943.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Checking Up On My Baby (4:44)
+02. Got My Eyes On You (3:46)
+03. Cry For Me (4:38)
+04. Got Home Last Night (4:41)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D43EBE3E0156D407D4D5D884AE0A2EE89F32DEBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519182   (149940) от 23.12.2021
+
+Erroll Garner - 1953-1954 (2006) Classics [FLAC|Lossless|tracks + .cue] <Swing, Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_149940.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yesterdays [4:06]
+02. Frenesi [3:38]
+03. Oh, What A Beautiful Mornin' [3:00]
+04. Groovy Day [3:43](   Читать дальше...   )Жанр: Swing, Bop, Piano JazzПродолжительность: 01:12:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8570891D28E8EFD6191EBEC532E9CD03164A7A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434633   (149929) от 25.12.2020
+
+Damon Smith's - A Boogie Woogie and Blues Christmas Album (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_149929.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everyday Is Christmas (2:08)
+02. Party At The North Pole (1:44)
+03. Silly Season Rag (2:26)
+04. Blues For Mrs Christmas (2:11)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:17:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29E6971ABEABB7BE3041A7303499CECFC39F4843
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434592   (149906) от 25.12.2020
+
+Courtney Pine - Black Notes From The Deep (2017) Freestyle Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Soul Jazz, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_149906.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rules (feat. Omar) [3:15]
+02. You Know Who You Are [4:54]
+03. Darker Than the Blue (feat. Omar) [3:22]
+04. Rivers of Blood [5:39](   Читать дальше...   )Жанр: Post-Bop, Soul Jazz, Contemporary JazzПродолжительность: 00:41:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:722E2130B70C3BF2B2AFD0207F73F4DEBD5F9370
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271192   (149896) от 23.12.2018
+
+Ana Gazzola - Brazilian Blues (2018) [MP3|320 Kbps] <Vocal Jazz, Soul, Blues, Bossa Nova>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_149896.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Love 03:40
+02. Tigresa 03:10
+03. Tola 02:42
+04. Indigo Blue 03:47(   Читать дальше...   )Жанр: Vocal Jazz, Soul, Blues, Bossa NovaПродолжительность: 00:43:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91E2EAAC2648165A3E8C3FEFDA10E793A654264B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1434439   (149864) от 25.12.2020
 
 Jeff Liberman - Celebrate the Day (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -519,243 +751,6 @@ The Johnny Smith - Quartet (1955) Remaster, 2016, Warner[FLAC|Lossless|tracks + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:63830F6700AFD1AC4DC890C2C9ABB1F3323A5AA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087030   (148752) от 26.12.2016
-
-John Kirby - The Biggest Little Band In The Land (1938-1941) 1994, Jazz Portraits[APE|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148752.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Rehearsin' For A Nervous Breakdown [02:39]
- 02.Undecided [02:59]
- 03.It Feels Good [02:48]
- 04.Sweet Georgia Brown [02:50](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:45:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A97760BD4F343EDBC982C6113DCA5684A712226
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087085   (148746) от 26.12.2016
-
-The Michael Brecker Band - Live (1993) Jazz Door [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148746.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Gossip [06:24]
- 02.Nothing Personal [14:56]
- 03.Original Rays [22:24]Жанр: Jazz Fusion, Contemporary JazzПродолжительность: 00:43:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93F0E9BFC2A19DDDA3995EB504211B0FB0FD078B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347700   (148689) от 24.12.2019
-
-Cozy Cole & Savina - Big Band Jazz And All That Gentle Jazz: Dual Performance 1958 - 1992 (2000) Love Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148689.jpg" />
-</div>
-
-
-###  Подробнее
-
-Alan Hartwell's Big Band featuring Cozy Cole:
-01. Topsy Part 1 [3:22]
-02. Topsy Part 2 [3:35]
-03. Turvy Part 1 [2:24](   Читать дальше...   )Жанр: Swing, Big Band, Vocal JazzПродолжительность: 01:14:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81335A0B5D1E368F52A01076AF77AF24A2B57F9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347668   (148605) от 24.12.2019
-
-John Verity Band - 11 albums (2006-2019) [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148605.jpg" />
-</div>
-
-
-###  Подробнее
-
-Английский гитарист и вокалист Джон Верити больше известен, как участник легендарной хард-артовой группы Argent, где он успешно заменил одного из основателей команды - Расса Болларда (Russ Ballard). Однако Джон стал известен задолго до этого, еще в конце 60-х, выступая со своей группой, которая тогда называлась THE JOHN VERITY BAND. Переиграв помимо этой группы в (   Читать дальше...   )--------------------------
-
-01. Where's the love? (6:22)
-02. I just don't love you anymore (4:10)(   Читать дальше...   )Жанр: Blues Rock |Продолжительность: 07:17:02 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B91BC7E960FDA0E34E1C7312D9DA4ACDA59108A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434902   (148485) от 26.12.2020
-
-Chet Baker - 3 Essential Albums (1958 - 1988) 3CD, 2017, Universal [FLAC|Lossless|tracks + .cue] <Cool, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148485.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Stan Meets Chet:
-01. I'll Remember April [12:24]
-02. Ballad Medley: Autumn In New York - Embraceable You - What's New [14:34]
-03. Jordu [8:31](   Читать дальше...   )Жанр: Cool, Mainstream JazzПродолжительность: 02:36:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FDE585AEE1CD9F3D8313AF8F6BF3812F39E668C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434864   (148435) от 26.12.2020
-
-Doug Westberg - I Get the Blues (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148435.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shaking off Signs (3:22)
-02. Honest Buck (4:12)
-03. Doug Westberg, LaRhonda Steele -- Wondering When You'll Call (4:00)
-04. Doin' the Wackadoodle (3:07)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73AE13BDB72C5B9FA2F5EECF4CF549A67ADBDCCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434912   (148367) от 26.12.2020
-
-Doug Westberg - I Get The Blues (2020) [MP3|320 Kbps] <Blues Rock , Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148367.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shaking Off Signs (03:22)
- 02. Honest Buck (04:12)
- 03. Wondering When You'll Call (04:00)
- 04. Doin' The Wackadoodle (03:07)(   Читать дальше...   )Жанр: Blues Rock , BluesПродолжительность: 00:43:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A2234D4EBBF27DF0542A7EA134278417C618011
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 589570   (148038) от 15.12.2012
-
-Stevie Ray Vaughan & Double Trouble - 5 х CD Collection (1983-1991) /Re-mastered, Re-issue 1999-2011/ [WavPack|Lossless]<Rock, Blues Rock, Blues.>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148038.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boot Hill [02:16]
-02. The Sky Is Crying [04:38]
-03. Empty Arms [03:30]
-04. Little Wing [06:50]
-05. Wham [02:28]
-06. May I Have A Talk With You [05:50]
-07. Close To You [03:13]
-08. Chitlins Con Carne [03:59]
-09. So Excited [03:32]
-10. Life By The Drop [02:28]Жанр: Rock, Blues Rock, Blues.Продолжительность: 00:38:49
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1129419   (757781) от 26.03.2018
+
+Шрифты - NNM-Club - Astakhov First Two Stripes - 1129419 [OTF, TTF, EOT, WOFF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_757781.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатное семейство шрифтов (в т.ч. OFL)
+Количество / Штук: 6
+Разработчик: D. Astakhov
+(   Читать дальше...   )Формат: OTF, TTF, EOT, WOFF, SVG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEF08FA706577A54E662AA227B9FFC441A4B70CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1282679   (743495) от 13.02.2019
 
 Шрифты - Creative Market - Atlantis Heart - 921756 [TTF, OTF]
@@ -654,33 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D6288EC211E903C9B3F5F9E40997F3A038BBB8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287390   (703101) от 07.03.2019
-
-Шрифты - Behance - Fontuna Stencil [OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703101.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатный шрифт с кириллицей для личного пользования, семейства Fontuna.
-Автор: Andriy Dykun (NREY)Формат: OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E12D6589B184D808DF0523B5621A96D2A5D5257
 ```
 
 https://mybot314.ru/tekegram_catalog/

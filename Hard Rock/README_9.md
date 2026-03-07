@@ -1,3 +1,32 @@
+###  Публикация: 1127138   (741004) от 20.04.2017
+
+Racing The Sun - Killing Time (2017) [MP3|320 Kbps] <Hard Rock, Grunge, Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741004.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Philadelphia Scream  (01:52) 
+02. Relapse  (04:13) 
+03. Waiting for You  (03:19) 
+04. Killing Time  (03:24) (   Читать дальше...   )Жанр: Hard Rock, Grunge, Punk RockПродолжительность: 00:31:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C594BE0D5A5AFBE63CE91159AD2E1A10D6802610
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1127277   (740901) от 20.04.2017
 
 Rhino Bucket - The Last Real Rock n’ Roll (2017) [MP3|320 Kbps] <Hard Rock>
@@ -719,35 +748,6 @@ Knockin' Lost John - Got A Spell (2016) [MP3|320 кб/с] <Hard Rock, Blues Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:41AE184022A2C12919253DB8588181144368D52A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401576   (707687) от 11.08.2020
-
-Fortune - The Gun's Still Smokin' Live (2020) [MP3|320 Kbps] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707687.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thrill of It All (04:54)
- 02. Don't Say You Love Me (05:03)
- 03. Bad Blood (04:14)
- 04. What a Fool I've Been (04:42)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:51:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E82FCBDB82DDCC19392593BC1699BD144F51A5EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

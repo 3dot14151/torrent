@@ -1,3 +1,32 @@
+###  Публикация: 1264389   (281157) от 23.11.2018
+
+VA - Cosmic Dreaming Lounge (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Chillout, Lounge>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_281157.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Der Waldlaufer - Yanaras Light (original mix) 04:34
+02.  Island Sun - Be Happy The Day (Endless Fly mix) 05:56
+03.  Marga Sol - Hold Me (original mix) 04:59
+04.  Frank Borell - Mystic Colours (In Heaven mix) 05:59(   Читать дальше...   )Жанр: Ambient, Chillout, LoungeПродолжительность: 01:44:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61EB6165559C08D6007CE7081C42F1D75F5FB146
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1265215   (276576) от 26.11.2018
 
 VA - Chill Out Empire (25 Smooth Anthems), Vol. 1 (2018) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Chill Out, Lounge>
@@ -722,35 +751,6 @@ VA - Piano Beach Lounge (2023) [FLAC|Lossless|WEB-DL|tracks] <Easy Listening, Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:505A4730526332A8A4D1CC6370F12EDF2373AF47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620473   (249398) от 20.03.2023
-
-Schiller - Tag Und Nacht (2005) [FLAC|Lossless|tracks + .cue]<Trance, Downtempo, Ambient>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249398.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Willkommen 1:09
-02. Nachtflug 5:56
-03. Die Nacht... Du Bist Nicht Allein ( Mit Thomas D ) 4:26
-04. What's Coming ( Mit Jette Von Roth ) 4:26(   Читать дальше...   )Жанр: Trance, Downtempo, AmbientПродолжительность: 01:17:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:920E14705878D9AEB0A64DD3A06FF0E77A6B062D
 ```
 
 https://mybot314.ru/tekegram_catalog/

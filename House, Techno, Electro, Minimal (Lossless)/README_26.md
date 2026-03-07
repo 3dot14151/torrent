@@ -1,3 +1,119 @@
+###  Публикация: 1283197   (740204) от 16.02.2019
+
+VA - India Gets Physical Vol. 1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Deep House, House, Tech House, Electronic>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_740204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soulspace - Lotus Eater (5:44)
+02. Pawas ft. Arooj Aftab - Naja (9:03)
+03. Unnayanaa ft. Erika Lernot - Plus Loin (8:04)
+04. Small Town Guy ft. Adil Smaali - Oasis (7:34)(   Читать дальше...   )Жанр: Deep House, House, Tech House, ElectronicПродолжительность: 01:25:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B98C31AE6CBAD1516A484332A70365764E95D266
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526514   (738137) от 25.01.2022
+
+Lane 8 - Reviver (2022) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_738137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lane 8, Channy Leaneagh - Survive (5:02)
+ 02. Reviver (3:46)
+ 03. Lane 8, Arctic Lake - All I Want (4:00)
+ 04. Watermelon Wormhole (5:53)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:56:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8287BC34175A9FE7C363BA4D16F021A85629B0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1398249   (736199) от 25.07.2020
+
+Warner Case - dance music for dancing, vol. 1-2 (2019-2020) [FLAC|Lossless|WEB-DL|tracks] <EDM, Tech House, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736199.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. running into danger (to feel alive) (3:56)
+02. ATM (3:50)
+03. impeccable (3:09)
+04. metroloops (4:42)(   Читать дальше...   )Жанр: EDM, Tech House, TechnoПродолжительность: 00:38:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEFF08B1F691476972B7F9C9F99BDCA90C787336
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1398661   (735252) от 27.07.2020
+
+VA - Summerhits 2020 [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_735252.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daddy K, P.A.F.F. - We Are The Universe 3:05
+02. Merlo, Louisax - Is This Goodbye 3:14
+03. Richie Haley, Kita - Sun Kissed Love 2:25
+04. Antoine Simar - Be Alright 3:02(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:32:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D34DB3C64BC37FAB5B8808C54A3B5027BEF7D025
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1127392   (731842) от 21.04.2017
 
 Parov Stelar - The Burning Spider (2017) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Nu Jazz>
@@ -628,119 +744,6 @@ Monochrome - Unforgettable Call Of The Octopus (2015) [FLAC|Lossless|WEB-DL|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B99F7396907BF4247B1E433CB2D8A72CE03AF483
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024102   (720460) от 07.06.2016
-
-VA - Ethereal Techno #002 (2016) [FLAC|Lossless|WEB-DL|tracks] <Techno, Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720460.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Innellea - Galagant (Dahu Remix) (7:40)
-02. Nick Devon - Metis (7:22)
-03. Dahu & MPathy - Shattered (Jonas Saalbach Remix) (8:19)
-04. Tom Peters - Two of Us (6:19)(   Читать дальше...   )Жанр: Techno, Deep House, Tech HouseПродолжительность: 01:43:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:279BEB1D95258337915AD01930838142C93FD562
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024211   (720174) от 07.06.2016
-
-VA - Armin van Buuren - A State Of Trance Festival (Warm Up Sets) (2016) [FLAC|Lossless|WEB-DL||tracks] <Deep House, Techno, Tech House, Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720174.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silinder - A World Is Watching (Michael A Remix) (7:24)
-02. Nicolas Petracca - Blast From The Past (Mitaric's Division Remix) (8:02)
-03. Ruttenbergs - The Fat Duck (Original Mix) (7:15)
-04. Sebastian Weikum - There She Is (Original Mix) (6:25)(   Читать дальше...   )Жанр: Deep House, Techno, Tech House, Progressive HouseПродолжительность: 07:47:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA2F470D34AEBBB49D0C165EFAB06EE7775D19AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218858   (719637) от 11.04.2018
-
-VA - ROHS! - Netlabel Collection (2008-2017) (2018) [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Deep House, Techno, Minimal, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719637.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тип издания: WEBЖанр: Dub Techno, Ambient, Deep House, Techno, Minimal, Tech House •Продолжительность: 09:12:38 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA605E7F2A7DD3C184F532F25F64AF43125EB0F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400365   (719147) от 05.08.2020
-
-VA - Beach Grooves Maretimo Vol.2 (2019) [FLAC|Lossless|WEB-DL|tracks] <Beach House, Lounge>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719147.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Maretimo - Costa Balear (The Beachfloor Cut) (5:41)
-02. Poolwave - African Market (Jazzman´s Cut) (6:11)
-03. Airstream - Back in Time (The Golden Beach Cut) (6:54)
-04. Pascal Dubois - Send Me Away (The Chillhouse Mix) (4:16)(   Читать дальше...   )Жанр: Beach House, LoungeПродолжительность: 01:44:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:948285166DF911172EFCE9B590C2A9B997797E50
 ```
 
 https://mybot314.ru/tekegram_catalog/

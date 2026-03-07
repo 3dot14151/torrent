@@ -1,393 +1,22 @@
-###  Публикация: 1782177   (70059) от 27.02.2025
+###  Публикация: 1777272   (71068) от 05.02.2025
 
-Rumer - In Session (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Soul>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70059.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  It Could Be The First Day (2:41)
-02.  Am I Forgiven (3:32)
-03.  Saving Grace (3:40)
-04.  Dangerous (4:00)(   Читать дальше...   )Жанр: SoulПродолжительность: 00:34:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:964E8206EC89775EE96BAC999FD67AF89D3C7D33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782159   (70058) от 27.02.2025
-
-Roger Street Friedman - Long Shadows (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Folk Blues, Folk Rock, Americana>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70058.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Rolling In Again (4:00)
-02.  I Think We Know (4:46)
-03.  Give It All Away For Free (4:35)
-04.  The Banks of the Brazos (5:19)(   Читать дальше...   )Жанр: Folk Blues, Folk Rock, AmericanaПродолжительность: 00:43:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07F4138F2A4BA58CF1322F5B1BE11CA493CFBE46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782158   (70057) от 27.02.2025
-
-Stan Getz - BD Jazz (1948 - 1952) 2CD, 2003, Nocturne [FLAC|Lossless|tracks + .cue] <Cool, Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70057.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Early Autumn [3:14]
-02. Four and One More [3:51]
-03. Battle of the Saxes [3:56]
-04. Slow [2:56](   Читать дальше...   )Жанр: Cool, BopПродолжительность: 02:11:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B09C915C35EFFE6A141BBC95727866735A295F2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782179   (70056) от 27.02.2025
-
-Saliva & Judge & Jury - Revelation: Retold (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70056.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Time Bomb (2:39)
-02.  High On Me: Retold (3:01)
-03.  Horizon: Retold (4:41)
-04.  Crowd Goes Wild (3:25)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:972DA8D8EBC1907BE20DF235217E2D929FC677A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782169   (70055) от 27.02.2025
-
-Roni Lee - Feels Good 2 Be Bad (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70055.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Back From Hell (3:14)
-02.  Better Run (4:24)
-03.  Dirty Diana (4:46)
-04.  Good To Be Bad (6:39)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:23:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0785B9873152E3B0D9A6AF19715791D1A660AD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782223   (70054) от 27.02.2025
-
-Яков Лазаревич Аким | Неумейка (2016) [PDF, DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70054.jpg" />
-</div>
-
-
-###  Подробнее
-
-Известное стихотворение Я. Акима в веселых иллюстрациях Генриха Валька.
-По городу ходит почтальон с письмом, адресованным Неумейке. Но дети Неумейками быть не хотят: увидев почтальона, они тут же убирают игрушки, сами одеваются или берут в руки ложку. Может быть, в вашем доме живёт Неумейка? Прочитайте ему это стихотворение и увидите, как всё изменится!
-Для чтения (   Читать дальше...   )Жанр: Детские приключенияИздательство: РечьФормат: PDF, DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B50433D6B72D91A9458D2CBCEC1F7255D325C8B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782225   (70053) от 27.02.2025
-
-Arion - Like The Phoenix I Will Rise (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphonic Metal, Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70053.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Darkest Day (1:54)
-02. The Light That Burns The Sky (3:42)
-03. Like The Phoenix I Will Rise (4:16)
-04. Wings Of Twilight (feat. Melissa Bonny) (4:31)(   Читать дальше...   )Жанр: Symphonic Metal, Power MetalПродолжительность: 00:45:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5CE52685BB64BF429D2262D0B96633E1CB286A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782156   (70052) от 27.02.2025
-
-Bill Evans - BD Jazz (1955 - 1962) 2CD, 2017, BDMusic [FLAC|Lossless|tracks + .cue] <Cool, Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70052.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spring Is Here [5:08]
-02. Chromatic Universe, Part 1 [3:37]
-03. Chromatic Universe, Part 2 [3:49]
-04. Trixie [4:03](   Читать дальше...   )Жанр: Cool, Post-Bop, Piano JazzПродолжительность: 02:32:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A3590788CD26215B33917E65A86A13ED73073B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782174   (70051) от 27.02.2025
-
-Virgin Steele - Virgin Steele I (The Anniversary Edition) (1982) Remixed, Reissue, 2024, Steamhammer [FLAC|Lossless|image + .cue] <Prog Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70051.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наконец, по прошествии стольких лет давно утерянные альбомы Virgin Steele Virgin Steele и Guardians of the Flame увидели свет. Я, как несгибаемый Вирджин Стил, очень взволнован этим, но случайный фанат поступил бы мудро и не взял бы этот диск, так как он, скорее всего, будет разочарован. Virgin Steele звучит совсем не так, как мы привыкли слышать от этой группы сегодня, (   Читать дальше...   )01. Minuet In G Minor
-02. Danger Zone
-03. American Girl
-04. Dead End Kids(   Читать дальше...   )Жанр: Prog Rock, Heavy MetalПродолжительность: 01:13:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:069B91B4486C1ACB28928AA2EB7C992629AAAADB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782254   (70050) от 27.02.2025
-
-Марк Твен | Городок на Миссисипи (Радиоспектакль) (2019) [MP3, Валентина Сперантова, Мария Бабанова и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70050.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Из архива «Гостелерадиофонда».
-Марк Твен (1835–1910) – американский писатель.
-Радиоспектакль по мотивам романа Марка Твена «Приключения Тома Сойера».
-Том Сойер, весёлый проказник, любитель похулиганить и прогулять уроки, живет у строгой тети Полли вместе со своим сводным братом Сидом, послушным мальчиком, который в отличие от Тома не доставляет никаких (   Читать дальше...   )Жанр: Зарубежная литература для детей, классика, прозаИздательство: Старое радио. ИДДКПродолжительность: 01:25:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEA16EEB6982B8EBA406EF1966C378526F30DBC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782228   (70049) от 27.02.2025
-
-Зинаида Александрова | Мой мишка (2017) [PDF, DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70049.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стихотворение Зинаиды Александровой "Мой Мишка" - об очаровании самозабвенной детской игры, об уютном предметном мире ребёнка, воспоминания о котором мы храним в памяти всю жизнь.
-Наверное, у каждого ребёнка в детстве был свой любимый плюшевый мишка, верный друг и незаменимый товарищ по играм. С ним можно было понарошку почувствовать себя совсем взрослым (   Читать дальше...   )Жанр: Детские стихиИздательство: РечьФормат: PDF, DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5220DC3E05B7471133ECD5BCE132E4DC7A65AEAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782292   (70048) от 27.02.2025
-
-Лопе де Вега | Собака на сене (Радиоспектакль) (2013) [MP3, Анатолий Дорменко, Мария Бабанова и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70048.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Из архива «Гостелерадиофонда».
-Лопе де Вега (1562–1635) – испанский драматург, поэт, прозаик, представитель «золотого века» испанской литературы.
-На рубеже XVI-XVII веков испанская литература пережила творческий подъем, подобный Золотому веку Древней Греции. Одним из ведущих драматургов того времени был Феликс Лопе де Вега и Карпио: его пьесы пользовались (   Читать дальше...   )Жанр: Зарубежная литература, классика, комедия, пьесаИздательство: Студия «Звуковая книга», ГостелерадиофондПродолжительность: 00:59:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F39881B6505A1BA87ECAC9A5E202A97593F93269
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782296   (70047) от 27.02.2025
-
-Лопе де Вега | Учитель танцев (Радиоспектакль) (2013) [MP3, Владимир Зельдин, Марк Перцовский и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70047.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: «Из архива Гостелерадиофонда».
-Лопе де Вега (1562–1635) – знаменитый драматург «золотого века» испанской литературы. Его перу принадлежат несколько сотен пьес разной тематики. Комедия «Учитель танцев» (1594) относится к любовным историям. А значит вас ждут легкие волнения за судьбу влюбленных, хорошее настроение в финале, наслаждение образным, острым (   Читать дальше...   )Жанр: Зарубежная литература, классика, комедия, пьесаИздательство: Студия «Звуковая книга», ГостелерадиофондПродолжительность: 01:07:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4182AE92C52EE8E0F397ED814BB8F1269E46732C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782168   (70046) от 27.02.2025
-
-Журнал | Народный доктор №4 (674) (февраль 2025) [PDF]
+Журнал | Render Magazine №2 (февраль 2025) [PDF]
 
 >>Журналы
->>Другие журналы
+>>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70046.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71068.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Журнал составлен из писем читателей, в которых они делятся испытанными рецептами здоровья, красоты и долголетия, рассказывают необычные истории исцеления. На страницах издания вы найдете народные и традиционные методы лечения и профилактики различных заболеваний, полезную информацию о лекарственных растениях. В каждом номере — советы высококвалифицированных специалистов (   Читать дальше...   )Жанр: ЗдоровьеИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
+«Render Magazine» - Журнал посвящен компьютерной графике, секретам, обучению и новинкам индустрии. В нем нас ждут подборки лучших по мнению редакции 2D и 3D работ, отобранных Администраторами галерей, так же нас ожидают самые яркие новости и подборка лучших работ форумного раздела. Присутствуют и эксклюзивные переводы, а так же интервью с крупными отечественными (   Читать дальше...   )Жанр: Графика и моделированиеИздательство: Render MagazineФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EB7BE868C20D8BCD2A16966AB8985EFA932DCD4E
+magnet:?xt=urn:btih:01DEEC4CADA58A08FD6BA8999A4167CD86667671
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -395,141 +24,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782218   (70045) от 27.02.2025
+###  Публикация: 1777317   (71067) от 05.02.2025
 
-Brainstorm - Plague Of Rats (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy-Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70045.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (1:17)
-02. Beyond Enemy Lines (5:21)
-03. Garuda (Eater Of Snakes) (4:17)
-04. False Memories (4:19)(   Читать дальше...   )Жанр: Heavy-Power MetalПродолжительность: 00:50:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:265AED870E39A3F5B9EA58F04404D618F44271E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782229   (70044) от 27.02.2025
-
-Михаил Салтыков-Щедрин | За рубежом (2020) [MP3, Сергей Голиков]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70044.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Книги очерков.
-Михаил Евграфович Салтыков-Щедрин (1826–1889), русский писатель-сатирик и публицист, автор романов, повестей, очерков, рассказов, сказок.
-Рисуя критическую картину политической жизни Западной Европы в 1880 году, книга стоит в ряду таких произведений нашей литературы, как «Письма русского путешественника» H. Карамзина и «Зимние заметки о (   Читать дальше...   )Жанр: Русская литература, классика, сатира, очеркИздательство: ЛитРес: ЧтецПродолжительность: 14:39:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B803A4F256CFDDF877E4BAAFD4EB18E9943E5DA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782182   (70043) от 27.02.2025
-
-Slowman - The Invisible Son (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70043.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  The Invisible Son (4:18)
-02.  Restless (3:11)
-03.  Big Fat City Blues (2:48)
-04.  On Off (4:00)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:45:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE6F8190CDCCF97E865CF87D4BA80CB2F29DAFCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782192   (70042) от 27.02.2025
-
-Шрифты - Creative Market - Bernacie – A Modern Display Font - 290770832 [OTF, TTF, WOFF, WOFF2]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70042.jpg" />
-</div>
-
-
-###  Подробнее
-
-Смелый и захватывающий, Barnacie — идеальный выбор как для цифровых, так и для печатных проектов. Используйте его для брендинга, заголовков, маркетинговых материалов и многого другого! Придайте своим проектам элегантный, современный шарм с помощью этого универсального шрифта для отображения.
-
-Кириллица не поддерживается.Формат: OTF, TTF, WOFF, WOFF2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:474EB7004E83041992318C1EC0F660F5B19745E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782144   (70041) от 27.02.2025
-
-Футбол. Кубок Испании 2024-2025. 1/2 финала. Реал Сосьедад - Реал (Мадрид) (26.02.2025) HDTVRip [H.264/720p]
+НХЛ 2024-2025. Нью-Джерси Дэвилз - Питтсбург Пингвинз (04.02.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
 
 >>Спорт и активный отдых
->>Футбол
+>>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70041.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71067.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Кубок Испании 2024-2025. 1/2 финала. Реал Сосьедад - Реал (Мадрид) (26.02.2025)
-СУДЬЯ Санчес Мартинес (Лорка)
-СТАДИОН «Аноэта» (Сан-Себастьян)Телекомпания: Матч! Футбол 2Жанр: Спорт. ФутболЯзык озвучки: РусскийПродолжительность: 02:10:32
+5 февраля 2025, среда. 03:00 МСК. Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 15 916 зрителей (85% при вместимости 18 673)
+Главный судья: Франсуа Сен-Лорен (Гринфилд Парк, Канада); Главный судья: Коди Бич (Нанаймо, Канада)Телекомпания: PITSNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:04:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8E47CD4023A0B40CB14F44B2AB80EDCC74CD6C93
+magnet:?xt=urn:btih:9BBFC535BC4D8DE71883981DAF0EB0186A31311E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -537,28 +51,55 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782153   (70040) от 27.02.2025
+###  Публикация: 1777318   (71066) от 05.02.2025
 
-Andrei Kondakov-Victor Dvoskin Project - Deserted Park (1993) 2024, Apollon & Evterpa [FLAC|Lossless|tracks + .cue] <Post-Bop, Mainstream Jazz>
+НХЛ 2024-2025. Флорида Пантерз - Вашингтон Кэпиталз (04.02.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71066.jpg" />
+</div>
+
+
+###  Подробнее
+
+5 февраля 2025, среда. 03:00 МСК. Стадион: Кэпитал Уан-Арена (Вашингтон, США), 18 573 зрителя (100% при вместимости 18 573)
+Главный судья: Крис Руни (Бостон, США); Главный судья: Джон Макисаак (Труро, Канада)Телекомпания: MNMTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:44:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF17E72826C483220A89FAE6A3419F9B7825F071
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777264   (71065) от 05.02.2025
+
+Art Farmer & Hal Mckusick Quintet - Complete Studio Recordings (1956 - 1958) 2005, Lone Hill Jazz [FLAC|Lossless|tracks + .cue] <Bop, Cool>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70040.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71065.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. M.M. & Joe [8:43]
-02. In The Deserted Park [7:12]
-03. Stella By Starlight [7:43]
-04. My Foolish Heart [5:22](   Читать дальше...   )Жанр: Post-Bop, Mainstream JazzПродолжительность: 00:54:46
+01. Down and Dirty [3:29]
+02. Alone Together [3:50]
+03. Criss Cross [5:46]
+04. Gone with the Wind [5:24](   Читать дальше...   )Жанр: Bop, CoolПродолжительность: 01:19:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:781BFB0F20B302516B534C18D666A025E3627361
+magnet:?xt=urn:btih:9A44D7A3F26BADC20265B88D72559AD9DBF39737
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -566,28 +107,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782155   (70039) от 27.02.2025
+###  Публикация: 1777267   (71064) от 05.02.2025
 
-Django Reinhardt - Rare Django (1928 - 1938) 1990, Disques Swing [FLAC|Lossless|tracks + .cue] <Swing, Guitar Jazz>
+Clifford Jordan, Richard Davis, James Williams, Ronnie Burrage - Four Play (1990) DIW Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70039.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71064.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Moi aussi [2:46]
-02. Griserie [2:49]
-03. Carinosa [2:58]
-04. Si j'aime Suzy [2:55](   Читать дальше...   )Жанр: Swing, Guitar JazzПродолжительность: 01:14:40
+01. Tokyo Road [7:21]
+02. Japanese Dream [11:40]
+03. I Mean You [6:03]
+04. For My Nephews [8:25](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:50:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:585ED912F5020CFA2441B55B605191F0427A6D19
+magnet:?xt=urn:btih:7920612BFBDBD29C53B6B7C120CC740CAD64400D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -595,28 +136,86 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782424   (70038) от 28.02.2025
+###  Публикация: 1777265   (71063) от 05.02.2025
 
-Megadeth - The World Needs A Hero (2001) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal, Thrash Metal>
+Red Mitchell - Chocolate Cadillac (1976) 1992, SteepleChase [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71063.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Idrees [8:43]
+02. U.A.I. (You Are Invited) [15:39]
+03. These Foolish Things [5:17]
+04. A Theme for Ahmad [10:04](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 00:51:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C70F77B10C8EFC1ACE4486D059595BBFFD37E0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777270   (71062) от 05.02.2025
+
+Buddy Rich - Big Band Machine (1975) 2005, LRC [FLAC|Lossless|tracks + .cue] <Jazz-Funk, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71062.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Three Day Sucker [6:55]
+02. Tommy Medley [12:29]
+03. On Broadway [3:54]
+04. Pieces of Dreams [4:36](   Читать дальше...   )Жанр: Jazz-Funk, Big BandПродолжительность: 00:48:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1E37FAE149714E861135F2B287FB03ACDFE7E5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777290   (71061) от 05.02.2025
+
+Whipstriker - Seven Inches Of Hell (Part II) (2018) Compilation, Limited Edition [FLAC|Lossless|image + .cue] <Black Metal, Speed Metal, Thrash Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70038.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71061.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Disconnect 5:20
-02. The World Needs A Hero 3:52
-03. Coming Home 2:35
-04. Moto Psycho 3:06(   Читать дальше...   )Жанр: Heavy Metal, Thrash MetalПродолжительность: 01:00:31
+01. Burn the Virgin's Hole  04:30
+02. Vengeance Day  03:09
+03. Grind'em Down  04:33
+04. Intro (Hail to Macabre Warriors)  02:17(   Читать дальше...   )Жанр: Black Metal, Speed Metal, Thrash MetalПродолжительность: 01:16:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BAC1201EAED5C2D53B54D968DA12639EF9B59E67
+magnet:?xt=urn:btih:9A4B63ADE427FD3BD4D1890566E8051AE3A64EE3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -624,27 +223,377 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782390   (70037) от 28.02.2025
+###  Публикация: 1777261   (71060) от 05.02.2025
 
-Шрифты - Creative Market - Larchen - Ligature Bold Serif - 290803520 [OTF]
+The Wrath Project - The Cure Is the Disease (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71060.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Damnation Trinity (03:27)
+ 02 - The Verdict (03:46)
+ 03 - In This Age Of Darkness (04:07)
+ 04 - Traces Of Evil Will Always Remain (04:40)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:44:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FACB282C12422D158FA8919E6B79EE7E644AA22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777281   (71059) от 05.02.2025
+
+Enshine - Studio Albums (3 releases) (2013-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Doom Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71059.jpg" />
+</div>
+
+
+###  Подробнее
+
+Enshine - международное сотрудничество музыкантов из Швеции и Франции.2013 - Origin
+2015 - Singularity
+2021 - Transcending Fire (EP)Жанр: Melodic Death/Doom MetalПродолжительность: 02:01:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FC10EB2ED900E5178C8D3F38993A0BCDA728281
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777314   (71058) от 05.02.2025
+
+Баскетбол. Женщины. Финал Fonbet Кубка России 2024/5. УГМК (Екатеринбург) - Динамо (Курск) (2025) IPTVRip [H.264]
+
+>>Спорт и активный отдых
+>>Баскетбол, Волейбол, Гандбол
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71058.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Финал четырех" Фонбет Кубка России (1 февраля 2025) по баскетболу среди женских команд.
+УГМК (Екатеринбург) - Динамо (Курск)
+Тренеры: Дмитрий Донсков, Сергей Вознюк
+Арена: ГАУСО "Дворец игровых видов спорта" (Екатеринбург)Телекомпания: Матч!Жанр: спорт, баскетболПродолжительность: 01:31:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0143693631FCE3382D9EF95040EDC4A5C8CE1B63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777326   (71057) от 05.02.2025
+
+Kolossos - Game Law Metal (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal Modern>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71057.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Game Law Metal
+02. Straight Back Into Your Face
+03. Sharp Sword Levitating (05:07)
+04. She's My Bulwark (03:43)(   Читать дальше...   )Жанр: Heavy, Power Metal ModernПродолжительность: 00:40:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5A4C5C62098E64E5681DB2BD1AC008F6328552A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776630   (71056) от 05.02.2025
+
+Растровый клипарт - Dealjumbo.com - Deeezy - Chain - Free 3D Lettering - 29379 [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71056.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный алфавит-латиница в виде цепей. Материал раздается с официальной документацией.Разработчик: Dealjumbo.comФормат: PNGРазрешение файлов: 800 x 800
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:758EF3351F56D2CFF15D6A570FCEDFEE2D85FC5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777288   (71055) от 05.02.2025
+
+Газета | Азбука вязания №4 (апрель 2024) [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71055.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издательство “Газетный мир” представляет вашему вниманию журнал “Азбука вязания”. Если ваше хобби - рукоделие или вы всегда мечтали научиться вязать, то в этом журнале вы найдете множество полезных советов и техник. В каждом номере разбирается отдельная тема, и освещается вязание как на спицах, так и крючком.Жанр: ВязаниеИздательство: ООО "Издательство "Газетный мир"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52D05A4B44E4BC863C0F99470E3FD88697D064F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776633   (71054) от 05.02.2025
+
+Растровый клипарт - Dealjumbo.com - Deeezy - Linearo - Free 3D Lettering - 28198 [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71054.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный алфавит-латиница. Материал раздается с официальной документацией.Формат: PNGРазрешение файлов: 800 x 800
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB239871209A23FDB1A4AFE1F60BF2B0CCBC56C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777382   (71053) от 05.02.2025
+
+Leaf Hound - Once Bitten (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71053.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Burn The House Down (05:02)
+ 02 - Cinderella (04:20)
+ 03 - Broken Dreams (03:44)
+ 04 - Chain Gang (04:27)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:56:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D1E87C5756F0E8DD5ED62E4B3C59489424973B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776632   (71052) от 05.02.2025
+
+Растровый клипарт - Dealjumbo.com - Deeezy - Futuristo - Free 3D Lettering - 27953 [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71052.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный алфавит-латиница. Материал раздается с официальной документацией.Разработчик: Dealjumbo.comФормат: PNGРазрешение файлов: 900 x 900
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:231E53002CE3582549FEC262688266B6D1CABFDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776427   (71051) от 05.02.2025
+
+Растровый клипарт - Dealjumbo.com - Deeezy - Birthday Cake FREE 3D Alphabet - 61150 [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71051.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный алфавит-латиница в виде тортов. Материал раздается с официальной документацией.Разработчик: Dealjumbo.comФормат: PNGРазрешение файлов: 900 x 900
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA61163F3065DE58A844A01B8C053D8C94F77A33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776631   (71050) от 05.02.2025
+
+Растровый клипарт - Dealjumbo.com - Deeezy - Color Bricks - Free 3D Lettering - 30805 [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71050.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный алфавит-латиница в виде цветных кирпичиков. Материал раздается с официальной документацией.Разработчик: Dealjumbo.comФормат: PNGРазрешение файлов: 800 x 800
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F41FD714512BAF715BAF2D238BBE9956BCCD6FA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776428   (71049) от 05.02.2025
+
+Растровый клипарт - Dealjumbo.com - Deeezy - Cracked Concrete FREE 3D Alphabet - 62542 [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71049.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный алфавит-латиница в виде потресковавшегося бетона. Материал раздается с официальной документацией.Разработчик: Dealjumbo.comФормат: PNGРазрешение файлов: 900 x 900
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F18CB071D94127C755DEBB84FF2986434F77ADA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777371   (71048) от 06.02.2025
+
+Е.В. Потоскуев, Л.И. Звавич | Геометрия. Учебник для 10 класса (углублённый уровень) (2022) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71048.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебник по геометрии углублённого уровня для 10 класса включает теоретический материал по курсу стереометрии. Рассматриваются темы: прямые, плоскости, расстояния, векторный и координатный методы в пространстве. Высокие результаты усвоения материала обеспечиваются решением большого количества задач из задачника на построение (особенно сечений многогранников), доказательство (   Читать дальше...   )Жанр: УчебникЯзык: РусскийИздательство: ПросвещениеФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E23B0985E238672C126EC7453CFC03E7483ED56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777395   (71047) от 06.02.2025
+
+Шрифты - Prox Font Family [OTF, TTF]
 
 >>Материалы для мультимедиа и дизайна
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70037.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71047.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Larchen — это шрифт с лигатурными засечками, смелым и сильным стилем. Этот шрифт с уникальным внешним видом сделает ваш проект более выдающимся и потрясающим.
-
-Кириллица не поддерживается.Формат: OTF
+Prox — гуманистический шрифт без засечек, предназначенный для использования в любых условиях и средах. Задуманный как простой, экономичный дизайн, этот набор из двадцати стилей включает большой набор символов, который охватывает как латинский, так и кириллический шрифт. Дополнительные функции Opentype включают выбор цифр, от линейных до висячих, а также дроби или (   Читать дальше...   )Формат: OTF, TTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D0903E48F778E6BD7BE339DDD3E9B7B03E815DCD
+magnet:?xt=urn:btih:4C5427EEABD98B8F7F538794950EC3DF72CE2049
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -652,83 +601,104 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782383   (70036) от 28.02.2025
+###  Публикация: 1777431   (71046) от 06.02.2025
 
-VA - A State Of Trance Festival 2025 – Day 1 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70036.jpg" />
-</div>
-
-
-###  Подробнее
-
-Jordin
-01. Jordin Post - Jupiter
-02. Datskie & Jordin Post ft. Mats Westbroek - Sheltered
-03. Ruben de Ronde & AunA - Falling Free (Jordin Post Remix)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 14:54:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:191FF2B8372BC52F694AE8C1E975B6DB18F8F436
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782445   (70035) от 28.02.2025
-
-VA - The Sound of 2025, Chapter 2: Madrid (Day Mix) (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70035.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Solar-B - La Playa (Intro Mix - Mixed) [4:39]
-02. Tim Besamusca feat. Mariel - Breathe Again (Original Mix - Mixed) [3:34]
-03. Robert B - Still See The Stars (Midnight Evolution Dub Mix - Mixed) [4:54]
-04. Extravagance SL & Carlos Trygon - Khargis (Original Mix - Mixed) [4:43](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:16:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BAF303B97F8098923331822716AFA08DDACA32E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782469   (70034) от 28.02.2025
-
-Шрифты - Creative Market - Methalic Script - 290854840 [OTF, TTF]
+Шрифты - Ver Wave - Behance - Izuver - 209709135 [OTF]
 
 >>Материалы для мультимедиа и дизайна
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70034.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71046.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Methalic Script — смелый и заводной ретро-шрифт, вдохновленный культовой типографикой конца 60-х и 70-х годов. Его забавные изгибы и игривый поток передают яркую энергию винтажного дизайна, что делает его идеальным для проектов, которые прославляют ностальгию в современной интерпретации. Этот шрифт поставляется со встроенным стилем тени, что устраняет необходимость (   Читать дальше...   )Формат: OTF, TTF
+Бесплатный шрифт с кириллицей. Материал раздаётся с официальной документацией.
+Разработчик: Ver WaveФормат: OTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:702471EAB3882C2301CB90249549A5FEF1B5FF93
+magnet:?xt=urn:btih:E4658F6982F58DC99D1D418B232AB8B7771012B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777375   (71045) от 06.02.2025
+
+Е.В. Потоскуев, Л.И. Звавич | Геометрия. Учебник для 11 класса (углублённый уровень) (2023) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71045.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебник является частью УМК для 10–11 классов, предназначенного для изучения предмета на углублённом уровне. Обязательный материал структурирован по главам: преобразования пространства, многогранники и фигуры вращения. Есть в учебнике и дополнительный материал. Высокие результаты усвоения геометрии достигаются решением большого количества разнообразных задач, дифференцированных (   Читать дальше...   )Жанр: УчебникЯзык: РусскийИздательство: ПросвещениеФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25416C29CAF8581631C72B9DC561AD21057BC7D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777742   (71044) от 06.02.2025
+
+А.Г. Мерзляк, Д.А. Номировский, В.М. Поляков | Геометрия. Учебник для 10 класса (углублённый уровень) (2023) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71044.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебник предназначен для углублённого изучения геометрии в 10 классе общеобразовательных организаций. В нём предусмотрена уровневая дифференциация, позволяющая формировать у школьников познавательный интерес к геометрии.Жанр: УчебникЯзык: РусскийИздательство: ПросвещениеФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D1C30EBEDEDC0D2301B0611099ECBF390BC8A1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777428   (71043) от 06.02.2025
+
+Растровый клипарт - Resource Boy - 200 Fog Textures [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71043.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатные текстурные наложения в виде тумана. Материал раздаётся с официальной документацией.Разработчик: Resource BoyФормат: JPGРазрешение файлов: 3840 x 2784 - 3840 x 2411
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58ECB29E18849A1DD44E5CF32C681639DC8C3284
 ```
 
 https://mybot314.ru/tekegram_catalog/

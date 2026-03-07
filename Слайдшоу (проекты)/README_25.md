@@ -1,3 +1,29 @@
+###  Публикация: 1116604   (822067) от 20.03.2017
+
+Проекты - VideoHive - Modern Inspirational Parallax Opener | Slideshow - 19236871 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_822067.jpg" />
+</div>
+
+
+###  Подробнее
+
+Modern Inspirational Parallax Opener | Slideshow - проект для создания кинематографического слайд-шоу с эффектом параллакса.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A76EEBE6C3471300A416B2534D44FCE56EC94525
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1007646   (821306) от 15.04.2016
 
 Проекты - VideoBlocks - Style Notes [AEP]
@@ -645,32 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D6B243869C1C88D87873640BAB2D22C95567212
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382932   (815129) от 13.05.2020
-
-Проекты - MotionElements - Planet And Film 360 Loop - 10801792 / Motion Array - Planet Earth And Film 360 Loop - 32802 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815129.jpg" />
-</div>
-
-
-###  Подробнее
-
-Planet And Film 360 Loop - это мощный и динамичный шаблон After Effects. Гладкая анимационная кинопленка вращается вокруг Земли, в ней можно разместить до 12 изображений или видеороликов с дополняющими тонкими бликами объектива. Идеально подходит для показа на корпоративных мероприятиях, конгрессах, выставках или для продвижения ваших фильмов, научно-фантастических (   Читать дальше...   )Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0F2395B8F04B01A68988A051B9299BC2B7B7B07
 ```
 
 https://mybot314.ru/tekegram_catalog/

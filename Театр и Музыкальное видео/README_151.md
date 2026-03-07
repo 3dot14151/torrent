@@ -1,3 +1,61 @@
+###  Публикация: 53450   (45640) от 26.08.2024
+
+Uriah Heep / Acoustically Driven (Classic Rock Legends) [2001, Classic Rock, DVD5]
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_45640.jpg" />
+</div>
+
+
+###  Подробнее
+
+THE ACOUSTIC SET FROM URIAH HEEP + BONUS (PRESSRELEASE, INTERVIEWS, PHOTOGRAPHY,....)01. ECHOES IN THE DARK (Hensley)...................................4:52
+02. WHY DID YOU GO? (Byron/Box/Hensley/Kerslake)........3:55
+03. THE EASY ROAD (Hensley)............................................2:45
+04. COME BACK TO ME (Kerslake/Hensley).........................4:56(   Читать дальше...   )Жанр: Classic RockРежиссер: Edited and Directed by CHRIS GORMLIEВ ролях: MICK BOX - Guitar And Vocals
+LEE KERSLAKE - Drums And Vocals
+TREVOR BOLDER - Bass Guitar And Vocals
+PHIL LANZON - Keyboards And Vocals(   Читать дальше...   )Формат: DVD videoКачество: DVD5Продолжительность: 01:15:19 + 00:27:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACB1AABB9D054FBA55E1A5CE033CCFB07F1FCAAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 61055   (45636) от 26.08.2024
+
+Kiss: "Rock the nation. Live!" (2005)  DVD9x2
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_45636.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередной праздник на улице фэнов KISS вышел в свет двойной DVD "Kiss - Rock The Nation Live!". Издание включает в себя лучшие моменты концертов команды в Вашингтоне и Вирджинии, заснятые во время тура Rock The Nation 2004 г.  В обширном трек-листе DVD-коллекции поклонников легендарного коллектива ждут настоящие находки, ибо многие из представленных композиций (   Читать дальше...   )Жанр: Hard Rock, GlamФормат: DVD videoКачество: DVD9Продолжительность: 01:09:40 / 01:06:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6582C18BB9E36431DBCDE8AD7E8B3A7C3F157AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 722745   (45615) от 26.08.2024
 
 Cheap Trick - Silver (1999/2005) DVD9 <Hard Rock, Power Pop>
@@ -661,64 +719,6 @@ Manfred Mann's Earth Band - Unearthed. The Best of 1973-2005 (2006) DVD5 <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1FEE1B41FFFF741D81F9C0A698A45C2E517D7262
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 163517   (43505) от 15.09.2024
-
-B.B.King - The jazz channel presents (2000) DVD5 <Jazz>
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43505.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот DVD представляет собой запись живого концерта в «Black EntertainmentTelevisionStudio» в Вашингтоне.01. Two I Shoot Blues
-02. Let The Good Times Roll
-03. I'll Survive
-04. Bad Case Of Love(   Читать дальше...   )Жанр: Jazz, Муз.видеоРежиссер: Bet On JazzУчастники: Би Би Кинг & CoПродолжительность: 01:20:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3ABEB30C8CA170545A43AD7EB6DE16297464841
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749681   (43457) от 15.09.2024
-
-Квартирник у Маргулиса. Юбилей Александра Реввы (14.09.2024) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43457.jpg" />
-</div>
-
-
-###  Подробнее
-
-Александру Ревве — 50! Певец, актер, продюсер, актер озвучки и шоумен устроил юбилейный концерт на сцене «Квартирника». Ревва давно вышел за рамки своего юмористического амплуа: его герой-мачо Артур Пирожков, придуманный 15 лет назад, стал не просто самостоятельным артистом00:00:05 Запутался
-00:07:45 Красивая песня
-00:14:10 Плачь, детка!
-00:19:00 Летим со мной(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: PopСубтитры: ОтсутствуютЯзык: РусскийПродолжительность: 01:18:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9FC6CE7AB380F55D5D700093BC596D42E8588EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

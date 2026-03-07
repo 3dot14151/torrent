@@ -400,6 +400,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850458   (1054354) от 28.01.2026
+
+Роджер Штерн | История мира. Год за годом от каменного до цифрового века (2025) [PDF]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054354.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы увлекаетесь историей и вам интересно узнать об эпохах развития человечества от каменного века до современности в понятной и удобной форме, эта иллюстрированная энциклопедия станет для вас настоящим открытием. Благодаря понятной временной шкале, вы без труда погрузитесь в ключевые события в истории мира: создание и распад величайших империй, появление значительных (   Читать дальше...   )Жанр: История, ЭнциклопедииИздательство: БомбораФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C63A2263D430A9E07712C6C19855FDD318D5D9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1849425   (1053799) от 23.01.2026
 
 Marek Golebiowski | An Encyclopedia of American Culture (2016) [PDF] [EN]
@@ -661,34 +687,6 @@ Encompassing three comprehensive volumes, the Encyclopedia of Religious Ethics i
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24C88CE8B0D8C0193573551FFD23BF579AFD4DA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849410   (1053773) от 23.01.2026
-
-Lucy Morrison, Staci L. Stone | A Mary Shelley Encyclopedia (2003) [PDF] [EN]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053773.jpg" />
-</div>
-
-
-###  Подробнее
-
-Frankenstein is one of the most popular classroom texts in high school and college, and Shelley's other works are attracting renewed attention. This reference is a comprehensive guide to her life and career. Included are hundreds of alphabetically arranged entries about her works, friends, relatives, residences, fictional characters, allusions, and more.
-
-Mary Shelley (   Читать дальше...   )Жанр: Энциклопедии, БиблиографииЯзык: АнглийскийИздательство: GreenwoodФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F64029704CCCA1EAE8A88CACE281C5B40F56687F
 ```
 
 https://mybot314.ru/tekegram_catalog/

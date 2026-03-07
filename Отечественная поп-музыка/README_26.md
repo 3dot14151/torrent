@@ -1,3 +1,32 @@
+###  Публикация: 1594943   (176638) от 03.12.2022
+
+Варвара Визбор - Gucci-Лебеди (2022) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_176638.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Жду тебя
+2. Ну спасибо тебе
+3. Корабли
+4. Давай с тобой помолимся(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A86A3ADAB915E4EDCABC41EE447B556675E02D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1667468   (175745) от 09.10.2023
 
 Дискотека Авария - The Best, Part 1 (2023) [MP3|320 Kbps] <Dance Pop>
@@ -718,35 +747,6 @@ Michael Kistanov - All About You and Me (2022) [MP3|320 Kbps] <Pop-Rock, Folk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7855F089C1F5444DC8FA7151647F616674731A00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600154   (158988) от 26.12.2022
-
-Manizha - Колыбель для повзрослевшего (2022) [MP3|320 Kbps] <Alternative Pop, Ethno Pop, Electronic>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158988.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Здравствуй (Intro) [00:00:40]
-02 - гость [00:02:22]
-03 - Мы снова окажемся (Interlude) [00:01:10]
-04 - под небом голубым _ poyoni osmoni [00:03:13](   Читать дальше...   )Жанр: Alternative Pop, Ethno Pop, ElectronicПродолжительность: 00:14:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3279E632DEEFA5DD85ED8464323C3057A8759590
 ```
 
 https://mybot314.ru/tekegram_catalog/

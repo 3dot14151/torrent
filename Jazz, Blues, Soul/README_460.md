@@ -1,3 +1,235 @@
+###  Публикация: 1519509   (147461) от 25.12.2021
+
+Tim Davis - A Swingin' Christmas ...1940's Style (1999) Unison Music [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Christmas>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_147461.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jingle Bells [2:18]
+02. Up on the Housetop [2:59]
+03. Jolly Old St. Nicholas [2:35]
+04. I'll Be Home for Christmas [4:16](   Читать дальше...   )Жанр: Swing, Big Band, ChristmasПродолжительность: 00:36:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1ED6EAA19439629E6AD21C73C12A1A2D296A3DB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519714   (147456) от 25.12.2021
+
+Dinah Shore - Love And Kisses, Dinah (1951 - 1958) 1992, BMG [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_147456.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's the Second Time You Meet That Matters [2:19]
+02. New Fangled Tango [2:18]
+03. What Can I Say, After I Say I'm Sorry [2:19]
+04. Love and Marriage [2:26](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:42:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C78FD560239AA1144C8B14394F687330FA8EFF92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678125   (147397) от 20.11.2023
+
+VA - Cookin' Jazz vol. 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_147397.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Papik - You Are The Best Thing (4:18)
+02. Papik - Wave (3:15)
+03. Papik - Sweet Love (3:37)
+04. Soulstance - Je Sto Vicino A te (4:20)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:26:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B5F9C87E32E58E020892B224F8260C4063046C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271809   (147393) от 25.12.2018
+
+Barbra Lica - Christmas Present (2015) [MP3|320 Kbps] <Vocal-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_147393.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Christmas Waltz [02:50]
+02. Christmas on the Beach [04:01]
+03. What Do Bad Girls Get? [03:39]
+04. Last Christmas [03:19](   Читать дальше...   )Жанр: Vocal-JazzПродолжительность: 00:34:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B44FD395F036C1FD7E3872276B302715E93B5B13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519711   (147134) от 25.12.2021
+
+Tommy Dorsey And His Orchestra - 1935-1936 (1995) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_147134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Music Goes 'Round And Around [3:24]
+02. (If I Had) Rhythm In My Nursery Rhymes [2:44]
+03. Lovely Lady [3:10]
+04. Weary [3:16](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:09:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9D32A41F970FA0E013D91CFE332F2E8D137D465
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087174   (147114) от 27.12.2016
+
+Lennie Niehaus - Volume 5: The Sextet (1956) Remaster, 2006, Victor[FLAC|Lossless|tracks + .cue] <West Coast Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_147114.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Thou Swell [04:51]
+ 02.I Wished On The Moon [04:17]
+ 03.Knee Deep [04:03]
+ 04.Fond Memories [04:22](   Читать дальше...   )Жанр: West Coast Jazz, CoolПродолжительность: 00:44:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:333781BD6D4EB5EF38FB8A781AD2F883D80BC9AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087345   (147109) от 27.12.2016
+
+Peter Delano - Peter Delano (1993) Verve[FLAC|Lossless|image + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_147109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Elephants In The Sky [06:03]
+ 02.Experiencing Change [06:01]
+ 03.Gesticulations [05:13]
+ 04.Entranced [06:03](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:08:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9E1C095268DD3D00384CE18FA9027669AD6472A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087344   (147067) от 27.12.2016
+
+The Rein De Graaff Trio with Conte Candoli & Bob Cooper - Thinking Of You (1993) Remaster, 2015[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, West Coast Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_147067.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Thinking Of You [11:32]
+ 02.We'll Be Together Again [09:54]
+ 03.Star Eyes [10:34]
+ 04.I'll Remember April [10:11](   Читать дальше...   )Жанр: Mainstream Jazz, West Coast Jazz, Post-BopПродолжительность: 01:05:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8D9E7D09858A2EDED2830B644329FB6F096E625
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1087350   (147066) от 27.12.2016
 
 Terence Blanchard - The Malcolm X Jazz Suite (1993) Columbia[FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -519,238 +751,6 @@ Frank Sinatra - Christmas Dreaming (1987) Columbia [FLAC|Lossless|tracks + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B338E45C7B461974A7F6D454B6DBE158D3F3372
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272128   (145750) от 26.12.2018
-
-Frank Sinatra - The Ultimate Christmas (Daily Mail CD) (2012) Upfront [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Christmas>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145750.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hark! The Herald Angels Sing [2:25]
-02. Jingle Bells [2:03]
-03. Let It Snow! Let It Snow! Let It Snow! [2:38]
-04. O Come All Ye Faithful (Adeste Fidelis) [2:36](   Читать дальше...   )Жанр: Vocal Jazz, ChristmasПродолжительность: 00:45:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA2FAE9E2901D2143B60C7DED97F1BF7D532888F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678129   (145736) от 21.11.2023
-
-VA - DeepHouseJazz (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145736.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soulstance & Jazz 2 More - Go On (4:57)
-02. Soulstance & Maison Jaxx - Stripe the Cosmics (6:18)
-03. Soulstance & Jazz 2 More - The Lonely Day (5:25)
-04. Soulstance & The Modern African Spirit - Land Of Love (6:13)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:09:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE36CF17A5540635B6AC1E6CD125389E5296543E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435006   (145656) от 27.12.2020
-
-Ronnie Earl & The Broadcasters - Rise Up (2020) [MP3|320 Kbps] <Blues, Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Shall Not Be Moved (02:20)
- 02. Higher Love (05:53)
- 03. Blues for George Floyd (03:40)
- 04. You Don't Know What Love Is (04:32)(   Читать дальше...   )Жанр: Blues, Electric BluesПродолжительность: 01:18:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C7C4008EE18CABCE11C283053067F2992405A08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348315   (145339) от 27.12.2019
-
-Karl Berger - Conversations (1994) In & Out Records [FLAC|Lossless|image + .cue] <Post-Bop, Avant-Garde Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145339.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. At Last [2:04]
-02. Presently [5:42]
-03. Loverman [9:24]
-04. Bemsha Swing [5:28](   Читать дальше...   )Жанр: Post-Bop, Avant-Garde JazzПродолжительность: 01:11:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F90DF7CB6E7E28B2A85ADDE076F5841B4E0131AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348326   (145330) от 27.12.2019
-
-Joe Negri - Guitars For Christmas (2003) MCG Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Guitar Jazz, Christmas>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145330.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Santa Claus Is Coming to Town [3:43]
-02. Christmas Time Is Here [2:27]
-03. We Three Kings of Orient Are [2:33]
-04. We Wish You a Merry Christmas/Happy Holidays [2:01](   Читать дальше...   )Жанр: Mainstream Jazz, Guitar Jazz, ChristmasПродолжительность: 00:51:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D346FA8E095693FDBBE151A7B1FCCF795C60BC9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348325   (145328) от 27.12.2019
-
-Joe Negri - Uptown Elegance (2004) MCG Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145328.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet and Lovely [4:56]
-02. How My Heart Sings [4:59]
-03. It's a Beautiful Day in the Neighborhood [3:04]
-04. The Best Thing for You [3:51](   Читать дальше...   )Жанр: Mainstream Jazz, Big Band, Guitar JazzПродолжительность: 00:52:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D3E13999A302CF3AAB1F969BF6117B05F33D4C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087661   (145263) от 28.12.2016
-
-Sonny Rollins - 5 Original Albums (1951-1956) 5CD, 2016, Concord Music Group[FLAC|Lossless|tracks + .cue] <Cool, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145263.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Worktime:
-01.There's No Business Like Show Business [06:21]
-02.Paradox [05:01]
-03.Raincheck [06:01](   Читать дальше...   )Жанр: Cool, Hard BopПродолжительность: 02:57:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:241D689B10D309689BAD40F77A1019690A4D161B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087673   (145146) от 28.12.2016
-
-Michael Osborn and the Drivers - The Glamorous Life (2010) [MP3|320 Kbps] <West Coast Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145146.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Why Get Up (04:19)
-02. Here She Comes (04:27)
-03. The Glamorous Life (03:48)
-04. Needles and Pins (05:14)(   Читать дальше...   )Жанр: West Coast BluesПродолжительность: 00:30:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F147832183834DD73BF11244883150D421A1C03
 ```
 
 https://mybot314.ru/tekegram_catalog/

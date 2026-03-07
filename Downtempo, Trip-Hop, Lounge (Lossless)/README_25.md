@@ -1,3 +1,32 @@
+###  Публикация: 1345456   (167532) от 14.12.2019
+
+VA - Sensual Winter Chill Vol.1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_167532.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Lemongrass - Lazy Eve (Original Mix) (4:06)
+2.Taburet - Thoughts (Original Mix) (4:48)
+3.Lazy Hammock - Natural High (Original Mix) (5:21)
+4.Jens Buchert - Causality (Original Mix) (5:21)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:38:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82B78EA088FDBE4BC943FF9B9D394A25647BBA38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1826497   (167353) от 19.10.2025
 
 VA - Morning Coffee: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -716,35 +745,6 @@ VA - Relaxing Echoes: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94A84859E20466B3EE2BA99ADF7E00169104F633
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968163   (158260) от 22.12.2015
-
-Ornament - Bleu (2004) [FLAC|Lossless|tracks] <Downtempo, Ambient>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158260.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elgarhythms (09:26)
- 02. Hypernicus (07:43)
- 03. The Jesse Tree (10:01)
- 04. Bleu (07:56)(   Читать дальше...   )Жанр: Downtempo, AmbientПродолжительность: 01:07:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2EC49C895A45EAF44C8FB2086D002582E42BB5D
 ```
 
 https://mybot314.ru/tekegram_catalog/

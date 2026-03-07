@@ -1,3 +1,61 @@
+###  Публикация: 1059254   (464142) от 03.10.2016
+
+VA - Попсовый бум. Часть 9 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_464142.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Филипп Киркоров & Soprano Турецкого - Ты Все Что Нужно Мне  3:51
+002. Макsим - Хорошо  3:34
+003. Biffguyz - Ты Вкусно Пахнешь  3:22
+004. Елена Есенина - Cup Your Hands  3:23(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7344BBF8E34E73A8615B0C391DFF48EE34EB2ABC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568301   (463952) от 07.08.2022
+
+Kelly Clarkson - Compilation (2022) [MP3|320 Kbps] <Pop, Pop-Rock>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_463952.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Minute (Intro)
+02. Bad Reputation
+03. The War is Over
+04. Standing in Front of You(   Читать дальше...   )Жанр: Pop, Pop-RockПродолжительность: 03:16:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:115865C38E891740C77FFEC5F5791EC6889CAA80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1058953   (463891) от 03.10.2016
 
 VA - 80s Euro Disco Collection (2016) [MP3|320 Kbps] <Space Disco, Italo Disco, Eurobeat>
@@ -717,64 +775,6 @@ VA - Попсовая лихорадка осени. Сборник 10 (2016) [M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:171C0A277E72BB9952FEED3813F35BF6BFC5DC35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1060345   (455037) от 07.10.2016
-
-VA - Мега хиты хорошего настроения. Сборник 10 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455037.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Алекса Пол - Все Хорошо
-002. Colbie Caillat - Never Gonna Let You Down
-003. Kissлород - Розово
-004. Madfeel & Neo Anthony Digest - Love Is Blind(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03C7DA02D5658ABABDAFFCFD56B28DBF801FB4C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1321743   (454800) от 26.08.2019
-
-VA - German Top 100 Single Charts 30.08.2019 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454800.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shawn Mendes & Camila Cabello - Senorita
-02. Loredana - Eiskalt (feat. Mozzik)
-03. Luciano - Yeah
-04. DJ Snake, J Balvin, Tyga - Loco Contigo(   Читать дальше...   )Жанр: PopПродолжительность: 05:10:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30C051E31359068493617BCA7FBC928CAAE5F9B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

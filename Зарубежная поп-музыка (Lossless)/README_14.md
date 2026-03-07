@@ -1,3 +1,117 @@
+###  Публикация: 1367101   (918763) от 14.03.2020
+
+VA - 80's Gold (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_918763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tina Turner - Steamy Windows
+02. a-ha - Take On Me
+03. Duran Duran - Hungry Like the Wolf
+04. Stevie Nicks - Rooms On Fire(   Читать дальше...   )Жанр: Pop, Rock, DiscoПродолжительность: 03:28:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C917E68F529BBF5AA7C929B85BC74D24E6AD7B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096832   (917628) от 25.01.2017
+
+Olivia Holt - Olivia (2016) EP [FLAC|Lossless|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917628.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Phoenix (3:20)
+2. Thin AirЖанр: PopПродолжительность: 00:16:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77152A1EBA1ECF13AEC5F57A4CF0D82DA4500659
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366750   (917487) от 15.03.2020
+
+Yumi Zouma ‎ - Willowbank (2017) Japanese Edition [FLAC|Lossless|tracks + .cue] <Dream Pop, Indie, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Depths, Pt. I (02:50)
+02. Persephone (04:33)
+03. December (03:55)
+04. Half Hour (03:39)(   Читать дальше...   )Жанр: Dream Pop, Indie, ElectronicПродолжительность: 00:49:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1764FAEBD17D4DE7F900014577CAD82B4422E696
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 917911   (917388) от 25.01.2017
+
+VA - Pure... Brazil (2010) Box Set, 4CD [FLAC|Track+.cue]<Dance, Pop, Jazz, Rock, Latin>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917388.jpg" />
+</div>
+
+
+###  Подробнее
+
+О бразильских мелодиях многие из нас судят по музыкальному сопровождению бразильских же сериалов. Конечно, это большой пласт музыкальной культуры. Но чтоб убедить всех вас в том, что не только сериалы составляют бразильскую музыкальную культуру предлагаю послушать этот сборник от Sony Music Entertainment. Здесь вы услышите и джазовые интерпретации Maysa и представителей (   Читать дальше...   )01. Gal Costa - Garota De Ipanema (Ao Vivo)  (3:42)
+02. Alcione - Garoto Maroto  (4:03)
+03. Candeia e Yvonne Lara - Sou Mais O Samba  (3:15)
+04. Jacob Do Bandolim - Doce De Coco  (2:52)(   Читать дальше...   )Жанр: Dance, Pop, Jazz, Rock, LatinПродолжительность: 03:28:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58CBBA2BCBF1BF10C317B4600EADD44AD08BAF3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366932   (917239) от 15.03.2020
 
 VA - Rock 'n Roll Party Hit Mix (1995) [FLAC|Lossless|tracks + .cue] <Rock & Roll, Rockabilly, Oldies>
@@ -626,122 +740,6 @@ Marian Hill - Act One (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, Ele
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E243C848BADF6F195A22DCEB347D24D54ABD2926
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099151   (906642) от 31.01.2017
-
-Marian Hill - Sway (2015) EP [FLAC|Lossless|tracks] <Alternative Pop, Electronic, Minimalist>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906642.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Time
-02. Got It
-03. Lips
-04. Wasted(   Читать дальше...   )Жанр: Alternative Pop, Electronic, Minimalist, R&B, Synthpop, Nu JazzПродолжительность: 00:23:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:746AF6D4FA19065AE847CC95BB6B1835BE9E9DB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990804   (906194) от 28.02.2016
-
-VA - Discoradio Collection Vol.3 (2004) 2CD Compilation [FLAC|Lossless|tracks + .cue] <Synthpop, Pop, Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Banderas - This Is Your Life (4:39)
-02. Tina Charles - I Love To Love (3:02)
-03. Londonbeat - I've Been Thinking About You (3:50)
-04. Greg Kihn - Jeopardy (3:49)(   Читать дальше...   )Жанр: Synthpop, Pop, Pop-RockПродолжительность: 02:32:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE6E4B507FADE3769A951B7627F05A9965C25164
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991533   (905899) от 28.02.2016
-
-Ace Of Base - Singles Of The 90s (1999) [FLAC|Lossless|image + .cue] <Europop, Eurodance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905899.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. C'est La Vie (Always 21) (03:27)
-02. The Sign (03:09)
-03. Beautiful Life (03:40)
-04. Hallo Hallo (02:52)(   Читать дальше...   )Жанр: Europop, EurodanceПродолжительность: 00:59:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72626313AC56A72D34F836114A6DCB12363FB941
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1491963   (905376) от 28.08.2021
-
-Mylene Farmer - Plus grandir: Best Of 1986-1996 (2021) 2CD [FLAC|Lossless|tracks + .cue] <Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905376.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Plus Grandir [04:04]
-02. Libertine [03:29]
-03. Tristana [04:35]
-04. Sans Contrefaçon [03:50](   Читать дальше...   )Жанр: Synth-popПродолжительность: 01:39:5
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B23CED892C4ED9D54622C2104FF8A0B94F4B6AB
 ```
 
 https://mybot314.ru/tekegram_catalog/

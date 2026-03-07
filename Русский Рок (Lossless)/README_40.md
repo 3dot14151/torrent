@@ -1,3 +1,90 @@
+###  Публикация: 1188583   (272384) от 04.12.2017
+
+Drugger - Dementia (1996) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_272384.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Кровавый шабаш
+02. Бесконечность безумия
+03. Шизофрения
+04. Кукольный мир(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:36:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF504DF8892717CE2686193742E63C3FC58CAB5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338345   (270445) от 14.11.2019
+
+Дельфин (Dolphin) - КРАЙ (2019) [FLAC|Lossless|Web-DL|tracks] <Alternative, Electronic, Trip-Hop>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_270445.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. J2000.0 (4:05)
+02. Лето (3:51)
+03. Joy Stick (3:46)
+04. МСКВ (4:39)(   Читать дальше...   )Производство: M2Жанр: Alternative, Electronic, Trip-HopПродолжительность: 00:30:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84D4CF3BE16A001873C00A1A65D07A24E65DB19C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229767   (269576) от 15.11.2019
+
+Марко Поло - 5 Альбомов + 3 EP (2014-2019) [FLAC|Lossless|tracks + .cue|tracks] <Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_269576.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыка группы - это сплав западных традиций («Blackmore’s night») и русских («Мельница», «Тол Мириам») и сочетает в себе мелодичность наряду с танцевальностью и отдаёт предпочтение светлым, мажорным тональностям, создавая тем самым заряд позитивной энергии для своих слушателей, чем отличается от многих других представителей русского фолк-рока.2014 - Марко Поло (EP)
+2015 - Александрия
+2015 - Королевы и короли
+2018 - Звездные КапитаныЖанр: Folk RockПродолжительность: 04:32:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:023C75CDC4AD9F8715A1372E106623E793077B6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1338422   (269516) от 15.11.2019
 
 Вячеслав Бутусов & Орден Славы - Аллилуия (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -351,35 +438,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838695   (260543) от 23.11.2025
-
-СерьГа - Страна таксофонов (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260543.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Парус
-2. Голоса
-3. Осенний блюз
-4. Молитва(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC7A649E92C9957A997B263B3C55B7F34AD31D3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 503436   (259890) от 31.05.2012
 
 5 Стихий - Феникс (2008)[APE|lossless]<Sympho Power Metal>
@@ -472,35 +530,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838165   (258048) от 21.11.2025
-
-Сурганова и Оркестр - ЗДРАВСТВУЙ (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258048.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Здравствуй
-2. Леди
-3. Не рассказывай мне
-4. Мечтатель(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51F7FF65059505A94ACA27F16852E23D257B5015
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -628,35 +657,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836788   (255685) от 12.11.2025
-
-Операция Пластилин - Рутс (2025) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255685.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Всё будет!
-2. Заткнись и целуй меня
-3. Я твоя
-4. Прощальная(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:33:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7B0D3C17FF46CD822A236F57426711B6B3AC267
 ```
 
 https://mybot314.ru/tekegram_catalog/

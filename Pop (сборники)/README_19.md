@@ -1,3 +1,61 @@
+###  Публикация: 1104430   (880179) от 15.02.2017
+
+VA - Полный отрыв выпуск № 8 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_880179.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Otto Knows - Not Alone 3:36
+002. Arturro Mass - Город 4:13
+003. The Element - My Kick 2:51
+004. Samsaboy - Наташа Танцуй 3:55(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F84AD85E4FA32C83DF1F9A49AFAC0BFAD9ABFD04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1104437   (880170) от 15.02.2017
+
+VA - A Day for Love: Special Valentines Day Selection. Acoustic Versions of Love Songs (2017) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_880170.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Teesha - Thinking Out Loud
+02. Mark Bodino - One
+03. The Come Up - I'll Be There for You
+04. Mark Bodino - Wake Me Up When September Ends(   Читать дальше...   )Жанр: PopПродолжительность: 02:10:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C663D72E3B908ACB4D413FF53759D6870F4B20B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1104178   (880153) от 15.02.2017
 
 VA - Дискотека зимних дорог. Индустрия поп музыки. Выпуск № 6 (2017) [MP3|256 Kbps] <Pop>
@@ -690,64 +748,6 @@ VA - German Top 100 Single Charts 10.04.2020 [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB65A7879E5F857E5B72831A37295988A7E37EC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374718   (871185) от 11.04.2020
-
-VA - Popular Twerk Party (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871185.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lewis Capaldi - Hold Me While You Wait
-002. Conchita Wurst - To The Beat
-003. Iris Gold Feat. Adian Coker - Slow Down
-004. Stray Kids - Stop(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 09:58:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F821B25E43B8EB31BE7E91399564F3858DE16AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998246   (870206) от 19.03.2016
-
-VA - Музыка хорошего настроения 4 (2016) [MP3|256 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870206.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Шахзода Feat. Shoxrux - Ket
-002. Stonebank - All Night
-003. Bahh Tee - Взрослеем
-004. Zhu Feat. Keznamdi & A-Trak - Crazy As It Is(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD0EB92D2C0C9766E758B200A3DE981588499E8D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1097296   (914077) от 27.01.2017
+
+Brantley Gilbert - The Devil Don't Sleep (2017) [FLAC|Lossless|tracks] <Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_914077.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rockin' Chairs (04:08)
+02. The Ones That Like Me (03:25)
+03. The Weekend (03:08)
+04. You Could Be That Girl (03:48)(   Читать дальше...   )Жанр: CountryПродолжительность: 01:00:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71187B85BFD473E7A7380F95FB1D728DF7140621
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1367943   (914065) от 17.03.2020
 
 Alexander Ryabtsev (Александр Рябцев) - Europe: Fantasy Vol. 13 (2007) [FLAC|Lossless|tracks + .cue] <Instrumental, Ambient>
@@ -715,35 +744,6 @@ Jean Michel Jarre - Greatest Hits (2008) 2CD [APE|Lossless|image + .cue] <Electr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:413119B3D01A6CAF2AD025EE27A77C132E54DE5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 227951   (908465) от 20.03.2020
-
-Алекс Сильванни - Электроорган (1975) Vinyl Rip, Remastered, 2007, Raritet Music [FLAC|Lossless|image + .cue] <Easy Listening, Jazz, Pop>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908465.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это исключительно мягкий, классический Easy Listening с обилием звуков "Hammond Organ" в весьма интересной интерпретации автора.01. Музыкальный Автомат - Disco Stomp (H. Bohannon) (4:03)
-02. Вечером В Субботу - Sabato Pomeriggio (C. Baglioni - A. Coggio) (4:56)
-03. Чтобы Ты Знала - Para Que No Me Olvides (R. Girado) (3:55)
-04. Какой Он Спокойный - Sereno E ... (E. Riccardi  - L. Albertelli) (4:28)(   Читать дальше...   )Жанр: Easy Listening, Jazz, PopПродолжительность: 00:39:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C086B3FF08AABA85A96486C95E66D4DA72F1FA4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1121555   (800431) от 02.04.2017
+
+Uriah Heep - Demons and Wizards (1972) Remastered, 2017, Sanctuary Records Group [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800431.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Wizard (2017 Remastered)
+2. Traveller in Time (2017 Remastered)
+3. Easy Livin' (2017 Remastered)
+4. Poet's Justice (2017 Remastered)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:55:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F89BEBF0CACC79141AFFEDC91D58973310680AAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1273874   (798692) от 04.01.2019
 
 Deep Purple - Knocking At Your Back Door (1997) [MP3|320 Kbps] <Hard Rock, Classic Rock, Rock>
@@ -717,35 +746,6 @@ Rich Robinson - Paper (2016) [MP3|320 кб/с] <Hard Rock, Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93DBA33498DC336537B77C7D220F4BE7DC01F3F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014566   (776187) от 08.05.2016
-
-Bliss - Bliss (1969) Reissue, 2007, Tone Arm [MP3|320 кб/с] <Psych Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776187.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ride The Ship Of Fools
-2. Cry For Love
-3. Gangster Of Love
-4. I Want To Be Free(   Читать дальше...   )Жанр: Psych Hard RockПродолжительность: 00:28:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72525C52168696C36430C4459E9C02C9B5C515B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

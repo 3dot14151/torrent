@@ -1,3 +1,32 @@
+###  Публикация: 1410580   (433869) от 22.09.2020
+
+VA - Morning Coffee Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_433869.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Martin Liege - Morning Coffee (Original Mix)
+02. Marga Sol - French Kiss (Original Mix)
+03. Evandro Reis - Sunny Beach
+04. Michael E - One Love Bossa Nova (Original Mix)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:57:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBCCEC986544B3059335A415A7EA5B437BD17C58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1063643   (432527) от 17.10.2016
 
 Soosh - Discography 5 Releases (2011-2014) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Leftfield, Bass, Trip Hop>
@@ -716,35 +745,6 @@ VA - Lounge And The City (30 Beautiful Tunes) (2017) [FLAC|Lossless|WEB-DL|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:39EB79CC7444CC3D95534602D9509A12822A60B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326276   (387417) от 19.09.2019
-
-VA - Take a Trip, Pt. 5 (2019) [FLAC|Lossless|Web-DL|tracks] <Trip-Hop, Electronic, Hip-Hop, Abstract, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387417.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aminolen – Ixtlan (5:44)
-02. Dj Pandaj – The Room (feat. Georgeanne Kalweit & Jazzrevolver) (5:09)
-03. Nordgroove – Distance (3:19)
-04. Mr Peel – Headspace (3:36)(   Читать дальше...   )Производство: Cuntroll – CUNTROLL131Жанр: Trip-Hop, Electronic, Hip-Hop, Abstract, DowntempoПродолжительность: 01:14:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DD0CBA7BDC2CB1F44E6327CF2E7C1CC678005AC
 ```
 
 https://mybot314.ru/tekegram_catalog/

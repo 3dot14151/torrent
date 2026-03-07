@@ -1,3 +1,183 @@
+###  Публикация: 728549   (314498) от 30.11.2013
+
+ABBA - ABBA (Sweden) (1975) [FLAC 2.0 24/96|traks(Vinil-Rip)]<Pop Rock, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_314498.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. Mamma Mia  3:33
+2. Hey, Hey Helen  3:17
+3. Tropical Loveland  3:05
+4. SOS  3:22
+5. Man In The Middle  3:02
+6. Bang-A-Boomerang  3:03
+Сторона 2
+1. I Do, I Do, I Do, I Do, I Do  3:18
+2. Rock Me  3:06(   Читать дальше...   )Жанр: Pop Rock, DiscoПродолжительность: 00:36:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E915AA641C3E25584EB443773267DB89DC80CDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182160   (314339) от 11.11.2017
+
+VA - Наши баллады (2002) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Pop, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_314339.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Смысловые галлюцинации - Разум когда-нибудь победит
+02. Танцы минус - Не меняй меня
+03. Сплин - Пластмассовая жизнь
+04. Сегодня ночью - Между роскошью и тоской(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 01:09:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5434AD69CFD4823BAC88102C80729EFEC6783F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182684   (314251) от 11.11.2017
+
+Deep Purple - Machine Head (1972) Reissue, 1976 [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_314251.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Highway Star (6:09)
+A2. Maybe I'm A Leo (4:51)
+A3. Pictures Of Home (5:06)
+A4. Never Before (4:00)(   Читать дальше...   )Производство: Warner Bros. Records - P-10130WЖанр: Hard RockПродолжительность: 00:37:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5E0401134233488E96CEDC46D52C0AF098364D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1583118   (314232) от 13.10.2022
+
+Центр - Сделано В Париже (1989) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock, New Wave>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_314232.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Привет Тебе
+A2 Навсегда
+A3 Тургеневские Женщины
+A4 Бесполезная Песня(   Читать дальше...   )Жанр: Rock, New WaveПродолжительность: 00:35:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70D7356B458599CEBEBBE634329742F0ED95B9E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182011   (312191) от 12.11.2017
+
+Duran Duran - Paper Gods (2017) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <New Wave, Synthpop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_312191.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Paper Gods
+A2. Last Night In The City
+A3. You Kill Me With Silence
+(   Читать дальше...   )Жанр: New Wave, SynthpopПродолжительность: 00:57:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18082DCA154E3E56020A22A9E8D08151F6A982C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182741   (312076) от 12.11.2017
+
+Joy - Joy And Tears (1987) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Electronic, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_312076.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Touch Me My Dear 3:39
+A2 Gimme Gimme All Of You 3:53
+A3 Kisses Are The Doctor's Order 3:29
+A4 Korean Girls 3:33(   Читать дальше...   )Жанр: Europop, Synth-popПродолжительность: 00:36:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE1F8ABE11E698A8EC725E9E8D7186EA9F99343C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1182168   (312046) от 12.11.2017
 
 ABBA - The Visitors (1981) [FLAC |192/24|image + .cue|Vinyl-Rip |Lossless] <Europop>
@@ -571,177 +751,6 @@ A4. Digital Man (6:24)(   Читать дальше...   )Жанр: Progressive 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A9F286B20CEFE6B0289E581BD43044EEA5E9399
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 736220   (300797) от 01.12.2015
-
-Engelbert Humperdinck - Энгельберт Хампердинк (1978) [FLAC 2.0 24/192|traks(Vinyl-Rip)]<Pop, Schlager>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300797.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-1. Освободи меня (Release Me) 3:20
-2. Возьми мое сердце (Take My Heart) 2:28
-3. Мой мир (My World Aka Il Mondo) 3:08(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 00:39:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E7C63B12602F28985C7B516EFC7CFF457CC02F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078554   (299830) от 01.12.2016
-
-Лед Зеппелин - Лестница на небеса (1988) [WavPack|192/32|tracks|Vinyl-Rip] <Prog Rock, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299830.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-1. Песня иммигрантов (Immigrant Song)  2:24
-2. Виселица (Gallows Pole)  4:56
-3. С тех пор, как я тебя люблю (Since I've Been Loving You)  7:26(   Читать дальше...   )Жанр: Prog Rock, Hard RockПродолжительность: 00:38:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A6FC2215ED3BD310EFC655001E96539F80EBE48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184731   (299047) от 18.11.2017
-
-Daturana - Mindfly (2016) Limited Edition, 2017, Nasoni Records [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Psychedelic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299047.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. House Of Dreams (5:09)
-A2. Jefferson (5:01)
-A3. Drunken Girl (3:38)
-A4. Abyss (4:12)(   Читать дальше...   )Производство: Nasoni Records - nasoni184Жанр: Psychedelic RockПродолжительность: 00:40:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9903D45A5208E33F5B8C22305E89BC991DAC716F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184553   (298783) от 18.11.2017
-
-Billy Idol - Billy Idol (1982) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Pop Rock, Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298783.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop RockПродолжительность: 00:39:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2373B79495A8DFDB0787C1B738E0AAE38721545B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261722   (298522) от 13.11.2018
-
-Bomfunk MC's - In Stereo (2000) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Electronic,Techno, Jungle>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298522.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Uprocking Beats
-02. Other Emcee's
-03. B-Boys + Flygirls
-04. Freestyler(   Читать дальше...   )Жанр: Electronic,Techno, JungleПродолжительность: 01:13:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8867340EA1BE2AA1DB4A28755044EE3AE3C110B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078864   (297655) от 02.12.2016
-
-Дип Пёрпл - Дым над водой (1988) Мелодия [WavPack|192/32|tracks|Vinyl-Rip] <Hard Rock>
-
->>След.
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297655.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-1. Черная ночь (Black Night)  3:26
-2. Шаровая молния (Fireball)  3:22
-3. Космическое путешествие (Space Truckin')  4:30(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAF4EB5E93FA23AF73C768A21BFDA6FAD876C966
 ```
 
 https://mybot314.ru/tekegram_catalog/

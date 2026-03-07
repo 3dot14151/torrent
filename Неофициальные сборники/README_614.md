@@ -1,3 +1,299 @@
+###  Публикация: 1087999   (142120) от 29.12.2016
+
+VA - George Michael - Best275z (1984 - 2014) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_142120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Careless Whisper 05:02
+02 Fastlove 05:27
+03 Freedom! '90 06:28
+04 Killer/Papa Was A Rollin' Stone 04:15(   Читать дальше...   )Жанр: PopПродолжительность: 03:24:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DC2F54D78BBE8488ED5A392023312BFECD16781
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520384   (142076) от 28.12.2021
+
+VA - The Death Therapy (2021) [MP3|320 Kbps] <Metal, Hard Rock, Hardcore>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_142076.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это самый популярный стиль экстремальной музыки, имеющий богатую историю и немало поджанров. Хардкор метал легче всего узнать по грубому вокалу, так называемый гроул, а так же своей отличительной манерой игры на гитаре, а сложные мелодии и частые смены ритма – главные коньки этого жанра.001. Witch Vomit - Abhorrent Rapture
+002. Bootlicker - Conventional Life
+003. Cathexis - Library Of Babel
+004. Suidakra - Darcanian Slave(   Читать дальше...   )Жанр: Metal, Hard Rock, HardcoreПродолжительность: 26:01:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB4CCF09EF842E8F0211BF00AC7BEEC66F51744C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678876   (142034) от 23.11.2023
+
+VA - Музыка для машины Vol.42 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_142034.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Инна Вальтер - Не Для Тебя (04:45)
+02. Dj. Jedy - Come Along (03:15)
+03. Model Man Feat. & Bklava - Thru U (02:57)
+04. Rhodes - Sunlight (03:32)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:40:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91AB5AB99AB3FC6F7A03C92E50732E4190CFF3EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 590466   (142007) от 17.12.2012
+
+VA - Новогодняя Дискотека 50/50 (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_142007.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Akces - Hypnotize (Radio Edit)
+02. JuicyTrax feat. Stilet - Queen Of Hearts
+03. Artik pres. Asti - Сладкий Сон (DJ Denis Rublev & DJ Anton Remix)
+04. Taio Cruz - Fast Car (Popkong Remix)
+05. Shami и Дима Карташов - Любовь На Расстоянии (DJ Elnur Remix)
+06. Wisin & Yandel ft. Daddy Yankee - Hipnotizame (Remix)
+07. Adrian Sina - Painted Love (Radio Edit)
+08. Алена Локшина - Зимняя Сказка
+09. Edgar & Алёна Высотская - В Двух Сердцах
+10. Within Temptation - Skyfall(   Читать дальше...   )Жанр: PopПродолжительность: 05:58:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38319654B8A2E6B694182F2C2FA9B13B1CE7BB93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194964   (142004) от 29.12.2017
+
+VA - Unknown 80's (part X) (2017) [MP3|320 Kbps] <Electronic Pop Rock, Synthpop, New Wave>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_142004.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love And Rockets - No Big Deal (12'' Mix) - 1989
+02. Walk The Moon - Daddy's Coming Home - 1987
+03. Mental As Anything - Surf & Mull & Sex & Fun - 1985
+04. Vicious Pink - Take Me Now - 1985(   Читать дальше...   )Жанр: Electronic Pop Rock, Synthpop, New WaveПродолжительность: 03:06:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C32118FC2BB2836A8C42ECEDC667CBD79B1BF4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520523   (141992) от 28.12.2021
+
+VA - Music For You vol.21 (2021) [MP3|320 Kbps] <Rock, Metal, Other>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_141992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Van Der Graaf Generator - Theme One (03:10)
+ 02. Jethro Tull - Crossfire (Extended Version) (Steven Wilson Remix) (04:39)
+ 03. Camel - Song Within A Song (07:13)
+ 04. Alphataurus - La mente vola (09:13)(   Читать дальше...   )Жанр: Rock, Metal, OtherПродолжительность: 05:21:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF5C182DB7B78D37C3FB9B6645EFC853082A0E4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520387   (141983) от 28.12.2021
+
+VA - The Space Beats (2021) [MP3|320 Kbps] <Synthspace, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_141983.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыка сборника под названием "The Space Beats" отправит Вас на космический крейсер, который вот-вот отправиться в увлекательное фантастическое путешествие по тысячам планет нашей необъятной галактики. Раскрываются фермы стартового комплекса, включается реактор, ярким сиянием загораются ракетные двигатели, и наш корабль отправляется к очередной звездной (   Читать дальше...   )001. Lost Souls Of Saturn - Ring Transmission
+002. Chase Smith - Phenylketoneutropics
+003. Marco Monteverde - Tribal Green
+004. Red Rooms - Space Odyssey(   Читать дальше...   )Жанр: Synthspace, ElectronicПродолжительность: 09:31:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09F606DC6FDADA296641212E18484735F054F523
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195588   (141979) от 29.12.2017
+
+VA - Подставляйте ладони-я насыплю Вам солнца! (Часть 38) (Compiled by Виктор31RUS) (2017) [MP3|256-320 Kbps] <Советская Эстрада, Ретро>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_141979.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Лариса Голубкина и Валентин Манохин  -  Королева  2:23
+02.  Николай Тимченко  -  Песня о Москве  3:12
+03.  Евгений Нестеренко  -  Солнце скрылось за горою  2:10
+04.  Леонид Утесов  -  Сердце  3:23(   Читать дальше...   )Жанр: Советская Эстрада, РетроПродолжительность: 02:39:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD563FFCB71E180AEB20545A2B255474AEB5835C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272596   (141965) от 28.12.2018
+
+VA - Лучшая Дискотека 80/90. (Зарубежный выпуск) (2018) [MP3|320 Kbps] <Диско, Итало-диско, Евродэнс>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_141965.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Capital Sound - Your Love Is My Energy
+002. Mike Oldfield - Moonlight Shadow
+003. E-Rotic - Get Away
+004. The La's - There She Goes(   Читать дальше...   )Жанр: Диско, Итало-диско, ЕвродэнсПродолжительность: 06:39:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A30F613146E8E72CC7A59238173FA3A48AA280B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195592   (141888) от 29.12.2017
+
+VA - Top 100 - Best Radio Hits 2017 (2017) [MP3|320 Kbps] <Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_141888.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Luis Fonsi feat. Daddy Yankee - Despacito
+002.Zayn Malik feat. Sia - Dusk Till Dawn
+003.Katy Perry feat. Skip Marley - Chained To The Rhythm
+004.Arilena Ara - Nentori (Bess Remix)(   Читать дальше...   )Жанр: DanceПродолжительность: 05:39:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E7D22C219E65E661A592BF53AA9483DADA9E52D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1520315   (141831) от 28.12.2021
 
 Ed Calle - Compilation (2021) [MP3|320 Kbps] <Jazz>
@@ -458,304 +754,6 @@ VA - Русский Рок. Лучшее 2017 (2017) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5254B0B0080BAA630451A5C318F8D9B12E4BCB2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435819   (141030) от 29.12.2020
-
-VA - Громкие новинки Декабря 3 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141030.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2517 - Предчувствие (feat. Саграда) (2:58)
-02. 9 грамм - Ориджинал (3:47)
-03. Aloe Blacc, Steve Aoki - My Way (3:17)
-04. Andro - Спокойная ночь (Cover) (1:55)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:58:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A24B2016FE4124E0841BA4A0DD4FEBA79D570C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970385   (140909) от 30.12.2015
-
-VA - Народный Микс Новогодний (2015) [MP3|256-320 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140909.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Паола - Новогодняя Сказка
-002. Согдиана - Эпидемия
-003. Ольга Орлова - Птица
-004. Dan Balan - Плачь(   Читать дальше...   )Жанр: PopПродолжительность: 12:18:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8223E6F3030DC9DA0AC12859C8163BB0375815D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 854946   (140847) от 30.12.2014
-
-VA - Billboard Top 25 Hot Rock Songs (03-01-2015) [MP3|320 кб/с]<Rock, Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140847.jpg" />
-</div>
-
-
-###  Подробнее
-
-По ту сторону океана Новый год уже наступил. По крайней мере лидеры музыкальной индустрии публикуют чаты уже январские 2015 года.
-Вот и журнал Billboard выдал серию, из которой представляю Вашему вниманию Top 25 Hot Rock Songs - официальный хит-парад США в котором участвуют песни рок-мейнстрима и альтернативного рока.
-Топ создается в соотвествии с ранжированнием (   Читать дальше...   )01. Hozier - Take Me to Church  (4:03)
-02. Fall Out Boy - Centuries  (3:52)
-03. Vance Joy - Riptide  (3:22)
-04. Milky Chance - Stolen Dance  (5:16)(   Читать дальше...   )Жанр: Rock, Pop, Dance, OtherПродолжительность: 01:33:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:772124106D14E26AA01722F51343D7A286F08227
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435734   (140831) от 29.12.2020
-
-VA - Зима на Love Radio vol2 (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140831.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zivert - Многоточия (Radio Edit) (2:52)
-02. Tiesto - The Business (2:44)
-03. Marshmello & Imanbek feat. Usher - Too Much (2:45)
-04. Meduza feat. Dermot Kennedy - Paradise (2:47)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:00:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:265CEB01548391CC7A59465587016B97D492BE89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088192   (140769) от 30.12.2016
-
-VA - Better Than Sex (2CD) (2016) [MP3|320 Kbps] <Synthpop>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140769.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Camouflage - Shine (04:32)
-02. Beborn Beton - I Believe (04:43)
-03. Daily Planet - Imagination (04:24)
-04. Iris - When I'm Not Around (05:58)(   Читать дальше...   )Жанр: SynthpopПродолжительность: 03:01:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F62FFE850B19AE21F91F1D1702B403FEA7747D61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272800   (140738) от 29.12.2018
-
-VA - Не Зима, Просто Горячие Треки (2018) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140738.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Homie - Пули
-002. HammAli & Navai - Запах Снов (Rakurs & Ramirez Radio Edit)
-003. HammAli & Navai - Начальник Не Хочу Работать
-004. МакSим - Абонент недоступен(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:58:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB048368A1880570BD8641407380123D0617C9CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970453   (140638) от 30.12.2015
-
-VA - Romantic Collection Gold (2002) [MP3|192 кб/с] <Jazz, Blues, Guitar Music>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140638.jpg" />
-</div>
-
-
-###  Подробнее
-
-Blues
-01 - Gary Moore - Still Got The Blues For You
-02 - Ronnie Earl - Round Midnight
-03 - Patricia Barber - Let It Rain(   Читать дальше...   )Жанр: Jazz, Blues, Guitar MusicПродолжительность: 07:40:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5AC96C7F6807377142CE09DA50D686F2808F1DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970508   (140600) от 30.12.2015
-
-VA - Новогоднее настроение в СССР (2CD) (1956-1991) от DON Music (2015) [MP3|320 кб/с] <Retro>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140600.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Людмила Гурченко - Пять минут (1956) (03:31)
-02. Майя Кристалинская - Снег идёт (1961) (02:18)
-03. Капиталина Лазаренко - Костёр на снегу (1965) (02:13)
-04. Ирина Бржевская - Полетел снежок над Обью (1965) (02:46)(   Читать дальше...   )Жанр: RetroПродолжительность: 02:30:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE1D2803C117F96D5D1A4C4A438F5B9EFE80954E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970585   (140513) от 30.12.2015
-
-VA - Best of Rock Collection (1980-1989) (2015) [MP3|320 кб/с] <Rock, Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Motorhead - Ace of Spades (02:49)
-02. Angel Witch - Angel Witch (03:26)
-03. The Michael Schenker Group - Armed and Ready (04:09)
-04. Accept - Balls to the Wall (05:44)(   Читать дальше...   )Жанр: Rock, MetalПродолжительность: 09:03:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B40D1551329679FA1E117ECCC55CD88FE13E0F9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 590599   (140419) от 18.12.2012
-
-VA - Масть крестовая. Новогодний выпуск (2012) [MP3|256 кб/с]<Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140419.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Лукьяновка - Снегопад
-002 Юрий Брилиантов - Двойной праздник
-003 Михаил Шуфутинский, Катерина Голицына и Любовь Шепилова - Новый год
-004 Ян Марти - Она красива
-005 Мадам Х - Хочу ребеночка от Путина
-006 Сергей Трофимов - Корпоративная тусовка
-007 В. Токарев, А. Полотно, Ф. Карманов, А. Дюмин, М. Шелег, В. Петлюра, Е. Чужой, Т. Тишинская - Новогодняя!
-008 Братья Радченко - Голубая вешняя вода
-009 Стас Притчин - Счастье
-010 Григорий Заречный - Танцуй, любимая(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:10:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF3AFD196401F89D88CA3018540EB2FC14291775
 ```
 
 https://mybot314.ru/tekegram_catalog/

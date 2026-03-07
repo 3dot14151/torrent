@@ -1,3 +1,232 @@
+###  Публикация: 1097778   (912608) от 28.01.2017
+
+Nox Doloris - 1 album, 2 EP, 1 single, 2 demos (2008-2016) [MP3|320 Kbps] <Sympho Black Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_912608.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2008. Demo
+2010. Demo
+2011. Sacrifice Me (EP)(   Читать дальше...   )Жанр: Sympho Black Death MetalПродолжительность: 02:37:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD9283C5962EB09FD5B68BA96460A51660537045
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097772   (912484) от 28.01.2017
+
+Laufderzeit - Zeitapokalypse (2016) [MP3|320 Kbps] <Industrial Metal, Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_912484.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Das Erwachen Der Zeit
+02. Zeitnot
+03. Guard Of Heaven
+04. Sky Is Melting(   Читать дальше...   )Жанр: Industrial Metal, Gothic MetalПродолжительность: 00:48:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14140D8B8BA073A4E40524F56E86AF07BFEA413F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368355   (911083) от 19.03.2020
+
+Julana - Квартал (2020) [MP3|320 Kbps] <Metalcore, Electronic, Rapcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_911083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Ками [00:01:53]
+02 Пыль [00:03:57]
+03 На цепи [00:04:13]
+04 Раны feat. Dmitry Karamyshev from FALSEGIVER [00:03:08](   Читать дальше...   )Жанр: Metalcore, Electronic, RapcoreПродолжительность: 00:29:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6E2387E6B98374B0209714C42BDBF0A2A954C0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368171   (910889) от 19.03.2020
+
+Ночные Снайперы - казино (2020) Single [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_910889.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. казиноЖанр: RockПродолжительность: 00:03:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B18B311139EF7E7AED11B7C9393B8DFFAEE7E33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098008   (910765) от 29.01.2017
+
+Откровения Дождя - Акрасия (2016) [MP3|320 Kbps] <Melodic Death Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_910765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Алтарь Блудниц
+02. Сквозь Ночь Фобетора
+03. Эшафот
+04. В Грусти И Радости(   Читать дальше...   )Жанр: Melodic Death Doom MetalПродолжительность: 01:00:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A281C3D30F2A96A98DBD7C5E64F3D537E5044E5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1491526   (910583) от 25.08.2021
+
+Александр Иванов - Там (2021) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_910583.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Там
+2. В облаках у водопада
+3. Шарф
+4. Этой весной(   Читать дальше...   )Жанр: RockПродолжительность: 01:22:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CEE2B43471914EA0577DFECCC557E137273A9BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368649   (909092) от 20.03.2020
+
+Женя Любич - Во весь голос (2020) [MP3|320 Kbps] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_909092.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Небо и звёзды
+2. Я не могу без тебя жить
+3. С любимыми не расставайтесь
+4. Ville de France(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:29:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D1720D739E377C40BF1BF8289D3CB8ECB780594
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368635   (908975) от 20.03.2020
+
+Ольга Арефьева - Хина (2020) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_908975.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Дерево
+2. Danse Macabre
+3. Пантомима
+4. Так однажды ночью я стал собакой(   Читать дальше...   )Жанр: RockПродолжительность: 00:55:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1274C6DF9D2B5ED6B3D2D683F2469F27EEF77A7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 179932   (908052) от 08.03.2010
 
 Шмели - Механическая балерина (2010) [MP3|256 kbps]<Industrial/Folk/Rock>
@@ -536,231 +765,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92B2CABC5645745A3DC79A5870E6AECF9C95131A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369470   (900423) от 25.03.2020
-
-Рось - Русалка и Купала (Compilation) (2006) [MP3|320 Kbps] <Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900423.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбом Русалка
-01	Кольцо	3:44
-02	Купальнка	2:33
-03	Кленовая	2:13(   Читать дальше...   )Жанр: Folk RockПродолжительность: 01:01:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4298E17FDB770AB6809DAD0299262D0CDAAA8C25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369504   (900337) от 25.03.2020
-
-Медведь - Вставайте сильные с нами / Прими мой меч! (2016-2020) 2 CDr [MP3|320 Kbps] <Rock, Folk, World, & Country>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900337.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Катунь  [00:03:37]
-02. Утро Сварога [00:03:03]
-03. Время волчьего тепла [00:03:14]
-04. Борода [00:03:17](   Читать дальше...   )Жанр: Rock, Folk, World, & CountryПродолжительность: 2 CD, 01:20:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84A2C142BC19F429C3522A013E81AB69BEE381AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100715   (899944) от 04.02.2017
-
-Sordid Clot - 3 albums (2006-2013) [MP3|320 Kbps] <Death Metal, Goregrind>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899944.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2006 - МякишЪ
-2008 - КлубенЪ
-2013 - ПодвидЪЖанр: Death Metal, GoregrindПродолжительность: 01:22:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24A6B99BBCAF5B8A3378DDA9038EB10E42D005A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100696   (899919) от 04.02.2017
-
-[eq - 2 EP (2008-2009) [MP3|320 Kbps] <Deathcore, Grindcore>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899919.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2008 - То То И Оно.. (EP)
-2009 - Annuit Coeptis (EP)Жанр: Deathcore, GrindcoreПродолжительность: 00:20:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDFD5982926CAB6A3FFC76ECB2B95837DD4EED35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 293077   (899796) от 11.02.2011
-
-Хельга Восточный Ветер и группа Ветры Времен - Не оставляй меня в темноте (2010) [MP3|192 kbps]<Rock,Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899796.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Rock,Folk RockПродолжительность: 00:29:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8943FA5BA9006213A402B958DAB61107F3C273F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 294013   (899682) от 11.02.2011
-
-Александр Иванов - Это был я (2011) [MP3|320 kbps]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899682.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 -Жанр: RockПродолжительность: 01:04:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92B2D438A404C823644FBADB9143584381885EBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992862   (899183) от 03.03.2016
-
-Ветер Всем - Выдох (2015) [MP3|320 кб/с] <Folk Rock, Experimental Folk, Ambient Ethno>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899183.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Молодка (06:28)
-02. Дороженька (04:00)
-03. Калина (02:45)
-04. По морю (06:46)(   Читать дальше...   )Жанр: Folk Rock, Experimental Folk, Ambient EthnoПродолжительность: 00:59:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDFB2EC892B6A4AAF264D06611D5ACE5913C27F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100404   (899039) от 04.02.2017
-
-VA - Союз. Rock 3 (2017) [MP3|320 Kbps] <Rock, Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899039.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Алиса - Rock 'n' Roll жесток
-02. Йорш - Музыка сильных
-03. Totem - Люди Севера
-04. Louna - Те, кто в танке(   Читать дальше...   )Жанр: Rock, Punk RockПродолжительность: 02:33:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FB53FD5E2551EDF83F28C127B45B2C25606018E
 ```
 
 https://mybot314.ru/tekegram_catalog/

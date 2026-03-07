@@ -1,3 +1,178 @@
+###  Публикация: 1098631   (907982) от 30.01.2017
+
+Enigma - The Fall Of A Rebel Angel (2016) [WavPack 2.0|32/192|image+.cue|Vinyl-Rip] <Downtempo, New Age, Ambient>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_907982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Circle Eight (2:24)
+02. The Omega Point (5:41)
+03. Diving (2:48)
+04. The Die Is Cast (4:15)(   Читать дальше...   )Жанр: Downtempo, New Age, AmbientПродолжительность: 00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63980C31979D75EE5D2953BEAD32229CC25F6BE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991508   (905852) от 28.02.2016
+
+Круиз - Волчок (1981-82) [FLAC 2.0|44.1/16|tracks|Tape-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_905852.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Виза Для Круиза (4:55)
+02. Волчок (3:41)
+03. Душа (5:24)
+04. Попугай (3:19)(   Читать дальше...   )Жанр: PopПродолжительность: 00:58:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6246DFA48BE8681B8C2E686E26414BF65AC8DE48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991305   (905838) от 28.02.2016
+
+Машина времени - Реки и мосты (1987) 2LP [FLAC 2.0|192/24|tracks|Vinyl-Rip] <Classic Rock, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_905838.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. Реки и мосты  6:00
+2. Флюгер  4:08
+3. Гололед  3:42(   Читать дальше...   )Жанр: Classic Rock, Pop RockПродолжительность: 01:03:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4D0035C691C96D7A0092C5C0E2E572764FDCF4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990964   (905768) от 28.02.2016
+
+Веселые Ребята - Музыкальный Глобус (1979) [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_905768.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Никогда Не Поверю (4:31)
+02. Мона Лиза (5:55)
+03. Уходило Лето (2:55)
+04. Люба-Любовь (3:35)(   Читать дальше...   )Жанр: PopПродолжительность: 00:34:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ADBE19D66A9FC120E884B5789554675713E9B21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099256   (903056) от 02.02.2017
+
+Simply Red - Stars (1991) [FLAC 2.0|192/24|tracks+.cue|Vinyl-Rip] <Funk, Soul, Pop, Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903056.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Something Got Me Started 4:01
+A2 Stars 4:07
+A3 Thrill Me 5:03
+A4 Your Mirror 3:59(   Читать дальше...   )Жанр: Funk, Soul, Pop, RockПродолжительность: 00:40:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B86B57DC8AB150CB300F0A12D89EC9B9739167C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 867152   (902749) от 08.02.2015
+
+Оркестр Олега Лундстрема - Серенада солнечной долины (1976) [FLAC 2.0 24/192|traks(Vinil-Rip)]<Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_902749.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. В хорошем настроении - Разаф, Гарланд  3:30
+2. Лунная серенада - Г. Миллер  2:42
+3. Дорога на Чаттанугу - Гордон, Уоррен  2:42
+4. Я знаю, почему - Уоррен  1:58(   Читать дальше...   )Жанр: JazzПродолжительность: 00:34:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9C3BFB4F9B7C3FD7367A8F77C080FDBF9482366
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 867384   (902586) от 08.02.2015
 
 AC/DC - Let There Be Rock (1977) [FLAC 2.0 24/192|traks(Vinil-Rip)]<Hard Rock>
@@ -576,183 +751,6 @@ A4. Crossfade (3:41)(   Читать дальше...   )Производство
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6438D39027558495235AE58EBC30CBE7229CD865
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997330   (875254) от 16.03.2016
-
-a-ha - Cast In Steel (2015) [WavPack 2.0|192/32|image +.cue|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_875254.jpg" />
-</div>
-
-
-###  Подробнее
-
-sideA
-A1 Cast In Steel 3:50
-A2 Under The Makeup 3:25
-A3 The Wake 3:45(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84A8B87831341F03980378CAD74954B95B1EEC13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105409   (874934) от 18.02.2017
-
-Duran Duran - Notorious (1986) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874934.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1	Notorious
-A2	American Science
-A3	Skin Trade
-A4	A Matter Of Feeling(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:47:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC6D710DCECA83540E6D5487CFA041AD805349FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 872400   (872108) от 26.02.2015
-
-Ван Клиберн - Ван Клиберн (1987) [FLAC 1.0 24/96|traks(Vinil-Rip)]<Classical>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872108.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-Ф. Лист
-1. Грёзы любви (Ноктюрн №3)  4:04
-2. Венгерская рапсодия №12  10:36
-Ф. Шопен(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:51:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA63D0DE881B7B64DB45FD30B105E91A1745D3E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 872332   (872061) от 26.02.2015
-
-Ван Клиберн, симфонический оркестр Московской Государственной филармонии (К. Кондрашин) - С. Рахманинов – Концерт №3 для фортепиано с оркестром (1975) [FLAC 1.0 24/96|traks(Vinil-Rip)]<Classical ...
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872061.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт №3 Ре Минор для фортепиано с оркестром, соч. 30
-Сторона 1
-1. Allegro ma non tanto  17:38
-Сторона 2
-1. Intermezzo. Adagio  10:48(   Читать дальше...   )Жанр: Classical, Neo-RomanticПродолжительность: 00:43:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F091C3FD2E4320C7D6541A4EF792989DE056B6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106721   (869534) от 21.02.2017
-
-VA - RETROспектива, часть XII. Мелодии и песни из кинофильмов I (1939-1965) [FLAC 1.0|48/24|tracks|Vinyl-Rip] <Retro, Soundtrack>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869534.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Э. Горовец - Ты не печалься (из к-ф ''Большая руда'')
-02. М. Новохижин - Сероглазая (из к-ф ''Огонёк в горах'')
-03. М. Новохижин - Огонёк (из к-ф ''Огонёк в горах'')
-04. Т. Таубэ - Амадо Мио (из к-ф 'Рим в 11 часов'' или ''Джильда'')(   Читать дальше...   )Жанр: Retro, SoundtrackПродолжительность: 00:55:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94D59E8C99EE03292BFCC65957A7E8A6FC76B3E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108388   (864034) от 24.02.2017
-
-Cerrone - 3 Album (1976 - 1977) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864034.jpg" />
-</div>
-
-
-###  Подробнее
-
-ЧЕРРОНЕ ЖАН-МАРК (Cerrone Jean Marc) (р. в 1952, Сен-Мишель, Франция), французский композитор, продюсер и барабанщик.
-     Хотя слушателю 1990-х годов это имя едва ли говорит о многом, два десятилетия назад, во времена диско-бума конца 70-х, он был одним из самых продуктивных и изобретательных творцов европейской танцевальной музыки: как композитор, продюсер и барабанщик (   Читать дальше...   )Альбомы:
-1976 - Love In C Minor
-1977 - Cerrone's Paradise
-1977 - Cerrone III - SupernatureЖанр: DiscoПродолжительность: 01:36:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CE580ACCFFE03490CD71B85B01CBE72DC77DDDF
 ```
 
 https://mybot314.ru/tekegram_catalog/

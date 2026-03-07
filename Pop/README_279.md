@@ -1,3 +1,206 @@
+###  Публикация: 1269910   (218109) от 16.12.2018
+
+Pamala Stanley - 2 Albums (1979, 1990) [MP3|320 Kbps] <Electronic, Disco, Hi NRG>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_218109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Is Hot (7:48)
+02. Hey, Mister Magic (7:11)
+03. All I Want To Do Is Dance (6:25)
+04. That'll Be The Day (4:59)(   Читать дальше...   )Жанр: Electronic, Disco, Hi NRGПродолжительность: 01:29:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FF58EAD80061CB4A494F66A16D949C3F1D672DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585841   (218105) от 25.10.2022
+
+Various - Pure... 80s (2012) 4 CD [OGG Vorbis|480 Kbps] <Electronic, Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_218105.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bill Medley & Jennifer Warnes–(I've Had) The Time Of My Life
+02. Starship–We Built This City
+03. Wham!–I'm Your Man
+04. Men At Work–Down Under(   Читать дальше...   )Жанр: Electronic, Rock, PopПродолжительность: 04:40:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33982F406A02C00A2D59053EC86ACAE93C93E73B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1343493   (217713) от 06.12.2019
+
+Modern Talking - Maxi And Singles Collection (2019) Dieter Bohlen Edition, 3CD [MP3|320 Kbps] <Pop, Euro-Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_217713.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+1. You're My Heart, You're My Soul
+2. Lucky Guy (Special-DJ-Mix)(Ryan Simmons)
+3. You Can Win If You Want (Special Dance Version)(   Читать дальше...   )Жанр: Pop, Euro-DiscoПродолжительность: 04:02:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67EF983553D794001C78E2C9F6E39F97C85FD12F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425888   (217685) от 22.11.2020
+
+Peggy March - The Very Best Of Little Peggy March (1997) The Essential Singles Collection 1962-1968 [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_217685.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little Me  (2:23)
+02. I Will Follow Him (Chariot)  (2:46)
+03. I Wish I Were A Princess  (2:20)
+04. Hello Heartache, Goodbye Love  (2:29)(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96C249F81D145E0410E260264C1F0284B68D05DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1586002   (217672) от 25.10.2022
+
+Taylor Swift - Midnights (2022) 3am Edition [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_217672.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Lavender Haze (03:22)
+2. Maroon (03:38)
+3. Anti-Hero (03:20)
+4. Snow On The Beach (feat. Lana Del Rey) (04:16)(   Читать дальше...   )Жанр: PopПродолжительность: 01:09:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A895C4614AC780EFFF5BE5BFAC28D9671556549
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1269751   (217580) от 16.12.2018
+
+Grivina - Танцую одна (2018) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_217580.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. I Want To Dance Now
+2. Мальчик party
+3. Девочку несёт
+4. Твоя ненормальная(   Читать дальше...   )Жанр: PopПродолжительность: 00:31:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9256DC1256C1C9A4AD24184DCB3152CC7C39490
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514406   (217428) от 03.12.2021
+
+Дмитрий Маликов - Мир пополам (2021) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_217428.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Первая и последняя (Love Mix)
+2. Девочка
+3. Мир без твоей любви (Original Edit)
+4. Мелодрама(   Читать дальше...   )Жанр: PopПродолжительность: 00:25:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DEB73EA17A33C7C922FCF59A769B178B0060893
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1514405   (217107) от 03.12.2021
 
 ВИА Самоцветы Юрия Маликова - Лучшие песни (2021) [MP3|320 Kbps] <Pop, Retro>
@@ -540,207 +743,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F7600B585C4F5F086B7FA8188405306D86CC9446
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514716   (215338) от 04.12.2021
-
-Digital Emotion - Moving to the Top / Supernova (2021) Single [FLAC|Lossless|WEB-DL|tracks] <Disco, Electronic>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215338.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moving to the Top
-02. SupernovaЖанр: Disco, ElectronicПродолжительность: 00:13:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A5B69584993C8F151C56C71D4A5C95A88ED29FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270180   (215220) от 17.12.2018
-
-Alan Walker - Different World (2018) Japanese Edition [MP3|320 Kbps] <Electronic, Dance, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215220.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Alan Walker - Intro
-2. Alan Walker & Sorana - Lost Control
-3. Alan Walker & Julie Bergan - I Don't Wanna Go
-4. Alan Walker, K-391 & Emelie Hollow - Lily(   Читать дальше...   )Жанр: Electronic, Dance, PopПродолжительность: 00:52:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:983EB964A1D0161292658E65CFBE7CAC4CC1AA39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514514   (215114) от 04.12.2021
-
-Каролина - Наш звёздный вечер & Дискобар (1990, 1991) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215114.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наш Звёздный Вечер 1991
-1. Остановись
-2. Ты Будешь Мой
-3. Тебя Я Не Прощу(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A43DD85368F524BA331717CD0262D553A9AA64A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343892   (214975) от 08.12.2019
-
-Марта - 3 Альбома (2003 - 2008) [FLAC|Lossless|tracks + .cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Несколько секунд
-02. Буду твоей
-03. Колыбельная
-04. Берег(   Читать дальше...   )Жанр: PopПродолжительность: 01:56:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89DB01BA950E1598F85864988ECCD58FA8500A90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426496   (214890) от 24.11.2020
-
-Baby'O - "You've Got It!" (1979) [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214890.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In The Forest  (6:41)
-02. You've Got It  (6:50)
-03. Your Eyes  (5:23)
-04. Dance All Night  (5:52)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:37:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AABADF21EE5F82633E861DFC981AF45F9DBE0BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426256   (214794) от 24.11.2020
-
-VA - Love Pop Songs (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lewis Capaldi - Someone You Loved (03:02)
- 02. Jovanotti - Baciami Ancora (04:41)
- 03. Ellie Goulding - How Long Will I Love You (02:29)
- 04. Lady Gaga - Million Reasons (03:25)(   Читать дальше...   )Жанр: PopПродолжительность: 01:56:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:202D621927FC6F330B5650D7A72F147C2949A9FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343922   (214767) от 08.12.2019
-
-Supermax - Living In A World (1996) [FLAC|Lossless|image + .cue] <Pop, reggae, disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214767.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Living In A World 6:04
-2 Going Back Home 4:59
-3 Hara Hara 5:51
-4 Scream Of A Butterfly 4:38(   Читать дальше...   )Жанр: Pop, reggae, discoПродолжительность: 00:44:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7DEB6C5ADECC6E1A14D2BBEEBB0EA036F70CFB5
 ```
 
 https://mybot314.ru/tekegram_catalog/

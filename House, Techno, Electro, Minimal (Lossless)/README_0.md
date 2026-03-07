@@ -1,3 +1,119 @@
+###  Публикация: 1848753   (1052895) от 18.01.2026
+
+VA - Winter Hits 2026 (Deep Strips) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anton Ishutin - Be My Lover (Radio Edit) (2:12)
+02. Cristian Ferrer - Careless Whisper (Radio Edit) (3:21)
+03. Dellahouse - It's a promise we will keep (3:39)
+04. Julian Runge - Let Me Go (3:10)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:45:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B50159C5EABDA377AB9ABFE279AC2F1561FD1AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848088   (1052600) от 15.01.2026
+
+VA - Lounge Hits 2026 (Deep Strips) (2025) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052600.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gorbunoff - Alive (2:02)
+02. The Grape - Secrets (2:51)
+03. Mant Deep - How Will I Know (5:14)
+04. YampolSky - Fly (Roland (UA) Remix) (6:22)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:48:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B443C3CEC5F35164FB7CD436FEFFADF49D51B616
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847691   (1052381) от 13.01.2026
+
+VA - Winter Dance Hits 2026 (Deep Strips) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052381.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Umut Torun - Rose (3:08)
+02. Jaytor - Lost Life & Love (5:01)
+03. Elegant Ape - Feel The Fire (3:58)
+04. Silvan7 - Summer Emotions (3:57)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:48:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D51D53082B71DCF393337E203FB41B6A1EFD676B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847555   (1052166) от 12.01.2026
+
+VA - Afro Hits 2026 (Deep Strips) (2025) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052166.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elegant Ape - Desert Bloom (3:09)
+02. Cristian Ferrer - Deep Inside (Radio Edit) (Radio Edit) (3:11)
+03. Cristian Ferrer - Osupa Ti (Radio Edit) (Radio Edit) (3:52)
+04. N.E.O.N - Yemaya Mama (Radio Edit) (Radio Edit) (3:30)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:44:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3960EF8294F07DD46B639AA68ACBC160E123A4A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1847134   (1051963) от 10.01.2026
 
 VA - Power Workout Mix 2026 [FLAC|Lossless|WEB-DL|tracks] <Funky, Club House>
@@ -627,122 +743,6 @@ VA - Dialtone Records - 15 Years Anniversary (2023) [FLAC|Lossless|WEB-DL|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:633B032B0D4D04498289E4538D54BB821D1E0365
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608704   (1043555) от 31.01.2023
-
-VA - FG Top10: January 2023 (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Melodic House & Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043555.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Max Freegrant, Slow Fish -  The Climb (Extended Mix)  (6:58)
-02.  Kamilo Sanclemente, Zalvador -  Hypnotized (Extended Mix)  (8:29)
-03.  JUNIOR (SL) -  Normative Truth  (7:21)
-04.  Axel Giova -  Scorpio (Zoo Brazil Remix)  (6:25)(   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 01:06:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5103C1592E7D314205CDDBB5AB167E37A5B0B864
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609205   (1043366) от 02.02.2023
-
-Stanisha - Slow (2023) [FLAC|Lossless|WEB-DL|tracks] <Deep Techno, Organic House, Downbeat, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043366.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bakuta (Original) (9:19)
- 02. Coco (Original) (6:33)
- 03. Crnilo (Original) (7:42)
- 04. Dolak (Original) (6:59)(   Читать дальше...   )Жанр: Deep Techno, Organic House, Downbeat, MinimalПродолжительность: 02:31:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88FCA4C79AC73B84CA5ECC576A3D35D5DC7AB223
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609500   (1043242) от 03.02.2023
-
-Marsh - Endless (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic House & Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pneuma (4:18)
- 02. Blue (feat Leo Wood) (4:11)
- 03. Reminiscent (4:28)
- 04. Touch The Sky (feat Simon Doty) (4:31)(   Читать дальше...   )Жанр: Melodic House & TechnoПродолжительность: 00:49:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:433342E8B149B599F037140EB2B27DF65DFC314C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436674   (1042995) от 01.01.2021
-
-Jean-Michel Jarre - Welcome To The Other Side (2020) [FLAC|Lossless|WEB-DL|tracks] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042995.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Opening (VR Live)
-02. Oxygene 2 (JMJ Rework of Kosinski Remix)
-03. The Architect (VR Live)
-04. Oxygene 19 (VR Live)(   Читать дальше...   )Жанр: TechnoПродолжительность: 00:45:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52EDC5C4BBF812C1F283A8E94C0E4143154510C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

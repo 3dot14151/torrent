@@ -1,3 +1,224 @@
+###  Публикация: 1179921   (343994) от 02.11.2017
+
+VA - Новинки С Разных Популярных MP3 Сайтов Vol.66 (2017) [MP3|320 Kbps] <Pop, House, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_343994.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Bahh Tee & Зомб - Ядовитая 3:52
+002.  ВИА Гра - Моё сердце занято 3:17
+003.  Alan Walker & Noah Cyrus vs. James Arthur feat. Digital Farm Animals - All Falls Down 3:19
+004.  CamelPhat & Elderbrook - Coca Cola (Sasha Semenov Remix) 3:24(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 07:00:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42BF28043CEC18872EE51226C0112D5FDA16E181
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 580787   (343759) от 25.11.2012
+
+VA - Afro Beat The Trilogy Vol.1-3 (2012) [MP3|320 кб/с]<Downtempo, Chillout, Broken Beat>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_343759.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Diasu Kivu - Cassava Republique (4:10)
+2. Chyulus - Many (3:45)
+3. Baako Chipo - Nairobi Banquet (4:13)
+4. Stilt Walker - Tick Tock (4:05)
+5. Emeka - King Vulture (3:23)
+6. DJ Kisonko - Selenkay (4:08)
+7. Jackson Mereesi - Village People (4:36)
+8. Ime Kato - Free Hands (3:00)
+9. Bohos - Dominator (3:18)
+10. Titus Saruni - Amboseli Porini (4:23)(   Читать дальше...   )1. Eugene Blues All Time Heroes - Funkin Groove (3:39)
+2. Kalu Brothers - Gazelle (3:48)
+3. Dynamic Sound - Honey Sweet (4:22)
+4. Captain Agu - Sunset Rumble (4:32)
+5. Afro Generation - Rolling Time (4:36)
+6. Emeka Cisse - Mystery (4:39)
+7. DJ Bayo - Voices Of The Past (4:49)
+8. Kalu Brothers - Feelin Free (5:00)
+9. Timescales - Rhythm Flow (5:15)
+10. New Ondo Sound System - Stormy Weather (5:18)(   Читать дальше...   )Жанр: Downtempo, Chillout, Broken BeatПродолжительность: 03:01:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0762572ACF1A736DEAB58A97234BB7239181C0D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 580386   (343631) от 25.11.2012
+
+VA - East By Ping. Restaurant Lounge & Deep Bar (2012) [MP3|320 кб/с]<Lounge, Chillout, Deep House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_343631.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Lounge, Chillout, Deep HouseПродолжительность: 04:44:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B18D44B40243DDDFE83ABCD0D6FAEF73C7CAD47F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 580122   (343510) от 25.11.2012
+
+VA - Guitar Chill Ibiza (2012) [MP3|320 кб/с]<Chillout, Lounge, Guitar>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_343510.jpg" />
+</div>
+
+
+###  Подробнее
+
+(5:26) 01. Almadrava - Two Friends
+(4:29) 02. Alma Chillout - Mediterranean Sun Dance
+(3:43) 03. Lavelvet - Le dernier Paris
+(3:32) 04. Pedro Javier Gonzalez - Casas de la Juderia
+(3:30) 05. Copy & Paste - Cafe Dali
+(5:13) 06. Carlos Gallardo & Duende - Aire y Olas
+(3:50) 07. Dali's Eyes - Eu Penso en Voce
+(5:58) 08. Gabi Newman - Try to Remember (feat. Nikol)
+(4:26) 09. Juan Belmonte - Ibiza Sunset
+(4:01) 10. Kisskat- Country Waltz(   Читать дальше...   )Жанр: Chillout, Lounge, GuitarПродолжительность: 02:04:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:830DFA029B8D935819BD96614887259708181E64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257668   (343129) от 27.10.2018
+
+VA - ЕвроХит Топ 40 Europa Plus 26.10.2018 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_343129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Imagine Dragons - Natural 3:09
+02. Dynoro & Gigi D'Agostino - In My Mind 3:05
+03. The Chainsmokers feat. Emily Warren - Side Effects 2:57
+04. Clean Bandit feat. Demi Lovato - Solo 3:41(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:13:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CE27B3E26151386904A147675113F5349D7A282
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1578693   (342994) от 24.09.2022
+
+VA - ЕвроХит Топ 40 Europa Plus 23.09.2022 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_342994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Klangkarussell - Home (3:45)
+02. Cassette - Tell me why (3:07)
+03. Sofia Reyes feat. Jason Derulo & De La Ghetto - 1, 2, 3 (3:21)
+04. Maneskin - Supermodel (3:05)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:05:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EC0BE4EDA9ABF642D80DE1AACF7835CC265FE20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330131   (342841) от 09.10.2019
+
+VA - Качай и слушай Vol 3 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_342841.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Alessia Cara - What's On Your Mind? (3:13)
+2.Camila Cabello - Liar (3:27)
+3.Camila Cabello - Shameless (3:39)
+4.Charli XCX - White Mercedes (3:23)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:44:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C34E6E408D859988AD4B0865A9141A09A3C156E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1180212   (342642) от 03.11.2017
 
 VA - Empire Records - Dancenudisco 18 (2017) [MP3|320 Kbps] <Disco, Dance, Nu-Disco>
@@ -538,209 +759,6 @@ VA - The Official UK Top 40 Singles Chart 11.10.2019 [MP3|320 Kbps] <Pop, Dance,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08AC0B2F677F45E7D03E6955A6B24E5F6612DDAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330705   (336588) от 12.10.2019
-
-VA - ЕвроХит Топ 40 Europa Plus 11.10.2019 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336588.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tiesto & Jonas Blue feat. Rita Ora - Ritual 3:19
-02. Shawn Mendes & Camila Cabello - Senorita 3:11
-03. C-BooL - Catch You 3:13
-04. Aaron Smith feat. Luvli - Dancin (Krono Remix) 3:17(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:09:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:829D49744C4D33D5219188930B91636796D05954
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955055   (336549) от 09.11.2015
-
-VA - Хит-прорыв радио Record (2015) [MP3|192-320 кб/с]<Dance, club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Dekku - Rescue Me (Feat. Juliana Chahayed)
-02 Akcent Feat. Lidia Buble & Ddy Nunes - Kamelia (Dj Ackym Mombahton Remix Edit)
-03 Dj Kuba & Ne!tan Vs. Paul - Gangsta (Original Mix)
-04 Jack U (Skrillex & Diplo) - Take U There (Feat. Kiesza)(   Читать дальше...   )Жанр: Dance, clubПродолжительность: 06:36:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA861539C9B554A915E5315CA750F4B5550987DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330597   (336477) от 12.10.2019
-
-VA - Зайцев.нет Лучшие новинки Октября (2019) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336477.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kavabanga Depo Kolibri - Нет новостей 3:53
-02. Bahh Tee - Моей последней бывшей 3:14
-03. Мишель Барави - Милли 3:37
-04. Lera feat. Folkbeat - Волынка 3:03(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 01:43:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:884A401F69091832654F36856779D54D2B9BF89A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330656   (336265) от 12.10.2019
-
-VA - Громкие новинки Октября (2019) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336265.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.5sta family - Завязала (3:41)
-2.7000$, Нуки - Хайпметал (3:22)
-3.Godfather of Harlem, Dave East, A$AP Ferg - Business is Business (2:55)
-4.Adam Lambert - Closer To You (4:19)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:15:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52A19BECBF777F4D42CCC4003033FB944302FD22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419573   (335816) от 30.10.2020
-
-VA - Beatport Deep House: Electro Sound Pack #195 (2020) [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335816.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Stereo Kill - Free Melody
-002. Amount - Graudancer (Original Mix)
-003. Eric Duncan - Acid Wave
-004. Holly Marquee - The Habit Of Always(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 10:43:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB4AE278954D1754D5D2C01E5B6538FBA99ED26C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419788   (335809) от 30.10.2020
-
-VA - Music News vol.44 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soe - Сигналы (03:31)
- 02. Alexander Popov & M11 feat. Will Church - Hold Back (03:40)
- 03. Ally Brooke - Baby I'm Coming Home (03:16)
- 04. Anton Lacosta & Aleks Marty - Beef Drip (02:31)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:58:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C80032F0E5175E9B145FA346E35FC295E305FDF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181201   (335686) от 06.11.2017
-
-VA - Empire Records - Dancenudisco 16 (2017) [MP3|320 Kbps] <Disco, Dance, Nu-Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335686.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Block & Crown - You Started The Fire (Original Mix)
-02. M83 vs Kygo & Selena Gomez - It Ain't Midnight (DJ Nasa Mashup)
-03. Zayn & Taylor Swift - I Don't Wanna Live Forever (Eldar Stuff, Tim Cosmos Remix)
-04. Dj Ti-S - Take On Me (Radio Version)(   Читать дальше...   )Жанр: Disco, Dance, Nu-DiscoПродолжительность: 01:44:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0AA56C0F21015E743FCACF3E11A9B29701F5B75
 ```
 
 https://mybot314.ru/tekegram_catalog/

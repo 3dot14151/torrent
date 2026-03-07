@@ -1,3 +1,90 @@
+###  Публикация: 1468627   (1017081) от 08.05.2021
+
+Нигатив & Хип-Хоп Классика - Классика жанра (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1017081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Времени нет [03:14]
+02. Лавина [03:40]
+03. До дна [03:48]
+04. Невесомость [03:07](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:18:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EADBE58851F4BC26BD617EB1E384E379045E7C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468633   (1017071) от 08.05.2021
+
+Карандаш - KARAN (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1017071.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вера [03:22]
+02. Со мной катни [03:22]
+03. Привет [02:34]
+04. Бум биди бай бай [02:17](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:41:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C02F2FBA416C51E372516A3E32D40C7F8DCA9D50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1469777   (1016137) от 14.05.2021
+
+BOULEVARD DEPO, Jeembo - ОМОФОР (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ритуал [02:48]
+02. Manhunt [02:10]
+03. В.О.Л.К. [02:32]
+04. Металлолом [03:13](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:18:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DA5689C8B63F983BF8F61D3F3550EE90825A41C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1473851   (1013358) от 31.05.2021
 
 DMX - Exodus (2021) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop>
@@ -656,90 +743,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3261D007807B2145CB3587DEB9BD4E6769FE832
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360306   (960666) от 15.02.2020
-
-VA - 100 Greatest 90s Hip Hop (2020) [MP3|320 Kbps] <Hip Hop, Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960666.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Notorious B.I.G. - Juicy (2005 Remaster)
-02. Ol' Dirty Bastard - Brooklyn Zoo
-03. Junior M.A.F.I.A. - Get Money
-04. Del tha Funkee Homosapien - Mistadobalina(   Читать дальше...   )Жанр: Hip Hop, RapПродолжительность: 06:57:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7475D1CBB411C6CA551587BAE6C1875E5FCD03A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360622   (959449) от 16.02.2020
-
-Ресторатор - Непопулярное мнение (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959449.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Прелюдии (3:04)
-02. Назло (feat. ChipaChip) (4:20)
-03. Ревность (feat. Zorin) (3:11)
-04. Cпасательный круг (2:44)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:26:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:332935BD2B4919B83E4AAD185A27523777D97EAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360623   (959394) от 16.02.2020
-
-Макс Корж - 2 Типа Людей (2019) Single [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959394.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2 Типа Людей (4:16)Жанр: Rap, Hip-HopПродолжительность: 00:04:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D9B80EC16E43935630F234B3F48AFFC4CFB32DA
 ```
 
 https://mybot314.ru/tekegram_catalog/

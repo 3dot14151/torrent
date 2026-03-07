@@ -1,3 +1,32 @@
+###  Публикация: 1011376   (796603) от 27.04.2016
+
+Scorpions - 25 Best Songs (2016) [MP3|~245 кб/с (V0)] <Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796603.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad Boys Running Wild (03:57)
+02. Rhythm Of Love (03:48)
+03. Wind Of Change (05:14)
+04. Love Will Keep Us Alive (04:33)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:58:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0CFDBC2D390BFE9FD14BC281AA798633C433491
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1508913   (796219) от 10.11.2021
 
 VA - Autumn Rock Fest (2021) [MP3|320 Kbps] <Rock, Alternative>
@@ -716,35 +745,6 @@ VA - Return To The 80's and 90's (2018) [MP3|320 Kbps] <Metal, Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0CCED365971C0B7A778C8CF2DEFFF285F3EFBA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511859   (788373) от 22.11.2021
-
-Rolling Stones - Atlantic City '89 (feat. E. Clapton, J. Lee Hooker, Axl & Izzy)(1990) Bootleg 3cd-box [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788373.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paint It Black
-02. 2000 Light Year From Home
-03. Sympathy For The Devil
-04. Gimme Shelter(   Читать дальше...   )Жанр: RockПродолжительность: 02:35:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F038E683F2B3AF1B0D2D86BC3CB1604D602A1642
 ```
 
 https://mybot314.ru/tekegram_catalog/

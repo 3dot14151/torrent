@@ -1,3 +1,32 @@
+###  Публикация: 570387   (389891) от 05.11.2012
+
+Carter Burwell - Seven Psychopaths (Семь психопатов) (2012) [MP3|320 кб/с]<OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_389891.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Angel of Death (1:47)
+2. The First Cut Is The Deepest (3:15)
+3. The Quaker (4:01)
+4. Berlioz: Strophes 'Premiers Transports Que Nui N'oblie'Жанр: OSTПродолжительность: 00:57:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC4993B2A16F238A339E2DA37C3669AC94A7B766
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1173549   (389699) от 12.10.2017
 
 Logos (Stephen Sicard) - Le Temps des Archanges (2017) [MP3|320 Kbps] <New Age, Ambient>
@@ -720,35 +749,6 @@ Constance Demby - Attunement (2000) [FLAC|Lossless|tracks + .cue] <NewAge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC8FF65AD57F7C8D71142FA8F8865F7FD7BB86B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253547   (381762) от 10.10.2018
-
-Constance Demby - Skies Above Skies (1978) [FLAC|Lossless|tracks + .cue] <NewAge>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Om Mani Padme Hum (09:58)
-02. Endless (08:59)
-03. Peace of God (11:55)
-04. El Mie (08:10)(   Читать дальше...   )Жанр: NewAgeПродолжительность: 00:58:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EABAFEE5B7AD9561BDA8B0F0FA4C03507C42668
 ```
 
 https://mybot314.ru/tekegram_catalog/

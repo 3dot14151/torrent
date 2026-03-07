@@ -1,3 +1,32 @@
+###  Публикация: 50989   (781784) от 18.06.2020
+
+Николай Парфенюк - Собрание заблуждений - 2000
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. C'est La Vie 03:39
+02. Рыжики 02:05
+03. Амазонки 04:28
+04. Сожаление 03:39(   Читать дальше...   )Продолжительность: 58:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6ACD075A39AD69186509EED7A2A30F27814DAD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 185059   (781495) от 13.05.2010
 
 VA - New Crystal Vibrations. Compilation 1 - 11 (2010) [MP3|192-320 kbps]<New Age, Ambient>
@@ -713,35 +742,6 @@ Hennie Bekker - The Smoke That Thunders (1997) Holborne [MP3|320 Kbps] <New Age,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B6EB258D4886EC41C347EF40CA3D8709F86CB6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210411   (778712) от 03.03.2018
-
-Hennie Bekker - Jabula (The Joyful Spirit Of Southern Africa) (1998) Avalon Music [MP3|320 Kbps] <New Age, Tribal, African>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778712.jpg" />
-</div>
-
-
-###  Подробнее
-
-Канадский мульти-инструменталист Hennie Bekker начинал свою карьеру в Лондоне, как гитарист в местой музыкальной команде, игравшей на дискотеках и вечеринках. Однако вскоре он стал тяготеть к исполнению классических мелодий, попробовав себя в качестве пианиста и аранжировщика музыки к документальным фильмам на BBC и National Geographic. Композитор много путешествовал (   Читать дальше...   )01. Helelele 4:30
-02. Swazi Sunset 4:55
-03. Rain Dance 5:15
-04. Mbira Song 3:47(   Читать дальше...   )Жанр: New Age, Tribal, AfricanПродолжительность: 00:54:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D22DE30E604774C5939C4F1A0591B74593D8714
 ```
 
 https://mybot314.ru/tekegram_catalog/

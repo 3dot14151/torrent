@@ -1,3 +1,119 @@
+###  Публикация: 1248636   (439641) от 21.09.2018
+
+Ray Conniff - Рэй Коннифф в Москве (1974, 2007) [FLAC|Lossless|tracks + .cue] <Instrumental, Easy Listening>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_439641.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Рэй Коннифф в Москве (Ray Conniff In Moscow)
+02. Не спеши (Hurry Not)
+03. Мелодия (Melody)
+04. Маленький принц (A Little Prince)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:31:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:944A071AE85682CB1E3F4309ACB0D512415B6BD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 944954   (438312) от 08.10.2015
+
+Janet Jackson - Unbreakable (2015) [FLAC|tracks]<Pop, Soul, RnB>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_438312.jpg" />
+</div>
+
+
+###  Подробнее
+
+[3:38] (01) Unbreakable
+ [4:10] (02) BURNITUP! (feat. Missy Elliott)
+ [3:55] (03) Dammn Baby
+ [4:18] (04) The Great Forever(   Читать дальше...   )Жанр: Pop, Soul, RnBПродолжительность: 01:04:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8462D4A8B680029E5F0F34524FE1D2BD51656518
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 944957   (438058) от 08.10.2015
+
+Celine Dion - Loved Me Back To Life (2013) Deluxe Edition [FLAC|tracks + .cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_438058.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Loved Me Back to Life [3:51]
+02. Somebody Loves Somebody [3:42]
+03. Incredible (duet with Ne-Yo) [3:56]
+04. Water and a Flame [3:42](   Читать дальше...   )Жанр: PopПродолжительность: 01:00:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B909EC02CAC0384E9DC58EEEB24906C6F1AF1AD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1322904   (437698) от 03.09.2019
+
+Flora Cash - Press [EP] (2019) [FLAC|Lossless|tracks] <Alternative pop, Indie folk, Dream pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_437698.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Indie on Loud (3:25)
+02. They Own This Town (3:46)
+03. I Wasted You (3:42)
+04. You're Somebody Else (3:39)(   Читать дальше...   )Жанр: Alternative pop, Indie folk, Dream pop, Folk music, Indie popПродолжительность: 00:17:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8472A2EAD51D02BA55150391BDCE1FDF95CF7D62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1249421   (436008) от 23.09.2018
 
 Greyson Chance - Hold on 'til the Night (2011) [FLAC|Lossless|tracks + .cue] <Pop>
@@ -630,122 +746,6 @@ Lady Gaga - Joanne (2016) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Pop, Ele
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0FB7CD6B2DB376FED10F11F6F682C079FE061210
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411620   (423155) от 27.09.2020
-
-Will Butler - Generations (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Outta Here (04:44)
-02. Bethlehem (03:31)
-03. Close My Eyes (04:30)
-04. I Don't Know What I Don't Know (03:30)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:44:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABAA2FD53012F31AA38803BBACB94CE3BBBCFC14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947015   (422563) от 15.10.2015
-
-Julio Iglesias - Mexico (2015) [FLAC|image+.cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422563.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Usted
-02. Jurame
-03. Ella
-04. Fallaste Corazon(   Читать дальше...   )Жанр: PopПродолжительность: 00:46:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:505B61DD873DEE50A50D69A954582572CF3D7520
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250391   (422141) от 29.09.2018
-
-Cher - Dancing Queen (2018) Warner Bros. Records [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422141.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dancing Queen (3:43)
- 02. Gimme! Gimme! Gimme! (A Man After Midnight) (4:11)
- 03. The Name of the Game (4:49)
- 04. SOS (3:22)(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:410B91F45800DDEB2F8E2C6D56656F6C2ACECE17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167023   (421920) от 18.09.2017
-
-Emily Haines (of Metric) & The Soft Skeleton - Choir of the Mind (2017) [FLAC|Lossless|tracks] <Alternative Pop, Acoustic Indie Rock, Piano>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421920.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Planets
-02. Fatal Gift
-03. Strangle All Romance
-04. Wounded(   Читать дальше...   )Жанр: Alternative Pop, Acoustic Indie Rock, PianoПродолжительность: 00:59:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF36EB4B6BA52E4882469B7D742CF7472C81AC5D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1631902   (254533) от 07.05.2023
+
+Delerium - Signs (2023) [FLAC|Lossless|image + .cue] <New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_254533.jpg" />
+</div>
+
+
+###  Подробнее
+
+Signs — это шедевр гипнотических ритмов и обволакивающей атмосферы с потрясающими вокальными партиями Мими Пейдж, Филдел, Инны Уолтерс и KANGA. Уникальный голос каждого певца возвышает Знаки, добавляя новые уровни болезненной красоты и романтизма.01. Falling Back To You (feat. Mimi Page)
+02. Rain
+03. Coast To Coast (feat. Phildel)
+04. Sun Storm(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:56:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5D30AFE2F4ACC66B835CCA1C7FD34793DC58127
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 497661   (253546) от 16.05.2012
 
 Казачий круг - Антология  (2005 - 2007) [MP3|224-256 кб/с]<Folk Казачья песня>
@@ -761,38 +790,6 @@ David Lynch - 8 albums (1998-2011) [FLAC|Lossless] <Ambient, Alternative Rock, E
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 492009   (246489) от 04.05.2012
-
-Cawatana - 4 albums (2003-2010) [mp3|192-320 kbps] <Neofolk, Apocalyptic Folk, Neoclassical>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Live Silently (04:00)
-02. Regret (04:37)
-03. The Purpose (04:32)
-04. In The Final Hour (04:55)
-05. Sacrifice In Vain (02:28)
-06. Over Stray Thoughts (03:42)
-07. Unburied Hopes (04:14)2003-2010Жанр: Neofolk, Apocalyptic Folk, NeoclassicalПродолжительность: 00:28:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85008F1DD00A0DA3C38DBE9D3C1697E53E98C429
 ```
 
 https://mybot314.ru/tekegram_catalog/

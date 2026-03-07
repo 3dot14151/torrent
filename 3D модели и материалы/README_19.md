@@ -1,3 +1,84 @@
+###  Публикация: 1241450   (520041) от 17.08.2018
+
+3D модели - Cubebrush - Audi A8 2019 [MAX, 3DS, FBX, OBJ]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_520041.jpg" />
+</div>
+
+
+###  Подробнее
+
+3d модель автомобиля марки AudiФормат: MAX, 3DS, FBX, OBJ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D7ABB542C85E62EBC24BF4840AD8F5A41E38627
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314384   (518956) от 14.07.2019
+
+3D модели - Daz 3D - Teen Jane 8 Pro Bundle - 62093 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_518956.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплект Teen Jane 8 для DAZ 3D из категории People.
+Для Genesis 8Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:555B8344A9A15B49856C939B722237E1101EE96B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237898   (518903) от 18.08.2018
+
+3D модели - 3ddd - Free models pack 2018 (Update) [Corona|V-Ray|*.max, FBX, OBJ]
+
+>>След.
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_518903.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник моделей с сайта 3ddd/3dsky
+Данный же сборник содержит большое количество самых разнообразных моделей со статусом FREE.
+Количество моделей: 1006Формат: Corona|V-Ray|*.max, FBX, OBJ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:649E5EC84AD8FB291C104197EDD25C2A4A0FE95B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1314505   (518850) от 14.07.2019
 
 3D модели - Evermotion - Archmodels vol. 148 [V-Ray|*.max]
@@ -592,84 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F4D4CC081FAE4BFDB815B6175F43F91ABE511A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243347   (493806) от 26.08.2018
-
-3D модели - TurboSquid - F1 Renault RS17 2017 - 1138353 [MAX, OBJ, FBX]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493806.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки RenaultФормат: MAX, OBJ, FBX
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B895560DE78B969E9B5B14A04877F8B0507C9BA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243362   (493681) от 26.08.2018
-
-3D модели - Hum3D - BMW 8 Series (G15) M850i coupe 2019 [V-Ray|*.max, 3DS, C4D, FBX]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493681.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки BMWФормат: Mental Ray|Scanline|V-Ray|*.max, 3DS, C4D, FBX, LWO, OBJ, MB, STL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56C30A9C0F26459D984CF37AB3BBAE3F4CB25203
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243934   (485946) от 30.08.2018
-
-3D модели - Cubebrush - Toycar Pack [Mental Ray|*.max, FBX, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485946.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция игрушечных автомобилей из 8 видов. С высокой детализацией полигонов моделей. Render: mental ray включает текстуру для 3 автомобилей.Формат: Mental Ray|*.max, FBX, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B50F1DF81671B3C39B87AA7E3EF02142774349E
 ```
 
 https://mybot314.ru/tekegram_catalog/

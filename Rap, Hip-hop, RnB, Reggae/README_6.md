@@ -1,3 +1,90 @@
+###  Публикация: 1368592   (909206) от 20.03.2020
+
+Pop Smoke - Meet The Woo (2019) [MP3|320 Kbps] <Rap, Hip-Hop, Drill>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_909206.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meet the Woo [02:01]
+02. Welcome To The Party [03:35]
+03. Hawk Em [01:59]
+04. Better Have Your Gun [03:20](   Читать дальше...   )Жанр: Rap, Hip-Hop, DrillПродолжительность: 00:27:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8E8985653FDCB4FEEE88FF511B2E0A63434C653
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368596   (909190) от 20.03.2020
+
+Pop Smoke - Meet The Woo 2 (2020) [MP3|320 Kbps] <Rap, Hip-Hop, Drill>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_909190.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Invincible [02:08]
+02. Shake The Room (feat. Quavo) [02:46]
+03. Get Back [01:48]
+04. Christopher Walking [03:11](   Читать дальше...   )Жанр: Rap, Hip-Hop, DrillПродолжительность: 00:34:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC01567B3805E720ABECE551979DE9B6F55B6094
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368652   (908945) от 20.03.2020
+
+Drummatix - На горизонте (2020) [MP3|320 Kbps] <Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_908945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. В Долгий Путь (2:45)
+02. На Горизонте (4:15)
+03. Проснись (feat. Типси Тип) (3:12)
+04. Летать (3:26)(   Читать дальше...   )Жанр: Hip-HopПродолжительность: 00:28:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACA5AFA3FA12E6B8DB05454FEC2D083F724A3381
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1368799   (907091) от 21.03.2020
 
 Ян Sun - Сердце Спрута (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -658,93 +745,6 @@ Jessie Reyez - BEFORE LOVE CAME TO KILL US (2020) [FLAC|Lossless|WEB-DL|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA4E7B3676F45ED6115F72211192207E65D0A471
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370627   (895294) от 28.03.2020
-
-N.Masteroff - Все мечты давно сгорели (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895294.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вдаль-высоко [02:48]
-02. Подорву! [02:19]
-03. На века [02:46]
-04. Не в обиду [02:04](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:23:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:130F808C49C395B06DCB3DD0523F1BD155328F93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370788   (895284) от 28.03.2020
-
-Эскимос Crew - Тяжёлая вода (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895284.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. В руке драп зажат (feat. Nemoy Djo) [03:12]
-02. Комната [02:36]
-03. Запой [03:12]
-04. Пропал [02:48](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:06:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46E24DEB9AD0E2585CC4DE4840BFEF2D8E577A4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370779   (895268) от 28.03.2020
-
-Овраг подпольщиков - Овраглэнд (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895268.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро [01:04]
-02. Руки в гору [04:30]
-03. Пропал человек [04:01]
-04. Полёт над городом [03:34](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:27:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFA38B886C6EF34B1671FC487803CB4862AF90E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

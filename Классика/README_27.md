@@ -1,3 +1,32 @@
+###  Публикация: 1044210   (566569) от 19.08.2016
+
+VA - Шедевры Классики В Современной Обработке (2016) [MP3|320 Kbps] <Классика, Classic>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_566569.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wagner - Also schprech Zarathustra (Ventura)
+02. Rimsky-Korsakov - Fly of the bumble bee (Steinberg)
+03. Bach - Suite nr.2 A joke (Last)
+04. Cirelli-Giocco - Rondo veneziano (Zamfir)(   Читать дальше...   )Жанр: Классика, ClassicПродолжительность: 04:50:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6C836B33F65FA15BB736BF3D0D90B2453E8CA70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 923042   (566440) от 30.07.2015
 
 Mozart - Symphonies No.9 & No.19, Piano Concerto No.27 (Bernhard Paumgartner & Salzburg Mozarteum Camerata Academica) (1992) [FLAC|image +.cue]<Classical, Orchestral, Symphony>
@@ -729,35 +758,6 @@ Lindsey Stirling - Shatter Me (2014) Limited Edition, 2015, Lindseystomp Music [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F7073F492EB31054D8425FC069695C27A513B98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049032   (545456) от 03.09.2016
-
-Lindsey Stirling - Brave Enough (2016) Deluxe Edition [FLAC|Lossless|image + .cue] <Classical Crossover, Pop, Electronic, Dubstep, Violin>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545456.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lost Girls - 4:35
-02. Brave Enough (feat. Christina Perri) - 4:23
-03. The Arena - 3:52
-04. The Phoenix - 4:04(   Читать дальше...   )Жанр: Classical Crossover, Pop, Electronic, Dubstep, ViolinПродолжительность: 01:11:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0648761C7A93C9C6CB978473DC70A2DD0AEF9601
 ```
 
 https://mybot314.ru/tekegram_catalog/

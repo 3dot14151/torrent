@@ -1,4 +1,91 @@
 https://t.me/izofen
+###  Публикация: 1857432   (1059677) от 
+
+VA - Progressive Trance Awakening, Vol. 11 (2026) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1059677.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ant. Shumak - Paradise Gate (Original Mix) [4:40]
+02. Interstellar{TN} - Last Breath (Radio Edit) [3:55]
+03. Hiddeminside & Emarie - Your Love For Me (2025 Remake) [7:25]
+04. Axxound - Not Alone (Extended Mix) [6:40](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:08:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF0CA4DBEC1C903A5721DEB2B54EC8D3C55996CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857205   (1059599) от 04.03.2026
+
+VA - Trance Winter 2026 (2026) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1059599.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Actor - Particles (Extended Mix) [6:02]
+02. Mazeev - Ad Astra (Original Mix) [6:13]
+03. Shelby Burnout & Edith Crosby - Anticu Guerrieru (Amuri Militari) (Extended Mix) [7:52]
+04. Polzn Bladz - End Of An Error (Extended Mix) [7:54](   Читать дальше...   )Жанр: TranceПродолжительность: 02:12:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AC2B1EA22906F388923754FC912F8EF379C80BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856472   (1059247) от 03.03.2026
+
+Armin van Buuren - A State of Trance 001-050 (2001-2002) [MP3|192 Kbps] <Trance, Progressive House, Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1059247.jpg" />
+</div>
+
+
+###  Подробнее
+
+A State of Trance 001:
+01. Warrior – Voodoo
+02. Munity – Secrets
+03. Joker Jam – Innocence(   Читать дальше...   )Жанр: Trance, Progressive House, Progressive TranceПродолжительность: 23:39:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85EEDCDA42B1A4A3756917B14C9FFDE8A198B21B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1856547   (1059105) от 28.02.2026
 
 VA - The Sound of 2026, Chapter 1: Toronto (Night Mix) (2026) [MP3|320 Kbps] <Trance, Progressive, Electronic>
@@ -658,93 +745,6 @@ VA - Levitated Trance - Highlights 2025 (2026) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0429E141382DE36F3E0D12A8E2252AEEE02DF5CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848588   (1052925) от 18.01.2026
-
-VA - Silent Shore Trance - Highlights 2025 (2026) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052925.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul Boyle - Top Drive (Extended Mix) [7:13]
-02. Giuseppe Greco - Another Life (Gadolan Extended Remix) [6:34]
-03. Alternate High - First Wave (Extended Mix) [6:57]
-04. Gadolan - Astral Echoes (Extended Mix) [6:34](   Читать дальше...   )Жанр: TranceПродолжительность: 01:33:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4947CF787A2704BDE1E5CC0B8A0579186CB4FBF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848329   (1052778) от 16.01.2026
-
-VA - Black Hole Trance Music 01-26 (2026) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052778.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Solarstone, Susie Ledge & Leon Bolier - Star (Solarstone & Leon Bolier Starburst 12" Mix) 04:37
-02. Avenue One & Saya (Ca) - Remember The Light (Extended Mix) 05:14
-03. Ciaran Mcauley & Sarah Howells - Fool's Gold (Extended Mix) 04:50
-04. C-Systems & Clara Yates - Love In My Veins (Extended Mix) 05:35(   Читать дальше...   )Жанр: TranceПродолжительность: 02:34:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55700BA87CFC0BB1B20F0926B0782AD680698F1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848457   (1052668) от 17.01.2026
-
-VA - Progressive Trance Awakening, Vol. 10 (2026) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052668.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eddie Lung & Jon Fayer - Feel My Love (Original Mix) [3:12]
-02. Mesonn - Artifact (Original Mix) [3:38]
-03. Adam Morris - Now I'm Free (Extended Mix) [6:33]
-04. Mark Well - Take Back Control (Original Mix) [4:38](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:05:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2FB7A8C5A0C59132EE5ECD7621CADAA6D527FAE
 ```
 
 https://mybot314.ru/tekegram_catalog/

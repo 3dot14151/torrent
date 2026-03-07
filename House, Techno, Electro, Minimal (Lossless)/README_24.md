@@ -1,3 +1,119 @@
+###  Публикация: 1278853   (767857) от 27.01.2019
+
+VA - Experimenta (1994) A13 [FLAC|Lossless|tracks+.cue] <Electro, IDM, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_767857.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Drax - Middle Earth (05:20)
+ 02. Connective Zone - Amecia (05:09)
+ 03. Terrace - Intervalid (06:10)
+ 04. Tura - Letter (05:19)(   Читать дальше...   )Жанр: Electro, IDM, TechnoПродолжительность: 01:18:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73313D3DF786E9F8BB1C4777CD74CAA61C589219
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278803   (767678) от 27.01.2019
+
+Royal Gigolos - California Dreamin' (2004) [FLAC|Lossless|tracks + .cue] <House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_767678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. California Dreamin' (Tek-House Single) (3:34)
+02. California Dreamin' (Clubhouse Single) (3:29)
+03. California Dreamin' (Tek-House Extended) (4:46)
+04. California Dreamin' (Clubhouse Extended) (5:01)(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 00: 21:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93F2FD11F3BB39B059D777D8431E51AFC5A633EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213929   (766593) от 19.03.2018
+
+Audub - Discography 4 Releases (2013-2017) [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Deep Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_766593.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little Things (06:28)
+ 02. Negative Space (07:49)
+ 03. Abstract Landscape (07:46)
+ 04. Negative Space (Hydergine Remix) (06:19)Тип издания: WEBЖанр: Dub Techno/TechnoПродолжительность: 00:28:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90462CCCDE63AA197DB68BDC125C277A0CFE6083
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126294   (766329) от 17.04.2017
+
+VA - Recline Music: The Remixes (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_766329.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nicco (ND) - It's Over (Oxia remix) (07:50)
+02. Nicco (ND) - It's Over (Timid Boy remix) (09:22)
+03. Mirco Violi - Gil's Jazz Theory (Anonym's Ass Music mix) (07:13)
+04. Nick Detti - I Do It Good (Mic Newman remix) (07:02)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 03:55:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:302A601880D2E8F3B9D6973689687F07555890D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1521350   (766102) от 01.01.2022
 
 VA - Anjunadeep. The Remixes 2021 (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Deep House, Tech House>
@@ -627,122 +743,6 @@ Downscope - Sojourn in Canaan (2019) alternating.bit music [FLAC|Lossless|WEB-DL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93E56A8E122D1D70FBFCBC2375EC8E69756F791B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215797   (756735) от 27.03.2018
-
-Dirty Vegas - Electric Love (2011) Om Records [FLAC|Lossless|tracks + .cue] <House, Pop>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756735.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Little White Doves (3:40)
- 02. Changes (3:34)
- 03. Electric Love (2:40)
- 04. Emma (3:49)(   Читать дальше...   )Жанр: House, PopПродолжительность: 00:36:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5AAA5782B12807E3D6548ECB5D89D117A9E24A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215770   (756616) от 27.03.2018
-
-Andrea Cossu - Spira (2018) TGP [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756616.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mineral Minds (feat. TVS) (05:46)
-02. Mechanic Fly (08:40)
-03. Atlàntida Dos (08:39)
-04. F.U. (07:52)(   Читать дальше...   )Жанр: Techno, AmbientПродолжительность: 01:06:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EB57E1E6DC3B6E8CFFB2B351874ED8D004EE463
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215657   (756604) от 27.03.2018
-
-The Mover - Undetected Act from the Gloom Chamber (2018) Planet Phuture [FLAC|Lossless|WEB-DL|tracks] <Techno, Experimental>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756604.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dark Comedown (06:16)
- 02. Stars Collapse (07:32)
- 03. Stealth (06:23)
- 04. Shadow Deception (06:32)(   Читать дальше...   )Жанр: Techno, ExperimentalПродолжительность: 00:54:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07927C41A8D8C6570CEF338F139968EE2E52B84A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395161   (755281) от 10.07.2020
-
-Boris Brejcha - Live Stream Mix (Continuous Mix) (2020) [FLAC|Lossless|WEB-DL|image] <Tech House, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755281.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Cocoloco (Mixed) (6:47)
-2. Face Slap (Mixed) (7:00)
-3. Panic Room (Mixed) (5:46)
-4. Eternity (Mixed) (5:23)(   Читать дальше...   )Жанр: Tech House, MinimalПродолжительность: 00:52:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6416FDD794C3C90BA55167FFFE9EB650669BB2DA
 ```
 
 https://mybot314.ru/tekegram_catalog/

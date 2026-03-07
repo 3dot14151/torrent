@@ -1,3 +1,32 @@
+###  Публикация: 1159230   (486250) от 19.08.2017
+
+Guru Guru - Guru Guru (1973) Reissue, 1997, Repertoire Records [MP3|320 Kbps] <Prog Rock, Krautrock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_486250.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Samantha's Rabbit
+2. Medley
+3. Woman Drum
+4. Der Elektrolurch(   Читать дальше...   )Жанр: Prog Rock, KrautrockПродолжительность: 00:42:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B177749E1DC389BA99C764547C88C68BA3919787
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 545345   (485368) от 10.09.2012
 
 Buck Dharma - BD Archive 3CD (2000) [MP3|320 кб/с]<Rock>
@@ -744,35 +773,6 @@ Pianoбой - The Best Of (2020) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A3C9D7EEF8B9F8EC82DC3EAD46F448ACBD57113
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940013   (471626) от 23.09.2015
-
-Rosie Valland - Partir Avant (2015) [MP3|320 кб/с]<Pop Rock, Indie-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471626.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oublier
-02. Rebound
-03. Partir Avant
-04. Olympe(   Читать дальше...   )Жанр: Pop Rock, Indie-RockПродолжительность: 00:37:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5443919A0D6C9FE429C2D415DA894EAD5FC113EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

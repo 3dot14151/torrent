@@ -1,3 +1,32 @@
+###  Публикация: 1035549   (626378) от 17.07.2016
+
+Andy Hull and Robert McDowell - Swiss Army Man / Человек – швейцарский нож (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626378.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro Song (feat. Paul Dano) (02:27)
+02. Where Did You Come From? (feat. Paul Dano) (02:43)
+03. Cave Ballad (feat. Paul Dano) (01:46)
+04. Hank Drinks (01:28)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:47:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:365BBB2C96BBD2A022A81AA2593797BC196FE300
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1035552   (626241) от 17.07.2016
 
 Andy Hull and Robert McDowell - Swiss Army Man / Человек – швейцарский нож (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
@@ -746,35 +775,6 @@ Patty Loveless - Mountain Soul (2001) [FLAC|Lossless|image + .cue] <Country, Blu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A49B19CAC1F32A6FC5167E752529BB56389F548
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 803307   (621019) от 09.07.2014
-
-Marc Shaiman - Семейка Аддамс / The Addams Family (2014 (1991)) [FLAC|Lossless]<Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Carol of the Bells* / The Fa-La-La Song** / Deck the Halls**
- 02 - Main Title#
- 03 - Morning
- 04 - Chess*(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:10:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B7F3B646B2FBA84E5FD25A38657D22B8B546D93
 ```
 
 https://mybot314.ru/tekegram_catalog/

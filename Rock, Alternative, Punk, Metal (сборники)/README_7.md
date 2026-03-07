@@ -1,3 +1,32 @@
+###  Публикация: 1370821   (891661) от 30.03.2020
+
+Rammstein - Remixes (2020) [MP3|320 Kbps] <Industrial Metal, Neue Deutsche Harte>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891661.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. du riechst so gut (scal remix) (04:45)
+02. rammstein in the house (the timewriter remix) (06:24)
+03. du riechst so gut ('98) (04:24)
+04. du riechst so gut (remix by faith no more) (01:57)(   Читать дальше...   )Жанр: Industrial Metal, Neue Deutsche HarteПродолжительность: 05:41:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A28DCB8A040E3E1B37FBC13C26546C266950CD39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1371773   (888349) от 01.04.2020
 
 Carlos Santana - 100% Carlos Santana (2020) [MP3|320 Kbps] <Pop, Rock, Latin>
@@ -719,35 +748,6 @@ VA - Русский Рок ревью 2020 [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33DF4EDEBCBA5494A7B0060FA412E7E7B2769A05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374390   (872985) от 10.04.2020
-
-VA - Advanced Rock (2020) [MP3|320 Kbps] <Rock, Punk, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872985.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dayseeker - Already Numb
-002. Dylan Leblanc - I See It In Your Eyes
-003. Temples - It's All Coming Out
-004. Scott Lavene - Modern World(   Читать дальше...   )Жанр: Rock, Punk, AlternativeПродолжительность: 06:37:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD4778B0B4752F386767CD33CCB73C6ADDBE2D24
 ```
 
 https://mybot314.ru/tekegram_catalog/

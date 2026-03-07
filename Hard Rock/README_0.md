@@ -1,3 +1,32 @@
+###  Публикация: 1440035   (1039155) от 16.01.2021
+
+Miss Lava - Doom Machine (2021) [MP3|320 Kbps] <Hard Rock, Stoner>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fourth Dimension (03:44)
+ 02. In the Mire (03:52)
+ 03. Magma (01:10)
+ 04. Brotherhood of Eternal Love (05:45)(   Читать дальше...   )Жанр: Hard Rock, StonerПродолжительность: 00:56:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:334E1DF02358A36D3B873ED4EE7C363EC54DBA50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1440027   (1039117) от 16.01.2021
 
 John Diva & The Rockets Of Love - American Amadeus (2021) [MP3|320 Kbps] <Hard Rock, Glam>
@@ -716,35 +745,6 @@ Noora Louhimo Experience - Eternal Wheel Of Time And Space (2021) [MP3|320 Kbps]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:795C5713330A85F789063B7B928CCE87FC9C6FBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452809   (1027384) от 08.03.2021
-
-Laos - We Want It (1990) [MP3|320 Kbps] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027384.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Want It (02:46)
-02. Why Is a Good Love (03:43)
-03. Now That It's Over (04:15)
-04. Straight to the Top (03:18)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:40:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8361337B6C82D3361DD99EBE095172392471AF15
 ```
 
 https://mybot314.ru/tekegram_catalog/

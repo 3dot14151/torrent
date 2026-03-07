@@ -1,3 +1,32 @@
+###  Публикация: 1083546   (273638) от 16.12.2016
+
+Molly Valentine - Fantasyland (2016) [MP3|320 Kbps] <New Age, Neo-Classical>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273638.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 -  Luchia [00:05:01]
+02 -  Fantasyland [00:06:05]
+03 -  Quasi Una Fantasia [00:05:54]
+04 -  The Blue Whale vs. the Giant Squid [00:07:31](   Читать дальше...   )Жанр: New Age, Neo-ClassicalПродолжительность: 01:01:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A7BCE20829DC3007DC10ACE9FE130F218A3CEB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1083589   (273630) от 16.12.2016
 
 James Horner & Simon Franglen - The Magnificent Seven / Великолепная семерка (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
@@ -714,32 +743,6 @@ Blonker - The Sound Of Blonker (1995) 3CD-Box [MP3|320 Kbps] <Instrumental Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D555910EB0A744D121637AFE436A9D6C1E3E7CF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 499255   (270685) от 01.12.2018
-
-Геннадий Заволокин - Играй, Гармонь! - 12 альбомов (1994 - 2002) [MP3|224 кб/с]<Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270685.jpg" />
-</div>
-
-
-###  Подробнее
-
-В начале 90-х годов, американский миллионер Джим Роджерс, случайно став свидетелем съёмок передачи "Играй,гармонь!" в Находке, был потрясён этим инструментом и назвал Заволокина "русским Элвисом Пресли". Впоследствии он приезжал к нему и на дачу в Новосибирск, а затем пригласил Заволокина в Америку на фестиваль кантри-музыки в штат Алабама.Жанр: FolkПродолжительность: 13:00:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8263A2D7C966129913B3647B35926F84D07B0FDE
 ```
 
 https://mybot314.ru/tekegram_catalog/

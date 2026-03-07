@@ -1,3 +1,32 @@
+###  Публикация: 154210   (960618) от 25.01.2016
+
+VA - 100 Best Baroque  (2006) 6CD Box-set,  серия "Best 100" [FLAC|Lossless]<Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_960618.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот Box-Set из 6 CD представляет собой всесторонний обзор музыки барокко и может служить прекрасным "пособием" для тех, кто хотел бы узнать больше о стиле барокко. Здесь представлены лучшие произведения Баха, Генделя, Пёрселла, Вивальди, Скарлатти, Пахельбеля, Телемана, Боккерини и других композиторов... в исполнении Андрэ Морис, Арлин Оджер, Кристи Вильямс, (   Читать дальше...   )CD 1: ENGLAND AND THE BAROQUE
+CD 2: THE BEST OF ITALIAN BAROQUE
+CD 3: TREASURES OF THE MEDITERRANEAN BAROQUE
+CD 4: THE GLORY OF THE FRENCH BAROQUE(   Читать дальше...   )Жанр: ClassicalПродолжительность: 07:41:11
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 856416   (957505) от 05.01.2015
 
 VA - Klassiska Favoriter Opera (1996) 3CD [FLAC|Lossless]<Classical>
@@ -716,35 +745,6 @@ Federico Albanese - The Blue Hour (2016) [FLAC|Lossless|WEB-DL|tracks] <Modern C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3CD989538229046C68A5C9B8215575BBAA540C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984702   (938597) от 09.02.2016
-
-Strato-Vani - Ballroom 1 (2015) [MP3|320 кб/с] <Classical, Pop>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938597.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tanze mit mir in den morgen (Tango 32 BPM) (2:54)
-02. Hemelsblauw (Rumba 25 BPM) (3:28)
-03. Help Yourself (Samba 50 BPM) (2:46)
-04. You Are My Sunshine (Quickstep 50 BPM) (2:34)(   Читать дальше...   )Жанр: Classical, PopПродолжительность: 00:51:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18AAC15412C21ED54877DB4A1EBC0EE520156870
 ```
 
 https://mybot314.ru/tekegram_catalog/

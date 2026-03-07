@@ -1,3 +1,119 @@
+###  Публикация: 1809024   (10079) от 28.07.2025
+
+VA - Let's Talk About Sex (1992) [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_10079.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Salt-N-Pepa - Let's Talk About Sex (3:34)
+02. George Michael - I Want Your Sex (4:45)
+03. LaTour - People Are Still Having Sex (4:07)
+04. Right Said Fred - I'm Too Sexy (2:53)(   Читать дальше...   )Жанр: PopПродолжительность: 01:01:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:143DD67CA63B81A60EF37A7D4616E29DD03E49C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1809021   (10073) от 28.07.2025
+
+A-HA - Album Collection 5CDs (1985-1993) 1st German Press [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_10073.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+1985 - Hunting High And Low
+1986 - Scoundrel Days
+1988 - Stay On These Roads(   Читать дальше...   )Жанр: PopПродолжительность: 03:35:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2513A18957985D62F2012345F8A44369793E63F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1809049   (10060) от 28.07.2025
+
+VA - Global Pop Fusion (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_10060.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Teddy Swims - Bad Dreams (3:04)
+02. Ed Sheeran - Bad Habits (3:50)
+03. David Guetta - Forever Young (2:36)
+04. Melanie Martinez - Dead to Me (3:30)(   Читать дальше...   )Жанр: PopПродолжительность: 01:14:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFCBAE001D69C1F794A1CC767AC5CD420651522E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1809510   (9746) от 31.07.2025
+
+Rick Astley - Whenever You Need Somebody (1987) 1st German Press [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_9746.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Never Gonna Give You Up (03:36)
+02. Whenever You Need Somebody (03:57)
+03. Together Forever (03:29)
+04. It Would Take A Strong Man (03:45)(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62C33029C50DA4DE8ED0F0BBEC7006C84072B9C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1809511   (9739) от 31.07.2025
 
 Rick Astley - Hold Me In Your Arms (1988) 1st German Press [APE|Lossless|image + .cue] <Pop>

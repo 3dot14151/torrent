@@ -1,3 +1,252 @@
+###  Публикация: 1055884   (483781) от 24.09.2016
+
+Amphibious Zoo Music - Bayou Blues: Southern Fried Guitar Jams (2013) [MP3|320 Kbps] <Slide Guitar Blues, Instrumental>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_483781.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gator Baiter   (02:21)
+02. Ghetto Street Blues   (04:05)
+03. I'm Ok You Owe Me Money   (02:49)
+04. Whoowee   (02:08)(   Читать дальше...   )Жанр: Slide Guitar Blues, InstrumentalПродолжительность: 01:16:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FAB4FE99E2E15A09539A8093559A677B748DFF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405496   (483694) от 30.08.2020
+
+Jason Marsalis - Music Update (2008) ELM Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_483694.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Guess Who's Back? [1:10]
+02. Offbeat Personality [6:08]
+03. Ballet Class [4:27]
+04. Discipline Returns Once Again [3:56](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:54:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:318C7B2736AC8E87E96D541151F5CC3E5637C069
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405494   (483692) от 30.08.2020
+
+George Cables Trio - Skylark (1995) 1996, SteepleChase [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_483692.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fungii Mama [6:26]
+02. Fee-Fi-Fo-Fum [9:37]
+03. Manha de Carnival [7:40]
+04. Skylark [8:21](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 01:07:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1239117831B218BEEC55AAC8A5C22FC34B1D13B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405647   (483383) от 30.08.2020
+
+Bobby Rush - Rawer Than Raw (2020) [MP3|320 Kbps] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_483383.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Down in Mississippi (03:23)
+ 02. Hard Times (03:51)
+ 03. Let Me in Your House (05:17)
+ 04. Smokestack Lightning (04:48)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10C0D5E01C775B9DCFC96A0FB82730F60E04BF80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405653   (483373) от 30.08.2020
+
+Walter Trout - Ordinary Madness (2020) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_483373.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ordinary Madness (06:46)
+ 02. Wanna Dance (04:30)
+ 03. My Foolish Pride (05:55)
+ 04. Heartland (04:26)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:57:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A323CA59109967DE4DD317B9868A6B61422CC32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 545731   (483342) от 11.09.2012
+
+Bo Wilson Band - Magic Man (1996) [APE|Lossless]<Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_483342.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Magic Man
+02. Chevrolet
+03. I’m Tore Down
+04. Trick Bag
+05. Boogie Man
+06. Stormy Monday
+07. Don’t Take Advantage Of Me
+08. Statesboro Blues
+09. Shake The Room
+10. If You Have To Know(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:50:57
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 545681   (483338) от 11.09.2012
+
+BlueShot - Crack the Seal (2006) [APE|Lossless]<Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_483338.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Land of the Tall (Intro)
+02. It's so easy
+03. Train gone blues
+04. Hey baby (naked love)
+05. Crossroads (acustic)
+06. Crossroads
+07. Break down
+08. Indian blues
+09. Save me
+10. Home(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:58:20
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 545442   (483125) от 11.09.2012
+
+Bobby Hutcherson - Wise One (2009) [FLAC|Lossless]<Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_483125.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бобби Хатчерсон (Bobby Hutcherson, род. 27.01.1941, Лос-Анджелес) - американский джазовый вибрафонист. Рос в Пасадене (Калифорния), с 8 лет играл на фортеапино. Перешел на вибрафон, услышав записи Милта Джексона. Учился у Дэйва Пайка, подрабатывая в местных клубах. Стал известным после записи с Эриком Долфи (Out To Lunch, 1964).01. Wise One :: 07:52
+02. Like Sonny :: 05:50
+03. Aisha :: 05:10
+04. Equinox :: 05:30
+05. All Or Nothing At All :: 06:58
+06. Nancy (With The Laughing Face) :: 04:36
+07. Spiritual :: 06:42
+08. Out Of This World :: 06:17
+09. Dear Lord :: 04:59Жанр: Jazz, Post-BopФормат: CD, AlbumПродолжительность: 00:53:58
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 545719   (483123) от 11.09.2012
 
 Bo Weavil - Split-Up Blues (2009) [FLAC|Lossless]<Blues>
@@ -532,243 +781,6 @@ Tommy Z - Sometimes (2013) [FLAC|Lossless|image + .cue] <Blues Rock, Electric Bl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E64999C56CA485B7067750F4464CBDFAFDC6FDAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405807   (481496) от 31.08.2020
-
-Kid Ory's Creole Jazz Band - Tailgate! (1944, 1945) 2007, Membran Music [FLAC|Lossless|tracks + .cue] <Dixieland, Revival, New Orleans Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481496.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Creole Song [2:48]
-02. Get Out Of Here [2:48]
-03. Blues For Jimmie Noone [3:07]
-04. South [2:48](   Читать дальше...   )Жанр: Dixieland, Revival, New Orleans JazzПродолжительность: 00:48:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:610BA6E946D6E79922746DA7103D2161129A2C56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405815   (481486) от 31.08.2020
-
-Levi Platero - Levi Platero Band (2020) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481486.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Promise Land (03:26)
- 02. Dirt Road Blues (05:14)
- 03. My Name (05:23)
- 04. Good Man (04:27)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:04:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1721F130A850189EF9604512BEB7BB181C8F1E5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405808   (481481) от 31.08.2020
-
-G.E. Smith & LeRoy Bell - Stony Hill (2020) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Is The Color (03:09)
- 02. You And Me (04:37)
- 03. America (04:07)
- 04. Take Cover (03:53)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:45:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B43122C8E4420C18A29D5359F22FAECFD235B5C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319609   (481347) от 13.08.2019
-
-Charlie Biddle - In Good Company (1996) Justin Time [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481347.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. (Do You Know What It Means to Miss) New Orleans [5:44]
-02. Duck Soup [5:32]
-03. All of You [8:31]
-04. Blues for Charlie [6:25](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 01:05:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8698ABE12B2E2F273ADF4082D93790C5244FD06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 545954   (480622) от 12.09.2012
-
-Michel Petrucciani - Best Of - 3CD (2009) [FLAC|Lossless]<Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480622.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 3 Forgotten Magic Words (5:20)
-02. Pot Pourri (14:17)
-03. Say It Again And Again (9:50)
-04. To Erlinda (11:28)
-05. Morning Blues (8:20)
-06. Bimini (10:17)
-07. Contradictions (4:24)
-08. Looking Up (8:08)
-09. Le Bricoleur De Big Sur (3:25)Жанр: Post-Bop, Piano JazzПродолжительность: 03:37:46
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566668   (480558) от 30.07.2022
-
-Luiz Camporez - Standart Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trabalho, Álcool E Cafeína (5:09)
-02. Waking Life (5:02)
-03. Standart Blues (5:40)
-04. Illusions and Memories (8:42)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:37:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB2D5F159C99519B3BAA1A80A0B2CDFAA331904F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566667   (480557) от 30.07.2022
-
-Lars Kutschke - While We're Here (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480557.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chelsea Morning (4:32)
-02. I Want My Baby Back (4:51)
-03. Denise And The Nephew (6:08)
-04. Hummingbird (4:32)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA90308580A7D2FCCBF0704E1EA3998897FECCA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566664   (480550) от 30.07.2022
-
-Jaya Blues Band - Pesta (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480550.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lockdown Blues (3:32)
-02. Painted Angels (4:34)
-03. Another Way (5:39)
-04. Pesta (5:25)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:745DFDFDC1609F4A1482DB7798B67A2CFDC7224C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,233 @@
+###  Публикация: 1282472   (745452) от 12.02.2019
+
+Brian Gallagher - The Most Beautiful Girl In The World (1994) Single [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745452.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Most Beautiful Girl In The World (Saxophone Version) (04:32)
+02. The Most Beautiful Girl In The World (Vocal Version) (04:32)Жанр: Smooth JazzПродолжительность: 09:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6AEA78F0D55697080BE6335122B973FE82BB34C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282488   (745411) от 12.02.2019
+
+Bruut! - Bruut! (2012) [FLAC|Lossless|tracks + .cue] <Swing, Jazz-Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745411.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bounce (03:32)
+02. Bumper (02:48)
+03. Foxxy (05:17)
+04. Gospel (00:33)(   Читать дальше...   )Жанр: Swing, Jazz-FunkПродолжительность: 00:47:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:889A0446C0BB62C3F2AC11197510492C7692CE0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524261   (745271) от 15.01.2022
+
+Lennie Tristano - Concert In Copenhagen (1965) 1997, Jazz Records [FLAC|Lossless|tracks + .cue] <Bop, Cool, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745271.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Darn That Dream [5:22]
+02. Lullaby of the Leaves [3:08]
+03. Expressions [4:05]
+04. You Don't Know What Love Is [5:56](   Читать дальше...   )Жанр: Bop, Cool, Piano JazzПродолжительность: 00:39:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A64421D4133C7DA6E78233226B09E2336C828A6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524263   (745270) от 15.01.2022
+
+Vic Juris - Pastels (1996) SteepleChase [FLAC|Lossless|image + .cue] <Post-Bop, Contemporary Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Will Call [4:52]
+02. Sweet And Lovely [5:40]
+03. Mergatroid [6:22]
+04. Berlin [5:45](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Guitar JazzПродолжительность: 01:01:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E35237BB457B427A19573379249E8A8AF777363
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217166   (744880) от 03.04.2018
+
+Gerry Mulligan & Chet Baker - Carnegie Hall Concert (1974) 1987, Epic [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_744880.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Line For Lyons [08:15]
+02. For An Unfinished Woman [08:49]
+03. My Funny Valentine [08:41]
+04. Song For Strayhorn [09:27](   Читать дальше...   )Жанр: Cool, West Coast JazzПродолжительность: 01:10:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D483C35CC6CD96FFABAC53DA90492787DB91A0FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216988   (744878) от 03.04.2018
+
+Joanne Tatham - The Rings of Saturn (2018) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_744878.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Me or Leave Me
+02. Summer in New York
+03. Catch Me If You Can
+04. Poetry Man(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:47:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4D6D88E2A146EE0EF0770BE00F69B0DECD11C74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217168   (744761) от 03.04.2018
+
+Chet Baker & Art Pepper - Playboys (1956) 2012, Pacific Jazz [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_744761.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. For Minors Only [04:03]
+02. Minor Yours [06:45]
+03. Resonant Emotions [05:43]
+04. Tynan Time [05:33](   Читать дальше...   )Жанр: Cool, West Coast JazzПродолжительность: 01:07:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:750542A72859D4723DF9D4A819B762303C050911
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216972   (744636) от 03.04.2018
+
+Tommy Flanagan with the Wilbur Harden Quartet - Plays The Music of Rodgers & Hammerstein (1958) 1990, Savoy Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_744636.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Getting To Know You [04:05]
+02. My Lord And Master [04:15]
+03. Shall We Dance [06:10]
+04. Something Wonderful [02:35](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:47:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C0D135A4675E6EA7BF8A11972925B0086C1A3D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 665474   (744220) от 06.06.2013
 
 Frank Sinatra & Count Basie - The Complete Reprise Studio Recordings (2011) [FLAC|Lossless]<Vocal Jazz, Big Band>
@@ -507,238 +737,6 @@ Buddy De Franco - Sweet And Lovely (1956) Remaster, 2012, Universal [FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57D287D7FFF7C1A07691ED7045DAF82B59D161EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020721   (742512) от 28.05.2016
-
-Ron Carter / Cedar Walton Duo - Heart & Soul (1981) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742512.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Heart And Soul [03:05]
- 02.Django [05:35]
- 03.Frankie And Johnie [05:00]
- 04.Little Waltz [06:39](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:40:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:149618DF58ABA7719B0F5D6987F54EA08BF49498
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020273   (742508) от 28.05.2016
-
-John Verity - My Religion (2016) [MP3|320 кб/с] <Blues, Blues Rock, Classic Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742508.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Religion    03:39
-02. Hope for the Best    05:57
-03. The Devils Music    05:49
-04. Going Down    02:59(   Читать дальше...   )Жанр: Blues, Blues Rock, Classic RockПродолжительность: 00:46:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C3CD5FE7FB45FCEF31A4A7E6102EB830801B1FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020287   (742506) от 28.05.2016
-
-James O'Neill and the Silver Shadows - A Little Bit More Than the Blues (2016) [MP3|320 кб/с] <Blues, R&B>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742506.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Play the Part of a Fool (03:45)
-02. You're My Friend (04:53)
-03. Ubangi Stomp (02:05)
-04. Play to Win (03:00)(   Читать дальше...   )Жанр: Blues, R&BПродолжительность: 00:42:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72F88112E06CC010A903BF29CFF0A599431776CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020251   (742501) от 28.05.2016
-
-Albert Castiglia - Big Dog (2016) [MP3|320 кб/с] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742501.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let The Big Dog Eat    03:29
-02. Don't Let Them Fool Ya    04:26
-03. Get Your Ass In The Van    03:51
-04. Drowning At The Bottom    04:34(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:44:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2536344579F3B91EB9572CE26AFDACF6C2DE07A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020180   (742499) от 28.05.2016
-
-JP Stingray - Mister Blues Strikes Again (2003) [FLAC|Lossless|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742499.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Before You Accuse Me    03:50
-02. Mister Blues Strikes Again    05:03
-03. After Hours    03:11
-04. Square One    05:16(   Читать дальше...   )Жанр: BluesПродолжительность: 00:58:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:132460C802E2C7AF376BE3B8A447668A174CA513
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020290   (742497) от 28.05.2016
-
-John Verity Band - Routes (2004) [MP3|320 кб/с] <Blues Rock, Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742497.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. She's Not There    05:25
-02. A Woman (Like You)    07:25
-03. Last Chance    05:17
-04. Boyz    03:52(   Читать дальше...   )Жанр: Blues Rock, RockПродолжительность: 00:49:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32BAF3064A560959CE008DB9C7293FE943E9D8B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217621   (742493) от 05.04.2018
-
-Azar Lawrence - Mystic Journey (2010) Furthermore [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742493.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mystic Journey [08:20]
-02. Summer Solstice [07:09]
-03. Quest [08:13]
-04. Walk Spirit, Talk Spirit [10:01](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:03:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C52C7E4A5A2D3E45ED16D5CCFE35D85722A16EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020991   (742450) от 28.05.2016
-
-Kevin Brown - Mojave Dust (2002) [FLAC|Lossless|tracks] <Blues, Acoustic Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742450.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Gypsy Boy Mojavé Dust - 4:21
-2. Johnny Don’t Cry - 4:13
-3. Tornado Woman - 3:51
-4. Its Just A Thing - 3:04(   Читать дальше...   )Жанр: Blues, Acoustic BluesПродолжительность: 00:45:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72E1ADDBD805E6E50BEF6502BADC59215B68CAA2
 ```
 
 https://mybot314.ru/tekegram_catalog/

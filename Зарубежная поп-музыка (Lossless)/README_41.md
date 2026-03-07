@@ -1,3 +1,119 @@
+###  Публикация: 1035236   (626710) от 17.07.2016
+
+Dicte - Perfume (2016) [FLAC|Lossless|tracks + .cue] <Pop, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626710.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Don't Wanna Lie
+2. All I Want Is You
+3. Mama Said
+4. Stronger(   Читать дальше...   )Жанр: Pop, SoulПродолжительность: 0:38:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92A3A5547956D83C1026C658679AF509141919D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035580   (626505) от 17.07.2016
+
+Arabesque - Greatest Hits Volume 1 (1993) Unofficial Release [APE|Lossless|image + .cue] <Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626505.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hello Mr. Monkey
+02. Fly High Little Butterfly
+03. Buggy Boy
+04. Friday Night(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:06:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4F2E5E8C05BC74F307B5E666A10DDE023DB8FCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294843   (626115) от 09.04.2019
+
+Christopher Cross - Doctor Faith (2011) [FLAC|Lossless|image + .cue] <Pop Rock, Soft Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hey kid 3:34
+02. I'm too old for this 4:17
+03. When you come home 4:28
+04. Dreamers 4:03(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 00:53:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:410FA9AA8298946BBE6C0D7AB57D0887EEB7872F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909741   (626003) от 18.06.2015
+
+Lenka - The Bright Side (2015) [FLAC|Lossless|WEB-DL]<Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_626003.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Long Way Home
+02. Blue Skies
+03. Free
+04. Unique(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:35:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14E2D3437DD824E10AA070292D857FDD7F75C35A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 909755   (626002) от 18.06.2015
 
 Giorgio Moroder - Deja-Vu (2015) [FLAC|Lossless]<Pop, Electronic>
@@ -626,122 +742,6 @@ Disc 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC9E7B1249D66D8A8AE26D8176A15B48615AF289
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295785   (617024) от 14.04.2019
-
-Bibio - Ribbons (2019) [FLAC|Lossless|tracks + .cue] <Electronic, Indie Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617024.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beret Girl (01:56)
-02. The Art of Living (03:16)
-03. Before (03:11)
-04. Curls (03:17)(   Читать дальше...   )Жанр: Electronic, Indie Pop, Pop RockПродолжительность: 00:51:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8611EEA91D86BEFE4F5E1AD0D9B5FD046DB4374
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146275   (616197) от 28.06.2017
-
-Harry Nilsson - The Real... Harry Nilsson (The Ultimate Collection) (2014) 3CD [FLAC|Lossless|tracks + .cue] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616197.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-01. 1941
-02. Cuddly Toy
-03. You Can't Do That(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 02:47:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75A089409366427FB651A2D7890A03B271B5D7C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036999   (615745) от 23.07.2016
-
-Rainhard Fendrich - Lieder Mit Gefuhl (1994) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615745.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Weilst a Herz hast wie a Bergwerk [0:03:34.55]
-02. Von Zeit zu Zeit [0:05:03.43]
-03. Lowin und Lamm [0:06:09.42]
-04. Whisky Pur [0:03:40.60](   Читать дальше...   )Жанр: PopПродолжительность: 01:15:20.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0765AE2A8E0DE9627BB126CFC569EF9B8B540ADD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037054   (615662) от 23.07.2016
-
-VA - SuperVara (2016) 2CD [FLAC|Lossless|image + .cue] <Dance,  Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Akcent feat. Lidia Buble - Serai (3:19)
-02. Arando Marquez feat. Hevito - No Me Digas (2:51)
-03. Alexandra Stan feat. Mohombi - Balans (3:08)
-04. Alex Parker - Tropical Sun (3:21)(   Читать дальше...   )Жанр: Dance,  PopПродолжительность: 00:57:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDA277DBA1A91197121CEAD04FA7755A4C5495B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

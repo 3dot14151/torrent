@@ -1,3 +1,32 @@
+###  Публикация: 1213994   (766545) от 19.03.2018
+
+Хелависа - Люцифераза (2018) [MP3|320 Kbps] <Folk, Folk Rock>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_766545.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Кракатук
+2. Поверь
+3. Шей
+4. Дорога в огонь(   Читать дальше...   )Жанр: Folk, Folk RockПродолжительность: 00:45:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CAE6DE14976B955080AF11C215E43F6A24681F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1125931   (766387) от 17.04.2017
 
 Макс Эллар Фартушный - Gamers Soundtracks Vol. 2 (2017) Авторская раздача [OGG|~320 Kbps] <Soundtrack>
@@ -716,35 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:616E0A0E66405B7382AD69720B8D385DE4831627
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215268   (759607) от 25.03.2018
-
-Leo Rojas - Leo Rojas (2017) [FLAC|Lossless|image + .cue] <Panflute, Native american, Ethnic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759607.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nature Spirits
-02. Dusk
-03. Wolf's Heart (feat. Chantelle Barry)
-04. Indian Fire(   Читать дальше...   )Жанр: Panflute, Native american, EthnicПродолжительность: 00:50:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B2518CA9DE889F67888B709BA6E66F41FD19CE6
 ```
 
 https://mybot314.ru/tekegram_catalog/

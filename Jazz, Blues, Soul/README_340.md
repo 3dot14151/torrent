@@ -1,3 +1,241 @@
+###  Публикация: 259430   (334610) от 17.11.2010
+
+BluesMotel - Built for Comfort (2010) [FLAC|Lossless]<Chicago Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_334610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Built For Comfort 04:02
+02. Hoochie Coochie Man 04:59
+03. Spoonful 03:10
+04. Key To The Highway 05:40
+05. Just A Dream 02:51
+06. Don't Stay Out All Night 04:16
+07. I Just Wanna Make Love To You 03:43
+08. I'm Free 02:08
+09. Boom Boom, Out Go The Lights 02:41
+10. Smokestack Lightnin' 05:53(   Читать дальше...   )Жанр: Chicago Electric BluesПродолжительность: 00:52:05
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 259149   (334467) от 17.11.2010
+
+Kenny G - Songbird The Best of (2010) [MP3|192 kbps]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_334467.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+[04:34] 01.  - Brazil
+[06:40] 02.  - Havana (Tony Moran Club Mix)
+[04:35] 03.  - Jasmine Flower(   Читать дальше...   )Жанр: JazzПродолжительность: 02:12:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0DF2ADE748AFD27BEE61AC60295C36175EDA53E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1258596   (334431) от 31.10.2018
+
+Claudio Chiara - Vintage Vibes (2018) [MP3|320 Kbps] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_334431.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Running Shoes
+02. Walking On Bourbon Street
+03. Mandioca
+04. Olinda(   Читать дальше...   )Жанр: JazzПродолжительность: 00:33:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C530F16C068ADA7F59B6E2662DEC19525C5948C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 259129   (334365) от 17.11.2010
+
+B.B. King (Би Би Кинг) - Anthology (5CD) (2007) [APE|Lossless]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_334365.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мнению одного из критиков, «Би Би Кинг представил нам утонченный стиль гитарного соло, основанный на плавном бендинге и блестящем вибрато, повлиявший практически на каждого последователя электрогитарного блюза». Шумное одобрение критиков и широкая известность принесли ему славу наиболее уважаемого, успешного, узнаваемого блюзмена не только в США, но и по всему (   Читать дальше...   )01. B.B.'s Intro And Theme (Live) (10:57)
+02. Why I Sing The Blues (Live) (4:38)
+03. Outside Help (Live) (3:34)
+04. Darlin' You Know I Love You (Live) (5:10)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:00:53
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1420198   (334007) от 31.10.2020
+
+Duke Ellington - 3 Essential Albums (1959, 1966, 1972) 3CD, 2017, Universal [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_334007.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Back To Back:
+01. Wabash Blues [6:31]
+02. Basin Street Blues [8:06]
+03. Beale Street Blues [7:39](   Читать дальше...   )Жанр: Swing, Big Band, Mainstream JazzПродолжительность: 03:02:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AC59570E687F352EDD891A4AAFB500A024DA691
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181450   (333959) от 07.11.2017
+
+The Joe Newman Quintet - Jive At Five (1960) 1989, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_333959.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wednesday's Blues [09:10]
+02. Jive At Five [05:39]
+03. More Than You Know [04:02]
+04. Cuein' The Blues [04:37](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:36:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AB6784720B2FB42DE8197CDD50C909FE9286D3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1420297   (333957) от 31.10.2020
+
+Jimmie Vaughan - The Pleasure's All Mine (2020) 2xCD [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_333957.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. The Pleasure's All Mine (03:44)
+ 02. Come Love (03:17)
+ 03. I'm Leavin' It Up To You (03:08)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:45:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0A5F971A6B3FB8F56F79A206C0811FE7A8FD48F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 955539   (333935) от 11.11.2015
+
+The Australian Jazz Quintet  +1 (1957) /2014, Solid Records/[FLAC|tracks+.cue]<Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_333935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Jazz In D Minor - Part I: Medium [07:33]
+ 02.Jazz In D Minor - Part II: Slow [07:16]
+ 03.Jazz In D Minor - Part III: Medium [07:15]
+ 04.Cubano Chant [04:41](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:41:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52A4FC1CE435E7E8A25BEA3B1AE3399C0EFA2958
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 955576   (333911) от 11.11.2015
 
 John Coltrane - "Live" At The Village Vanguard (1961) 2007, Verve [FLAC|tracks+.cue]<Avant-Garde Jazz, Free Improvisation>
@@ -535,238 +773,6 @@ Elmer Snowden Quartet Featuring Cliff Jackson - Harlem Banjo! (1960) 1990, Origi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9FD34418BCEA220778BCAACE957CB8DF2E7B44EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259007   (333157) от 01.11.2018
-
-VA - Future Sounds of Jazz - Vol. 6 (1999) [FLAC|Lossless|tracks + .cue] <Future Jazz, Downtempo>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beatless - Vertigo (06:27)
-02. Victor Simonelli - Bateria (Latin Impressions) (09:35)
-03. Christian Zimmermann - Diary of a Lost Girl (07:12)
-04. Wei Chi - Don't Know (04:36)(   Читать дальше...   )Жанр: Future Jazz, DowntempoПродолжительность: 01:13:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A88564E8160DE4D8F3FB0448A45589E9204AD88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258842   (333039) от 01.11.2018
-
-Giles - Dancing With Dolores (2006) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333039.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maria Magdalena (05:20)
-02. Freedom (04:40)
-03. Letter To Bush (04:06)
-04. Fallen Angel (02:54)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:57:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F9B3666D48D4BFE0B5124FC725DE33C82C90181
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258885   (333033) от 01.11.2018
-
-Janie Cribbs & The T.Rust Band - Queen Of Fire (2018) [MP3|320 Kbps] <Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333033.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Queen Of Fire (05:04)
-02. No Shelter (04:59)
-03. One Of These Days (05:00)
-04. Wouldn't Change A Thing (05:38)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:52:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38C40D8D23752B4EE01FE7D9DEF81A76CC98E915
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579760   (332975) от 29.09.2022
-
-Blue Deal - Holy Ground (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love What You Have (3:53)
-02. Holy Ground (3:29)
-03. Sonata in E-Major 7 (0:47)
-04. Standing on the Corner (3:17)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:39:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BCDF3D791A91BB58D7E140EDF39EB2F156B3138
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420544   (332618) от 01.11.2020
-
-Sylvaine Helary - Glowing Life (2020) [FLAC|Lossless|WEB-DL|tracks] <Avant Prog, Jazz Rock, Female Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332618.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Apres la pluie
-02. Thinking to Dance
-03. Glowing Life
-04. Thinking of Solitude(   Читать дальше...   )Жанр: Avant Prog, Jazz Rock, Female VocalПродолжительность: 00:59:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E55768745DEBD924BF0B7553A1EEBB601E604D82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420507   (332617) от 01.11.2020
-
-Paolo Fresu, Dino Rubino, Marco Bardoscia - Tempo Di Chet (2018) Tuk Music [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332617.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. But Not for Me [4:59]
-02. The Silence of Your Heart [4:24]
-03. Palfium [3:18]
-04. Postcard from Home [5:06](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, CoolПродолжительность: 01:03:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31712CAE19DD5CD3FA77905156552BB53969CBA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331414   (332261) от 15.10.2019
-
-VA - Sexy R&B (2019) [FLAC|Lossless|WEB-DL|tracks] <Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332261.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. StooShe - Whatta Man
-02. Cheri Dennis - Remind You
-03. Adina Howard - Freak Like Me
-04. En Vogue - Let It Flow(   Читать дальше...   )Жанр: SoulПродолжительность: 03:07:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A639AAF3BDC5B20EB7709AB9AB70D810F481CB93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 134060   (331794) от 12.11.2015
-
-Candy Dulfer - Discography (1990 - 2009) 11 Albums [FLAC|image + .cue]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_331794.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Candy – милашка», - так сказали бы американцы в разговоре друг с другом. Другими словами, многочисленные концерты не только способствовали росту популярности голландской саксофонистки, но и помогли ей самой понять свои творческие корни – «фанк» и «ритм-н-блюз», разбавленный «джазом», «хип-хопом» и «соулом». Candy Dulfer начала учиться музыке в семь лет, в 14 уже (   Читать дальше...   )Альбомы:
-1990 - Saxuality 1991 - Saxuality
-1993 - Sax-A-Go-Go
-1995 - Big Girl(   Читать дальше...   )Жанр: Jazz
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

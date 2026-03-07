@@ -1,3 +1,61 @@
+###  Публикация: 1470894   (1015308) от 19.05.2021
+
+VA - 200 Ethnic Pop Songs (2021) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015308.jpg" />
+</div>
+
+
+###  Подробнее
+
+Саунд микса имеет постоянное развитие, отчего назвать его простым и скучным никак не получиться. Музыка, которой присуща своя харизма. Приобретая восточные и этнические мотивы - музыка въедается в мозг, душу и заставляет себя слушать, унося из обычной цивилизации эпохи электроники куда-то в тропики и пещеры.001. Lewis Del Mar - Fever
+002. Calimeros - Du Bist Meine Koenigin
+003. Mickie Krause - Wir Lassen U
+004. Ferdinant. - World Full Of Color(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 12:06:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72C09CC8523CF20A79E337583B77F273E218241E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1470906   (1015307) от 19.05.2021
+
+VA - Hardcore Dance: Music For Heavy Fitness (2021) [MP3|320 Kbps] <Hardcore, Hardstyle, Hard Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015307.jpg" />
+</div>
+
+
+###  Подробнее
+
+Занятия спортом и музыка — для многих вещи, друг от друга неотделимые. Особенно это касается бега, где ритм играет едва ли не решающую роль. В настоящей раздаче предлагается скачать хорошую и качественную подборку плейлиста для занятий беговыми тренировками или фитнесом.001. Marius Tiberian - See Yourself
+002. Sasha F - Dead Generation
+003. Jay Reeve - The Nearest Star
+004. Sinister Seven - Ballers(   Читать дальше...   )Жанр: Hardcore, Hardstyle, Hard DanceПродолжительность: 07:44:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:331572CE0C87379718CA66CA56E425AD27E1B1EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1471524   (1014954) от 21.05.2021
 
 Disco Fever - Tribute to.. (2020-2021) 3CD [MP3|320 Kbps] <Disco, Rock, Pop>
@@ -687,64 +745,6 @@ VA - Evrybody Clap: Disco Party (Vol.03) (2021) [MP3|320 Kbps] <Disco, Dance, Re
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E2609347332D944C036D7D114A539AC97693594
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1476697   (1011491) от 12.06.2021
-
-VA - Hot Summer Play (2CD) (2021) [MP3|320 Kbps] <Dance, Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011491.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-
-01. Chillymouse - Try Me Out
-02. Vinyl Disciples - Self Control(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 09:32:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD4E24859C1414CCE4C26E82F8760074D80B67B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478609   (1010202) от 20.06.2021
-
-VA - Spring White Pop Session (2021) [MP3|320 Kbps] <Pop, Dance, Lyric>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010202.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Taylor Swift - Long Story Short
-002. Baekhyun - Disappeared
-003. Jaap Reesema - Nu Wij Niet Meer Praten
-004. Gloria Estefan - Abriendo Puertas(   Читать дальше...   )Жанр: Pop, Dance, LyricПродолжительность: 11:41:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A245BD0C1E615FE24A4E94C666FCA92735C2BA3
 ```
 
 https://mybot314.ru/tekegram_catalog/

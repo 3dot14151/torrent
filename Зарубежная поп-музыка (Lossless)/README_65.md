@@ -1,3 +1,120 @@
+###  Публикация: 1261625   (303095) от 11.11.2018
+
+VA - Top Of The Pops '1979 (2018) Box Set, 3CD [FLAC|Lossless|tracks + .cue] <1970s, pop, rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_303095.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наконец нашлось время на продолжение серии путешествий по победителям топов прошлого века (ссылки на предыдущие релизы смотрите внизу).
+Этот список треков является хронологическим списком популярных песен, исполняемых музыкантами и музыкальными ансамблями в Top of the Pops, еженедельной телевизионной программой BBC One, в которой представлены исполнители в основном (   Читать дальше...   )CD1:
+01. The Buggles - Video Killed The Radio Star  (3:15)
+02. M - Pop Muzik  (4:55)
+03. Blondie - Sunday Girl  (3:15)(   Читать дальше...   )Релиз состоялся: 07.03.2018Жанр: 1970s, pop, rockПродолжительность: 03:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23B378850A9D8A0C60306017B131BCCF986CD2DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333925   (301459) от 26.10.2019
+
+Tanja Lasch - Lebensecht (2015) [FLAC|Lossless|image + .cue] <Pop, Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_301459.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Du lebst gefahrlich neben mir
+02. Ich fall aus den Wolken
+03. 7 Tage 7 Nächte
+04. Vagabund(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 00:47:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E9DD8DCAF5ECBE90202D6D4363EF1308E1D14B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333758   (301435) от 26.10.2019
+
+Rick Astley - The Best Of Me (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_301435.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Every One of Us
+02. Never Gonna Give You Up
+03. Whenever You Need Somebody
+04. When I Fall in Love(   Читать дальше...   )Жанр: PopПродолжительность: 01:50:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F64F09C71529C8B5F14F6F8E8B6CE6085397F0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184042   (301382) от 17.11.2017
+
+Chante Moore - The Rise of the Phoenix (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, R&B, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_301382.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome to the Journey - Interlude 1:09
+02. Chasin' 3:36
+03. On His Mind 3:38
+04. I'd Be a Fool 3:53(   Читать дальше...   )Жанр: Pop, R&B, SoulПродолжительность: 00:53:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46A8A2633EFDB3F541A883F488B2C3E1140ED894
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 961208   (301231) от 01.12.2015
 
 Everything But The Girl - Adapt or Die. Ten Years of Remixes (2005) [FLAC|image+.cue]<Electro, Downtempo, Deep House, Pop>
@@ -628,122 +745,6 @@ VA - Now That's What I Call Music! 98 (2017) Sony Music [FLAC|Lossless|tracks + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4CEBF575808362D362C9917433EB052FD0E3B05B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962498   (294738) от 04.12.2015
-
-VA - Absolute Music 79 (2015) 2CD [FLAC|track+.cue]<Top 40, Pop Compilation, Pop, Rock, Pop-Rock, Dancepop, House, R&B, Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294738.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представляю вашему вниманию последний сборник хитов от Warner Music Sweden AB (Absolute). Практически год на трекере не было этих сборников, а с момента моей раздачи с 74 сборником прошло ровно два года. Повторю то, о чем писал два года назад. Не отправляйте этот диск в каталог ретро. Пусть не смущает вас цифра 79 - это не год издания и не период выхода композиций (   Читать дальше...   )CD1:
-01. Avicii - For A Better Day  (3:26)
-02. Felix Jaehn feat Jasmine Thompson - Ain't Nobody (Loves Me Better)  (3:07)
-03. Robin Schulz feat Francesco Yates - Sugar  (3:41)(   Читать дальше...   )Тип издания: 2CDЖанр: Top 40, Pop Compilation, Pop, Rock, Pop-Rock, Dancepop, House, R&B, SoulПродолжительность: 02:33:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBB96BC35FFF69BAF2282D753ADE4E1BBAC19F23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961961   (294729) от 04.12.2015
-
-Backstreet Boys - Greatest Hits - Chapter One (2001) [FLAC|tracks+.cue]<Europop, Vocal, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294729.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Want It That Way (3:35)
-02. Everybody (Backstreet's Back) (4:47)
-03. As Long as You Love Me (3:34)
-04. Show Me the Meaning of Being Lonely (3:56)(   Читать дальше...   )Жанр: Europop, Vocal, BalladПродолжительность: 01:00:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F11777354596852338D1AF3DDD0BEAE15227DADA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961948   (294618) от 04.12.2015
-
-Lara Fabian - Greatest Hits (2010) 2CD [FLAC|image + .cue]<Pop, Vocal, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294618.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Demain N' Existe Pas (04:35)
-02. Amoureuse (04:32)
-03. La Lettre (03:55)
-04. Toccami (05:00)(   Читать дальше...   )Жанр: Pop, Vocal, BalladПродолжительность: 02:39:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E9BA87C15ABBFFFA123BD126F6985106B85D8DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262687   (293320) от 16.11.2018
-
-Vanessa Paradis - Les sources (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Chanson>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293320.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Les sources 0:58
-02. Kiev 3:52
-03. La plage 4:06
-04. Ces mots simples 2:54(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 00:42:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:437E29528CAF6376B3F42D51884C6FCD6146380F
 ```
 
 https://mybot314.ru/tekegram_catalog/

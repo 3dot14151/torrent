@@ -1,3 +1,174 @@
+###  Публикация: 1611393   (1041300) от 11.02.2023
+
+Sarah Brightman - La Luna (2000) 2004 [DTS 5.1 CD-DA|44.1/16|image+.cue|SACD] <Electronic, Rock, Pop, Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041300.jpg" />
+</div>
+
+
+###  Подробнее
+
+La Luna — седьмой альбом, записанный английской певицей Сарой Брайтман в 2000 году. Он был выпущен по лицензии Nemo Studios для Angel Records. Альбом сочетает в себе произведения классиков и современных композиторов. По данным Nielsen SoundScan, это 17-й самый продаваемый классический альбом 2000-х годов в США, и второй самый продаваемый альбом Брайтман в стране (   Читать дальше...   )Жанр: Modern Classical, Soft Rock, Synth-popПродолжительность: 00:58:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A39A0BC2295997A54F4B033F836122FBA9B15FAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438477   (1041029) от 08.01.2021
+
+Bachman-Turner Overdrive - The Best Of B.T.O. (1998?) [DTS 4.0 CD-DA|44.1/16|.wav+.cue|unofficial] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Roll On Down The Highway
+02 - Hey You
+03 - Lookin' Out For #1
+04 - Gimme Your Money Please(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7237123425A467C44A294782B28AE399FF76601F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611888   (1040558) от 14.02.2023
+
+Karel Gott/Карел Готт - Stori/Рассказы (1982) [FLAC 2.0|192/24|image+.cue] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040558.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Тарантелла • La Danza
+A2 Леди Карнавал • Lady Carneval
+A3 Конец Птичьих Арий • Konec Ptacich Arii (Z Filmu ''My, Ztraceny Holky'')
+A4 До Ре Ми Ля • Do Re Mi La(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A065670089BA3C270CD0C8D8545F0B707EC4AB60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611646   (1040512) от 14.02.2023
+
+Tom Jones - This Is Tom Jones (1969) [FLAC 2.0|192/24|image+.cue] <Lounge, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040512.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Fly Me To The Moon (In Other Words)
+A2 Little Green Apples
+A3 Wichita Lineman
+A4 (Sitting On) The Dock Of The Bay(   Читать дальше...   )Жанр: Lounge, Pop RockПродолжительность: 00:41:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:940B4EA19BA495BA8D9C3CB20E6DB82AB6DA766C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611464   (1040510) от 14.02.2023
+
+3 Inches of Blood - Studio Albums (6 releases) (2001 - 2012) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Power/Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040510.jpg" />
+</div>
+
+
+###  Подробнее
+
+3 Inches of Blood — рок-группа из Канады. Главной отличительной чертой группы является наличие двух вокалистов: Кэма Пайпса с его пронзительным фальцетом и Джеми Хупера с агрессивным скримингом.2001 - Sect of The White Worm (EP)
+2002 - Battlecry Under a Winter Sun
+2004 - Advance and Vanquish
+2007 - Fire Up The BladesЖанр: Power/Heavy Metal, Thrash MetalПродолжительность: 04:58:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD3654D172170AF48F6FC9169C4425D801B3CBDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439273   (1040039) от 12.01.2021
+
+VA - Лауреаты Фестиваля «Весенние Ритмы Тбилиси-80» (1981) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Jazz Rock, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040039.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Машина Времени - Хрустальный Город
+A2 Машина Времени - Снег
+A3 Автограф - Ирландия. Ольстер
+A4 Лабиринт - Из Композиции «Сакартвело»(   Читать дальше...   )Жанр: Jazz Rock, Pop RockПродолжительность: 01:16:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:106756CF4651A459CFE50AFD256ECA59293C0D68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1612507   (1039841) от 17.02.2023
 
 Beyond The Black - Studio Albums (6 releases) (2015 - 2023) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Symphonic Metal>
@@ -571,180 +742,6 @@ MaYaN — нидерландская симфоник-дэт-метал-груп
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:118C5DB1E4923A9775AE82F07134C253BDD4BADA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620890   (1031642) от 22.03.2023
-
-Donny Osmond - Донни Осмонд (1976) Лицензия фирмы Polydor International GmbH (ФРГ) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031642.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Life Is Just What You Make It • Ты хозяин своей судьбы
-A2. The Twelfth Of Never • Буду любить тебя вечно
-A3. Sunshine Rose • Солнечная роза
-A4. Do You Want Me • Нужен ли я тебе(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:48:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8948462218AF8523624C54057C3BA079C5E73471
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621442   (1030764) от 26.03.2023
-
-Bob Catley - Studio Albums (6 releases) (1998-2008) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Heavy Metal, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030764.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роберт Адриан Кэтли — английский певец, музыкант, солист британской рок-группы Magnum. Здесь представлена его сольная дискография.1998 - The Tower
-1999 - Legends
-2001 - Middle Earth
-2003 - When Empires BurnsЖанр: Heavy Metal, Hard RockПродолжительность: 06:08:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9876342E36D4E11DFFDC08EB0B147A5D33EF14AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622220   (1030295) от 28.03.2023
-
-Sheavy - Studio Albums (9 releases) (1996-2013) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Stoner/Doom Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030295.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sheavy — канадская группа, образованная в 1993 году в городе Сент-Джонс.1996 - Blue Sky Mind
-1998 - The Electric Sleep
-2000 - Celestial Hi-Fi
-2003 - SynchronizedЖанр: Stoner/Doom MetalПродолжительность: 07:57:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E64BB1176D53B40C64F57A3C34A02AFBC73F9D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623730   (1029090) от 03.04.2023
-
-Grant Miller - Greatest Hits & Remixes (2016) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029090.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Doctor For My Heart (12" Version) 5:18
-A2. Wings Of Love (12" Version) 5:21
-A3. Colder Than Ice (12" Version) 5:38
-A4. Lost In Paradise (Extended Version) 5:05(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:52:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD24E1CD66A198AF5A6AC49156FEE5D0C6E12513
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450767   (1028846) от 27.02.2021
-
-Ryszard ''Skiba'' Skibinski - 1951-1983 (1984) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028846.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Lutek - Pogromca Lwow
-A2 Boogie Dziadka Skiby
-A3 Jak Nas Gonili Tacy Jedni
-A4 MPO Blues(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:39:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF8086AA473E2A386A93B4DAA40853E5D2DBEAC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450936   (1028743) от 28.02.2021
-
-Tango - Electric Ball (1986) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock, New Wave>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028743.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Break This Glass = Co S Tim Sklem
-A2 Going Downhill = Na Sikme Plose
-A3 It's A Zombie = Chtelas To Videt
-A4 They'll Get You Anyway = Z Blata Do Louze(   Читать дальше...   )Жанр: Rock, New WaveПродолжительность: 00:43:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21A076D554BE6AE5FAB761F7D08FE619BC73C6FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

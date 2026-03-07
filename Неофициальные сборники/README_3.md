@@ -1,3 +1,293 @@
+###  Публикация: 1845886   (1051099) от 04.01.2026
+
+Giza Larue - Favorites Collection (2025) [MP3|320 Kbps] <Blues Ballad & Soul Songs, Pop Ballad>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Pain of Not Being Yours
+02 - Loving in Silence
+03 - The Pain of This Love
+04 - When the House Got Quiet(   Читать дальше...   )Жанр: Blues Ballad & Soul Songs, Pop BalladПродолжительность: 00:56:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE3A6CE5ADA3BCBDF1D32F8A4E160249A8361ED6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845884   (1051098) от 04.01.2026
+
+CYRIE - Favorites Collection (2025) [MP3|320 Kbps] <Blues Ballad>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051098.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Weighted Down
+02 - Our Hearts
+03 - I Dont Expect Perfection
+04 - If I Knew All About Love(   Читать дальше...   )Жанр: Blues BalladПродолжительность: 01:07:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC8F8C93D3190F3180A77A427C688EB99FF31844
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845845   (1051096) от 04.01.2026
+
+Ai - No name compilation part 40 Slow Pop Rock Ballad (2025) [MP3|320 Kbps] <Slow Pop Rock Ballad>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051096.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Alone Again
+02 - Fire in My Soul
+03 - I'm Missing You
+04 - Since Your Goodbye(   Читать дальше...   )Жанр: Slow Pop Rock BalladПродолжительность: 00:58:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B63CEBB026ED5A884AAA623EA559FE82EA383F14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845832   (1051095) от 04.01.2026
+
+Etta James - Favorites Collection (2025) [MP3|320 Kbps] <Blues Ballad>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051095.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Low Light Love
+02 - Hold on to My Love
+03 - Still Here With You
+04 - Shadows Call My Name(   Читать дальше...   )Жанр: Blues BalladПродолжительность: 00:26:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8F9F13C70470157184947E263337EC65F082AA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845813   (1051094) от 04.01.2026
+
+Ai - Inspired Blues & Soul Songs Part 4 (2025) [MP3|320 Kbps] <Blues & Soul Songs>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051094.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - You're the Reason I Still Believe
+02 - Glows
+03 - No One Feels Like Home But You
+04 - So Real(   Читать дальше...   )Жанр: Blues & Soul SongsПродолжительность: 01:04:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2DA77A9FE01B36827F11DB978CBEDB53FF2234B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845811   (1051093) от 04.01.2026
+
+Ai - Inspired Blues & Soul Songs Part 3 (2025) [MP3|320 Kbps] <Blues & Soul Songs>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Broken Enough to Bleed
+02 - I Found Forever in You
+03 - I Cant Breathe Without Your Love
+04 - I Still Belong Where You Left Me(   Читать дальше...   )Жанр: Blues & Soul SongsПродолжительность: 00:57:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06B6B2A0847FA8E67292939EA17D7F66DFD8F30C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845815   (1051091) от 04.01.2026
+
+VA - Blues compilation part 4 Blues Ballad (2025) [MP3|320 Kbps] <Blues Ballad>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051091.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Ai - Silver in the Dust
+02 - Etta Mae Hartwell - Emerald Silence
+03 - Ai - Remember Me
+04 - Mick Simpson - Now That the Magic Has Gone(   Читать дальше...   )Жанр: Blues BalladПродолжительность: 00:51:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB302C9056C07DE3CE89B1BB644650C7C00AB1F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845952   (1051086) от 04.01.2026
+
+Nina Blaze - Favorites Collection Part 4 (2025) [MP3|320 Kbps] <Blues Ballad, Blues Rock, AI>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Hollow in My Soul
+02 - Whispers of the South
+03 - The Hollow in My Chest
+04 - Bitters in My Blood(   Читать дальше...   )Жанр: Blues Ballad, Blues Rock, AIПродолжительность: 00:47:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4E82B41DEB98E87236C40454B60394BBFA20F58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845949   (1051083) от 04.01.2026
+
+Nina Blaze - Favorites Collection Part 3 (2025) [MP3|320 Kbps] <Blues Ballad, Blues Rock, AI>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Echoes in the Hollow
+02 - Endless Nights
+03 - Storm Where My Heart Should Be
+04 - Blue Remains(   Читать дальше...   )Жанр: Blues Ballad, Blues Rock, AIПродолжительность: 00:43:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86E7F9ED25871888295684927E4D175B7AC1141A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845945   (1051082) от 04.01.2026
+
+Nina Blaze - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Blues Ballad, Blues Rock, AI>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051082.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Love Left in the Rain
+02 - No Light in This Room
+03 - Where the Warmth Used to Live
+04 - When the Smoke Took Your Name(   Читать дальше...   )Жанр: Blues Ballad, Blues Rock, AIПродолжительность: 00:43:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9213935668D02B272217A5523ADABE3421C2BAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1845958   (1051073) от 04.01.2026
 
 VA - Лучшие песни Радио Рекорд за 2025 год (2026) [MP3|320 Kbps] <Pop, Dance>
@@ -455,296 +745,6 @@ AI - Russian Covers Part 3 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1ACF12F338525BEEB239283734B7F32B1372395B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844676   (1050423) от 28.12.2025
-
-VA - Blues compilation part 1  Blues (2025) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050423.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - David Gogo - This is Man's World
-02 - Brandon Lane - Trouble
-03 - Daniel Castro - I'll Play the Blues for You
-04 - Mystery Train - Love is Rough Business(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:59:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB58B39CB9F9FD8A939A03F439E409222017BE61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844678   (1050422) от 28.12.2025
-
-VA - Blues compilation part 2 Soulful Blues Ballads (2025) [MP3|320 Kbps] <Soulful Blues Ballads>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050422.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Miz Tasha Cobb - Dust on the Wall
-02 - Velvet Ashes - The Most Beautiful Jaz
-03 - Ai - Still on the Road (A Farewell to Chris Rea)
-04 - Ai - I Call Your Name(   Читать дальше...   )Жанр: Soulful Blues BalladsПродолжительность: 00:52:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B5F24CA3F3DA72EE60F41FD51FFEA9699F124EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844725   (1050420) от 28.12.2025
-
-Richard Marx - Collection от ALEXnROCK (2025) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050420.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда то, в середине 90х, когда я был юн и беспечен, у меня была девушка — первая настоящая любовь. Она была значительно старше и мудрее меня. Ей очень нравилось творчество Richard Marx. У неё дома был проигрыватель ВЕГА 109 и пласты с альбомами Repeat Offender 1989 года и Rush Street 1991. И по прошествии лет, есть что вспомнить под эту музыку. Очень красивая и (   Читать дальше...   )001. Should've Known Better
-002. Don't Mean Nothing
-003. Endless Summer Nights
-004. Lonely Heart(   Читать дальше...   )Жанр: RockПродолжительность: 08:59:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:216FFD40B1BA273BFD8180D889C72145FDF5AC85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844805   (1050418) от 28.12.2025
-
-VA - Fortune Teller Blues - Smming up the Results (2025) [MP3|320 Kbps] <Blues, Blues rock, Instrumental>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050418.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Playing For Change - Fly Like an Eagle [04:19]
-002. Popa Chubby - I'm Going Down [05:31]
-003. Def Leppard - Stand By Me [03:11]
-004. Professor Louie & The Crowmatix - Stick To The Plan [05:25](   Читать дальше...   )Жанр: Blues, Blues rock, InstrumentalПродолжительность: 08:00:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AD37F7C4320E76FFE4C47E1B12C8216AD1DE377
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844843   (1050416) от 28.12.2025
-
-VA - Party Time 2.0 (mixed by Dj V) (2025) [MP3|320 Kbps] <Club House, Nu Disco, Disco House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050416.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Sophie Ellis Bextor - Murder On The Dancefloor (Zillionaire Mix)
-02-Dua Lipa - Dance The Night (De Soffer Mix)
-03-Beyonce X Purple Disco Machine - Hypnotized By Texas Hold Em (Bass Cowboy Bootleg)
-04-De Soffer - Cry For You(   Читать дальше...   )Жанр: Club House, Nu Disco, Disco House, DanceПродолжительность: 1:00:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C5E3BF20F8AC70BA0990675613EB0050D6AF642
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844855   (1050415) от 28.12.2025
-
-VA - No name compilation part 34 Electronic, Vocal, Other, Ai (2025) [MP3|320 Kbps] <Electronic, Vocal, Other, Ai>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050415.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Smtve - I Have Everything Now Except
-02 - Riltim - Retona
-03 - Smtve - Let You Down
-04 - Smtve - Heart is Gone(   Читать дальше...   )Жанр: Electronic, Vocal, Other, AiПродолжительность: 00:35:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F147EB64E9995505E1DF7C410220E4C069C0683
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844857   (1050414) от 28.12.2025
-
-VA - No name compilation part 35 Electronic, Vocal, Other (2025) [MP3|320 Kbps] <Electronic, Vocal, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Sergey Chekalin - New Year's Greetings for 2026!!!
-02 - Bad Boys Blue & Jk Sax - You're Woman (Saxophone Remix)
-03 - Smtve - Send My Love
-04 - Dj Calma - December(   Читать дальше...   )Жанр: Electronic, Vocal, OtherПродолжительность: 01:02:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A2EF3A81B2CA950D39FE3D6FF05B5C639EBAE6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844326   (1050411) от 28.12.2025
-
-VA - No name compilation part 33 Electronic Deep Chill House Other (2025) [MP3|320 Kbps] <Electronic Deep Chill House Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050411.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Stive Morgan - On Thin Ice
-02 - Sardø - Corazón Sin Fronteras
-03 - Reteox - Faded Years
-04 - Echønova - Forgive Me(   Читать дальше...   )Жанр: Electronic Deep Chill House OtherПродолжительность: 00:56:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F00658652469EA6E355AFD5DB39DA6A68470CCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844932   (1050403) от 28.12.2025
-
-VA - Record Super Chart 27.12.2025 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050403.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. AY YOLA - Homay (4:04)
-02. David Guetta & Sia - Beautiful People (3:07)
-03. Calvin Harris & Clementine Douglas - Blessings (3:39)
-04. Rudimental & Khalid - All I Know (2:56)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:40:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DC67879830CC08C4CD5AA23E44010669D9F183C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844923   (1050368) от 29.12.2025
-
-Erik Gronwall - Voice Of Rock - Compilation (2009-2025) [MP3|320 Kbps] <Hard rock, Glam rock, Pop rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050368.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Into The Great Unknown (& H.e.a.t) ❂ Into The Great Unknown 2017
-02. Higher (Winner Of Idol) ❂ The Idol Years 2009
-03. Livin' On A Prayer (& Bon Jovi) ❂ Eriksplanations Vol. 2 2025
-04. Fearless (& New Horizon) ❂ Gate Of The Gods 2022(   Читать дальше...   )Жанр: Hard rock, Glam rock, Pop rockПродолжительность: 05:36:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:557528C8813E3A6238C025E4518E6D0F639AAD91
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1438520   (1040945) от 09.01.2021
+
+VA - Kiyoi & Eky Presents Sundance Recordings (2020) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Grande Piano - Monte Cassino (Orchestral Mix)
+02. Khoa Tran - Reality Somewhere (Original Mix)
+03. Marco MC Neil - Unforgiven (London & Niko Remix)
+04. Subora - Wings Ascending (Original Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:22:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05893712AEBD775E02F03D4DE8CE8A3CB2348281
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438534   (1040944) от 09.01.2021
+
+VA - DreamLife Presents Sundance Recordings (2020) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040944.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Grande Piano - Monte Cassino (Intro Mix)
+02. Paul Cartwright - Just Be (Original Mix)
+03. Wayf4rer - Anemone (DreamLife Remix)
+04. Ajie Benno - Passion (Extended Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:24:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04C6EA971A636EB514A7ABF61C8C0BB57EB17A29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438681   (1040943) от 09.01.2021
+
+VA - Best Of FSOE Fables (2020) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040943.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dan Stone - Vice Versa (Extended Mix)
+02. Ferry Tayle & Elucidus - Fremont (Extended Mix)
+03. Metta & Glyde - Renaissance (Extended Mix)
+04. Maria Healy - Dreamer (Extended Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:00:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63F4154030AE4FE5F53A53C21707FDFA175E528A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1438662   (1040936) от 09.01.2021
 
 VA - Best Of FSOE Parallels (2020) [MP3|320 Kbps] <Trance>
@@ -658,93 +745,6 @@ VA - Trance 100 - 2023 [MP3|320 Kbps] <Uplifting Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55630CCDB36E56566E8DC8D4CB1A3ED16F50346E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441332   (1037795) от 21.01.2021
-
-VA - Best Of (2020) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Syntouch pres. Sunsliderz - Relic (Extended Mix)
-02. Luciano F - Sunlight (Extended Mix)
-03. Dalmoori - Cogwheel (Syntouch Remix)
-04. Divaiz & The Avains - Mariposa (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:20:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E39D56C5E5027B9098921F3F1FE204E8802B4A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441326   (1037722) от 21.01.2021
-
-VA - Trance 100 - (Extended Versions) (2021) [MP3|320 Kbps] <Trance, Progressive Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037722.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Armin van Buuren - Euthymia (Extended Mix)
-002. i_o - Castles In The Sky (Extended Mix)
-003. Above & Beyond - Crash (Extended Mix)
-004. Gareth Emery feat. Annabel - You'll Be OK (Extended Mix)(   Читать дальше...   )Жанр: Trance, Progressive Trance, Uplifting TranceПродолжительность: 09:46:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EADCC1677ACAA98A6E3513CDD5209070CBE51CC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441661   (1037467) от 22.01.2021
-
-VA - Aly & Fila - FSOE Top 20: January (2021) [MP3|320 Kbps] <Trance, UpliftingTrance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037467.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ahmed Romel - Road To Vilna (Extended Mix)
-02. Sam Laxton - Waiting For The Sun (Extended Mix)
-03. David Forbes & Paul Denton - Out Of Order (Extended Mix)
-04. Assaf & Dave Neven - Transcend (Extended Mix)(   Читать дальше...   )Жанр: Trance, UpliftingTranceПродолжительность: 02:21:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:288D7889831C1142E9BB0A6276F777C2B26A76A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

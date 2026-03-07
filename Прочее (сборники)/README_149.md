@@ -1,3 +1,206 @@
+###  Публикация: 1583376   (229841) от 14.10.2022
+
+VA - Hardstyle Workout 2022 playlist [MP3|320 Kbps] <Hardstyle>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_229841.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Warface - Heavy Artillery - Reloaded Edit (2:32)
+02. Riot Shift - LASER BEAMS (2:40)
+03. Thyron - Crash (2:37)
+04. Riot Shift - Dark Matter (3:12)(   Читать дальше...   )Жанр: HardstyleПродолжительность: 02:25:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C6BAEE46ACE34DE3F6D95D073BCE4801E9D8A38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1268181   (229561) от 09.12.2018
+
+VA - Best Music. Special Limited Offer (2018) [MP3|320 Kbps] <Club, Christmas, Reggaeton>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_229561.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Travis Scott feat. Drake, Juicy J & Swae Lee - SICKO MODE (Skrillex Remix) (Dirty)
+002. Alpharock - Stars (Short Edit)
+003. Lil Wayne feat. Kendrick Lamar vs. Karol Tip - Mona Lisa (Trayze 'Drift' Edit) (Clean)
+004. Karol Tip - Drift(   Читать дальше...   )Жанр: Club, Christmas, ReggaetonПродолжительность: 06:03:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52354D39D8B6D5C3CA3C07B0A83F1B446633ED1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1583267   (228465) от 15.10.2022
+
+VA - Music News vol.221 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_228465.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 2 Chainz - 2 Step (OST Домашняя вечеринка) (02:10)
+ 002. ADA - Светофоры (02:13)
+ 003. Adil feat. Sultan - Письмо (03:03)
+ 004. Akord - Cine-i Soarele Tau (03:50)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 08:00:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A474184A6295C349E0F6FF078F188A831545492
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 965029   (228038) от 13.12.2015
+
+VA - Car Audio. Best Of December 2015 (2015) [MP3|320 кб/с]<Dance, Club, Deep, House, G-House, Nu Disco, Indie, Trap, Dubstep, Drum & Bass, Electro, Progressive, Techno, Tech>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_228038.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 3D Stas - Aftermath (Original Mix)
+02. 3D Stas - Dying Light (Original Mix)
+03. 3D Stas - Heroine Beat (Original Mix)
+04. 3D Stas - Industrial Mind Loss (Original Mix)(   Читать дальше...   )Жанр: Dance, Club, Deep, House, G-House, Nu Disco, Indie, Trap, Dubstep, Drum & Bass, Electro, Progressive, Techno, TechПродолжительность: 18:00:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F277F426B5ABF44960144E9BB2C86F0411B0B841
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1583907   (227944) от 16.10.2022
+
+VA - Amsterdam (2022) CD, Compilation [MP3|320 Kbps] <Tech House, Soulful, Deep Groove, Jackin>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_227944.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lexlay - Carpe Diem (Original Mix)
+02. Space Castorz - El Celular (Original Mix)
+03. YRM, Javier de la Vega - Won't Be Long (Original Mix)
+04. TJ, Bastien Groove, Alexandro G, Arturo Quiroz, Royei - Cazadora feat. TJ feat. Royei (Original Mix)(   Читать дальше...   )Жанр: Tech House, Soulful, Deep Groove, JackinПродолжительность: 02:15:25 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64A0E05768877BB1B85A2D253B6952CB016BB8E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1583910   (227873) от 16.10.2022
+
+VA - Amsterdam After Disco Vol. 5 (2022) CD, Compilation [MP3|320 Kbps] <Groove, Jackin House, Soulful, Nu Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_227873.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. House Of Prayers - Digital Lover (Aerobic Mix)
+02. Realcyclers & Crazibiza - King Of My Castle (Radio Mix)
+03. Pete Walshe & Crazibiza - Summer Love (Radio Mix)
+04. Max Millan & Wild Joker - I'll Be Back (Original Mix)(   Читать дальше...   )Жанр: Groove, Jackin House, Soulful, Nu DiscoПродолжительность: 04:06:22 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3F1FABF91EF46EB9D82D9C89385DBBE640870B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1583919   (227706) от 16.10.2022
+
+VA - Party Hits 2022 - Party Hit Mix (2022) CD, Compilation [MP3|320 Kbps] <Electropop, Club, House, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_227706.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flo Rida - Good Feeling
+02. Robin Schulz - Sugar (feat. Francesco Yates)
+03. David Guetta - Memories (feat. Kid Cudi)
+04. Tones And I - Dance Monkey(   Читать дальше...   )Жанр: Electropop, Club, House, DanceПродолжительность: 02:14:04 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:854A0E318705C43923AD37937158B23D57C773B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1583736   (227576) от 16.10.2022
 
 VA - В машине с музыкой Vol.310 (2022) MP3 [320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
@@ -542,209 +745,6 @@ VA - Hardstyle Dance Music For Fitness (2019) [MP3|320 Kbps] <Hard Dance, Hardst
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34FFAB08EFC1DA9D178DED954843E9DFB8742A6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513432   (223779) от 29.11.2021
-
-VA - Music News vol.152 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223779.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lida Lee - On Fire (03:51)
- 002. AKVA - Танцуй В Темноте (02:54)
- 003. Allergia - Эйфория (02:10)
- 004. Andreea D - All That You Say Is (Ta Ta Ra) (03:16)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 04:43:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:968BFF5D5E6B5B2666946DDEFDA0D739C32350DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965774   (223630) от 15.12.2015
-
-VA - Super Disco 90s. 100 Hits Platinum Collection. Зарубежка (2015) [MP3|320 кб/с] <Disco, Pop, Dance, Italodisco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223630.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. La Bouche - Be My Lover 04:02
-002. Sash! - Adelante 06:50
-003. Loft - Life Is A Game 03:57
-004. Bizz Nizz - Dabadabiaboo 03:20(   Читать дальше...   )Жанр: Disco, Pop, Dance, ItalodiscoПродолжительность: 06:40:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6848B218E9414701D362EE9F242A6806CF9002BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269098   (223471) от 13.12.2018
-
-VA - Selfish Desire: Assembly Of Electro House (2018) [MP3|320 Kbps] <Electro House, Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223471.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Cally Dj - What You Thinking
-002. Miki Farra - Get Low Now
-003. The Deepshackerz - Sourn
-004. Alfredo Arruti - Macahuitl (Original Mix)(   Читать дальше...   )Жанр: Electro House, Dance, ClubПродолжительность: 08:56:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:765FC0F27364328E43E42F5733AC6DBE521293C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 565592   (223468) от 02.12.2019
-
-VA - Песни о ФК "Динамо" (Киев) (1986-2017) [MP3|112-320 kbps] <Rock, Pop, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223468.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Гимн ФК ДИНАМО (Киев) (04:06)
-02. 5 угол - Динамо Киев (03:37)
-03. DJ Y.TeR feat Tarada - Динамо Киев 2010 (03:56)
-04. EsKeL Mc - Наше Динамо (02:34)(   Читать дальше...   )Жанр: Rock, Pop, RapПродолжительность: 01:53:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9825BD57672D68222DDD300BE4808215BE5B3929
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269133   (223454) от 13.12.2018
-
-VA - Dance Empire Vol.13 (2018) [MP3|320 Kbps] <Dance, Club, Progressive, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223454.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mark Hills - Break (Radio Mix)
-02. Nick Le Funk - Potato (Radio Edit)
-03. Max Roven - Gate (Radio Edit)
-04. Alpha - X - Set This Place On Fire (Radio Edit)(   Читать дальше...   )Жанр: Dance, Club, Progressive, HouseПродолжительность: 02:16:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C32101C707874FDE73922C2C301DD87C03FCCFA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269036   (223295) от 13.12.2018
-
-VA - Let There Be Dance Music (2018) [MP3|320 Kbps] <Pop, Dance, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223295.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ming - Feel Love
-002. Zedd & 7 Yo - Change Me
-003. Dj Ostkurve Ft. Daisy Raise - The Lonely Goatherd
-004. Marc Novus - Our Dream(   Читать дальше...   )Жанр: Pop, Dance, HouseПродолжительность: 09:18:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E1D4BDFDB2955009241E83320933FB390F3C327
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651215   (222987) от 05.08.2023
-
-VA - Music News vol.287 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_222987.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bodybangers feat. Nerds At Raves & Jamie-lee - Barbie Girl (02:38)
- 002. Adil - La Minor (02:11)
- 003. Adil - Госпожа (02:44)
- 004. Al Rakhim feat. Medkova - Сидим и Молчим (03:01)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 11:10:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:455B26B74D76BD2EA8CDA9B80EFC0A9DD9A4BF50
 ```
 
 https://mybot314.ru/tekegram_catalog/

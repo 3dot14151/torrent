@@ -1,3 +1,176 @@
+###  Публикация: 1045758   (556844) от 25.08.2016
+
+Автограф - Ирландия. Ольстер (1981) [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Prog Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ирландия, Ольстер
+02. Пристегните ремни безопасности
+03. Блюз ''Каприз''Жанр: Prog RockПродолжительность: 00:14:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B656221AD61289DCF82480F0FA1066A83985867C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046074   (556831) от 25.08.2016
+
+Оризонт - Мой Светлый Мир (1982) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556831.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мой Светлый Мир
+02. Сани С Бубенцами
+03. Колыбельная
+04. Парус На Волне(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9619F222C9A03A8D61F87A188DE83CAFCFD6B977
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045939   (556778) от 25.08.2016
+
+Илья Словесник - Мы так любили Beatles (1988) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Провинция
+02. Мы так любили «Битлз»
+03. Биополе
+04. Солёное море(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:35:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47F05248CF781B8327BAEFD0BB5AF1BDD4E78380
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046065   (556681) от 25.08.2016
+
+Автограф (1986) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Prog Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. S.O.S.
+02. Реквием (Памяти Джона Леннона) · Requiem (In Memory Of John Lennon)
+03. Истина · The Truth
+04. Монолог · Monologue(   Читать дальше...   )Жанр: Prog RockПродолжительность: 00:38:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F3AE99E620FBD454DC8BAF5E628B300D19E84B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556588   (556392) от 12.06.2022
+
+Rob Halford (Judas Priest, Fight, Two) - Studio Albums (12 releases) (1993 - 2019) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Heavy metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556392.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роберт Джон Артур «Роб» Хэ́лфорд (англ. Robert John Arthur "Rob" Halford; род. 25 августа 1951 года) — британский музыкант, автор песен и продюсер, в первую очередь известный как вокалист британской хеви-метал-группы Judas Priest (в 1973—1991 гг. и с 2003 года по нынешнее время). По версии журнала Classic Rock, занимает 9-е место в рейтинге лучших (   Читать дальше...   )2000 - Resurrection
+2002 - Crucible
+2007 - Metal God Essentials Vol.1
+2009 - Halford III - Winter Songs(   Читать дальше...   )Жанр: Heavy metalПродолжительность: 13:08:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC3C4DF92479B9230212355039647A85BB6367C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1236110   (556249) от 15.07.2018
+
+Duran Duran - Liberty (1991) Unofficial Release, 1992, Not On Label [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <New Wave, Synthpop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556249.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Violence Of Summer (Love's Taking Over) (4:20)
+A2. Liberty (4:59)
+A3. Hothead (3:31)
+A4. Serious (4:19)(   Читать дальше...   )Производство: Not On Label - ДRT-1002Жанр: New Wave, SynthpopПродолжительность: 00:40:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:264DA506C65C8068ACB34D1128085C8F7FD5F855
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1306999   (554635) от 11.06.2019
 
 Johnny Cash - The Johnny Cash Collection 1955 - 1971 (1971) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Country Rock, Folk Rock>
@@ -571,180 +744,6 @@ Triptykon — швейцарская экстремальная метал-гр�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8858B6C68B50D2C584EB7AF16EE12E55E915DF0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155340   (535070) от 02.08.2017
-
-Каролина (Люба Орлова/Гусева) - Дискобар (1990) [DSD2.0|5,64MHz/1bit|image+.cue|Tape-Rip] <Pop, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535070.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро
-02. Дискобар
-03. Не надо слёз
-04. Наш звёздный вечер(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:47:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79C01853CC281A25A3C9ED997496471121FF6A9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154851   (534969) от 02.08.2017
-
-Мираж - Dance remix (1997) [DSD2.0|5,64MHz/1bit|image+.cue|Tape-Rip] <Pop, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534969.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я Больше Не Прошу
-02. Электричество
-03. Новый Герой
-04. Музыка Нас Связала(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:45:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF5E88F44B721FD9427BD7FE79AB935D723FBEA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240137   (531262) от 09.08.2018
-
-Black Jack - Hot Passion (1979) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531262.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. I Am The Disco Machine (3:06)
-A2. Hot Passion (5:38)
-A3. Y-O-U (4:19)
-A4. Go Down Main Street (3:41)(   Читать дальше...   )Производство: Pinball Records - 6. 23 794Жанр: DiscoПродолжительность: 00:31:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7A2EBDBF9C006B8AEC65127062BE7AF7C8000DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1157080   (525794) от 10.08.2017
-
-Владимир Высоцкий - Сборник песен (стереозвук) (1980) Мелодия [DSD2.0|5,64MHz/1bit|image+.cue|Tape-Rip] <Chanson>
-
->>След.
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525794.jpg" />
-</div>
-
-
-###  Подробнее
-
-СТОРОНА-1:
-01. Чёрные бушлаты (03:40)
-02. Песня о госпитале (01:24)
-03. Прерванный полёт (05:01)(   Читать дальше...   )Жанр: ChansonПродолжительность: 01:29:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36ED9E36988D559CA0BAAAFF853878089FDDAFD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1157440   (525163) от 12.08.2017
-
-Карабас Барабас и Мальвина - Мальвина (1990) [DSD2.0|5,64MHz/1bit|image+.cue|Tape-Rip] <Pop, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро
-02. Мальвина
-03. Ждать не буду!
-04. На день рожденья Мальвины(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:47:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70281BC85B4BAE8691CBD941569E7C9B18C9B576
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1157414   (525128) от 12.08.2017
-
-Ласковый Май - 1 альбом -Оренбург- (1988) [DSD2.0|5,64MHz/1bit|image+.cue|Tape-Rip] <Pop, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525128.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Белые розы (05:29)
-02. Я откровенен лишь с луной (03:42)
-03. Лето (03:40)
-04. Пусть будет ночь (05:38)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:45:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33289A3AEB105AD0C34B7EEDE4AC7A4DC3566415
 ```
 
 https://mybot314.ru/tekegram_catalog/

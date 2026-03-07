@@ -1,3 +1,32 @@
+###  Публикация: 1277282   (785404) от 20.01.2019
+
+David Arkenstone - Fairy Dreams (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785404.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Twinklelace Glen
+02 – The Water Fairy
+03 – Dream Shadows
+04 – Fairy Dreams(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:52:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB9A61642EB7BDE9ED9320C0F9BB2B6742D7E72A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1203284   (785391) от 04.02.2018
 
 Dino Solera - Classicaly: Dino Solera (1977 /2015) Remastered, Unofficial [FLAC|Lossless|image + .cue] <Instrumental, Disco>
@@ -711,35 +740,6 @@ Tim Buckley - Discography (1966-2001) [FLAC|Lossless|tracks + .cue] <Folk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C0E597E8BBD2B15538AB0D5B98236FE40D42E0AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 50989   (781784) от 18.06.2020
-
-Николай Парфенюк - Собрание заблуждений - 2000
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781784.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. C'est La Vie 03:39
-02. Рыжики 02:05
-03. Амазонки 04:28
-04. Сожаление 03:39(   Читать дальше...   )Продолжительность: 58:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6ACD075A39AD69186509EED7A2A30F27814DAD0
 ```
 
 https://mybot314.ru/tekegram_catalog/

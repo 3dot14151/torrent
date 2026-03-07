@@ -1,3 +1,176 @@
+###  Публикация: 1581217   (328048) от 04.10.2022
+
+VA - Hotrocks (1989) Repress [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock & Roll, Hard Rock, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_328048.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Boycott - Roadrunner
+A2 Sakari Kuosmanen - Berlin
+A3 Melrose - Horse Doughnut
+A4 Big Saarinen - We're An American Band(   Читать дальше...   )Жанр: Rock & Roll, Hard Rock, Pop RockПродолжительность: 00:42:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCF17B19978E02F061A45469741DBC0D06EC37C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 841967   (327971) от 18.11.2014
+
+Pink Floyd - The Endless River (2014) [DTS 5.1 CD-DA|44.1 /16|image+cue|Blu-ray] <Progressive Rock, Art Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_327971.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Things Left Unsaid 04:26
+02. It's What We Do 06:14
+03. Ebb And Flow 01:57
+04. Sum 04:49(   Читать дальше...   )Жанр: Art RockПродолжительность: 00:52:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EB8B63FB7200470DDB61935D5DE5D36C76E6D14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 710099   (327320) от 17.11.2015
+
+Святослав Рихтер - П. Чайковский  – Концерт №1 Си Бемоль для фортепиано с оркестром (1973) [FLAC 2.0 24/192|traks(Vinil-Rip)]<Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_327320.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. Allegro Non Troppo E Molto Maestoso. Allegro Con Sprito  22:04
+Сторона 2
+1. Andantino Semplice  6:44(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:35:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83DD8E0C7BA4566AFB6AB201940DCC45AB7F3523
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1581430   (327217) от 05.10.2022
+
+Э. Колмановский - Белоснежка. Музыкальная Сказка. Запись 1968 г. (1978) [FLAC 1.0|96/24|tracks-side|Vinyl-Rip] <Children's>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_327217.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Белоснежка
+02. Белоснежка (Продолжение 1)
+03. Белоснежка (Продолжение 2)
+04. Белоснежка (Окончание)(   Читать дальше...   )Жанр: Children'sПродолжительность: 01:01:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BFA8DADB63DACB79693DF52E62629A3E4E7F62F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1581345   (327132) от 05.10.2022
+
+Madonna - Like A Virgin • Мадона - Като Дева • (1989) repress [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Synth-pop, Dance-pop, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_327132.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Material Girl • Материално Момиче • Девушка Во Плоти
+A2 Angel • Ангел • Ангел
+A3 Like A Virgin • Като Дева • Как Дева
+A4 Over And Over • Отново И Отново • И Снова, И Снова(   Читать дальше...   )Жанр: Synth-pop, Dance-pop, DiscoПродолжительность: 00:39:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01A8DF1CAAECB5E3B0C1FD216FC1FB6ED46AE3A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957393   (326657) от 18.11.2015
+
+VA С. Ротару feat. анс. Весёлые Ребята и Синтез-группа И. Гранова - Луна, Луна/Дастархан (1986) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]<Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326657.jpg" />
+</div>
+
+
+###  Подробнее
+
+A	С. Ротару, Веселые Ребята - Луна, Луна
+
+B	Синтез-Труппа Игоря Гранова -	ДастарханЖанр: PopПродолжительность: 00:09:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFD2A22AB7EA781B043B1A1DDD71E329E0B89FCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 667991   (326548) от 18.11.2015
 
 Адольф Шарль Адан (Жизель) - Оркестр Большого театра СССР (Альгис Жюрайтис) (1989) [FLAC 2.0 24/192|traks(Vinil-Rip)]<Classical, Romantic>
@@ -594,186 +767,6 @@ A4 Undercover Agent For The Blues(   Читать дальше...   )Жанр: P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B244ED4421BC554ABD789BA06C28E9C9F1672AEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037035   (317802) от 23.11.2016
-
-King Crimson - THRAK (1995) 2015, Discipline Global Mobile [DTS 5.1|LPCM 2.0, 5.1|48,96/24|2Blu-ray]  <Rock, Prog Rock, Art Rock, Avant-Prog>
-
->>HD Audio и Многоканальная Музыка
->>Blu-ray Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317802.jpg" />
-</div>
-
-
-###  Подробнее
-
-* Blu-Ray 1: The most comprehensive Hi-Res audio-only disc yet assembled features three complete albums with 5.1 Surround Sound mixes: THRAK, ATTAKcATHRAK and Kcensington THRAK. These three albums also appear in Hi-Res stereo - THRAK in both its original and new stereo mixes - plus a further three complete albums are included in Hi-Res stereo, JurassiKc THRAK, THRAKaTTAKand& (   Читать дальше...   )Disc I
-01. THRAK 2015 mix
-DTS-HD Master Audio 5.1 24/96
-LPCM Stereo 24/96(   Читать дальше...   )Жанр: Rock, Prog Rock, Art Rock, Avant-ProgПродолжительность: 04:48:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27437A229FA297D4BDFE61590D2B56A1208DD09E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 728549   (314498) от 30.11.2013
-
-ABBA - ABBA (Sweden) (1975) [FLAC 2.0 24/96|traks(Vinil-Rip)]<Pop Rock, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314498.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-1. Mamma Mia  3:33
-2. Hey, Hey Helen  3:17
-3. Tropical Loveland  3:05
-4. SOS  3:22
-5. Man In The Middle  3:02
-6. Bang-A-Boomerang  3:03
-Сторона 2
-1. I Do, I Do, I Do, I Do, I Do  3:18
-2. Rock Me  3:06(   Читать дальше...   )Жанр: Pop Rock, DiscoПродолжительность: 00:36:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E915AA641C3E25584EB443773267DB89DC80CDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182160   (314339) от 11.11.2017
-
-VA - Наши баллады (2002) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Pop, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314339.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Смысловые галлюцинации - Разум когда-нибудь победит
-02. Танцы минус - Не меняй меня
-03. Сплин - Пластмассовая жизнь
-04. Сегодня ночью - Между роскошью и тоской(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 01:09:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5434AD69CFD4823BAC88102C80729EFEC6783F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182684   (314251) от 11.11.2017
-
-Deep Purple - Machine Head (1972) Reissue, 1976 [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314251.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Highway Star (6:09)
-A2. Maybe I'm A Leo (4:51)
-A3. Pictures Of Home (5:06)
-A4. Never Before (4:00)(   Читать дальше...   )Производство: Warner Bros. Records - P-10130WЖанр: Hard RockПродолжительность: 00:37:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5E0401134233488E96CEDC46D52C0AF098364D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583118   (314232) от 13.10.2022
-
-Центр - Сделано В Париже (1989) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock, New Wave>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314232.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Привет Тебе
-A2 Навсегда
-A3 Тургеневские Женщины
-A4 Бесполезная Песня(   Читать дальше...   )Жанр: Rock, New WaveПродолжительность: 00:35:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70D7356B458599CEBEBBE634329742F0ED95B9E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260193   (313628) от 06.11.2018
-
-John Lennon – Imagine: The Ultimate Collection (2018) 1971 [DTS 5.1 CD-Audio|44.1/16|image+.cue|BD-Audio] <pop rock, art rock>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313628.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Imagine (3:04)
-02. Crippled Inside (3:49)
-03. Jealous Guy (4:12)
-04. It's So Hard (2:27)(   Читать дальше...   )Жанр: Pop Rock, Art RockПродолжительность: 00:39:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7661D6B2F0B3B4FCAE3889334BBDCB92BCD59550
 ```
 
 https://mybot314.ru/tekegram_catalog/

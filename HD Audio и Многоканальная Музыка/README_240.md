@@ -1,3 +1,177 @@
+###  Публикация: 1606286   (26268) от 27.02.2025
+
+A Day to Remember - Studio Albums (8 releases) (2005-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore, Post-hardcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_26268.jpg" />
+</div>
+
+
+###  Подробнее
+
+A Day to Remember (ADTR) — американская пост-хардкор группа, образованная в городе Окала в 2003 году и основанная гитаристом Томом Дэнни и барабанщиком Бобби Скраггзом. Известна своим необычным звучанием, которое представляет собой смесь металкора, пост-хардкора и поп-панка.2005 (2008) - Old Record (And Their Name Was Treason Re-Release)
+2007 (2008) - For Those Who Have Heart (Re-Release)
+2009 - Homesick
+2010 - What Separates Me From YouЖанр: Metalcore, Post-hardcoreПродолжительность: 06:15:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21600B84F1F1F1AAE937F53CA5930EA643736D12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782214   (26257) от 27.02.2025
+
+Dirkschneider - Balls To The Wall Reloaded (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_26257.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Balls To The Wall (feat. Joakim Broden) (5:46)
+02. London Leatherboys (feat. Biff Byford) (4:00)
+03. Fight It Back (feat. Mille Petrozza) (3:44)
+04. Head Over Heels (feat. Nils Molin) (4:21)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:45:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE4D16A71EA1F9332C782ABDA9E9F5B191BEC116
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651765   (26195) от 28.02.2025
+
+Tobias Sammet (Edguy; Avantasia) - Studio Albums (21 releases) (1997-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_26195.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тобиас Заммет (нем. Tobias Sammet, 21 ноября 1977) — немецкий музыкант, лидер и вокалист немецких пауэр-метал-групп Edguy и Avantasia.1997 - Kingdom Of Madness
+1998 - Vain Glory Opera
+1999 - Theater Of Salvation
+2000 - The Savage PoetryЖанр: Power MetalПродолжительность: 25:48:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD0416D70E041545A2709C58E38683D5FE96630B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782482   (26047) от 01.03.2025
+
+Lisa - Alter Ego (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electropop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_26047.jpg" />
+</div>
+
+
+###  Подробнее
+
+✧ 01 - Rockstar (00:02:18)
+✧ 02 - Elastigirl (00:02:57)
+✧ 03 - Thunder (00:02:48)
+✧ 04 - New Woman (00:02:59)(   Читать дальше...   )Жанр: ElectropopПродолжительность: 00:33:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27EC2605BBB6ACF1A992E240BDFAFCDDC454C2BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705259   (25749) от 04.03.2025
+
+Thundermother (& The Gems) - Studio Albums (7 releases) (2014-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_25749.jpg" />
+</div>
+
+
+###  Подробнее
+
+Thundermother - шведская рок-группа, основанная в 2010 году.2014 - Rock 'n' Roll Disaster
+2015 - Road Fever
+2018 - Thundermother
+2021 - Heat WaveЖанр: Hard RockПродолжительность: 05:14:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BFF1734C1724A3A9B23CC97F779C868C9E96790
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783083   (25734) от 04.03.2025
+
+Medusian - Library (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Extreme Symphonic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_25734.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wandering Soul [00:01:15]
+02. Facestealer [00:05:31]
+03. Bull of Crete [00:05:20]
+04. Bottom of the Well [00:05:42](   Читать дальше...   )Жанр: Extreme Symphonic MetalПродолжительность: 00:29:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7441B45829760210ED08763BBBF3C74293D77232
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1783159   (25729) от 04.03.2025
 
 Monika Hauff & Klaus-Dieter Henkler - Моника Хуфф и Клаус-Дитер Хенклер (1979) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop>
@@ -568,177 +742,6 @@ Lacrimosa — группа из Швейцарии, лидеры которой 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14C3FA59AF44B0522EA9AD986A4169BAA68781EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785896   (24247) от 18.03.2025
-
-VA - Музыкальный калейдоскоп (10   выпусков) (1964 - 1969) [FLAC 1.0|96/24|image +.cue|Vinyl-Rip] <Pop, Jazz>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24247.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, JazzПродолжительность: 04:49:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:337E6F32A687A8A9C81AB20906F70B9D05AD816A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785742   (24178) от 19.03.2025
-
-Moby - Everything Is Wrong Non-Stop Dj Mix By Evil Ninja Moby (1996) digital re-release, 2025 [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Acid House, Techno, Euro House, Hard Trance, Ambient>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24178.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hard Techno · Joyous Anthems · Quiet Ambience
-
-01. First Cool Hive (Minimal Version; Mixed) [00:01:24]
-02. Feeling So Real (Unashamed Ecstatic Piano Mix; Mixed) [00:04:57](   Читать дальше...   )Жанр: Acid House, Techno, Euro House, Hard Trance, AmbientПродолжительность: 01:59:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BDEE906C5F8A63F783D18A468A880181A676FB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786589   (23948) от 21.03.2025
-
-Cradle Of Filth - The Screaming Of The Valkyries (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Gothic Metal, Black Metal, Symphonic Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23948.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - To Live Deliciously [5:33]
-02 - Demagoguery [6:17]
-03 - The Trinity Of Shadows [6:23]
-04 - Non Omnis Moriar [5:06](   Читать дальше...   )Жанр: Gothic Metal, Black Metal, Symphonic MetalПродолжительность: 00:56:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:634BBEE815A61160A58D7D25E5C50018BBB0A410
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786929   (23851) от 22.03.2025
-
-Whitney Houston - Whitney (2023) [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23851.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Wanna Dance With Somebody (Who Loves Me) 4:51
-02. Just The Lonely Talking Again 5:33
-03. Love Will Sure Save The Day 5:22
-04. Didn't We Almost Have It All 5:05(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:143A88BB747975E1EE379A592487B6FFB3ED1B79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786444   (23729) от 23.03.2025
-
-Adriano Celentano - Mr. Celentano (2025) Remaster [FLAC 24/44.1|Lossless|image + .cue] <Rock, Rock'n'Roll>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23729.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Il Tuo Bacio e Come Un Rock (2:04)
-02. Ventiquattromila Baci (2:19)
-03. Impazzivo Per Te (2:05)
-04. I Ragazzi Del Juke Box (2:01)(   Читать дальше...   )Жанр: Rock, Rock'n'RollПродолжительность: 00:21:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3F54A75A9BD619CE51C2BDC1C27307CA56F00A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787129   (23632) от 24.03.2025
-
-Бездна Анального Угнетения (Б.А.У.) - Суперспорт (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Metal, Industrial>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23632.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Про Тюрьму И Воров
-02. Ядерный Чемоданчик
-03. Люди С Разных Областей
-04. Молодость(   Читать дальше...   )Жанр: Alternative Metal, IndustrialПродолжительность: 00:30:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:247CC0989A5919640AE88D251F7EF75BB36C60CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

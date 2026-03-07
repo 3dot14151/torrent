@@ -1,3 +1,61 @@
+###  Публикация: 1013179   (777619) от 04.05.2016
+
+VA - Зажигательный молодежный музыкайф на Europa Plus - 4 (2016) [MP3|256 кб/с] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777619.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kat Deluna Feat. Jeremih - What A Night
+002. Элемент - Музыка
+003. Milena - One Two Three
+004. Катя Нова & Dee Flack - Я Буду С Тобой(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:06:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C4C66608D90228DF2F0377F696ACF30F4DD5C83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013349   (777613) от 04.05.2016
+
+VA - Return Of The 90s (2016) [MP3|320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777613.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rozalla -  Everybody's Free (To Feel Good)  3:33
+02. Crystal Waters -  100% Pure Love  3:08
+03. Faithless -  Take The Long Way Home  4:06
+04. Elton John -  Can You Feel The Love Tonight  3:59(   Читать дальше...   )Жанр: PopПродолжительность: 05:55:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA310B9A2EEFC59D6388D58314E056A8D756CA4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1013147   (777610) от 04.05.2016
 
 VA - Главная дискотека мая 50х50 (2016) [MP3|256 кб/с] <Pop, Dance>
@@ -687,64 +745,6 @@ VA - De Top 100 Aller Tijden 1984 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:54CCE4C56F49AA36385003CACC8B6904ACA1B7F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015646   (774044) от 11.05.2016
-
-VA - Italo disco 80s 100 Hits (2016) [MP3|224-320 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774044.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Adriano Celentano - Soli (03:56)
-002 Al Bano & Romina Power - Felicita (03:07)
-003 Eros Ramazzotti - A Mezza Via (05:43)
-004 Ricchi & Poveri - Piccolo Amore (03:16)(   Читать дальше...   )Жанр: PopПродолжительность: 06:35:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC20E28EDE5BA6693D13C22A86D19495D8A3653D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015483   (773984) от 11.05.2016
-
-VA - Popular Britpop May (2016) [MP3|210-320 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773984.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Shawn Mendes - Stitches
-002. Lukas Graham - 7 Years
-003. Dua Lipa - Be The One
-004. Alan Walker - Faded(   Читать дальше...   )Жанр: PopПродолжительность: 05:45:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBB2A07AB4CC57AE45F57130562ED9D80214F40B
 ```
 
 https://mybot314.ru/tekegram_catalog/

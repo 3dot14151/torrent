@@ -1,3 +1,265 @@
+###  Публикация: 1463693   (1020327) от 19.04.2021
+
+Wizard - 10 Studio Albums (1999-2021) 11xCD [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020327.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wizard — пауэр-метал-группа из Германии, сформированная в 1989 году. Группу часто называют «немецким ответом Manowar». Темы текстов песен очень похожи: обе группы поют о битвах, метале, войне и скандинавской мифологии. Тем не менее, Wizard играют намного быстрее Manowar, и их вокалист обладает высоким голосом. "Wizard" по праву считаются немецким ответом (   Читать дальше...   )1999 - Bound By Metal
+2001 - Head Of The Deceiver
+2003 - Odin
+2005 - Magic Circle(   Читать дальше...   )Жанр: Power MetalПродолжительность: 09:58:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8BF40F740E60C26397B5DEAD14902995951D84C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463643   (1020321) от 19.04.2021
+
+Bewitcher - Under The Witching Cross (2019) [FLAC|Lossless|WEB-DL] <Blackened Speed Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020321.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Savage Lands Of Satan
+02. Hexenkrieg
+03. Under The Witching Cross
+04. Heathen Woman(   Читать дальше...   )Жанр: Blackened Speed MetalПродолжительность: 00:32:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A06DA6BAE6E022B8623D907A877768B1540BCC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463715   (1020318) от 19.04.2021
+
+Orden Ogan - 7 Studio Albums (2008-2021) 8xCD [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020318.jpg" />
+</div>
+
+
+###  Подробнее
+
+Причисляемые по инерции к жанру Power Metal, немецы "Orden Ogan" смогли выработать свой собственный стиль, в котором традиционный мелодичный хэви смешивался с элементами фолка, симфо и модерн-металла. Команда была основана в 1996-м году двумя Себастьянами, "Зибом" Ливерманом (гитара, вокал) и "Гну" Грутлингом (ударные).
+Поначалу она (   Читать дальше...   )2008 - Vale
+2010 - Easton Hope
+2012 - To The End
+2015 - Ravenhead(   Читать дальше...   )Жанр: Power MetalПродолжительность: 08:28:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E471D124F8896EEFA38E9FF612C5470FF2E07A10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463918   (1020170) от 20.04.2021
+
+Rage - Secrets In A Weird World (1989) [FLAC|Lossless|image + .cue] <Power Metal, Speed Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020170.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (Opus 32 - Nr. 3)
+02. Time Waits For No One
+03. Make My Day
+04. The Inner Search(   Читать дальше...   )Жанр: Power Metal, Speed MetalПродолжительность: 00:51:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:113930CFA74831F07A3F4E6190F41E04925E80EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463913   (1020166) от 20.04.2021
+
+Rage - Reflections Of A Shadow (1990) [FLAC|Lossless|image + .cue] <Power Metal, Speed Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020166.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introduction (A Bit More Of Green)
+02. That's Human Bondage
+03. True Face In Everyone
+04. Flowers That Fade In My Hand(   Читать дальше...   )Жанр: Power Metal, Speed MetalПродолжительность: 00:56:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACB20FB7EC1EB002FCC8AB77D9F87239D21ADBD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463855   (1020149) от 20.04.2021
+
+Motus Tenebrae - Deathrising (2016) [FLAC|Lossless|image + .cue] <Gothic Metal, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020149.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Our Weakness
+02. Black Sun
+03. For A Change
+04. Light That We Are(   Читать дальше...   )Жанр: Gothic Metal, Doom MetalПродолжительность: 00:53:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77326A6CBC0F2A60DF025554D46FBBC7C313AB9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464135   (1020022) от 21.04.2021
+
+Rage - XIII (1998) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overture
+02. From The Craddle To The Grave
+03. Days Of December
+04. Changes: I. Sign Of Heaven(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 01:02:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACC1A7A59D2343571DCB0F34AD3327E4345EC7C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464072   (1020020) от 21.04.2021
+
+Armaggedon - Trumpets of Christian Holocaust (2021) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020020.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Freezing Moon (Mayhem cover)
+02. Sous la Banniére au Pentacle Gammé
+03. Trumpets of Christian Holocaust
+04. The Beheading of Mohammed(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:35:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:911A79B5978D96D010953DB354F3D38846554B67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464147   (1020019) от 21.04.2021
+
+Rage - Black In Mind (1995) [FLAC|Lossless|image + .cue] <Power Metal, Speed Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020019.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black In Mind
+02. The Crawling Chaos
+03. Alive But Dead
+04. Sent By The Devil(   Читать дальше...   )Жанр: Power Metal, Speed MetalПродолжительность: 01:08:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E21DC6E45BE6A7D4DC50C777E768F17FFE775C1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1464170   (1020017) от 21.04.2021
 
 Rage - Unity (2002) [FLAC|Lossless|image + .cue] <Power Metal, Speed Metal>
@@ -484,267 +746,6 @@ Velvet Viper - Cosmic Healer (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2BF5F449BA98F594AF47EFDACD29A2CDBF26255F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464715   (1019663) от 23.04.2021
-
-My Refuge - The Anger Is Never Over (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019663.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Immortal Fire
-02. War In Heaven
-03. The River And The Rain
-04. Winterland(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:58:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0ABC0EE55739397B009E6B7A989F41C4945075D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464753   (1019653) от 23.04.2021
-
-Frozen Crown - Winterbane (2021) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019653.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Embrace The Night
-02. Towards The Sun
-03. Far Beyond
-04. The Lone Stranger(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:52:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F7D3830503F2C8F09692A18A41B59FEEE6D466E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464803   (1019510) от 24.04.2021
-
-Helslave - From The Sulphur Depths (2021) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019510.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. From The Sulphur Depths (Intro)
-02. Unholy Graves
-03. Thrive In Blasphemy
-04. Perpetual Damnation(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:37:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C354BBA06FFA94B2B07453C7E7FEED790DECBB85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464931   (1019508) от 24.04.2021
-
-Endseeker - The Harvest (2019) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019508.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Parasite
-02. Pulse
-03. Cure
-04. Spiritual Euphoria(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:42:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A3007E1AFE0DFEBE6CE19DC42E9C184F2066657
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464800   (1019506) от 24.04.2021
-
-Nightfyre - Shattered Lands (EP) (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019506.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro II
-02. Far From Home
-03. Lady In Black
-04. Shattered Lands(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:19:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3381A8BB76E142932117FA490164F1DEE9B70C28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464836   (1019483) от 24.04.2021
-
-Blackbriar - The Cause of Shipwreck (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Gothic Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019483.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Confess [00:03:47]
-02 - Weakness and Lust [00:04:54]
-03 - Through the Crevice [00:03:28]
-04 - The Séance [00:03:42](   Читать дальше...   )Жанр: Symphonic Gothic Metal, Female VocalПродолжительность: 00:43:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3605CA82A2E29AA71035FBCED75D6A708F37C1D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465482   (1019161) от 26.04.2021
-
-Mister Misery - A Brighter Side of Death (2021) [FLAC|Lossless|WEB-DL|tracks] <Modern Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019161.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ballad Of The Headless Horseman
-02. Buried
-03. Mister Hyde
-04. Burn(   Читать дальше...   )Жанр: Modern MetalПродолжительность: 00:55:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18272B55E56242FBD5A1E73929F9CE8364DCF058
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465636   (1019000) от 27.04.2021
-
-Vexillum - Unum (2015) [FLAC|Lossless|image + .cue] <Power Metal, Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019000.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Departure: Blow Away the Ashes 06:47
-02. The Jester: Over the Clouds 04:59
-03. The Sentenced: Fire and Blood 05:41
-04. Lady Thief: What We Are 04:49(   Читать дальше...   )Жанр: Power Metal, Folk MetalПродолжительность: 00:46:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F84FD18E3F40B303C6451D33CE52448BF8AE4BFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465553   (1018997) от 27.04.2021
-
-Vexillum - The Bivouac (2012) [FLAC|Lossless|image + .cue] <Power Metal, Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018997.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Wanderer's Note 05:49
-02. Dethrone the Tyrant 06:26
-03. Dancing Goddess 05:03
-04. The Oak and Lady Flame 06:40(   Читать дальше...   )Жанр: Power Metal, Folk MetalПродолжительность: 01:07:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4C01F735AF5E0608E806995F6A3009328D67ABC
 ```
 
 https://mybot314.ru/tekegram_catalog/

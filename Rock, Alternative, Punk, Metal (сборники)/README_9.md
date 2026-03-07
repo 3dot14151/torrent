@@ -1,3 +1,32 @@
+###  Публикация: 874850   (861196) от 04.03.2015
+
+VA - Alterportal HITS 15 Vol. 78 - February (2015)  [MP3|128-320 кб/с]<Alternative, Metal, Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_861196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Smash Into Pieces - Another Day On The Battlefield
+02. Adelitas Way - I Get Around
+03. Beyond the Black - Fall Into The Flames
+04. Poynte - Nursery Crimes(   Читать дальше...   )Жанр: Alternative, Metal, RockПродолжительность: 02:05:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9D66F4FAAC42E5FBF4E96065707C95ABE79FFF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1376391   (860156) от 17.04.2020
 
 Alice Cooper - 100% Alice Cooper (2020) [MP3|320 Kbps] <Rock, Hard Rock>
@@ -713,35 +742,6 @@ Megadeth - 100% Megadeth (2020) [MP3|320 Kbps] <Rock, Trash Metal, Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE74251BDFD02FC785F015A742BE6D8F1DA2818A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002073   (849932) от 30.03.2016
-
-Ленинград - Новинки (2016) [MP3|192 - 320 кб/с ] <Rock, Ska>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849932.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Экспонат
-02. Самая любимая
-03. ЗОЖ
-04. Плачу(   Читать дальше...   )Жанр: Rock, SkaПродолжительность: 01:02:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:783872455387AB898ADBC613B75854136ECC3EDB
 ```
 
 https://mybot314.ru/tekegram_catalog/

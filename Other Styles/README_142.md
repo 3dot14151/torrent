@@ -1,3 +1,32 @@
+###  Публикация: 299337   (267383) от 05.12.2018
+
+Gregorian - Best Of 1990-2010 (2011) [FLAC (Image+.CUE), lossless]<New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_267383.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. So Sad
+02. Nothing Else Matters
+03. Moment Of Peace
+04. Voyage Voyage(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:19:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EAC844C1BDF61496FB5426A2B382104CD888BB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 182179   (267334) от 05.12.2018
 
 Магический Дудук - Инструментальные хиты Востока (2004) [FLAC|Lossless]<Инструментальная>
@@ -714,35 +743,6 @@ VA - Pacific Moon: Summer Collection (2001) [FLAC|Lossless|tracks + .cue] <New A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:387C9707801599DE2D2BC8700C7EE77D7FB0ECDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339935   (263993) от 23.11.2019
-
-Musica Relajante - Spa for Yoga (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263993.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Aruyde 03:22
-2. Calm Meditation Sounds 03:28
-3. Aum 02:23
-4. Aum Mantra Part Two 02:24(   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 04:41:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D709A039665ABBCCA8C02AA56CD9A0A7296C7D15
 ```
 
 https://mybot314.ru/tekegram_catalog/

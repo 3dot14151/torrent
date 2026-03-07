@@ -1,3 +1,32 @@
+###  Публикация: 1551686   (588916) от 18.05.2022
+
+VA - New Rock 2022 [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_588916.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Pabst - Locker Room (3:43)
+002. Machine Gun Kelly,blackbear - make up sex (feat blackbear) (2:02)
+003. DON BROCO - Fingernails (4:12)
+004. Adam Jensen - Chaos (3:24)(   Читать дальше...   )Жанр: RockПродолжительность: 05:49:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DC950E1693927CB66D2F7829BEF47B66431855B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1300625   (587952) от 08.05.2019
 
 Judas Priest - Metal Gods (2019) (2CD Compilation) [MP3|320 Kbps] <Heavy Metal>
@@ -716,35 +745,6 @@ VA - Rock Party (2015) [MP3|320 кб/с]<Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE9EE35621324370CF89333A1DAFB85D27D943F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 822158   (572000) от 21.05.2019
-
-VA - Не Попса. Rock - Cocktail (2014) [MP3|320 кб/с]<Rock, Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572000.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Uriah Heep - Easy Livin
-02. Kingdom Come - Outsider
-03. Motley Crue - Kickstart My Heart
-04. UDO - Break The Rules(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 07:45:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66DB622524C1C92773666EAED13535DD975B6F10
 ```
 
 https://mybot314.ru/tekegram_catalog/

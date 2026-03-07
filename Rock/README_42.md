@@ -1,3 +1,32 @@
+###  Публикация: 918206   (587989) от 14.07.2015
+
+Exovex - Radio Silence (2015) [MP3|320 кб/с]<Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_587989.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Stolen Wings
+2. Metamorph
+3. Seeker's Prayer
+4. The Last Orbit(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:43:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1B84D428F520B59AE7C45D6774AE83A5F19BD0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1040134   (587523) от 04.08.2016
 
 Starry Saints - Serenade (with bonus singles) (2010-2011) [MP3|256 Kbps] <Alternative Pop Rock, Electronic Indie Rock, Shoegaze>
@@ -723,35 +752,6 @@ Omega - Time Robber & Skyrover (2022) 2CD, Compilation [MP3|320 Kbps] <Progressi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B74A0294ECAF1F32B5407E186E5564C3B6FD0FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921103   (577618) от 24.07.2015
-
-Bobby Fuller Four - Les Genies Du Rock - I Fought The Law (1994) [MP3|320 кб/с]<Garage Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577618.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Not fade away (2:10)
-02.  Guess we'll fall in love (2:15)
-03.  Rock house (2:26)
-04.  A new shade of blue (2:55)(   Читать дальше...   )Жанр: Garage RockПродолжительность: 00:46:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:277AF2C3F8C49AEB11C270365EFC495C8AB4658E
 ```
 
 https://mybot314.ru/tekegram_catalog/

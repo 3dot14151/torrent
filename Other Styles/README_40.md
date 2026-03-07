@@ -1,3 +1,32 @@
+###  Публикация: 1119731   (805489) от 29.03.2017
+
+Jeff Russo - Legion / Легион (Original Television Series Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_805489.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Young David (05:06)
+02. David in Clockworks (00:46)
+03. 174 Hours (08:47)
+04. Seeing Things Hearing Things (04:53)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:15:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A3DAB581C31C4FA1B1F9615EE2E45A7BCFB2EAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1119634   (805375) от 29.03.2017
 
 Jon Ekstrand - Life / Живое (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
@@ -716,35 +745,6 @@ Harp Twins (Camille and Kennerly) - 3 альбома (2013 - 2015) [MP3|320 кб
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6AC39E462D08E47AA149216A8085C804A1DF66A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120304   (801967) от 31.03.2017
-
-Cerrone - Brigade Mondaine: Original Soundtracks (1978-1980) 2014, Because Music, Remastered, 3 CD Box Set [FLAC|Lossless|image + .cue] <Disco, Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801967.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Give Me Love
-02. Phonic
-03. Cloe
-04. Deauville(   Читать дальше...   )Жанр: Disco, SoundtrackФормат: 3хCD, Box Set, Compilation, Limited Edition, Numbered, RemasteredПродолжительность: 01:32:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18B59C6C227A3FE2F7E89653750333B38FBE774E
 ```
 
 https://mybot314.ru/tekegram_catalog/

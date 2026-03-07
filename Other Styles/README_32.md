@@ -1,3 +1,32 @@
+###  Публикация: 1110808   (850242) от 04.03.2017
+
+Marco Beltrami - Logan / Логан (Original Motion Picture Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_850242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Main Titles (02:21)
+02. Laura (02:25)
+03. The Grim Reavers (01:33)
+04. Old Man Logan (02:45)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 0:00:57:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9AC3A8882CD4C7E38861FAF594F4D93DDF4C962
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1110809   (850184) от 04.03.2017
 
 Marco Beltrami - Logan / Логан (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
@@ -713,35 +742,6 @@ VA - No Stress Music Playlist 3: Pure New Age & Chillout Relax (2017) [MP3|320 K
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:59C6F7F2404CCC9EC390C7AE1FF1DC80C216D1A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112256   (843188) от 08.03.2017
-
-VA - Yoga Balance: Asian Traditional Music for Meditation, Yoga Pilates, Relaxed Body and Soul, Deep Relaxation (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843188.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hatha Yoga Music Zone - Yoga 101
-02. Namaste Healing Yoga - Philosophy of Yoga
-03. Healing Meditation Zone - Soothing Rain
-04. Buddha Music Sanctuary - Balance Body(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:42:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92D12D4464A1BACF30241ABAB2E63081EED9E5D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

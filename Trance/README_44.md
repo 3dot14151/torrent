@@ -1,3 +1,90 @@
+###  Публикация: 1626353   (240789) от 14.04.2023
+
+VA - Black Hole Trance Music 04-23 (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_240789.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dennis Sheperd & Koni Blank & EKE (NL) - Limitless (Extended Mix) [5:50]
+02. Cosmic Gate & Nathan Nicholson - Just The Beginning (Extended Mix) [6:50]
+03. Fonzerelli - Forgiven (Extended Mix) [6:45]
+04. Sam Allan & Sarah De Warren - Secrets Of Your Heart (Extended Mix) [6:32](   Читать дальше...   )Жанр: TranceПродолжительность: 02:36:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A9DD528DBF5071DF83CB2023B3274028CDBA798
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626491   (240773) от 14.04.2023
+
+VA - Future Vocal Trance Vol. 1 (2023) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_240773.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. René Miller - Magical Connection (Plastic Vision Short Remix) [4:14]
+02. Sunlight Project feat. Angel Falls - I See You (Sunlifter Dub Mix) [7:05]
+03. Veselin Tasev - Destination Love (Extended Radio Mix) [4:05]
+04. Dr. Well - We Work for Love (Vocal Crash Club Dummies) [3:12](   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 03:55:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B5541030A9B31A9A4168203C336059191916AC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621106   (240109) от 24.03.2023
+
+VA - The Best Of Scorchin' Vol. 1 (Mixed By Super8 & Tab) (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_240109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Francesco Sambero - Ghosts (Mixed) [03:06]
+02. Nick Hayes - Signal (Mixed) [04:06]
+03. Tom Klay - All Might (Mixed) [03:56]
+04. Francesco Sambero Feat. Katrine Stenbekk - Someone Needs A Hero (Mixed) [03:48](   Читать дальше...   )Жанр: TranceПродолжительность: 02:22:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5B5A3B4CC35E53DD045FDC69DDE2542000E4B11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1620909   (240072) от 24.03.2023
 
 VA - Clubbers Culture: Car Audio Trance (2023) [MP3|320 Kbps] <Trance>
@@ -658,93 +745,6 @@ VA - Black Hole Trance Music 05-23 (2023) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:001B598120ACAE1F376E8B7B99601B53C9CD4209
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1643148   (234037) от 01.07.2023
-
-Markus Schulz - The Rabbit Hole Circus (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234037.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Markus Schulz & HALIENE - Death Of A Star (Original Mix) [3:43]
-02. Markus Schulz & Melody Mane - Stay Gold (Original Mix) [5:00]
-03. Markus Schulz & Sarah De Warren - Light On (Original Mix) [7:26]
-04. Markus Schulz & Diandra Faye - Eternally (Original Mix) [6:28](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:02:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FEA89F698A2FA891BBBFB8E4F3D99292E54AF54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634237   (233470) от 20.05.2023
-
-VA - Uplifting Only Top 15: May 2023 (Extended Mixes) (2023) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233470.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. LR Uplift - Stay (Intro Mix) [5:39]
-02. Kohta Imafuku - Best Wishes (Tsuki Shizumutoki Remix) [7:06]
-03. Mark Versluis & Ana Roze - Let Me Know (Last Soldier Extended Remix) [7:34]
-04. AFTERUS - Arrival (Extended Mix) [6:10](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:47:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A82C6065273208B1350193FD090AEBCC3D169EC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641898   (233454) от 25.06.2023
-
-VA - Future Vocal Trance Vol. 2 (2023) [MP3|320 Kbps] <Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233454.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Air Diver - Last 4 Ever (Original Mix) [9:07]
-02. Sentinel feat. Zara Taylor - Heartbreaker (Original Mix) [3:54]
-03. Markell feat. Margo Lane - The World (Radio Version) [4:26]
-04. MNK feat. Cassi Luv - Something Is Nothing (Arkadiusz S Remix) [6:37](   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 02:55:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3201E4AFB6991BFF5A5F939F9F6B5C92729E8352
 ```
 
 https://mybot314.ru/tekegram_catalog/

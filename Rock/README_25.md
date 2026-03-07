@@ -1,3 +1,32 @@
+###  Публикация: 1014727   (776172) от 08.05.2016
+
+John Illsley - Long Shadows (2016) [MP3|320 кб/с] <Rock, Blues, Folk>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776172.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Morning    02:20
+02. In The Darkness    04:56
+03. Comes Around Again    04:19
+04. There's Something About You    04:49(   Читать дальше...   )Жанр: Rock, Blues, FolkПродолжительность: 00:35:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86F2E97AC30F564363B778AEF3FAF0BBCA22E7CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1015280   (775071) от 10.05.2016
 
 VA - Nigeria Rock Special - Psychedelic Afro-Rock & Fuzz Funk In 1970's Nigeria (2008) [MP3|192 кб/с] <Afro-beat, Funk, Afro-Rock>
@@ -713,35 +742,6 @@ Lost Gravity - это рок-группа, созданная в 2007 году �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD4788BE8769181BA020B6D8BF3AA0C8AFB1F69F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393892   (766369) от 02.07.2020
-
-Trapt - Shadow Work (2020) [MP3|320 Kbps] <Alt.Rock, Modern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766369.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Make It Out Alive (03:30)
- 02. I Want To Want What I Want (03:54)
- 03. Tell Me How You Really Feel (04:10)
- 04. Too Little Too Late (04:04)(   Читать дальше...   )Жанр: Alt.Rock, Modern RockПродолжительность: 00:44:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBE80784BF3D348B7279DAD4006A9DEBACD645F7
 ```
 
 https://mybot314.ru/tekegram_catalog/

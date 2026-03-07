@@ -1,3 +1,29 @@
+###  Публикация: 944908   (438072) от 08.10.2015
+
+Обои - Wallpaper Macro Selection Set1 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_438072.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои в стиле макро съёмки.Формат: JPGРазрешение файлов: 1920х1080 - 2560х1600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60573FC8E29D26CCE9BAB79E835E7AF8A1F3594C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1249170   (437664) от 22.09.2018
 
 Обои - Desktop Wallpapers Full HD. Part (294) [JPG]
@@ -642,32 +668,6 @@ Wallpapers Кошачьи #64 [JPG]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:58309F01298E6BF7CB8B6AA061FECCD3298DBF59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1323619   (433676) от 05.09.2019
-
-Wallpaper pack - Abstraction 41 [JPG, PNG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433676.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка обоев на тему абстрактная графикаФормат: JPG, PNGРазрешение файлов: 1900x1200-5120x2880
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23EF9ED94D7F691478B99ABBE810D4E7C5478D2B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 952824   (353506) от 02.11.2015
+
+VA - The Bodyguard (Original Soundtrack Album) (1992) Japanese Edition [FLAC|image + .cue]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_353506.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whitney Houston - I Will Always Love You [4:32]
+02. Whitney Houston - I Have Nothing [4:50]
+03. Whitney Houston - I'm Every Woman [4:47]
+04. Whitney Houston - Run To You [4:24](   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:57:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:673EC54B61B563BC51A8DC941B2206849EFD6CE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 952722   (353431) от 02.11.2015
 
 Jean Michel Jarre - Revolutions (1988) Remastered / 2015, Sony Music / [FLAC|tracks + .cue]<Electronic>
@@ -722,35 +751,6 @@ Enigma - The Fall Of A Rebel Angel (2016) [FLAC|Lossless|image + .cue] <New Age,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76C00D7CBDEA32C5780A9C833BA191FD6650BBBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953497   (349436) от 04.11.2015
-
-Anima - Sacred Alliance (2015) [MP3|320 кб/с]<New Age, Electronic, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Great Mother's Dominion
-02. Surrender
-03. Sewa
-04. Sacred Lands(   Читать дальше...   )Жанр: New Age, Electronic, AmbientПродолжительность: 01:14:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE06C3BEC98DC222AEA6CEA4EC77C8D6879F620F
 ```
 
 https://mybot314.ru/tekegram_catalog/

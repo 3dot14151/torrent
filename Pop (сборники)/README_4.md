@@ -1,3 +1,61 @@
+###  Публикация: 1476697   (1011491) от 12.06.2021
+
+VA - Hot Summer Play (2CD) (2021) [MP3|320 Kbps] <Dance, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011491.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+
+01. Chillymouse - Try Me Out
+02. Vinyl Disciples - Self Control(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 09:32:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD4E24859C1414CCE4C26E82F8760074D80B67B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478609   (1010202) от 20.06.2021
+
+VA - Spring White Pop Session (2021) [MP3|320 Kbps] <Pop, Dance, Lyric>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1010202.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Taylor Swift - Long Story Short
+002. Baekhyun - Disappeared
+003. Jaap Reesema - Nu Wij Niet Meer Praten
+004. Gloria Estefan - Abriendo Puertas(   Читать дальше...   )Жанр: Pop, Dance, LyricПродолжительность: 11:41:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A245BD0C1E615FE24A4E94C666FCA92735C2BA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1478632   (1010155) от 20.06.2021
 
 VA - Dance Play Box Music (2021) [MP3|320 Kbps] <Pop, Dance>
@@ -720,76 +778,6 @@ VA - Зимние Хиты На Love Radio (2013) [MP3|256 кб/с]<Рор>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1DE87AAB54BBA599215BEBAC73D7D0957ABABF37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602693   (997582) от 13.01.2013
-
-VA - Muz Эйфория Зимы (2013) [MP3|256 кб/с]<Pop,Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997582.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dmitriy Gordov Feat. Maryana Dan - Love Station (Radio Edit)
-002. Cara Lee - The Sax Man (Radio Edit)
-003. Linda Jo Rizzo - You're My First, You're My Last 2k13 (New Radio Edit)
-004. Roma Pafos feat. Sarkis Edwards - Say Goodbye (Sensetive5 Radio Edit)
-005. Modana & Carlprit - Hot Spot (Radio Edit)
-006. Gummibar - Gummy Style
-007. Kelly Clarkson - Catch My Breath
-008. Shockolady Feat. Mr. Smith - I Like It Like That
-009. Basto - I Rave You (Original Mix)
-010. Christopher S Feat. Max Urban - Star (Radio Edit)(   Читать дальше...   )Жанр: Pop,DanceПродолжительность: 06:12:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D3E6050BB4951D9009ECF8C7BCC8D92E55AFE4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602777   (997579) от 13.01.2013
-
-VA-Зимняя русская best-of-ка (2013) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997579.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Electrofashion Feat. Mc Жан - Пришелец
- 002. Вне Времени - Не Звони Мне
- 003. В Двух Шагах - Сердце
- 004. Elvira T - Одержима
- 005. Макс Барских - Supermassive Black Hole
- 006. Ранетки - Ревность
- 007. Ирина Кулькова - Я Искала Тебя
- 008. Натаника - Налетели
- 009. Светлана Разина - Радио НАХ
- 010. Isamin - О Тебе(   Читать дальше...   )Жанр: PopПродолжительность: 06:05:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D07DF64F905CC6395D62160E861DDABEDD8E48CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

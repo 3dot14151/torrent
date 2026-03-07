@@ -1,3 +1,32 @@
+###  Публикация: 1045533   (557724) от 24.08.2016
+
+VA - Grease (The Original Soundtrack From The Motion Picture) (1998) [FLAC|Lossless|tracks + .cue] <Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557724.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Grease [03:25]
+ 2. Summer Nights [03:36]
+ 3. Hopelessly Devoted To You [03:05]
+ 4. You're The One That I Want [02:49](   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:03:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45E24E99EAA00853259C73ECA49CCD26E488434C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1045709   (557723) от 24.08.2016
 
 Mystica - Best Of Gregorian Voices: Parts 1-4 (2016) [FLAC|Lossless|tracks] <New Age,Enigmatic>
@@ -709,35 +738,6 @@ VA - Тупой и еще тупее 2 / Dumb and Dumber To (2014) [MP3|320 кб
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23C84D44226442056C533E3DF4BE66A92685686A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306964   (555220) от 08.06.2019
-
-Mariee Sioux - Grief in Exile (2019) [FLAC|Lossless|WEB-DL|tracks] <Folk-Rock, Indie-Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555220.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Snakes
-02. Baby Wave
-03. Goose Song
-04. Never Known(   Читать дальше...   )Жанр: Folk-Rock, Indie-RockПродолжительность: 00:38:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AC620BBF5653FFC39A5156C9EA6410B23C2C1FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

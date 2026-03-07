@@ -1,3 +1,282 @@
+###  Публикация: 455928   (94076) от 22.02.2012
+
+VA - Jumpin' With The Big Swing Band (2003) [FLAC|Lossless]<Jazz, Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_94076.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Jimmy Lunceford & his Orchestra - Call The Police (2:59)
+02.Louis Prima & his Orchestra - Robin Hood (3:05)
+03.Harry James & his Orchestra - Tuxedo Junction (3:02)
+04.Earle Warren & his Orchestra - Tush (2:52)
+05.Jimmy Lunceford & his Orchestra - Cement Mixer (Put-Ti Put-Ti) (2:45)
+06.Harry James & his Orchestra - Hodge Podge (3:00)
+07.Jimmy Lunceford & his Orchestra - Margie (3:01)
+08.Ray McKinley & his Orchestra - Down The Road Apiece (2:58)
+09.Jimmy Lunceford & his Orchestra - Water Faucet (2:40)
+10.Harry James & his Orchestra - Boog It (3:22)(   Читать дальше...   )2003Жанр: Jazz, Swing, Big BandПродолжительность: 00:59:43
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455074   (93853) от 19.02.2012
+
+Little G Weevil - The Teaser (2011) [MP3|320 kbps]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_93853.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Real Men Don`t Dance (03:23)
+02. The Teaser (03:42)
+03. Big City Life (04:40)
+04. Back Porch (03:44)
+05. Highway 78 (05:11)
+06. Apple Picker (04:45)
+07. Dad`s Story (02:34)
+08. 8. 47 (04:41)
+09. Liquor Store (02:40)
+10. She Used To Call Me Sugar (04:25)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F1121A71E490833139AEBE184E8E13CEB3741D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 453718   (93763) от 18.02.2012
+
+Ahmad Jamal - Blue Moon: The New York Session (2012) [FLAC|Lossless]<Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_93763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Autumn Rain (7:38)
+02. Blue Moon (9:55)
+03. Gypsy (5:14)
+04. Invitation (13:13)
+05. I Remember Italy (13:08)
+06. Laura (6:30)
+07. Morning Mist (8:20)
+08. This is the Life (7:09)
+09. Woody'n You (4:57)2012Жанр: Post-Bop, Piano JazzПродолжительность: 01:16:02
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 453905   (93712) от 18.02.2012
+
+Udi Levy - Ahava (2011) [FLAC|Lossless]<Smooth Jazz, Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_93712.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blues For Shai (4:43)
+02. Moment We Touch (4:21)
+03. Ahava (5:07)
+04. Borbala (6:13)
+05. Home By Five (5:00)
+06. Ease My Mind (3:56)
+07. Midnight Walk (5:31)
+08. City Lights (4:59)
+09. Memories of You (5:20)
+10. Roughly Smooth (5:26)2011Жанр: Smooth Jazz, BluesПродолжительность: 00:57:37
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 453720   (93708) от 18.02.2012
+
+Lena Horne - Love Songs (1999) [FLAC|Lossless]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_93708.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's Love (2:16)
+02. Love Me Or Leave Me (3:13)
+03. The Man I Love (3:21)
+04. You're The One (3:35)
+05. People Will Say We're In Love (3:25)
+06. Don't Take Your Love From Me (3:09)
+07. Love Is The Thing (3:21)
+08. Someone To Watch Over Me (3:15)
+09. At Long Last Love (2:41)
+10. I'm Confessin' (That I Love You) (3:28)(   Читать дальше...   )1999Жанр: Vocal JazzПродолжительность: 00:50:12
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 453735   (93707) от 18.02.2012
+
+Gray Sargent - Shades of Gray (1993) [FLAC|Lossless]<Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_93707.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let's Get Lost (5:04)
+02. Gray Haze (3:58)
+03. Don't Take Your Love From Me (7:21)
+04. I Know Why \ My Foolish Heart (7:03)
+05. A.P. in the P.M. (4:15)
+06. You Don't Know What Love Is (8:36)
+07. A Nightingale Sang In Berkeley Square (6:32)
+08. This Time The Dream's On Me (5:17)
+09. My Ideal (6:25)
+10. Long Ago And Far Away (5:08)(   Читать дальше...   )1993Жанр: Guitar JazzПродолжительность: 01:04:41
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 453234   (93559) от 16.02.2012
+
+VA - Piano Jazz (2009) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_93559.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Count Basie - I'm Confessin' (That I Love You) (4:51)
+02.Billy Taylor Trio - La Petite Mambo (4:49)
+03.Paul Desmond - Alice In Wonderland (4:06)
+04.Bill Evans - For Heaven's Sake (4:26)
+05.Thelonious Monk - It Don't Mean A Thing (If It Ain't Got That Swing) (4:40)
+06.Oscar Peterson - Georgia On My Mind (3:46)
+07.Eugen Cicero  - Autumn Leaves (6:24)
+08.Earl Hines - Moonlight In Vermont (3:13)
+09.Erroll Garner - Misty (2:48)
+10.George Shearing - Someone To Watch Over Me (2:35)(   Читать дальше...   )2009Жанр: JazzПродолжительность: 01:08:50
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 453160   (93555) от 16.02.2012
+
+Too Slim And The Taildraggers - Shiver (2011) [FLAC|Lossless]<Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_93555.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stoned Again (4:36)
+02. Daddies Bones (4:55)
+03. Can't Dress It Up (5:05)
+04. In Your Corner (4:54)
+05. I Heard Voices (0:48)
+06. Everybody's Got Something (5:02)
+07. Workin' (5:57)
+08. She Sees Ghosts (4:45)
+09. Inside of Me (4:29)
+10. As the Tears Go By (4:52)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:53:54
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 453266   (93550) от 16.02.2012
 
 Hope Waits - Hope Waits (2007) [FLAC|Lossless]<Vocal Jazz, Blues>
@@ -601,262 +880,6 @@ Dave Grusin - Migration (1989) [FLAC|Lossless]<Jazz, Contemporary, Crossover Jaz
 08. T. K. O. (5:48)
 09. Polina (6:56)
 10. Lupita (1:08)(   Читать дальше...   )1989Жанр: Jazz, Contemporary, Crossover JazzПродолжительность: 01:02:27
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485063   (89372) от 19.04.2012
-
-Jessy Martens & Band - Brand New Ride (2012) [WavPack|Lossless]<Blues, Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89372.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brand New Ride (4:21)
-02. One Minute Love (4:21)
-03. Touch My Blues Away (5:10)
-04. Little Mama Don't Play (4:00)
-05. Hey Mister (4:07)
-06. Undone (3:59)
-07. Forever Mine (3:34)
-08. Marry Me (4:25)
-09. Hands Up (3:47)
-10. Fool 4U (4:21)2012Жанр: Blues, Blues-RockПродолжительность: 00:42:05
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483547   (88949) от 17.04.2012
-
-Yehudi Menuhin &  Stephane Grappelli - Menuhin & Grappelli Play... 2CD (2004) [FLAC|Lossless]<Classical, Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88949.jpg" />
-</div>
-
-
-###  Подробнее
-
-4 Oct 2004Жанр: Classical, JazzПродолжительность: 01:15:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46A47F3B5F38C4A051906BDEB5D7B89D76C74927
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481960   (88157) от 13.04.2012
-
-Аня Чайковская & Acoustic Quartet - OljnDvir (2012) [FLAC|Lossless]<pop-jazz, contemporary jazz-art, female vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Легко (4:46)
-02. Никто не знает (6:30)
-03. Пьеро (3:49)
-04. Жестокий романс (3:52)
-05. Весна (5:19)
-06. Не беги (3:52)
-07. Тону (4:47)
-08. Мерилин (4:16)
-09. Я с тобой (3:51)
-10. Ad libitum (3:19)2012Жанр: pop-jazz, contemporary jazz-art, female vocalПродолжительность: 00:44:36
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482073   (87975) от 12.04.2012
-
-The Crusaders, Down to the Bone - The Very Best of Fusion Jazz (2012) [FLAC|Lossless]<Jazz, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01..  The Crusaders -  Stomp And Buck Dance  (5:50)
-02..  Down to the Bone -  Staten Island Groove  (6:46)
-03..  The Crusaders -  Creepin'  (6:57)
-04..  Down to the Bone -  The Zodiac  (7:49)
-05..  The Crusaders -  Soul Shadows  (6:21)
-06..  Down to the Bone -  Black Choice  (5:53)
-07..  The Crusaders -  Honky Tonk Struttin  (4:23)
-08..  Down to the Bone -  Gotta Get Back To You  (5:11)
-09..  The Crusaders -  Spiral  (6:10)
-10..  Down to the Bone -  Brooklyn Heights  (7:13)(   Читать дальше...   )2012Жанр: Jazz, FusionПродолжительность: 01:16:49
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481769   (87938) от 12.04.2012
-
-Quadro Nuevo - In Concert (2012) [MP3|320 кб/с]<Jazz, Instrumental>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tu vuo'fa'L'Americano
-02. Giovanni Tranquillo
-03. Luna Rossa
-04. Sultana
-05. Canzone della Strada
-06. Paroles,Paroles
-07. Miserlou
-08. Prinzessin Josefina
-09. El Choclo
-10. Susannata(   Читать дальше...   )Жанр: Jazz, InstrumentalПродолжительность: 01:13:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E608D14D1078050F4D837FC74C3FE7290639F907
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480119   (87413) от 09.04.2012
-
-Тенор саксофон - Полная коллекция лучших записей джазовой эпохи (1920-1970) [MP3|160 Kbps] <Jazz, Blues>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87413.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Albertayler - For John Coltrane (13:39)
-02. Archie Shepp - Call Me By My Rightful Name (6:43)
-03. Arnett Cobb - Eddie Lockjaw - When I Grow Too Old To Dream (6:44)
-04. Arnett Cobb - Eddie Lockjaw - Go Power (5:11)(   Читать дальше...   )Жанр: Jazz, BluesПродолжительность: 09:49:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83C073ACE51EEA27B3737A8761B5ABB7D4ED0F99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477275   (87372) от 09.04.2012
-
-Игорь Бутман  - (2 альбома) (2007-2011) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87372.jpg" />
-</div>
-
-
-###  Подробнее
-
-2011Жанр: JazzПродолжительность: 01:13:44
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480059   (87306) от 09.04.2012
-
-VA - Oldies For A Rainy Day LPCD45 (2008) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87306.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Louis Armstrong - What a wonderful world    [0:02:21]
-02. Patti Page - Tennessee waltz    [0:03:02]
-03. Ben E King - Stand by me    [0:03:02]
-04. Patti Page - I went to your wedding    [0:03:26]
-05. Platters  - Smoke gets in your eyes    [0:02:45]
-06. Ray Peterson - Tell Laura I love her    [0:02:52]
-07. Freddy Fender - Before the next teardrop    [0:02:37]
-08. Skeeter Davis - End of the world    [0:02:42]
-09. Tremeloes - Silence is golden    [0:03:16]
-10. Four Aces - Three coins in the fountain    [0:03:09](   Читать дальше...   )2008Жанр: Jazz, OldiesПродолжительность: 00:42:27
 
 ## Скачать торент
 ```bash

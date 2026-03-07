@@ -1,3 +1,116 @@
+###  Публикация: 902963   (659835) от 29.05.2015
+
+Alesso - Forever (2015) Deluxe Edition [FLAC|Lossless|WEB-DL]<Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alesso - Profondo
+02. Alesso - PAYDAY
+03. Alesso Feat. Tove Lo - Heroes (We Could Be)
+04. Alesso - Tear The Roof Up(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:03:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8757430E4EE93AB3448F350D40657B9C4668B7F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139799   (659289) от 03.06.2017
+
+Adam Jay - Maxia Zeta (2017) [FLAC|Lossless|WEB-DL|tracks] <Electro, IDM, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659289.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maxia Zeta (06:17)
+02. Distant Origin (06:41)
+03. Dynaform (06:46)
+04. Locating The Ecosphere (05:51)(   Читать дальше...   )Жанр: Electro, IDM, TechnoПродолжительность: 01:01:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:768D7BE3838A5C145F8F016286656DC2074F03DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140089   (658020) от 04.06.2017
+
+Rodriguez Jr. - Baobab (2017) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_658020.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Жанр: Tech House, Deep HouseПродолжительность: 01:06:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8686A6BB509BB95169946C6C7ACB349227AAC4CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1225845   (657956) от 18.05.2018
+
+DAVI - Boarding Call (2018) Maxi Single & EP [FLAC|Lossless|WEB-DL|tracks] <Deep Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657956.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boarding Call (7:07)
+ 02. Boarding Call (Armen Miran Remix) (6:56)
+ 03. Boarding Call (Hraach Remix) (7:47)
+ 04. Corrected (7:08)Жанр: Deep Progressive HouseПродолжительность: 00:28:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FA1C2783B7D72E8BBC9DA0061C44FC4C70710A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 514568   (657754) от 24.06.2012
 
 Example - Playing In The Shadows (2011) [FLAC|Lossless]<Electro House/ Electro Hip-Hop/Dubstep>
@@ -638,122 +751,6 @@ Robin Schulz & David Guetta & Cheat Codes - Shed A Light: The Remixes Part 1 (20
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E1ECB94EF390C29C740A360AAA8E1857205548A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142142   (644603) от 13.06.2017
-
-Robin Schulz & David Guetta & Cheat Codes - Shed A Light (The Remixes Part 2) (2017) [FLAC|Lossless|WEB-DL|tracks] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644603.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Shed A Light (MDZN Remix) [03:27]
-02 - Shed A Light (Mosimann Remix) [06:02]
-03 - Shed A Light (Heyder Remix) [03:39]
-04 - Shed A Light (Aligee Remix) [04:12](   Читать дальше...   )Жанр: HouseПродолжительность: 00:27:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BCF7BDE845A9B7289224BE8898E95EACDE367E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 137923   (644397) от 03.04.2022
-
-Freeland - Cope™ (Jun-08-2009) [FLAC|Lossless]<Electronic, Rock, Electro, Breaks>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644397.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Do You 3:31
-02. Under Control 4:04
-03. Strange Things 4:16
-04. Bring It 5:40(   Читать дальше...   )Жанр: Electronic, Rock, Electro, BreaksПродолжительность: 00:55:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE1380C4FBDD727D1314947C7905342EDDF102EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292817   (643291) от 31.03.2019
-
-Maceo Plex - Mutant Series (2019) Ellum Audio [FLAC|Lossless|WEB-DL|tracks] <Tech House, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643291.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mutant Disco (7:00)
- 02. Mutant DX (5:40)
- 03. Mutant Romance (6:45)
- 04. Mutant Pulse (8:45)(   Читать дальше...   )Жанр: Tech House, TechnoПродолжительность: 00:47:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB43C79372C4B53C2D247401659E4E7005F4CC89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906759   (641617) от 10.06.2015
-
-VA - Club Sounds Presents Bodybangers - Bang the House (2015)2CD[FLAC|Lossless|WEB-DL]<House, Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641617.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Bodybangers - Pump Up The Jam (3:07)
-02 Dr. Alban - It’s My Life 2014 (Bodybangers Remix Edit) (3:33)
-03 Dj Antoine - Light It Up (Bodybangers Remix Edit) (3:41)
-04 Jam & Spoon Feat. Plavka Vs. David May & Amfree - Right In The Night (Bodybangers Remix Edit) (3:32)(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:19:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:761F580B3D03CBAD1DC9F3F559555DA4C4C08C16
 ```
 
 https://mybot314.ru/tekegram_catalog/

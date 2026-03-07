@@ -1,32 +1,3 @@
-###  Публикация: 1649294   (207839) от 28.07.2023
-
-The Rolling Stones - Forty Licks (2002) 2CD, Deluxe Remaster Compilation (2023) ROAR Records[MP3|320 Kbps] <Rock, Hard Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Start Me Up (Remastered 2009) [03:33]
-02. Brown Sugar (Remastered 2009) [03:50]
-03. Miss You (Remastered) [04:49]
-04. Beast Of Burden (2009 Mix) [04:25](   Читать дальше...   )Жанр: Rock, Hard Rock, Classic RockПродолжительность: 02:42:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:610BA731C3A37F27D15C0EDED7A7D6C0C65C0899
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1649761   (207684) от 29.07.2023
 
 Eagles - Beacon Theatre, New York 1974 (2016) Reissue, 2023, Zip City [MP3|320 Kbps] <Rock, Folk, World, Country>
@@ -739,6 +710,35 @@ Jon Bon Jovi - Destination Anywhere (1997) Reissue, 2013, Mercury [OGG Vorbis|48
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4F970A15B229FD54A0F8E9F61A25B1F8F12680D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588244   (191833) от 03.11.2022
+
+White Skies - Black Tide (2022) [MP3|320 Kbps] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_191833.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What Do You Know About Love (04:12)
+ 02. Emily (04:10)
+ 03. Midnight Rendezvous (05:03)
+ 04. Kiss Me (As I Say Goodbye) (04:57)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:59:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E70366F3B2AAFEAFACD13532E8288793E6641BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

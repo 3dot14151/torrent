@@ -1,367 +1,22 @@
-###  Публикация: 1816021   (4416) от 04.09.2025
+###  Публикация: 1764095   (5443) от 29.08.2025
 
-Laufey - A Matter of Time (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Vocal Jazz, Vocal Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4416.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Clockwork [00:02:30]
-02. Lover Girl [00:02:44]
-03. Snow White [00:03:13]
-04. Castle in Hollywood [00:02:33](   Читать дальше...   )Жанр: Vocal Jazz, Vocal PopПродолжительность: 00:45:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:847596AEFB22E97BCEACF43C56F0540B58A4A005
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816273   (4415) от 04.09.2025
-
-Dj Cult Music - Blues Rock Cult Songs (2025) [FLAC 24/192|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4415.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Bourbon Powered Blues (3:24)
-02.  Chrome Heart Shuffle (3:59)
-03.  Echoes in Leather Boots (3:30)
-04.  Gravel Voice Lullaby (3:43)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:18:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C7A6EE7640362E98276612A661D5153B27F4EC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816047   (4414) от 04.09.2025
-
-Pola & Bryson - Fabriclive presents Pola & Bryson (2025) [MP3|320 Kbps] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Worlds Apart [00:04:41]
-02 - The Certified Bubbler [00:03:06]
-03 - Not Far To Go [00:06:25]
-04 - Lies [00:03:04](   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:17:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B337648107A3A40F516CA1BE97328DCBA5DDD699
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816036   (4413) от 04.09.2025
-
-Halle Choir, BBC Philharmonic and John Storgards - Shostakovich: Symphonies Nos. 1 & 3 "The First of May" & Scherzos, Opp. 1 & 7 (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] &lt ...
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4413.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scherzo in F-Sharp Minor, Op. 1 [00:05:00]
-02. Scherzo in E-Flat Major, Op. 7 [00:04:02]
-03. Symphony No. 1 in F Minor, Op. 10: I. Allegretto [00:09:13]
-04. Symphony No. 1 in F Minor, Op. 10: II. Allegro [00:05:01](   Читать дальше...   )Жанр: ClasicaПродолжительность: 01:15:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0721BEDE1BDE584847722C2891432E4D8198478C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816371   (4412) от 04.09.2025
-
-AI Talking - Mega Collection Vol. 4 (2025) [MP3|320 Kbps] <Euro-Disco, Europop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4412.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Send Me An Angel Now (3:49)
-02. The Night's Embrace (3:17)
-03. Stop And Connect (3:17)
-04. Feel The Beat, Dance Till Dawn (3:16)(   Читать дальше...   )Жанр: Euro-Disco, EuropopПродолжительность: 01:56:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8724E19FC047E8AFE44C3DDC4796FC2882B3ED08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816399   (4411) от 04.09.2025
-
-Уильям Тенн | Фауст (2021) [MP3, Puffin Сafe]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4411.jpg" />
-</div>
-
-
-###  Подробнее
-
-В офис к торговцу Берни ввалился какой-то оборванный и измазанный грязью бродяга, предложивший купить ему двадцать долларов за пять. Сперва Берни отнесся к предложению скептически, выгнал бродягу, но тот успел оставить ему визитную карточку, что очень странно для бездомного. Профессиональное любопытство заставило Берни найти своего «коллегу» по указанному адресу (   Читать дальше...   )Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:51:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE8C1067815C6AA8FB67F87F4DEEC751C3F8FE3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816335   (4410) от 04.09.2025
-
-VA - A State of Trance - Classics Top 10, Vol. 7 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Binary Finary - 1998 (Matt Darey Extended Remix) [7:18]
-02. Signum - Solar Level (Extended Mix) [9:30]
-03. Olmec Heads - Lift Off (Extended Mix) [7:49]
-04. Alex M.O.R.P.H. feat. Sylvia Tosun - An Angel's Love (12" Vocal Mix) [8:32](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:22:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A2FC9CE77326309D6E21DBCB0ECB03FCBA0EA85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816372   (4409) от 04.09.2025
-
-AI Talking - Mega Collection Vol. 5 (2025) [MP3|320 Kbps] <Euro-Disco, Europop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4409.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kiss Of Love (3:16)
-02. Innocent Heart (3:16)
-03. Moment Of Love (3:17)
-04. Finest Painter (3:16)(   Читать дальше...   )Жанр: Euro-Disco, EuropopПродолжительность: 01:55:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB72C41531B7A283C63F760E0FD8A5736738562A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816370   (4408) от 04.09.2025
-
-AI Talking - Mega Collection Vol. 3 (2025) [MP3|320 Kbps] <Euro-Disco, Europop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4408.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Undercover Love (3:49)
-02. Satisfy My Soul (3:16)
-03. Anything For Love, Anything For You (3:16)
-04. Diamond Flower (3:17)(   Читать дальше...   )Жанр: Euro-Disco, EuropopПродолжительность: 01:57:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10595C59B9EBB0F4264442141D867AB95401DD3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816237   (4407) от 04.09.2025
-
-AI Talking - Mega Collection Vol. 2 (2025) [MP3|320 Kbps] <Euro-Disco, Europop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stereo Heartbeat (3:16)
-02. Gran Canaria (3:17)
-03. Sunshine Calling (3:17)
-04. Mirror Of Truth (3:16)(   Читать дальше...   )Жанр: Euro-Disco, EuropopПродолжительность: 01:56:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C836598B21DF8B7A83715279798D3CBE98BD3C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816263   (4406) от 04.09.2025
-
-Queen - Acoustic (2025) Remastered, 2011, UME - Global Clearing House [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4406.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calling All Girls (Remastered 2011) [03:52]
-02. The Night Comes Down (2024 Mix) [04:22]
-03. Funny How Love Is (Remastered 2011) [02:50]
-04. '39 (Remastered 2011) [03:31](   Читать дальше...   )Жанр: RockПродолжительность: 00:33:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB1050CCDF90F8B7E74D32D040B61DB9E85D75D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816328   (4405) от 04.09.2025
-
-VA - The Orient Collective: Tibetan Spirits (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4405.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tibetania, Ivan Suvorov - Cleopatra (Original Mix) (4:53)
-02. Project Blue Sun, Tibetania - Ad Astra Per Aspera (Original Mix) (5:10)
-03. Tibetania, Ivan Suvorov - Dancing Hanuman (Original Mix) (5:22)
-04. Tibetania, Summer Department - Sub Rosa (Original Mix) (5:44)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:16:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F1B98CD1C032C375B2D02CF4987705AD82653D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816353   (4404) от 04.09.2025
-
-Whisker Wanderlust: The Wondrous Journey (2025) [Ru/Multi] (1.0) Repack FitGirl
+RimWorld (2018) [Ru/Multi] (1.6.4566/dlc) Repack Let'sРlay
 
 >>Win Игры
->>Adventure/Quest
+>>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4404.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5443.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Каждый уровень - это путешествие в сказочный мир. Наша визитная карточка - уникальный пастозный стиль ручной росписи: каждый кадр достоин стать обоями, создавая истинный визуальный символ игры. Иммерсивную атмосферу дополняют эксклюзивные саундтреки для каждого уровня, позволяющие полностью погрузиться в игру!Тип издания: RepackРазработчик: MEOW STORE GAMEЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык субтитров: Русский, Английский, Китайский (упрощенный) и другиеЯзык интерфейса: Русский, Английский, Китайский (упрощенный) и другие
+Научно-фантастический симулятор колонии под управлением ИИ-рассказчика. RimWorld управляет тремя людьми, выжившими после крушения космического лайнера, в строительстве колонии в приграничном мире на краю изученного пространства. Источники вдохновения этой игры -это дух космического вестерна Firefly, глубокая проработка Dwarf Fortress и эпические Dune и Warhammer (   Читать дальше...   )Тип издания: RepackРазработчик: Ludeon StudiosЖанр: Симулятор, Стратегия, ФантаcтикаЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A533357BED678B0DF74A6526AF5117BFD2A7B257
+magnet:?xt=urn:btih:BCE208C7DC110CEEA9C7D6E5218DEF0D283AA92E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -369,25 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816333   (4403) от 04.09.2025
+###  Публикация: 1815283   (5442) от 29.08.2025
 
-Трансформеры 3: Тёмная сторона Луны / Transformers: Dark of the Moon (2011) BDRip [H.265/2160p] [4K, HDR10, 10-bit]
+Внутри каракурта (2025) WEB-DL [H.264/1080p]
 
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
+>>Горячие новинки
+>>Отечественные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4403.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5442.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Американское правительство долго скрывало тайну первой высадки человека на Луну. Оказывается, 20 июля 1969 года совершив посадку на Луне, американские астронавты обнаружили разбившийся корабль автоботов и останки роботов. Программу засекретили, но спустя сорок лет она вновь всплыла, как камень преткновения в отношениях людей и автоботов. Сем Уитвики и его новая подружка (   Читать дальше...   )Производство: США / Di Bonaventura Pictures, Hasbro Inc., Paramount PicturesЖанр: фантастика, боевик, приключенияРежиссер: Майкл БэйАктеры: Шайа ЛаБаф, Роузи Хантингтон-Уайтли, Джош Дюамель, Джон Туртурро, Патрик Демпси, Фрэнсис МакДорманд, Кен Жонг, Алан Тьюдик, Джон Малкович, Тайриз ГибсонПеревод: Дублированный (Пифагор)Язык озвучки: Русский, английскийСубтитры: Русские (forced, full), английские (full, SDH)Продолжительность: 02:34:23
+История семьи, которая пытается спрятаться от хаоса, затягивающего весь мир в черную воронку апокалипсиса. Но баррикады в коридоре квартиры, костюмы химзащиты и мистические ритуалы с животными не помогают. Абсурд и кошмары проникают в их убежище через тревожные, полные похоти, смерти и ужаса сны. Семья не замечает, как перешла грань этого мира и находится внутри (   Читать дальше...   )Производство: Россия / Киностудия ГончуковаЖанр: ужасы, драма, комедияРежиссер: Арсений ГончуковАктеры: Владимир Любовский, Инесса Крылова, Регина Целик, Юрий Ваганов, Ева Ройтман, Анна Погорелова, Артем Глотов, Федор Зорин, Екатерина ПавловаПеревод: Не требуется (русский)Субтитры: английскиеПродолжительность: 01:12:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:57708ABB4E6237D9526EBB8E40EDBF01254E2AF6
+magnet:?xt=urn:btih:E9AF8D7793949DC945094D47AD047FFB1A7955BC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -395,28 +50,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816019   (4402) от 04.09.2025
+###  Публикация: 1053628   (5441) от 29.08.2025
 
-Pendulum - Inertia (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Drum & Bass, Electronic Rock>
+Garbage - 11 альбомов (1995 - 2025) 20 CD [FLAC|Lossless|image + .cue|tracks+.cue] <Alternative Rock, Pop Rock, Electronic>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4402.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5441.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Driver [00:03:27]
-02. Come Alive [00:03:53]
-03. Save The Cat [00:02:52]
-04. Archangel [00:04:03](   Читать дальше...   )Жанр: Drum & Bass, Electronic RockПродолжительность: 00:54:26
+Группа Garbage существует с 1994 года, однако все её участники начали заниматься музыкой гораздо раньше. 1983 году Butch Vig и Steve Marker основали в Мэдисоне студию "Smart", потом Butch Vig продюсировал диски таких групп, как "Nirvana" (альбом Nevermind), "Sonic Youth", "L7" и "Smashing Pumpkins". Duke Erikson когда (   Читать дальше...   )Список альбомов:
+1995 - Garbage
+1998 - Version 2.0
+2001 - Beautiful Garbage(   Читать дальше...   )Жанр: Alternative Rock, Pop Rock, ElectronicПродолжительность: 20:45:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:11E7A826EB980E3DDA6BEBA57F0DDC28ABF925B2
+magnet:?xt=urn:btih:E354A788A0F838FCD48F1E861D87DA2ACC108E22
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -424,28 +79,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816281   (4401) от 04.09.2025
+###  Публикация: 1815182   (5440) от 29.08.2025
 
-Rick White - Again (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+Cent Browser 5.2.1168.83 Stable + Portable [Multi/Ru]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4401.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5440.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Still A Radio (3:01)
-02.  Life In The Maze (2:10)
-03.  Contact (2:48)
-04.  The Cat (2:24)(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:02
+Cent Browser является усовершенствованной версией браузера Chromium, которая объединяет множество полезных функций, таких как прокрутка панели вкладок, жесты мышью, супер перетаскивание и управление поведением вкладок. Это делает веб-серфинг более удобным и комфортным.Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5276CD52D299E7B4EE350A13BA6150BA094DEB52
+magnet:?xt=urn:btih:B6B1CD3766B1EB4FCC36D7243F4B13EB239A6CD3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -453,28 +105,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816275   (4400) от 04.09.2025
+###  Публикация: 1815260   (5439) от 29.08.2025
 
-Honeybear the Band - I Was Wrong (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+Я знаю, что вы сделали прошлым летом / I Know What You Did Last Summer (2025) WEB-DL [H.265/2160p] [4K, SDR, 8-bit] [MVO]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Горячие новинки
+>>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4400.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5439.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Devotion (3:39)
-02.  Work In Progress (2:52)
-03.  If You Were Mine (3:09)
-04.  Everyone's Invited (3:52)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:29:03
+4 июля, отправившись смотреть салют после помолвки Дэники и Тедди, пятеро друзей становятся невольными виновниками автокатастрофы, в результате которой гибнет человек. Они решают никому не говорить об этом, а богатый отец Тедди делает всё, чтобы замять произошедшее. Год спустя Дэника собирается замуж за другого и, открывая подарки на девичнике, обнаруживает записку (   Читать дальше...   )Производство: США, Австралия, Канада / Columbia Pictures Corporation, Original FilmЖанр: ужасы, триллер, детективРежиссер: Дженн РобинсонАктеры: Мэдлин Клайн, Чейз Суй Уондерс, Джона Хауэр-Кинг, Тайрик Уизерс, Сара Пиджон, Билли Кэмпбелл, Сара Мишель Геллар, Фредди Принц мл., Дженнифер Лав Хьюитт, Остин НиколсПеревод: Многоголосый профессиональный (HDrezka Studio, Le-Production)Язык озвучки: Русский, АнглийскийСубтитры: Английские (Full, SDH)Продолжительность: 01:51:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DBF8B573B9B8EC2B1CA1351F3EBFC53B288C488F
+magnet:?xt=urn:btih:92272808BDF25A08E224591DFB35884787E3D1BD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -482,28 +131,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816282   (4399) от 04.09.2025
+###  Публикация: 1815371   (5438) от 29.08.2025
 
-Sebastian Rider - Gonna Know My Name (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+Формула-1 / F1: The Movie (2025) WEB-DLRip [AV1/2160p] [4K, SDR, 10-bit] [hand made AI]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Остальное
+>>hand made * video
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4399.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5438.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  I've Been Bad (2:46)
-02.  I Got Mine (3:14)
-03.  Soul Train (3:05)
-04.  Don't Want No Trouble (4:06)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:29
+В 1990-х Сонни Хейс был восходящей звездой «Формулы-1», но после серьёзной аварии ушёл из большого спорта. 30 лет спустя Сонни живёт в трейлере и зарабатывает участием в различных гонках и чемпионатах. Однажды к нему обращается старый друг Рубен Сервантес, тоже в прошлом гонщик, а ныне владелец гоночной команды-аутсайдера, с просьбой присоединиться к ним в качестве (   Читать дальше...   )Производство: США / Apple Studios, Dawn apollo, Jerry Bruckheimer FilmsЖанр: боевик, драма, спортРежиссер: Джозеф КосинскиАктеры: Брэд Питт, Демсон Идрис, Хавьер Бардем, Керри Кондон, Тобайас Мензис, Ким Бодния, Сара Найлз, Уилл Меррик, Пепе Балдеррама, Абдул Сэлис и др.Перевод: Дублированный (Movie Dubbing / Bravo Records Georgia, Red Head Sound), многоголосый (LostFilm)Язык озвучки: Русский, английскийСубтитры: Русские (forced, full), английские (full, SDH)Продолжительность: 02:35:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E1740CE5ACB760BF236CB25195A142DB48100CCA
+magnet:?xt=urn:btih:3039B6153B328ADCA4C57E1B992BF67AB0E62A16
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -511,28 +157,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816270   (4398) от 04.09.2025
+###  Публикация: 1814327   (5437) от 29.08.2025
 
-Bluebirds - You Take My Blues Away (The original live recordings) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+USB Safely Remove 7.1.2.1327 [Multi/Ru]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4398.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5437.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Keep On Loving Me Baby (The original live recordings) (3:38)
-02.  You Take My Blues Away (The original live recordings) (2:46)
-03.  She's Tough (The original live recordings) (3:09)
-04.  Just Because (The original live recordings) (3:00)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:31:02
+Вы теряли когда-либо важные данные после небезопасного извлечения внешнего диска? Останавливали по ошибке не то устройство? Не получалось отключить USB носитель? USB Safely Remove решает эти и другие проблемы безопасного извлечения устройств в Windows и предлагает множество других функций для удобной и безопасной работы с внешними гаджетами.Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A4751372EF869907630D13416134B9D9D9924C2D
+magnet:?xt=urn:btih:510F9F15E2F103571E9F16017FE88B6258AA183F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -540,28 +183,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816286   (4397) от 04.09.2025
+###  Публикация: 1807411   (5436) от 29.08.2025
 
-The Bonnevilles - Age Of Monsters (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+Purpleschool, Антон Ларичев | Feature-Sliced Design (2025) WEB-DL [RU]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4397.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5436.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Not a Penny for the Earl (3:25)
-02.  Age of Monsters (5:00)
-03.  Two Big Fizzies (2:26)
-04.  The Bais (2:52)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:51
+Этот курс будет полезен для frontend разработчиков с любым уровнем навыков. На практических занятиях мы рассмотрим, как применить FSD не только с React, но и с Next, Vue, Nuxt, Angular, а также Svelte.
+
+Начнем с изучения, что такое FSD и как он способствует лучшей организации наших проектов, а также разберем понятия слоев, слайсов и сегментов. В дальнейшем мы поэтапно (   Читать дальше...   )Производство: PurpleschoolЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 06:13:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A5E763B703ABE599D9B6D3883CFB71A08E3F34CF
+magnet:?xt=urn:btih:EA707A0F40314F64122DF57DAFF9A6D566A67C45
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -569,28 +211,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816289   (4396) от 04.09.2025
+###  Публикация: 1811857   (5435) от 29.08.2025
 
-Tim Erickson - Waiting On The Light (Artist's Cut) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+Она сказала «Да!» / North Star / My Mothers Wedding (2023) WEB-DLRip [H.264/1080p] [звук с TS] [AD]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Горячие новинки
+>>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4396.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5435.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Fly Away (4:01)
-02.  Waiting On The Light (4:39)
-03.  Too Many Ghosts (2:58)
-04.  Stranger Things Have Happened (4:37)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:35:35
+Три сестры — строгая карьеристка Кэтрин, страстная красотка Виктория и семейная тихоня Джорджина — возвращаются в родной город ради своей мамы, ведь она снова сказала «Да!». Их ждут яркие эмоции, неожиданные гости, пикантные секреты и множество судьбоносных поворотов.Производство: Великобритания / CAA Media FinanceЖанр: драма, комедияРежиссер: Кристин Скотт ТомасАктеры: Скарлетт Йоханссон, Сиенна Миллер, Эмили Бичем, Роджер Эштон-Гриффитс, Джулио Мария Беррути, Рики Бевинс, Дэвид Чарльз, Тибо де Монталембер, Марк Декстер, Марк ЭбулуПеревод: Дублированный (звук с TS)Язык озвучки: Русский, УкраинскийСубтитры: ОтсутствуютПродолжительность: 01:31:53Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CC55D010DCECE45B6D26AE49E76D9934C8D4445B
+magnet:?xt=urn:btih:587B2F9CBAE9E3FEF9C49324C8EE9FEA7F8CC55C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -598,28 +237,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816290   (4395) от 04.09.2025
+###  Публикация: 1815358   (5434) от 29.08.2025
 
-TesseracT (& Daniel Tompkins) - Studio Albums (7 releases) (2011-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal, Djent>
+Assassin's Creed: Valhalla (2020) [Ru/Multi] (1.7.0/dlc) Repack Wanterlude [Complete Edition]
 
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>Win Игры
+>>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4395.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5434.jpg" />
 </div>
 
 
 ###  Подробнее
 
-TesseracT - британская рок-группа из города Милтон-Кинс, образованная в 2003 году. Группа считается одним из пионеров джент-направления в прогрессивном метале.2011 - One
-2013 - Altered State
-2015 - Polaris
-2018 - SonderЖанр: Progressive Metal, DjentПродолжительность: 06:45:08
+Сыграйте за викинга по имени Эйвор, которого с самого детства готовили стать бесстрашным воином. Вам предстоит повести свой клан из безжизненной ледяной Норвегии, чтобы обрести новый дом на плодородных землях Англии IX века. Вы должны основать селение и любыми средствами обуздать этот непокорный край, чтобы обеспечить себе место в Вальгалле. В те времена Англия представляет (   Читать дальше...   )Тип издания: RepackРазработчик: Ubisoft MontrealЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0640E4329519E4EA9CC5590F1471C2D8B94E0866
+magnet:?xt=urn:btih:CC30DA458A1F0E282548B5F15DD685808535984F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -627,28 +263,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816269   (4394) от 04.09.2025
+###  Публикация: 1814702   (5433) от 29.08.2025
 
-Baba Blues - Glimmer of Gold II (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+Google вводит обязательную верификацию для всех разработчиков Android приложений
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>След.
+>>Новости
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4394.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5433.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Fishermen (7:14)
-02.  Heavy Stone (6:20)
-03.  Bricks in My Pillow (3:59)
-04.  Blues is a Rainbow (4:05)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:50:39
+Компания Google анонсировала серьезное изменение в политике безопасности экосистемы Android. Начиная с 2027 года, для всех разработчиков приложений, распространяемых на сертифицированных устройствах, станет обязательной процедура верификации. Нововведение коснется не только программ из магазина Google Play, но и тех, что устанавливаются из сторонних источников.Основной (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1EB3634D276153C638ADF36FCD710FDDD7CCC06C
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -656,28 +289,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816024   (4393) от 04.09.2025
+###  Публикация: 1815224   (5432) от 29.08.2025
 
-Ami Taf Ra - The Prophet and The Madman (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz, Gospel>
+Сборник | Большая библиотека советской фантастики [5547 книг] (1920-1991) [FB2, PDF, DJVU, TXT]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Художественная литература
+>>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4393.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5432.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Speak to Us (Intro) [00:01:09]
-02. How I Became a Madman [00:06:53]
-03. The Prophet [00:08:45]
-04. God [00:04:08](   Читать дальше...   )Жанр: Jazz, GospelПродолжительность: 01:02:28
+Самый грандиозный сборник советской фантастики в рунете, включающий в себя все направления, большинство авторов и охватывающий все эпохи, от анитиутопий 20-х гг XX века, до золотого века 50-60-х и расцвета 70-80-х гг.Жанр: Фантастика, космоопера, приключенияИздательство: РазличныеФормат: FB2, PDF, DJVU, TXTКачество: Изначально электронное (ebook), Различное
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:830783ED7B8D48E425DA0894711F0C61FFDF0A05
+magnet:?xt=urn:btih:9C9B13B08156F25D33E9C0EFF7EF6684AC7934C7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -685,27 +315,261 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816369   (4392) от 04.09.2025
+###  Публикация: 1815045   (5431) от 29.08.2025
 
-Смерть Иоанна Грозного (1909) WEBRip [H.264/1080p]
+Shantae Advance Risky Revolution (2025) [Multi] (1.0.2/dlc) Repack Let'sРlay [Deluxe Edition]
+
+>>Win Игры
+>>Горячие новинки Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5431.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шантэ вернулась! Мы ждали этого ее приключения 20 лет! У зловещей пиратки Риски Бутс появился новый «головокружительный» план по грабежу мира Секвин - вращая континент, она сможет легко получить доступ к любому городу, передвинув его к берегу! Вам, играя за Шантэ, предстоит бить пиратку ее же оружием, поворачивая землю самостоятельно. Сдвигайте и смещайте тектонические (   Читать дальше...   )Тип издания: RepackРазработчик: WayForward, Limited Run GamesЖанр: Экшены, Приключенческие игрыЯзык субтитров: Английский, Французский, Немецкий, Итальянский и другиеЯзык интерфейса: Английский, Французский, Немецкий, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A733CC6613DE2AE186C76CE3911FB86B31B76B5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815266   (5430) от 29.08.2025
+
+Office Installer & Office Installer+ 1.29 by Ratiborus [Ru]
+
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5430.jpg" />
+</div>
+
+
+###  Подробнее
+
+Office Installer - программа предназначена для online и offline установки Office 2016/2024 C2R. Так же имеется возможность создать свой дистрибутив Office для последующей установки Office offline.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:299762E388656621C1C5B8CC5B707B19C99409F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1814342   (5429) от 29.08.2025
+
+Zentimo xStorage Manager 3.1.2.1301 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5429.jpg" />
+</div>
+
+
+###  Подробнее
+
+Zentimo xStorage Manager - (аналог USB Safely Remove) это менеджер USB устройств, он экономит время и расширяет возможности пользователя при активной работе с флэшками, переносными винчестерами, кард-ридерами и другими гаджетами. Программа дает удобное безопасное извлечение, избавленное от недостатков встроенного в Windows, показывает какие программы мешают извлечь (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90727DDF34E84B26D77861ECFBEE41815DECFA79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807149   (5428) от 29.08.2025
+
+Lords of the Fallen (2023) [Ru/Multi] (2.0.69/dlc) Repack Wanterlude
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5428.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lords of the Fallen представляет совершенно новое эпическое ролевое приключение в огромном и сложном мире, который как минимум в пять раз больше мира оригинальной игры. После эпохи жестокой тирании демон-бог Адыр наконец был побежден. Но боги не гибнут навеки. И теперь, века спустя, близится воскресение Адыра.Тип издания: RepackРазработчик: HEXWORKSЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56600C0966FD6640EE7791713533E76847FECDB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798950   (5427) от 29.08.2025
+
+Tainted Grail: The Fall of Avalon (2023) [Ru/Multi] (1.07a/dlc) Scene Rune
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5427.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Tainted Grail: The Fall of Avalon» - это серьезная ролевая игра от первого лица в открытом мире, созданном в стиле мрачного фэнтези по мотивам легенд о короле Артуре. Вас ждет сложноустроенная, разветвленная сюжетная линия, в которой ваши решения будут определять наследие короля Артура и результат напряженной 600-летней борьбы для всего мира.Тип издания: SceneРазработчик: QuestlineЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3ED36EE98197ECCEEAC8F59716E13491575CAE25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810247   (5426) от 29.08.2025
+
+Purpleschool, Антон Ларичев | Nuxt - fullstack Vue фреймворк (2025) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5426.jpg" />
+</div>
+
+
+###  Подробнее
+
+На этом курсе мы изучим Nuxt - веб-фреймворк на основе Vue. Обучение будет крайне практическим: мы будем разрабатывать интернет-магазин, одновременно осваивая новые знания и сразу же применяя их на практике. Для проекта предусмотрены многочисленные макеты и готовое API, которое вы сможете запустить на локальном сервере.
+
+Мы начнём с создания нового проекта, настройки (   Читать дальше...   )Производство: PurpleschoolЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 09:16:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F767AE4597BD0BA6A2E2660B6264FC3604273828
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815257   (5425) от 29.08.2025
+
+Влюбись в меня до безумия / Fall for Me (2025) WEB-DLRip [H.264] [MVO]
+
+>>Горячие новинки
+>>Зарубежные Новинки (SD, DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5425.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лилли отправляется на Мальорку, чтобы навестить свою сестру Валерию. Лилли с подозрением относится к жениху своей сестры, но появление в её жизни привлекательного незнакомца отвлекает её.Производство: Германия / Netflix Studios, W&B Television, Ánima Stillking FilmsЖанр: триллерРежиссер: Шерри ХорманАктеры: Свенья Юнг, Тео Требс, Антье Трауэ, Томас Кречман, Тижан Марей, Виктор Мотеле, Лусия Баррадо, Феликс Маэстро, Антон Костов, Сиенна Фурне ХёльтшиПеревод: Многоголосый любительский (LE-Production)Язык озвучки: русский, немецкийСубтитры: русские (forced, full), украинские, немецкие, английские, французскиеПродолжительность: 01:54:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F19E7617B3AA877F8C9F39E85F930C256DB75FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815252   (5424) от 29.08.2025
+
+На деревню дедушке (2025) WEBRip [H.264/720p]
+
+>>Горячие новинки
+>>Отечественные Новинки (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5424.jpg" />
+</div>
+
+
+###  Подробнее
+
+10-летний Владик — гений нейросетей и мастер по избавлению от нянь. Когда маме срочно нужно уехать в командировку, ему приходится отправиться в деревню к дедушке, которого он ни разу в жизни не видел. Владик мечтает вернуться в город и попасть на важный IT-конкурс, а дед вовсе не намерен идти у него на поводу. Каждый из них уверен, что легко перехитрит другого, но (   Читать дальше...   )Производство: Россия / Биг Скрин Продакшн, Инфинити контент, Кинокомпания «Р1»Жанр: комедияРежиссер: Владислав БогушАктеры: Юрий Стоянов, Ярослав Головнёв, Ингрид Олеринская, Татьяна Орлова, Антон Филипенко, Александр Ильин, Мирон Лебедев, Алиса Руденко, Тамара Миронова, Евгений ХананьевПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:31:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4065AF0AE7C2D6604C06249C9669A50E5DAB182A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811858   (5423) от 29.08.2025
+
+Она сказала «Да!» / North Star / My Mothers Wedding (2023) WEB-DLRip [звук с TS] [AD]
+
+>>Горячие новинки
+>>Экранки с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5423.jpg" />
+</div>
+
+
+###  Подробнее
+
+Три сестры — строгая карьеристка Кэтрин, страстная красотка Виктория и семейная тихоня Джорджина — возвращаются в родной город ради своей мамы, ведь она снова сказала «Да!». Их ждут яркие эмоции, неожиданные гости, пикантные секреты и множество судьбоносных поворотов.Производство: Великобритания / CAA Media FinanceЖанр: драма, комедияРежиссер: Кристин Скотт ТомасАктеры: Скарлетт Йоханссон, Сиенна Миллер, Эмили Бичем, Роджер Эштон-Гриффитс, Джулио Мария Беррути, Рики Бевинс, Дэвид Чарльз, Тибо де Монталембер, Марк Декстер, Марк ЭбулуПеревод: Дублированный (звук с TS)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:31:53Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2231F7B63315EFB6368AD1223D4AB33884F165AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682198   (5422) от 29.08.2025
+
+Ночь кометы / Night of the Comet (1984) BDRip [H.264]
 
 >>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (HD, FHD, UHD)
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4392.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5422.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Это одна из первых экранизаций в истории российского кинематографа. В основу сюжета легла трагедия Алексея Толстого «Смерть Иоанна Грозного». Гончаров показал лишь несколько сцен из пьесы: как Иван Грозный раскаялся в убийстве своего сына, развелся с русской царицей и собрался жениться на английской королеве. Заканчивается лента сценой смерти царя.
-
-Фильм из  коллекции (   Читать дальше...   )Производство: Россійская Имперія / Торговый дом «Глория»Жанр: драма, короткометражный, экранизация, история, немое киноРежиссер: Василий ГончаровАктеры: А. Славин, Елизавета Уварова, С. Тарасов, Николай Веков, Яков ПротазановСубтитры: русские (интертитры)Продолжительность: 00:09:43
+К Земле приближается комета. Приходит конец света, в который никто не верил. Ночью — пир во время чумы. А утром наступает отрезвление. 18-летняя Рэгги, мастерица ставить рекорды на игральных автоматах, ее младшая сестренка Кэти, парень — полицейский, несколько преступников, дорвавшихся до свободы, которая им не очень-то и нужна. И зомби, там и сям выползающие на (   Читать дальше...   )Производство: США / Atlantic Entertainment Group, Film Development FundЖанр: фантастика, комедия, ужасыРежиссер: Том ЭберхардтАктеры: Роберт Бельтран, Катрин Мэри Стюарт, Келли Маруни, Шэрон Фаррелл, Мэри Воронов, Джеффри Льюис, Питер Фокс, Джон Ачорн, Майкл Боуэн, Девон ЭриксонПеревод: Двуголосый профессиональный, авторскийЯзык озвучки: Русский, английскийСубтитры: Английские (Full, SDH)Продолжительность: 01:35:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C9A9D9E7B41168307F64824EE04CDADF4F389C58
+magnet:?xt=urn:btih:8E3E779EBD41636F8E20DEA8A9C4E57673505B4A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -713,28 +577,106 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816292   (4391) от 04.09.2025
+###  Публикация: 1815273   (5421) от 29.08.2025
 
-Yates McKendree - Need To Know (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+Детка на драйве / She Rides Shotgun (2025) WEB-DL [H.264/720p]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Горячие новинки
+>>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4391.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5421.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  BURNIN’ TEARS (2:57)
-02.  NEED TO KNOW YOU BETTER (3:08)
-03.  RUN IT IN THE GROUND (2:53)
-04.  I DON’T CARE (3:22)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:38
+Бывший заключенный Нейт пытается как можно быстрее порвать с преступным миром, но прошлое его не отпускает. Начинается охота на него и его 11-летнюю дочь Полли, которую Нейт едва знает. Враги беспощадны и не собираются сдаваться, но Нейт не отступит ни перед чем, чтобы защитить самого дорогого ему человека.Производство: США / Fifth Season, Makeready, Super FrogЖанр: триллерРежиссер: Ник РоулэндАктеры: Тэрон Эджертон, Джон Кэрролл Линч, Одесса Эзайон, Ана Софиа Хегер, Роб Янг, Дэвид Лайонс, Кит Джардин, Джэми Бернадетт, Трэвис Хаммер, Сантьяго СегураПеревод: Дублированный (Dragon Money Studio)Язык озвучки: Русский, АнглийскийСубтитры: Английские (Full, SDH)Продолжительность: 02:00:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:299E8389D7EA416E17831FB9410EE223FC3B40BA
+magnet:?xt=urn:btih:567C808793B36AAC8FFF83AC175D24D6B35B2A4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815201   (5420) от 29.08.2025
+
+Книжная серия | Большой роман [209 книг] (2015-2025) [FB2, EPUB]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5420.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия высококачественной современной прозы, включающая в себя книги лауреатов мировых литературных премий, таких как Пулитцеровская премия, Букеровская премия и другие. На русском языке некоторые книги издаются впервые. Тонкая стилизация и едкая ирония, утонченный лиризм и доходящий до цинизма сарказм, агрессивная жесткость и веселое озорство.Жанр: Современная проза, Классическая проза ХX века, Зарубежная классическая прозаИздательство: Азбука-АттикусФормат: FB2, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21867D7CF4E0C3B4F59E4D840605B8B0A7815D30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815184   (5419) от 29.08.2025
+
+VA - Dance Remix Cover  Vol. 2 (2025) [MP3|320 Kbps] <Dance, R&B, Hip Hop, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5419.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 - Jerzy Bulx - All I Ever Wanted - (02:05)
+ 002 - David Guetta - Forever Young - (02:37)
+ 003 - W&W - Danza Kuduro (Remix) - (02:49)
+ 004 - Klaas - Sun Is Up (Michael Roman & Mazza Remix) - (02:13)(   Читать дальше...   )Жанр: Dance, R&B, Hip Hop, PopПродолжительность: 08:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7056404661D6B6C075F6B769E8F7DCD7F781375C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815381   (5418) от 29.08.2025
+
+Супруги Роуз / The Roses (2025) TS [H.264/1080p] [звук с TS] [AD]
+
+>>Горячие новинки
+>>Экранки с рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5418.jpg" />
+</div>
+
+
+###  Подробнее
+
+Образцовый брак и успешная карьера Айви и Тео - лишь внешняя оболочка. Когда карьера Тео рушится, а успех Айви, наоборот, стремительно растет, между ними вспыхивает ожесточенное соперничество, обнажающее глубокие обиды.Производство: Великобритания, США / Adler Entertainment Trust, Garden StudiosЖанр: драма, комедияРежиссер: Джей РоучАктеры: Бенедикт Камбербэтч, Оливия Колман, Эллисон Дженни, Энди Сэмберг, Кейт Маккиннон, Шути Гатва, Джэми Деметриу, Сунита Мани, Зои Чао, Хала ФинлиПеревод: Дублированный (звук с TS)Язык озвучки: Русский, УкраинскийСубтитры: ОтсутствуютПродолжительность: 01:39:09Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91F321FB4412160871710349CC20AC4DCE110964
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,87 @@
+###  Публикация: 1417091   (362856) от 18.10.2020
+
+VA - Black Hole Trance Music 10-20 (2020) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_362856.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dennis Sheperd & Sunlounger - I Can Feel (extended mix) 05:17
+02. Boris Foong & Blu Eyes - I Wish (extended mix) 05:19
+03. Johan Gielen - Balearic Reflection (extended mix) 05:39
+04. Leon Bolier - Kronos (extended mix) 05:59(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:45:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7D90A57BB659B6CD9E7094B5AF475CF12F63F85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255726   (361637) от 19.10.2018
+
+VA - Markus Schulz - Global DJ Broadcast: Top 20 October (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361637.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz & JES - Calling For Love (DRYM Extended Remix)
+02. Artento Divini - Mangrove (Extended Mix)
+03. Arkham Knights - Into The Fire (Extended Mix)
+04. Jam El Mar - Spectral Semblance (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:16:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D288E760E00270697F63757EC22EDBEBEA99572E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 703412   (360974) от 01.11.2014
+
+Solarstone - 6 Albums , 17 Compilations (2001 - 2014) [MP3|256 - 320 кб/с]<Trance, Downtempo, Chillout>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_360974.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Trance, Downtempo, ChilloutПродолжительность: 05:51:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C268B6A9D25232F61C1982FC80B9500D6B9B2B61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1256223   (359039) от 20.10.2018
 
 VA - Black Hole Trance Music 10-18 (2018) [MP3|320 Kbps] <Trance>
@@ -658,93 +742,6 @@ VA - Unique Sense In Amsterdam (Mixed by Abstract Vision) (2016) [MP3|320 Kbps] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D100629E3CCFF3D04224430A9F7560246EDEDD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257078   (350058) от 24.10.2018
-
-VA - Submission Universal (Mixed By Atragun) (2018) [MP3|320 Kbps] <Trance,Psy-Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350058.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tom Bro - Summit (Basil O Glue Intro Mix)
-02. Emran Badalov - Spaceman (Original Mix)
-03. Atragun - Lost In Dreams (Three Drives Remix)
-04. Xpectra - Seize The Day (Original Mix)(   Читать дальше...   )Жанр: Trance,Psy-TranceПродолжительность: 06:44:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCB99FA4183E6905A147569A524C5937E4D822BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257094   (350047) от 24.10.2018
-
-VA - Butterfly Music Amsterdam 2018 Selection (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350047.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Syntouch - Waiting For The Sunrise (Extended Mix)
-02. Syntouch - Lasting Light (VoIces Mix)
-03. The Avains feat. Sabreena Singh - Blue Skies (Vocal Extended Mix)
-04. Syntouch - Waterfall (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:11:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2983C656423DFD0821F367A7B8AF849D029614B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257044   (350037) от 24.10.2018
-
-VA - Ellie Lawson - The Best Of (Extended Mixes) (2018) [MP3|320 Kbps] <Trance,Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350037.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Raz Nitzan & Ellie Lawson - Beyond Time (Extended Mix)
-02. Frainbreeze & Ellie Lawson - I Pray (Extended Mix)
-03. Davey Asprey & Ellie Lawson - Bridge The Divide (Original Mix)
-04. Alan Morris & Ellie Lawson - Find Myself In Losing You (Original Mix)(   Читать дальше...   )Жанр: Trance,Vocal TranceПродолжительность: 02:54:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFA5162C89505098E5E2AB9392BF52DF2F096A92
 ```
 
 https://mybot314.ru/tekegram_catalog/

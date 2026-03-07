@@ -1,3 +1,119 @@
+###  Публикация: 1222225   (687494) от 28.04.2018
+
+Dorian Gray - Nostalgia for the Future EP (2018) Illegal Alien Records [FLAC|Lossless|WEB-DL|tracks] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_687494.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maya (02:52)
+ 02. Futuristic Past (05:52)
+ 03. It Was Advanced (07:07)
+ 04. Nostalgia For The Future (06:10)(   Читать дальше...   )Жанр: TechnoПродолжительность: 00:27:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FE59380E776127277562A0F1CB88C1598721DC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134678   (687445) от 16.05.2017
+
+Soul Button - Master of My Fate (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_687445.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Master of My Fate (Original Mix) (7:15)
+ 02. Secret Sense (Original Mix) (7:28)
+ 03. Illumine (Original Mix) (7:36)
+ 04. Paramour (Original Mix) (6:26)Жанр: Deep House, Tech HouseПродолжительность: 00:28:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47B16C803800A254F57993C5BC0BF04CDB3143E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028903   (686759) от 24.06.2016
+
+Cassy - Donna LP (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Is How We Know [02:30]
+02. Feel [06:19]
+03. Back [04:44]
+04. All I Do [05:11](   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 00:54:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AE5005471444A27D055DD11FC3845B53BCD3AA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028807   (686647) от 24.06.2016
+
+Roger Shah - Magic Island - Music for Balearic People, Vol. 7 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686647.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brian Laruso & John James Renfrow - Holding Closer (Intro Mix) [5:22]
+02. Rogier Dulac & Miss Autumn Leaves - Endless Dream (Original Mix) [5:08]
+03. Brian Laruso - The Way (Original Mix) [5:38]
+04. Raul Pablo Sanchez - Day Out (Original Mix) [6:53](   Читать дальше...   )Жанр: Deep House, TranceПродолжительность: 06:23:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E42583E405AB9C9F7FBB13FFBFF8C27E906D0D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1222446   (685306) от 29.04.2018
 
 VA - Spring Tube Journey. UK (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Deep House, Chill House>
@@ -625,121 +741,6 @@ Ercos Blanka - Classic Trick (2018) Seven Villas Music [FLAC|Lossless|WEB-DL|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97E53AEB8DE1A03091B2F7201EB11FA339A9D80A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223604   (673301) от 05.05.2018
-
-VA - Deep House Hits: Ibiza 2018 [FLAC|Lossless|WEB-DL|tracks] <Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Loud Luxury – Body (feat. brando) (Dirtcaps Remix)
-02. Armin van Buuren – Sex, Love & Water (feat. Conrad Sewell) (Loud Luxury Remix)
-03. Lost Frequencies & Zonderling – Crazy (James Remix)
-04. Thomas Gold – Begin Again(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:08:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:924A1336F53D7A18A4A416F9F7B709EA0B95932E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291263   (672457) от 23.03.2019
-
-Damian Lazarus & The Ancient Moons - Heart Of Sky (2018) [FLAC|Lossless|tracks + .cue] <Electronic, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_672457.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All I Need To Get High (05:33)
-02. Spirals (04:46)
-03. I Found You (05:13)
-04. Five Moons (feat. Chela - extended mix) (06:43)(   Читать дальше...   )Жанр: Electronic, Tech HouseПродолжительность: 00:59:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B623D9AB217F4F04D863E6B902E19422BF006C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030772   (672412) от 01.07.2016
-
-Phon.O - Fractions EP (2016) [FLAC|Lossless|WEB-DL|tracks] <Techno, House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672412.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Run (06:31)
-02. Brooklyn Shuffle (05:03)
-03. Fractions (06:19)Жанр: Techno, HouseПродолжительность: 00:17:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F31565237194182AEDC692D5EEF3221FA8C757B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291076   (672326) от 23.03.2019
-
-VA - Cafe del Mar ChillWave 3 (2019) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chillout, Downtempo, Electronic>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672326.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Henry Green - Shift
-02. Vanilla - Snowdance
-03. Eli & Fur - Something Was Real(   Читать дальше...   )Жанр: Lounge, Chillout, Downtempo, ElectronicПродолжительность: 02:51:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04C071613123C6A84E13D0EE328FD1E8B042B8F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

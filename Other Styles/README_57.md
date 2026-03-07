@@ -1,3 +1,32 @@
+###  Публикация: 1126928   (732083) от 21.04.2017
+
+VA - Yoga Mantras & Dance: Power Yoga Music & Ecstatic Dance Beats (2014) [MP3|320 Kbps] <Chillout, Ethnic, Downtempo, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Red Buddha - Desert Thar: World Mantra Flow (04:55)
+02. Donna De Lory - Sky is Open: Yoga Mantra Flow (Edit) (05:24)
+03. Prem Joshua & Chintan - The Subject Tonight Is Love: Hafiz Yoga Beats (Edit) (05:47)
+04. EarthRise SoundSystem - You Lovin' Me: Yoga World Dance (feat. Camille Armstrong, Srikala) (04:45)(   Читать дальше...   )Жанр: Chillout, Ethnic, Downtempo, New AgeПродолжительность: 02:03:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E41E0A47E1C0A5689D6484EAA6A9ECFE219D8286
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1127164   (732076) от 21.04.2017
 
 Alice Coltrane - World Spirituality Classics 1 (2017) [MP3|320 Kbps] <New Age, Female Vocal, Spiritual>
@@ -713,35 +742,6 @@ VA - Symphonic Rock Orchestra - The Very Best of Classic Rock vol  9 (1994) [MP3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55CE33304A986829D2EE8BEF9C946ECD7896624A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022285   (729765) от 01.06.2016
-
-Emily Rowe - Daydream (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Violin>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729765.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forever [00:03:39]
-02. Midnight [00:04:29]
-03. Daydream [00:04:38]
-04. Brilliant [00:03:48](   Читать дальше...   )Жанр: New Age, Piano, ViolinПродолжительность: 00:40:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1A80EA0E3365F003C69CAB6C98F94F5B5E79E58
 ```
 
 https://mybot314.ru/tekegram_catalog/

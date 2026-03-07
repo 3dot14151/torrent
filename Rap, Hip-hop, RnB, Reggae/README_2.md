@@ -1,3 +1,90 @@
+###  Публикация: 1459722   (1023162) от 02.04.2021
+
+zavet - nights before gotika (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023162.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. zanoza sport xtreme [02:15]
+02. 96 слёз [02:02]
+03. ополчение 2 dark [02:15]
+04. ~царапины~ [02:08](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:11:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADCBC0247296FC7B85C7A5AE3ED7F193546D1CDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459719   (1023159) от 02.04.2021
+
+ЗАМАЙ - Lost Tapes 2 (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Что вам сказать на прощание [00:40]
+02. Мой Антихайп [03:34]
+03. Зенит [02:34]
+04. Ворох [01:45](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:17:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97042D76F61272510753C78D912358B9F2054940
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459568   (1023099) от 02.04.2021
+
+HammAli & Navai - Когда хорошему человеку плохо (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023099.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Друг или враг
+2. Я весь мир обошёл
+3. Нет твоей вины
+4. Техно(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:20:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90BAF76EA32B1B1A426AF566D27CE0E93EF2942C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1459758   (1022823) от 04.04.2021
 
 ST1M - Сьерра-Леоне (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -658,93 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:313DB8FEED0B023D1ABC696A1248F72B112F9B8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468627   (1017081) от 08.05.2021
-
-Нигатив & Хип-Хоп Классика - Классика жанра (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017081.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Времени нет [03:14]
-02. Лавина [03:40]
-03. До дна [03:48]
-04. Невесомость [03:07](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:18:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EADBE58851F4BC26BD617EB1E384E379045E7C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468633   (1017071) от 08.05.2021
-
-Карандаш - KARAN (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017071.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вера [03:22]
-02. Со мной катни [03:22]
-03. Привет [02:34]
-04. Бум биди бай бай [02:17](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:41:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C02F2FBA416C51E372516A3E32D40C7F8DCA9D50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469777   (1016137) от 14.05.2021
-
-BOULEVARD DEPO, Jeembo - ОМОФОР (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016137.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ритуал [02:48]
-02. Manhunt [02:10]
-03. В.О.Л.К. [02:32]
-04. Металлолом [03:13](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:18:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DA5689C8B63F983BF8F61D3F3550EE90825A41C
 ```
 
 https://mybot314.ru/tekegram_catalog/

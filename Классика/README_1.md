@@ -1,3 +1,32 @@
+###  Публикация: 1474082   (1013206) от 01.06.2021
+
+Le Concert des Nations - L'Orchestre du Roi Soleil Symphonies, Ouvertures & Airs a jouer (1999) [MP3|320 Kbps] <Classical, Baroque>
+
+>>Классика
+>>Концерты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013206.jpg" />
+</div>
+
+
+###  Подробнее
+
+Les Bourgeois Gentilhomme (1670)
+01. Ouverture [00:02:59]
+02. Gavotte [00:01:41]
+03. Canaries [00:01:16](   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 01:04:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5DC036ADDDE1B9AC2D5142830CB656516A17897
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 187343   (1010383) от 18.06.2021
 
 Shostakovich Edition / Дм.Шостакович - Собрание сочинений  (27CD) (2007) [APE(image + .cue)|Lossless]<Classical>
@@ -784,41 +813,6 @@ Concerto for Strings and Harpsichord, in G Major
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6F6929AC331E6B0B0061F2AFA00D2DFACBD74C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605904   (994780) от 22.01.2013
-
-Antonio Lucio Vivaldi-Bassoon Concertos: I Musici bassoon Klaus Thunemann 2CD (1985-1994)/2003, Philips [WavPack (iso.wv)|Lossless]<Chamber>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994780.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1Жанр: ChamberПродолжительность: 01:15:07
-Concerto in G major, RV 492
-sol majeur G-Dur
-1.	Allegro non molto	03:17
-2.	Largo	02:22
-3.	Allegro	02:31
-Concerto in B flat major, RV 503
-4.	si bemol majeur B-Dur Allegro non molto	03:36
-5.	Largo	02:42
-6.	Allegro	03:01(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C50A5E8CA4A1B817AC36D597E6581D4E8F2074B
 ```
 
 https://mybot314.ru/tekegram_catalog/

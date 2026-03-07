@@ -1,3 +1,120 @@
+###  Публикация: 871109   (882698) от 20.02.2015
+
+VA - Pure... Crooners (2011) Box Set, 4CD [FLAC|Lossless]<Pop, Vocal Pop, AM Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_882698.jpg" />
+</div>
+
+
+###  Подробнее
+
+По многочисленным просьбам одноклубников ускоряю публикацию всего того что есть у меня в серии Pure... Вот дошла очередь до Crooners, а ведь в переводе с английского это просто эстрадные певцы. Как то не принято у нас называть зарубежных поп-заезд эстрадными певцами. Хотя многие из современных великих подходят под это определение.
+Вот и здесь собраны звезды - великие (   Читать дальше...   )CD1:
+01. Andy Williams - Where do I begin (Love story)  (3:12)
+02. Tony Bennett - A taste of honey  (2:54)
+03. Perry Como - Magic moments  (2:40)(   Читать дальше...   )Жанр: Pop, Vocal Pop, AM PopПродолжительность: 03:39:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4759763F29BC53CF57EA4DC5785E711DDA4AB4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995913   (882582) от 12.03.2016
+
+Tanita Tikaram - Closer To The People (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_882582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Glass Love Train
+02. Cool Waters
+03. The Way You Move
+04. Closer To The People(   Читать дальше...   )Жанр: PopПродолжительность: 00:35:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F69EB02F10F3295667DC0FD0414F7F4920B30699
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495257   (882299) от 11.09.2021
+
+Lady Gaga - Dawn Of Chromatica (2021) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Remixes, Electropop, Pop, House>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_882299.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alice (LSDXOXO Remix)
+02. Stupid Love (COUCOU CHLOE Remix)
+03. Rain On Me ft. Ariana Grande (Arca Remix)
+04. Free Woman (Rina Sawayama & Clarence Clarity Remix)(   Читать дальше...   )Жанр: Remixes, Electropop, Pop, HouseПродолжительность: 00:49:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B774A3C13A283955FF7576F99749431FA59A994E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 871258   (881216) от 21.02.2015
+
+VA - Pure... Party (2012)  Box Set, 4CD[FLAC|Lossless]<Pop, Dance, Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_881216.jpg" />
+</div>
+
+
+###  Подробнее
+
+Думаю, что самое время перед предстоящими праздниками устроить маленькое музыкальное Party. Правда оно уж и не такое маленькое. А главное очень даже заводное. P!nk, Ke$ha, Shakira, Lou Bega - от всех этих имен может снести башню. Так что в эти праздничные дни смело врубайте этот бокссет и наслаждайтесь.CD1:
+01. P!nk - Get the Party Started   (3:14)
+02. Ke$ha - TiK ToK  (3:22)
+03. Shakira - She Wolf  (3:10)(   Читать дальше...   )Жанр: Pop, Dance, EurodanceПродолжительность: 04:20:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7F20192BCBA585BA14CC7BC206B7C44B27752AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 996044   (881080) от 13.03.2016
 
 Spagna - Dedicated To The Moon (1987) 1988, Epic International (Tokyo Japan) [FLAC|Lossless|image + .cue] <Italo-Disco, Synth-pop>
@@ -629,124 +746,6 @@ VA - Best Of The 90s (2016) 2CD [FLAC|Lossless|tracks + .cue] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C9D3E5221FFE41B232344C4E0A546CDDF2C2273
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106341   (872877) от 19.02.2017
-
-Supermax - 25 Years Of Magic Dance Music 1977-2002 (2002) Limited Edition, 6CD BoxSet [FLAC|Lossless|image + .cue] <Pop, Reggae, Funk, Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872877.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lovemachine (8:10)
-02. World Of Today (4:25)
-03. Don't Stop The Music-African Blood (8:14)
-04. It Ain't Easy (4:23)(   Читать дальше...   )Жанр: Pop, Reggae, Funk, Soul |Продолжительность: 00:54:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:812DA548EFBA97A3DB482CBA4116B9989B1654C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 765512   (872671) от 13.03.2014
-
-VA - Radio 538: Hitzone 68 (2014) 2CD [FLAC|Lossless]<Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872671.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. John Legend - All Of Me  (4:31)
-02. Stromae - Formidable  (3:36)
-03. Pitbull ft. Kesha - Timber  (3:26)
-04. Dvbbs & Borgeous - Tsunami  (3:08)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:26:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05675B27F50942A0F28FC20E221CFE3BCE476455
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997650   (871872) от 18.03.2016
-
-Gwen Stefani - This Is What The Truth Feels Like (2016) International Deluxe Edition [FLAC|Lossless|tracks + .cue] <Pop, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871872.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Misery (3:26)
-02. You're My Favorite (2:56)
-03. Where Would I Be? (3:18)
-04. Make Me Like You (3:37)(   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 00:59:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D51668A014ED8AE8937D50FE59CA561D41FD191
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997852   (871754) от 18.03.2016
-
-VA - Number 1's: The Ultimate Collection (2014) Box Set, 5CD [FLAC|Lossless|tracks + .cue] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871754.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот бокс сет представляет 100 хитов, которые  достигли столь желанной для каждого исполнителя вершины топа Великобритании.
-Каждый из 5 компакт-дисков набран из победителей одной из 5 декад - от 60-х годов вплоть до нулевых. Здесь собраны не просто лучшие, а самые признанные треки ошеломляющих рок, поп и соул гимнов.
-На офсете для него нашли даже такое сравнение как (   Читать дальше...   )CD1 - 60s:
-01. Marvin Gaye - I Heard It Through The Grapevine  (3:11)
-02. The Foundations - Baby, Now That I've Found You  (2:56)
-03. Diana Ross & The Supremes - Baby Love  (2:34)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 05:51:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8B0AC665CC8148300FBAD9486FA3E04D17A41CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

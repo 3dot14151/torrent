@@ -1,3 +1,119 @@
+###  Публикация: 1434632   (149916) от 25.12.2020
+
+Jerry Vale - Have Yourself a Merry Little Christmas (2003) [FLAC|Lossless|tracks + .cue] <Pop, Vocal, Christmas>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_149916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Have Yourself a Merry Little Christmas (2:34)
+02. I'll Be Home for Christmas (2:19)
+03. Blue Christmas (2:32)
+04. Silver Bells (3:23)(   Читать дальше...   )Жанр: Pop, Vocal, ChristmasПродолжительность: 00:45:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5D69167FB98CA4D722F2BA7B425B20049042547
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677873   (149357) от 19.11.2023
+
+Jewel - Spirit (1998) Deluxe Edition, 2023, Craft Recordings [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_149357.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep Water [00:04:15]
+02. What's Simple Is True [00:03:35]
+03. Hands [00:03:55]
+04. Kiss The Flame [00:03:16](   Читать дальше...   )Жанр: PopПродолжительность: 02:34:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5373A752147A1A88293C1AA3E308547211350936
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677831   (149228) от 19.11.2023
+
+Vanessa Amorosi - Memphis Love (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul, Blues>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_149228.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wolf [00:04:05]
+02. How Long [00:03:59]
+03. Lift Us Up [00:04:25]
+04. Don't Judge Me [00:04:37](   Читать дальше...   )Жанр: Pop, Soul, BluesПродолжительность: 00:38:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:713D92E1AEEB4B5901650A791B91191832F27A8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677709   (149107) от 19.11.2023
+
+Bryan Ferry - Mamouna (1994) Deluxe, 2023, BMG Rights Management [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop Rock, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_149107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Want to Know (1999 Remaster) (4:07)
+02. N.Y.C. (1999 Remaster) (4:09)
+03. Your Painted Smile (1999 Remaster) (3:14)
+04. Mamouna (1999 Remaster) (5:11)(   Читать дальше...   )Жанр: Pop Rock, Synth-popПродолжительность: 02:06:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9331A7FFA9AAE22BE14363ABC6EB7902C9B8309
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1677917   (149071) от 19.11.2023
 
 Thomas Anders & Florian Silbereisen - Alles funkelt! Alles glitzert! (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Eurodance, Europop>
@@ -625,122 +741,6 @@ Alessi Brothers - Long Time Friends (1982) 2010, Wounded Bird Records [FLAC|Loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DBA877876C5598AAA17EE0560AE8BC9B8126AF09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348444   (144432) от 27.12.2019
-
-VA - 100 Greatest Ballads (2019) [FLAC|Lossless|tracks] <Pop, Rock, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144432.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот релиз прямо по старой журналистской поговорке - "Утром случилось - вечером в новостях". Сегодня этот релиз появился на Qobuz - и вот он уже на трекере, причем и в lossless и в lossy (стараниями комрада maykov). Новых треков не так уж много, но для тех кто готовится к предстоящему Новому году всерьез, ведь обязательно нужен сборничек в котором узнаваемые (   Читать дальше...   )01. Prince - Purple Rain  (8:41)
-02. Coldplay, Seeb - Everglow  (3:48)
-03. Foreigner - I Want to Know What Love Is (2013 Remaster)  (5:06)
-04. Spandau Ballet - TRUE (Single Edit)  (5:28)(   Читать дальше...   )Релиз состоялся: 27 декабря 2019 годаЖанр: Pop, Rock, DanceПродолжительность: 06:38:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:547B467D6B8FE17790F8BBE5436E5B4256006F37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088113   (142873) от 29.12.2016
-
-Elissa - A'ayashalak (2002) [FLAC|Lossless|tracks + .cue] <Lebanese Pop, Levantine Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142873.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - A'ayashalak (04:38)
-02 - Ah Min Hawak (04:42)
-03 - Ajmal Ihssas (05:54)
-04 - Shaghilni (04:11)(   Читать дальше...   )Жанр: Lebanese Pop, Levantine PopПродолжительность: 00:46:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A31CC3BA19E46E043A69CB199A0BAB769B363E52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272668   (142814) от 28.12.2018
-
-Michelle Gurevich - Exciting Times (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dark-Romantic, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Way You Write (4:22)
-02 Fatalist Love (4:39)
-03 Something Has Changed (4:10)
-04 Almost Shared a Lifetime (5:07)(   Читать дальше...   )Жанр: Pop, Dark-Romantic, BalladПродолжительность: 00:39:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA81E85327521AFAC1E147F962E98554B13B7D50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1435576   (142393) от 29.12.2020
-
-Peter Noone - Sings The Greatest Hits Of Herman's Hermits (1993) [FLAC|Lossless|image + .cue] <Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142393.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm into something good (2:23)
-02. Dandy (1:57)
-03. There's a kind of hush (all over the world) (5:06)
-04. Listen people (2:38)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:49:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27003FA15B7F0BCC7AC61CA711195AFBF1332B5F
 ```
 
 https://mybot314.ru/tekegram_catalog/

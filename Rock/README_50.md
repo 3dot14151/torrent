@@ -1,3 +1,32 @@
+###  Публикация: 1563845   (502610) от 16.07.2022
+
+Jeff Beck & Johnny Depp - 18 (2022) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Midnight Walker (03:04)
+02. Death And Resurrection Show (05:30)
+03. Time (03:38)
+04. Sad Motherfuckin' Parade (03:31)(   Читать дальше...   )Жанр: RockПродолжительность: 00:55:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53E496D595BD2A3A53A3DC87E334B11B2C699A9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 541049   (502563) от 30.08.2012
 
 VA - Mojo Presents Yellow Submarine Resurfaces (2012) [MP3|320 кб/с]<Rock>
@@ -721,32 +750,6 @@ VA - Rock in Australia - Les Genies du Rock - Rock In Australia (1993) [MP3|320 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:267C4A1D68EDB08F95DBC1669DD3307C88BC98DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541732   (498114) от 03.09.2012
-
-Lou Rhodes - 3 альбома (2005-2010) [MP3|320]<folk rock,acoustic,folk>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498114.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Folk Rock, Acoustic, Folk, Indie RockПродолжительность: 00:40:16
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1113168   (839648) от 10.03.2017
+
+Deep Purple - All I Got Is You (2017) EP [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_839648.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All I Got Is You
+02. Simple Folk
+03. Above and Beyond
+04. Time for Bedlam (First Take)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:21:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2680B7EA45F8C72B61CA01ACF20473BBC6FF7C3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 651705   (839507) от 02.05.2013
 
 Joe Satriani - Unstoppable Momentum (2013) [MP3|320 кб/с]<Instrumental-Rock, Hard-Rock>
@@ -710,35 +739,6 @@ Midnight Flyer - Midnight Flyer (1981) Reissue, 2013, Air Mail Archive [MP3|320 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6AD383E497291171F2C7797AB2CB7B103A7AFA62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121555   (800431) от 02.04.2017
-
-Uriah Heep - Demons and Wizards (1972) Remastered, 2017, Sanctuary Records Group [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800431.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Wizard (2017 Remastered)
-2. Traveller in Time (2017 Remastered)
-3. Easy Livin' (2017 Remastered)
-4. Poet's Justice (2017 Remastered)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:55:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F89BEBF0CACC79141AFFEDC91D58973310680AAE
 ```
 
 https://mybot314.ru/tekegram_catalog/

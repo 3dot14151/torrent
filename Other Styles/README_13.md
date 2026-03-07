@@ -1,3 +1,32 @@
+###  Публикация: 663203   (968921) от 13.01.2014
+
+Московская оперетта - Граф Орлов (2013) [MP3|192 кб/с]<Мюзикл>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_968921.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Увертюра (Оркестр)
+02 - Ливорно (Андрей Белявский, Александр Маракулин, Сергей Ли)
+03 - Красотка (Александр Постоленко)
+04 - Чужая страна (Андрей Белявский)(   Читать дальше...   )Жанр: МюзиклПродолжительность: 01:43:06
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 976576   (968650) от 18.01.2016
 
 VA - Крид: Наследие Рокки  / Creed (Original Motion Picture Soundtrack) (2015) [MP3|320 кб/с] <Soundtrack, Hip-Hop, Rap, R&B, Soul>
@@ -722,35 +751,6 @@ VA - Raise the Roof: Country Bands (2020) [MP3|320 Kbps] <Country>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE2AE6A5CFEE191AAEA012ACEFA6B5DCCC4522C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 621565   (962698) от 20.02.2013
-
-Mike Oldfield - Tubular Beats (2013) /WEB/ [FLAC (tracks)|Lossless]<New Age, Electronic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962698.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let There Be Light (York Remix)
-02. Far Above The Clouds (York Remix)
-03. Ommadawn (Mike Oldfield & York Remix)
-04. Guilty (Mike Oldfield & York Remix)(   Читать дальше...   )Жанр: New Age, ElectronicПродолжительность: 01:16:36
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

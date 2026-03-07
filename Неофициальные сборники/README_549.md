@@ -1,3 +1,299 @@
+###  Публикация: 494276   (250653) от 09.05.2012
+
+Ночные снайперы - Лучшая Коллекция (2012) [MP3|320 кб/с]<Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_250653.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 31-я весна
+2. Рубеж
+3. Блины по-снайперски
+4. Кошка московская
+5. Бонни & Клайд
+6. Стань моей птицей
+7. Морячок
+8. Гонщик
+9. День рождения
+10. Цунами(   Читать дальше...   )2012Жанр: RockПродолжительность: 02:31:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F057434F057F677D8107B69F24090CEB80D64192
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1833996   (250603) от 04.11.2025
+
+VA - Best Russian Echoes of Screamo.vol. 14 (2025) Compilation [MP3|320 Kbps] <Alternative, Screamo>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_250603.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Austerlitz - Я помню солнечные дни (04:11)
+02. Somnambula - Вой (03:42)
+03. Летние войны - Москва (Ты знала много) (03:56)
+04. The Bride Of Changes - Чтоб ты научилась слышать (06:42)(   Читать дальше...   )Жанр: Alternative, ScreamoПродолжительность: 01:02:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDFC5E56497C547F2C4DEA79309EF35486EDEC38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1835128   (250585) от 05.11.2025
+
+VA - #002 ВЕРШИНА БЛЮЗА (2025) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_250585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Anthony Geraci - Owl's Nest (3:05)
+02.  Yates Mckendree - Good As Gone (2:29)
+03.  Tom Hambridge/Christone "Kingfish" Ingram - Blues Don't Care (2:52)
+04.  Larry Mccray - Everything Falls On Me (4:40)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 01:11:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C5827717616D60AE4BFD0CA891687C094DB7F62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1835125   (250581) от 05.11.2025
+
+VA - #001 ВЕРШИНА БЛЮЗА (2025) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_250581.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Gary Hoey/Ian Hoey - Summer's Here (4:39)
+02.  Joe Bonamassa - Shake This Ground (4:05)
+03.  Eva Carboni - Bad Blood (Archives Mix) (3:47)
+04.  Alvino M. Bennett/Kelly's Lot - Rearranging The World (4:00)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 01:22:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B33E3774E6D8E92C90A43746C6EA86820DF74190
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1835102   (250528) от 05.11.2025
+
+Chilled Blues - Dark Blues Ballads Winter Nights with Blues (2025) [MP3|320 Kbps] <Blues, Instrumental>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_250528.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crimson Whispers [03:02]
+02. Dive into Delicate Blues Sadness [02:46]
+03. Golden Hour Blues [02:14]
+04. Midnight Sapphire [02:48](   Читать дальше...   )Жанр: Blues, InstrumentalПродолжительность: 00:15:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:862B01C8AF0D01717FACF8EFD5B48B1371FF198E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1834807   (250456) от 04.11.2025
+
+Etta Mae Hartwell - Favorites Collection (2025) [MP3|320 Kbps] <Blues, Soul>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_250456.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Hard Way to Heaven
+ 02 - Don’t Ask Me Why
+ 03 - Come Tonight
+ 04 - Far From My Hands(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 01:24:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EB4B3B3BD4BD040526DDF33B3DBAF51A3E5ABEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1834451   (250422) от 03.11.2025
+
+Enlly Blue - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Blues, Blues Rock, AI>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_250422.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Sweet Control
+ 02 - Through My Soul
+ 03 - Fire in My Veins
+ 04 - City’s Too Big(   Читать дальше...   )Жанр: Blues, Blues Rock, AIПродолжительность: 00:41:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FA71E3D169CCC00BAB56E7DFD79E034F5906584
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1834449   (250421) от 03.11.2025
+
+Sons of Ashes - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_250421.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - After You
+ 02 - Her Love Outlived the Storm
+ 03 - Silent Wars
+ 04 - Golden Quiet(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:56:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:547AA1F4555CECDC75A803A31A92C4FBFDEF0070
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1834335   (250413) от 03.11.2025
+
+The Smooth Ballroom Band - Sax & Sex (Compilation) (2025) [MP3|320 Kbps] <Insrumental, Easy Listening>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_250413.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sax and Sex [03:29]
+02. Another Day In Paradise [03:44]
+03. Autumn Leaves [03:24]
+04. La Isla Bonita [03:06](   Читать дальше...   )Жанр: Insrumental, Easy ListeningПродолжительность: 02:09:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D49AB3F963F4BEAF4F0202F5EA8602F46B71D520
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1834528   (250405) от 03.11.2025
+
+VA - Music News For Forum vol.144 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_250405.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Erin Bloomer - Girl's Gotta Eat (03:19)
+ 002. AGAV - Souviens-toi l'Angleterre (02:33)
+ 003. Agunda - Тепло (02:26)
+ 004. Alain Chamfort - Sur Des Images Heureuses (02:44)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 11:39:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00D03757B2B016F74C90E90643523D951D30C9BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1536797   (250309) от 13.03.2022
 
 VA - Шансон 2 (2022) [MP3|320 Kbps] <Шансон>
@@ -455,311 +751,6 @@ VA - В машине с музыкой Vol.328 (2023) [MP3|320 Kbps] <Pop, Dance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EFD559D8F215CA5A48AF2943D256645BE96FC334
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620023   (249531) от 18.03.2023
-
-VA - Music News vol.252 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249531.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Polnalyubvi - Дыши (02:48)
- 002. 6LACK - Fatal Attraction (03:17)
- 003. 89ers - We Own The Night (02:57)
- 004. A.V.G - Ты Мой Сон (02:54)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 08:48:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB98D2CAEA1C4086FF5351FDCEA057C387F6683D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564953   (249528) от 22.07.2022
-
-VA - Зарубежная Дискотека ХХ Века (Студия «Spedis-Raritet») (251-300 CD) от Ovvod7 (2021-2022) [MP3|192-320 Kbps] <Electronic, Pop, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249528.jpg" />
-</div>
-
-
-###  Подробнее
-
-2021 - Зарубежная Дискотека ХХ Века - Диск 251
-
-01. John The Whistler - I'm In Love ( Single Edit 2000 )
-02. Flexx - You'll Never Change No More ( 1983 )(   Читать дальше...   )Жанр: Electronic, Pop, RockПродолжительность: 64:57:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30BA169A823DCA56443CEBDD6DADA51406DCCAFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565038   (249517) от 22.07.2022
-
-VA - 10 000... Italo-Euro-Space-Synth-Pop-Hi-NRG-Disco From Ovvod7 & tiv44 (201-310 CD) (2021-2022) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249517.jpg" />
-</div>
-
-
-###  Подробнее
-
-2021 - 10 000... Italo-Euro-Space-Synth-Pop-Hi-NRG-Disco From Ovvod7 - 0201
-
-01. Solid Strangers - My Delight
-02. Boys Next Door - I Will Follow You ( 12'' Version )(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 105:09:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C3D4564B3CA1F7BCD154D2FC74EE9C2C35E4939
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 494445   (249280) от 09.05.2012
-
-Мастер - Лучшая Коллекция (2012) [MP3|320 кб/с]<Thrash Metal, Heavy Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249280.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интродукция
-02. Лабиринт
-03. С кем ты?
-04. Берегись
-05. Руки прочь
-06. Кто кого
-07. Тореро
-08. Щит и меч
-09. 2000 лет (Иуда)
-10. Мастер(   Читать дальше...   )2012Жанр: Thrash Metal, Heavy MetalПродолжительность: 02:43:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:494D487599C1A256AC3C77CE622808B842752E67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 494151   (249214) от 09.05.2012
-
-VA - Инструментальная музыка (2012) vol. № 31 [MP3|320 кб/с]<Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249214.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: InstrumentalПродолжительность: 02:05:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88E02190EE37B7DB31B53F33A316218FD5720103
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 494270   (249190) от 09.05.2012
-
-VA - Грезы любви (2012) [MP3|320 кб/с]<Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249190.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Алексей Брянцев - Я буду рядом (3:26)
-2. Весна - Больше не хочу (3:09)
-3. Андрей Бандера - Королева сентября (3:25)
-4. Игорь Латышко - А я тебя люблю (3:42)
-5. Тимур Темиров - Художник (4:16)
-6. Мурат Тхагалегов - Не уходи (3:26)
-7. Виктор Королев - Прикоснись (4:07)
-8. Жека - Между небом и землей (3:56)
-9. Стас Михайлов и Катя бужинмкая - Королева вдохновения (4:07)
-10. Ирина Круг и Алексей Брянцев - Если бы не ты (3:28)2012Жанр: ШансонПродолжительность: 01:16:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08A98601A035F977066CA7AC4946CEA6E3056C01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 493979   (249178) от 09.05.2012
-
-VA - Лучшая clubная музыка сезона (2012) [MP3|256 кб/с]<Pop,Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249178.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Selena Gomez & The Scene - Hit The Lights (Azzido Da Bass Radio Edit)
-002 DJ LEX - New Life 2012 (Radio Edit)
-003 DJ HaLF & Tom Stem - Ready 2 Go (Original Mix)
-004 Klaas feat. Carlprit - Do What You Do (Original Mix)
-005 Ian Carey & Rosette feat. Timbaland & Brasco - Amnesia (Club Mix
-006 Lady Gaga - Electric Chapel (N-Vision Radio Edit)
-007 Paul Oakenfold feat. Robert Vadney - Pop Star (Original Mix)
-008 Pitbull feat. Chris Brown - International Love (UK Pop Extended Mix)
-009 R.I.O. feat. U-Jean - Animal (PH Electro Radio Edit)
-010 DJ LEX - Amore (Radio Edit)2012Жанр: Pop,Dance, ClubПродолжительность: 08:08:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4606A6E03125EF06A874BF335079CB2B7724B299
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 494287   (249103) от 09.05.2012
-
-VA - Жажда танца. Будет жарко! (2012) [MP3|256 кб/с]<Pop,Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249103.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. НеАнгелы - Твоя (DJ Jedy Club Remix) (4:33)
-2. Dj Next Feat. Dj Solar Explosion - Жажда Танца (Dance Club 2012) (3:30)
-3. Denis Drozdov Feat. Slava Inside - Мы Потанцуем С Тобой (Mike Energy Remix) (5:16)
-4. DJ Сателлит & Marlena ft. PolCox - Почему (Tonada Radio Mix) (3:14)
-5. Dj Fenix & Kathy Soul - Скажи Мне Да (3:36)
-6. Глюкоза - Кошка (Remix) (3:10)
-7. Дима Билан - Задыхаюсь (Dj Gold Sky & Dj Shirshnev Radio Remix) (3:01)
-8. Dj Иван Scratchin' - З.Г. (Radio Mix) (3:03)
-9. Дарья Данилова & Tadj - Лети (3:27)
-10. Dj Aristocrat - Необычная Любовь (3:39)2012Жанр: Pop,ClubПродолжительность: 06:18:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A1DA2C088C5129000138ACD368422F8B438839A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 493621   (248860) от 08.05.2012
-
-VA - Инструментальная музыка (2012) vol. № 29 [MP3|320 кб/с]<Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248860.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: InstrumentalПродолжительность: 01:39:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD63D75D6F617B87ECAFBEBDF7FA9CD14BBAB40F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 493633   (248856) от 08.05.2012
-
-VA - Инструментальная музыка (2012) vol. № 30 [MP3|320 кб/с]<Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248856.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: InstrumentalПродолжительность: 01:52:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75A128908F120725C080B87B710DDF2D90F8A1B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

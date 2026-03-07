@@ -1,3 +1,206 @@
+###  Публикация: 1298231   (602159) от 26.04.2019
+
+VA - ЕвроХит Топ 40 Europa Plus 26.04.2019 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ava Max - Sweet But Psycho (3:07)
+02. Ariana Grande - 7 Rings (2:58)
+03. Aaron Smith feat. Luvli - Dancin (Krono Remix) (3:17)
+04. Lil Peep & XXXTentacion - Falling Down (3:16)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:07:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4062B2F593AA8619D722A3AECEC63FE588DE7762
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548012   (601969) от 30.04.2022
+
+VA - ЕвроХит Топ 40 Europa Plus 29.04.2022 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_601969.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Charlie Puth - Light Switch (3:05)
+02. Stromae - L'enfer (3:09)
+03. Tove Lo - How Long (3:19)
+04. Shouse - Wont Forget You (3:50)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:55:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D71F0535970D727B2D62566081D073AC6E2D33B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298343   (601907) от 27.04.2019
+
+VA - The Official UK Top 40 Singles Chart 26.04.2019 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_601907.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lil Nas X - Old Town Road
+02. Meduza, GOODBOYS - Piece Of Your Heart
+03. Lewis Capaldi - Someone You Loved
+04. Billie Eilish - bad guy(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:06:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26CCF2FEBEDC8CE9F95E429199E22574120478FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298981   (601575) от 29.04.2019
+
+VA - Фитнес 50 треков (2019) [MP3|320 Kbps] <Club, House, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_601575.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amped Up Fitness - Everybody Let It Rock (2:36)
+02. Capital Cities - Safe And Sound (3:12)
+03. Crossfit Junkies - Jump (2:50)
+04. Crossfit Junkies - Rave (3:12)(   Читать дальше...   )Жанр: Club, House, OtherПродолжительность: 03:03:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B2D79C6BA4412A71F23764D7F9FE7F084FFF029
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 913811   (601301) от 30.06.2015
+
+VA - German Top 50 Official Dance (06.07.2015) [MP3|320 кб/с]<Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_601301.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Martin Solveig & Gta - Intoxicated
+02. Paul Kalkbrenner - Cloud Rider
+03. Armin Van Buuren feat. Mr. Probz - Another You (Radio Edit)
+04. Anna Naklab feat. Alle Farben & Younotus - Supergirl(   Читать дальше...   )Жанр: DanceПродолжительность: 03:37:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97BB26E79ADD631E2C846DDE5D826D0B014A290B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 913798   (601300) от 30.06.2015
+
+VA - Coctail Driver Summer Party (2015) [MP3|187-320 кб/с]<EuroDance, Euro House, Hard Trance, Eurobeat, Italodance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_601300.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Riverhouse & Agenjay - We Are (Together) (Southside House Collective Remix)
+02. Gala - Taste Of Me (Pop Mix)
+03. Smash - Stop The Time (Original Mix)
+04. Fast Rise - Impulse (Radio Mix)(   Читать дальше...   )Жанр: EuroDance, Euro House, Hard Trance, Eurobeat, Italodance, ClubПродолжительность: 11:18:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28958F6CF3201CF19ABF3434518C52922DB3AE19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 913803   (601292) от 30.06.2015
+
+VA - Hot Dance Summer 2015 Vol.2 (2015) [MP3|320 кб/с]<Club House , Electro House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_601292.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alex Good & Kolya Funk - Sex (Original Mix) [04:04]
+002. Maor Levi & BRKLYN feat. Mariah McManus - No Sleep (Original Mix) [05:45]
+003. Benny Benassi & Chris Nasty - Aphrodisiak (Extended Edit) [04:31]
+004. Kadebostany - Castle In The Snow (Ivan Spell Remix) [03:17](   Читать дальше...   )Жанр: Club House , Electro HouseПродолжительность: 08:22:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CB9B14D82FAC1BB8BC67FAAFBEAFF6535161B2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 913840   (601291) от 30.06.2015
 
 VA - Billboard Hot 100 Singles Chart 4 July (2015) [MP3|320 кб/с]<Pop, Euro, Indie, Folk, Hip-Hop, RnB>
@@ -569,242 +772,6 @@ VA - (OST - Score) Sonic Adventure 2 (2001) [MP3|320 кб/с]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76A21FEB7A6ADAD561A671A78FC9121471EA78C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526341   (597811) от 24.07.2012
-
-VA - Волна Свежести 50/ 50 (2012) [MP3|256 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597811.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Biome feat. Fox - No Soul
- 02. Kill Paris - I Wanna Be Your Lover
- 03. 5sta Family - Вместе Мы
- 04. Alexa - Love The Way You Lie
- 05. All Давай feat. DJ Ihlas - Москва-Дубай
- 06. Alya - Damelo (Radio Edit)
- 07. Ани Лорак - Обними Меня
- 08. Анна Седокова - Что Я Наделала
- 09. D-Bosh - Верь Мне (Remix By Lasteden)
- 10. David Dino MC 47 - Ты Больше Не Моя (DJ_Iksiy_Remix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:48:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56EC47DBF6F314A281B2FE7F8A4952308159A2F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526731   (597654) от 24.07.2012
-
-VA - Recordный драйв 3 50/50 (2012) [MP3|320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dato - Потанцуй (DJ Fisun remix)
-02. DJ Fisun feat. Liz Anderson - About you
-03. Артур Пирожков - Плач Детка (Dj Vengerov Radio Remix)
-04. Hippies & Gadgets - Electronic Simpaties
-05. Время и стекло - Серебряное Море (DJ Melloffon Remix)
-06. Jerome - Stars (Original Mix)
-07. Макsим - Дождь (DJ Fisun & i-DEA radio edit)
-08. Malu Project - Heartbeat (Marc Korn Bigroom Remix) Mental Madness Records
-09. DJ Val & Ди-Кей - Море (Original Mix)
-10. Maroon 5 feat. Christina Aguilera vs. Purple Project - Moves Like Jagger (Sir Art & Vivi Dj Mashup)(   Читать дальше...   )Жанр: PopПродолжительность: 05:37:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7628733B3B38CE8DA3241F2E9E4E27A42D38EBC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526350   (597644) от 24.07.2012
-
-VA - Всю ночь танцы (2CD) (2012) [MP3|256 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597644.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1
-001. Charmlex feat. Анастасия Бережная И Андрей Леницкий - Сhampion
-002. Dan Balan - Не Любя
-003. Наталья Строгая - Гимн R-Club
-004. Оксана Почепа - По Подоконнику Дождь
-005. Оксана Ковалевская & Dj Antonas - Я Убегаю
-006. A-Merika - Смотри На Меня
-007. Dj Сателлит & Marlena Ft. Polcox - Почему (Tonada Radio Mix)
-008. Катя Лель - С Днем Рождения
-009. D.Lemma feat. Игорь Татаренко - У Ла Ла Ла(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:25:10
-001. Dиk - Легко
-002. Artik Pres. Asti - Облака (Extended Mix)
-003. Джеджула - Иванова
-004. Эльдар Далгатов - Не Своди С Ума
-005. Неангелы - Твоя (Sunrise Dance Mix By Mk)
-006. Ksela feat. Dj Alix - Наше Лето
-007. Андрей Артемьев - Твой Ангел-Хранитель
-008. Danila Rastv - А Я Тебя Запомнил
-009. Арина И Размер Project - Забирай (Hard Mix)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD7B4EEEE434B427158965C0425143B83ED3F81B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526711   (597535) от 24.07.2012
-
-VA - Жажда Скорости По-Летнему (2012) [MP3|256 кб/с]<Pop, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597535.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Master Blaster - Let's Get Mad (DJ Tht & Ced Tecknoboy Radio Edit)
-002. Pulsedriver - Lookout Weekend 2012 (Ti-Mo Edit)
-003. Michel Telo - Ai Se Eu Te Pego (Sunray vs. Giga Dance Bootleg Mix)
-004. Scooter feat. Vicky Leandros - C'est Bleu (Radio Edit)
-005. Movetown feat. Nana - Lonely (DJ Klubbingman Meets Raindropz! Remix Edit)
-006. Dual Playaz - Alone Again (Rocco & Bass-T Edit)
-007. Frisco Disco feat. Ski - One Way Ticket (Rico Bernasconi Remix)
-008. Luengo & Diaz feat. Tommy Clint - Adrenalized (De-Liver Edit)
-009. Darius & Finlay & Tom Mountain - UBAP (Tom Mountain goes Melody Parc Mix)
-010. Chuckie feat. Gregor Salto - What Happens In Vegas (Radio Edit)(   Читать дальше...   )Жанр: Pop, ClubПродолжительность: 06:03:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2F5BE0E4AE114ED1195A33815C0158E868AB854
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 914779   (596492) от 03.07.2015
-
-VA - Summer Avto Party (2015) [MP3|320 кб/с]<Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jesse James, Wayne Dudley - The Spirit (Original Mix)
-02. MC Zali VS. Fly Project VS.DJ Pride & DJ Chippon - Toka Toka (DJ Vibe Cool Mash Up)
-03. Jack Holiday - Check This (Original Mix)
-04. Claude VonStroke vs. Tujamo & Jacob Plant - Who's Afraid Of Detroit (DJ Vadim Adamov Mash Up)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 06:20:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61C98436C0D86FD0B25A2E63810D2FA8D0C4062F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232856   (596349) от 26.06.2018
-
-VA - Latin Positivo Music Day (2018) [MP3|320 Kbps] <Merengue, Reggaeton, Dembow, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596349.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Raymix - Oye Mujer (Clean) 4:19
-02. Crecer Germen - El Narco De Narcos (Clean) 3:25
-03. Raymix Y Juanes - Oye Mujer (Intro Clean) 4:13
-04. Raymix - Oye Mujer (Intro Clean) 4:13(   Читать дальше...   )Жанр: Merengue, Reggaeton, Dembow, OtherПродолжительность: 03:22:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B21190BE4AFAB0D29D94BCEE72638EE051BA9F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039422   (596071) от 01.08.2016
-
-Masaki Izutani, Kaori Kumakura - Zero Gunner 2 (2001) [MP3|320 кб/с]<Score>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596071.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рип основан на основе оригинального образа игры01. Opening
-02. Select
-03. Briefing
-04. Stage Clear(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:21:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1FB5616F273B5C5D31DC5DFCC99851F7DC2905B
 ```
 
 https://mybot314.ru/tekegram_catalog/

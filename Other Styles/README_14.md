@@ -1,3 +1,32 @@
+###  Публикация: 621565   (962698) от 20.02.2013
+
+Mike Oldfield - Tubular Beats (2013) /WEB/ [FLAC (tracks)|Lossless]<New Age, Electronic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_962698.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let There Be Light (York Remix)
+02. Far Above The Clouds (York Remix)
+03. Ommadawn (Mike Oldfield & York Remix)
+04. Guilty (Mike Oldfield & York Remix)(   Читать дальше...   )Жанр: New Age, ElectronicПродолжительность: 01:16:36
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 747264   (962548) от 19.01.2014
 
 Dominic Miller & Neil Stacey - New Dawn (2002) [FLAC|Lossless]<Jazz, Instrumental>
@@ -713,35 +742,6 @@ David Arkenstone - Celtic Spa (2020) [FLAC|Lossless|WEB-DL|tracks] <New age, Fol
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7EDFAC3222573E019B2FFE46ACB88958945F7213
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360313   (960591) от 15.02.2020
-
-Chris Benstead - The Gentlemen / Джентльмены (Original Motion Picture Soundtrack) (2019) [FLAC 2.0|48/24|tracks|WEB-DL] <Soundtrack>
-
->>Other Styles
->>OST (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960591.jpg" />
-</div>
-
-
-###  Подробнее
-
-|02:38| 01. Play a Game With Me
-|02:10| 02. A Proper Handsome C**t
-|02:14| 03. Gala Dinner
-|03:19| 04. Big Dave(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:44:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F5460A08FFB5FF9FE20715FB83F32ADE9893AB7
 ```
 
 https://mybot314.ru/tekegram_catalog/

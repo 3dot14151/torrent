@@ -1,3 +1,32 @@
+###  Публикация: 1661593   (188548) от 15.09.2023
+
+V.A. - Beach Bar Chill Grooves, Vol. 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Downtempo, Easy Listening>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_188548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 351 Lake Shore Drive - Run
+02. Project Blue Sun - Don't Leave Me
+03. Sunset Boulevard Project - Pearl In A Shell
+04. Nexus 5 - Skydancing(   Читать дальше...   )Жанр: Lounge, Downtempo, Easy ListeningПродолжительность: 02:20:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B0A8DF6CEBFF3FD784541E70B1B1ED5DD7C6A82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1591132   (187534) от 17.11.2022
 
 VA - Sea & Waves: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -716,35 +745,6 @@ VA - Gate to Eternity: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79E864E607472A2970AB64BF232042A85CB996F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345456   (167532) от 14.12.2019
-
-VA - Sensual Winter Chill Vol.1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167532.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Lemongrass - Lazy Eve (Original Mix) (4:06)
-2.Taburet - Thoughts (Original Mix) (4:48)
-3.Lazy Hammock - Natural High (Original Mix) (5:21)
-4.Jens Buchert - Causality (Original Mix) (5:21)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:38:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82B78EA088FDBE4BC943FF9B9D394A25647BBA38
 ```
 
 https://mybot314.ru/tekegram_catalog/

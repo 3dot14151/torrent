@@ -1,3 +1,58 @@
+###  Публикация: 1839561   (1046610) от 29.11.2025
+
+Windows 11 (v25h2) x64 PRO by KulHunter v2 (esd) [En]
+
+>>ОС Windows
+>>Сборки Windows 11
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046610.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка основана на официальном образе от MDSN: en-us_windows_11_consumer_editions_version_25h2_
+updated_nov_2025_x64_dvd_4ace2901.iso.
+Использован переработанный установщик от Windows 11 25h2
+(SecureBoot и TPM 2.0 не требуется)..(   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E65C0FA15D723EF8E7D629719AC97E74D06C3D09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604345   (1045350) от 13.01.2023
+
+Windows 7 Профессиональная VL SP1 2in1 x86+x64 (build 6.1.7601.26321) by ivandubskoj 12.01.2023 [Ru]
+
+>>ОС Windows
+>>Сборки Windows 7
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045350.jpg" />
+</div>
+
+
+###  Подробнее
+
+Авторская сборка из 2-х русских редакций Windows 7 Профессиональная VL SP1 (x86-x64) на основе оригинальных образов, с интегрированными обновлениями, отключенной телеметрией и минимальным набором необходимых драйверов и ПО.Разработчик: MicrosoftЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52EC113BC604110589FA2357710AA2B90331A0AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1605446   (1044797) от 18.01.2023
 
 Microsoft Windows 10.0.19044.2486, Version 21H2 (Updated January 2023) - Оригинальные образы от Microsoft MSDN [En]
@@ -637,59 +692,6 @@ Microsoft® Windows® 7 Ultimate Ru x86 SP1 7DB by OVGorskiy 02.2023 1DVD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C219F9AB2B6F60F4C172505B5CC2BE9D0C95E79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441568   (1037017) от 23.01.2021
-
-Microsoft Windows 10.0.19042.746 Version 20H2 (Updated January 2021) - Оригинальные образы от Microsoft MSDN [Ru]
-
->>ОС Windows
->>Музей Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037017.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальные образы MSDN - Windows 10 Version 20H2 Build 19042.746.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:967D6EB1B946C65D1D20A91FC6B2FE2124598DB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617039   (1034985) от 07.03.2023
-
-Microsoft Office 2021 VL Professional Plus / Standard 16.0.16130.20218 RePack by sm2014 [Ru]
-
->>ОС Windows
->>Песочница ПО и сборок Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034985.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft Office 2021 — новый офисный пакет от корпорации Microsoft, который включает в себя не только передовые функции, которые помогают пользователям работать максимально продуктивно, но и эффективные решения для управления, а также более более комплексный подход к безопасности. По традиции в его состав входят такие приложения как Word, Excel, Visio, PowerPoint, (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F99A8E784F4E63084923BF4CFFF8EF7FCA4901D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

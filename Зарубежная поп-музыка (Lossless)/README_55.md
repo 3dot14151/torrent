@@ -1,3 +1,120 @@
+###  Публикация: 1408056   (455909) от 12.09.2020
+
+Everything Everything - RE-ANIMATOR (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_455909.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lost Powers (03:41)
+02. Big Climb (03:54)
+03. It Was a Monstering (04:34)
+04. Planets (03:57)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:45:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9789B8ACB0CD823449695398D272702623E0361A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569051   (455717) от 11.08.2022
+
+Bryan Ferry - Taxi (1993) [FLAC|Lossless|image + .cue] <Pop Rock, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_455717.jpg" />
+</div>
+
+
+###  Подробнее
+
+Taxi - восьмой студийный альбом Bryan(а) Ferry, вышедший в апреле 1993. Альбом достиг 2 места в Соединенном Королевстве и по итогам продаж получил золотой сертификат. Синглы I Put A Spell On You и Will You Love Me Tomorrow достигли соответственно 18 и 23 позиции в чартах Великобритании.
+Как отмечали критики - "Taxi показывает зрелого Bryan'а Ferry, вежливого, (   Читать дальше...   )01. I Put A Spell On You (5:26)
+02. Will You Love Me Tomorrow (4:16)
+03. Answer Me (2:46)
+04. Just One Look (3:32)(   Читать дальше...   )Жанр: Pop Rock, Synth-popПродолжительность: 00:39:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:486D01DFE3DA5C9915CF9B159AB05E869691B05A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568968   (455706) от 11.08.2022
+
+VA - Love You Tonight (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop, RnB, Other>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_455706.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Camila Cabello - Señorita (3:10)
+02. Maroon 5 - Sugar (3:54)
+03. Quavo - Intentions (3:32)
+04. Lady Gaga - The Edge Of Glory (5:20)(   Читать дальше...   )Жанр: Pop, RnB, OtherПродолжительность: 01:29:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F798F25EFCD511672DC52E9A2A14A7B6A4D284CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408385   (453920) от 13.09.2020
+
+Doves - The Universal Want (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_453920.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carousels (04:49)
+02. I Will Not Hide (04:15)
+03. Broken Eyes (04:15)
+04. For Tomorrow (05:28)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:47:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E3E71B386EF5A2EF2775B0284D95C7535B150C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 942755   (453760) от 01.10.2015
 
 Michael Cretu - Moon Light Flowers (1989) [FLAC|image+.cue]<Pop, Synth-pop, Disco>
@@ -626,122 +743,6 @@ Ava Max - Heaven & Hell (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28535DB503FC20E8DCA2CCDEB313F394C79C5872
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248636   (439641) от 21.09.2018
-
-Ray Conniff - Рэй Коннифф в Москве (1974, 2007) [FLAC|Lossless|tracks + .cue] <Instrumental, Easy Listening>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439641.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Рэй Коннифф в Москве (Ray Conniff In Moscow)
-02. Не спеши (Hurry Not)
-03. Мелодия (Melody)
-04. Маленький принц (A Little Prince)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:31:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:944A071AE85682CB1E3F4309ACB0D512415B6BD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944954   (438312) от 08.10.2015
-
-Janet Jackson - Unbreakable (2015) [FLAC|tracks]<Pop, Soul, RnB>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438312.jpg" />
-</div>
-
-
-###  Подробнее
-
-[3:38] (01) Unbreakable
- [4:10] (02) BURNITUP! (feat. Missy Elliott)
- [3:55] (03) Dammn Baby
- [4:18] (04) The Great Forever(   Читать дальше...   )Жанр: Pop, Soul, RnBПродолжительность: 01:04:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8462D4A8B680029E5F0F34524FE1D2BD51656518
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944957   (438058) от 08.10.2015
-
-Celine Dion - Loved Me Back To Life (2013) Deluxe Edition [FLAC|tracks + .cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438058.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Loved Me Back to Life [3:51]
-02. Somebody Loves Somebody [3:42]
-03. Incredible (duet with Ne-Yo) [3:56]
-04. Water and a Flame [3:42](   Читать дальше...   )Жанр: PopПродолжительность: 01:00:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B909EC02CAC0384E9DC58EEEB24906C6F1AF1AD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1322904   (437698) от 03.09.2019
-
-Flora Cash - Press [EP] (2019) [FLAC|Lossless|tracks] <Alternative pop, Indie folk, Dream pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437698.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Indie on Loud (3:25)
-02. They Own This Town (3:46)
-03. I Wasted You (3:42)
-04. You're Somebody Else (3:39)(   Читать дальше...   )Жанр: Alternative pop, Indie folk, Dream pop, Folk music, Indie popПродолжительность: 00:17:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8472A2EAD51D02BA55150391BDCE1FDF95CF7D62
 ```
 
 https://mybot314.ru/tekegram_catalog/

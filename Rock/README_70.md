@@ -1,3 +1,32 @@
+###  Публикация: 1078433   (299581) от 01.12.2016
+
+Mgzavrebi - Iasamani (2016) [MP3|320 Kbps] <Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_299581.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Iasamani
+02. Fanduri
+03. Zurgchanta
+04. Gzaze(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 00:51:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA3DA96293232F4A92C9D858F02066EA1CC1D7F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1423825   (298160) от 14.11.2020
 
 Rodrigo San Martin - Arcana (Act 1) (2020) [MP3|320 Kbps] <Progressive Rock>
@@ -722,36 +751,6 @@ Elvis Presley - Christmas With Elvis And The Royal Philharmonic Orchestra (2017)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1E75F6BB210824436C348767FBBB2B3AB21C292
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 934131   (285742) от 20.11.2018
-
-Jesus Culture - 12 Live albums (2006-2018) [MP3|234-320 кб/с]<Praise & Worship, Contemporary Christian, Christian Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285742.jpg" />
-</div>
-
-
-###  Подробнее
-
-Jesus Culture - христианская рок группа из города Redding, Калифорния,США и одновременно группа прославления христианского молодёжного проекта Jesus Culture.
-Но это не просто очередная христианская рок-группа. Это настоящие поклонники Иисуса Христа. Их концерты - это настоящие праздники поклонения. Своей музыкой они поклоняются Господу и зажигают Божьим огнём других. (   Читать дальше...   )2006 - Everything
-2007 - We Cry Out
-2008 - Your Love Never Fails
-2009 - ConsumedЖанр: Praise & Worship, Contemporary Christian, Christian RockПродолжительность: 16:47:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B098E2CABFD5815F59EB297F2A8E70D4E4A10C75
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,172 @@
+###  Публикация: 1568303   (461945) от 08.08.2022
+
+Unisonic (Helloween, Gamma Ray, Iron Savior) - Studio Albums (2012 - 2014) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Melodic Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_461945.jpg" />
+</div>
+
+
+###  Подробнее
+
+Unisonic — немецкая метал-супергруппа, образованная в 2009 году экс-вокалистом группы Helloween Михаэлем Киске вместе с Деннисом Уордом и Костой Зафирио из группы Pink Cream 69 и Мэнди Майером из группы Gotthard. В 2011 году к группе присоединяется сооснователь Helloween и лидер Gamma Ray, Кай Хансен.2012 - Unisonic
+2014 - Light of DawnЖанр: Melodic Heavy MetalПродолжительность: 02:01:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49434313FE80F9B7F217FC3C7CF1110FFFBF39C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1059544   (461729) от 04.10.2016
+
+VA - Hits Of BBC And Alaska Records 1 & 2 (1977) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Funk,  Europop, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_461729.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Funk,  Europop, DiscoПродолжительность: 01:19:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B78BC52F3E8C73FC99C4F6238D2A72A9E6DCA86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1059501   (461549) от 04.10.2016
+
+Car-Man (Кар-Мэн) - Кармания (Carmania) (1992) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Hip-House, Europop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_461549.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad Russians
+02. В Багдаде всё спокойно
+03. Бомбей буги
+04. Coribian Girl(   Читать дальше...   )Жанр: Hip-House, EuropopПродолжительность: 00:41:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE146ED843CC42F0767552426FD7ACAE57B11BCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1059526   (461534) от 04.10.2016
+
+Savage - Tonight (1984) Ultimate Edition, Remastered, 2014, Мирумир [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Italo-Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_461534.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Radio (6:01)
+A2. A Love Again (5:26)
+A3. Fugitive (5:00)
+A4. Tonight (3:40)(   Читать дальше...   )Производство: Мирумир - MIR 100715Жанр: Italo-DiscoПродолжительность: 00:47:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E200C30D544F3F807D2EDBB1474285307C00418B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1162167   (461335) от 31.08.2017
+
+Barclay James Harvest - XII (1978) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_461335.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Fantasy: Loving Is Easy (4:04)
+A2. Berlin (4:56)
+A3. Classics: A Tale Of Two Sixties (3:35)
+A4. Turning In Circles (3:32)(   Читать дальше...   )Производство: Polydor - POLD 5006Жанр: Progressive RockПродолжительность: 00:48:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13DFB3F1B800C00EBC337220436272A56DFF494D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1162027   (458746) от 01.09.2017
+
+Мираж - Звёзды нас ждут (1987) [DSD2.0 (DFF)|5,64MHz/1bit|image+.cue|Tape-Rip] <Pop, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_458746.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Звёзды нас ждут (06:18)
+02. Видео (04:29)
+03. Электричество (04:30)
+04. Безумный мир (04:02)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:44:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:119B0A483678636826F666896191C10049CE198E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1569146   (455565) от 11.08.2022
 
 Shinedown - Studio Albums (7 releases) (2004 - 2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Hard Rock, Post-grunge>
@@ -578,180 +747,6 @@ Audrey Hepburn, Rex Harrison - My Fair Lady (The Original Sound Track Recording)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87CB27A7C81D69A4BC7AADFDC0284D0A3CF12253
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063057   (436936) от 15.10.2016
-
-Rainbow - Difficult to Cure (1981) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436936.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. I Surrender (4:05)
-A2. Spotlight Kid (4:56)
-A3. No Release (5:37)
-A4. Magic (4:09)(   Читать дальше...   )Производство: Polydor - 20MM 9233Жанр: Hard RockПродолжительность: 00:42:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A1D7CEE68453C8F35F1F24CF03080D1DAEF669E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062947   (436773) от 15.10.2016
-
-Porcupine Tree - The Delerium Years 1994-1997 (2016) Box Set [FLAC 2.0|192/24|image+cue|Vinyl-Rip]<Art Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436773.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Sky Moves Sideways (1995)
-Signify (1996)
-Come Divine (1997)
-Additional Material (EP) (2016)Жанр: Art RockПродолжительность: 04:17:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2E64ACFFC0C28BED4A082D7AE7F507D8C2E85A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164825   (436453) от 11.09.2017
-
-London Orion Orchestra, Alice Cooper, Dave Fowler, Stephen McElroy, Rick Wakeman - Pink Floyd's Wish You Were Here Symphonic (2016) [DSD2.0|5,64MHz/1bit|tracks|Vinyl-Rip] <Rock, Classical>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436453.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Wish You Were Here (Vocal) (5:05)
-02.Shine On You Crazy Diamond (Part I-V) (13:17)
-03.Welcome To The Machine (7:11)
-04.Have A Cigar (5:17)(   Читать дальше...   )Жанр: Rock; ClassicalПродолжительность: 00:50:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44C36F5027E60A7D92C1496463386A75395E7B5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571216   (436041) от 20.08.2022
-
-Helen Reddy - I Am Woman & Long Hard Climb (1972, 1973) 2020 [DTS 4.0 CD-DA|44.1/16|image+.cue|SACD] <Pop Rock, Ballad>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436041.jpg" />
-</div>
-
-
-###  Подробнее
-
-I Am Woman (1972)
-
-01. Peaceful 2:52
-02. I Am Woman 3:24(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 01:00:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D76E159760F37B6090273D7BF4B116B9DB2BB30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249082   (434943) от 23.09.2018
-
-Валерий Ободзинский - Золотые Шлягеры 60-70 гг. (1996) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434943.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Неотправленное Письмо
-A2 Что-то Случилось
-A3 Олеандр
-A4 Белые Крылья(   Читать дальше...   )Жанр: PopПродолжительность: 00:54:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0B005C39F9CA7D9D58D742A9593ABB00646151C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410619   (433861) от 22.09.2020
-
-Puhdys - Far From Home (1981) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433861.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Prison Walls Are Silent = Doch Die Gitter Schweigen
-A2 The Times I've Cried Over You = Nie Wieder Werd' Ich Weinen Um Dich
-A3 But Not For Ever = Bis Ans Ende Der Welt
-A4 Journey To The Centre Of The World = Reise Zum Mittelpunkt Der Erde(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:41:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C268CC30659A4323C4A5E5CB29BE7CE444C5829
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1319736   (479335) от 14.08.2019
+
+VA - Purgatory: Metal Compilation (2019) [MP3|320 Kbps] <Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_479335.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Negacy - Black Messiah
+002. Sargeist - Unbound
+003. Black Lotus - The Swamp
+004. I Killed Anubis - Look At Yourself(   Читать дальше...   )Жанр: MetalПродолжительность: 12:46:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E3A13DFF8A2621432212C9961EB78BE46B60A5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 782904   (476944) от 20.09.2015
 
 VA - Metal Goes Acoustic (2014-2015) [MP3 l 192-320 кб/с]<Acoustic Metal>
@@ -722,35 +751,6 @@ VA - Seventh Seal (2020) [MP3|320 Kbps] <Hard Rock, Ballad, Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:169715AEA04F12ABCE568AF3B271C544A5F961FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942097   (457636) от 29.09.2015
-
-Elvis Presley - Good Songs (2015) [MP3|192 кб/с]<Rock'n'roll>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457636.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. A big hunk o' love
-002. A fool such as I
-003. A Little Less Conversation
-004. Ain't That Loving You Baby(   Читать дальше...   )Жанр: Rock'n'rollПродолжительность: 08:16:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9525AE9C0CCC5A7A68A9D975A335C98AA047CEAF
 ```
 
 https://mybot314.ru/tekegram_catalog/

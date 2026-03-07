@@ -1,3 +1,181 @@
+###  Публикация: 656547   (815733) от 15.05.2013
+
+Halestorm - The Strange Case Of... (2012) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Hard Rock, Alternative Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815733.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Hard Rock, Alternative MetalПродолжительность: 00:40:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31A6D85ADF18C078F87C9048D9EE202F12BA895B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503985   (815567) от 21.10.2021
+
+Юрий Шевчук и группа ДДТ - Сборник песен (2021) Vinyl-Rip [FLAC|44/24|Lossless|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815567.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Белая река
+2. В последнюю осень
+3. Просвистела
+4. Что такое осень(   Читать дальше...   )Жанр: RockПродолжительность: 01:31:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63D60A49D14B3B04D4138F4963BE4BE5D5927FBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117989   (814903) от 24.03.2017
+
+Cinderella - Long Cold Winter (1988) [WavPack 2.0|192/32|image+.cue|Vinyl-Rip] <Hard Rock, Glam>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_814903.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fallin' Apart at the Seams (5:19)
+02. Gypsy Road (3:55)
+03. Don't know What You Got (Till It's Gone) (5:54)
+04. The Last Mile (3:52)(   Читать дальше...   )Жанр: Hard Rock, GlamПродолжительность: 00:44:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96BE62B8CB643F25DE30384381B75B2F154AD46C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008740   (813553) от 19.04.2016
+
+Smokie - The Montreux Album, The Other Side Of The Road (1978, 1979) [PCM 2.0|96/24|Audio-DVD|Vinyl-Rip] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813553.jpg" />
+</div>
+
+
+###  Подробнее
+
+• The Montreux Album •
+
+01. The Girl Can't Help It  3:48
+02. Power of Love  1:58(   Читать дальше...   )Жанр: Rock
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67992160EA2E9783A7BD32C0A985BA50F6B2D98B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 657142   (813537) от 16.05.2013
+
+Alice Cooper - Welcome To My Nightmare (1975) [FLAC 2.0 24/96 |tracks (Vinyl-Rip)]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813537.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome To My Nightmare (5:16)
+02. Devil's Food (3:35)
+03. The Black Widow (3:37)
+04. Some Folks (4:15)
+05. Only Women Bleed (5:46)
+06. Department Of Youth (3:18)
+07. Cold Ethyl (2:53)
+08. Years Ago (2:51)
+09. Steven (5:47)
+10. The Awakening (2:25)(   Читать дальше...   )Жанр: Rock
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65DA53995E74B98AA39E14DC51B0B5FA07B18EEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 882873   (812853) от 31.03.2015
+
+Кино - запись студии "Тон" (1991) [FLAC 2.0 24/96|image (Tape-Rip)]<русский рок>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_812853.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Это не Любовь
+02.Спокойная ночь
+03.Троллейбус
+04.Закрой за мной дверь я ухожу
+05.Попробуй спеть вместе со мной(   Читать дальше...   )Жанр: русский рокПродолжительность: 0:22:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9B9DFEF0958E0E409EF36361E761A7DC95B7479
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1197258   (811616) от 09.01.2018
 
 Каролина (Люба Гусева) - Наш Летний Дискобар (2017) [DSD2.0|5,64MHz/1bit|image+.cue|Tape-Rip] <Pop>
@@ -573,180 +751,6 @@ A4. Clean Heart (4:01)(   Читать дальше...   )Производств
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3048926114DED2031AAFC5845A63E24A651E54E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274259   (794133) от 06.01.2019
-
-Pete Seeger - Waist Deep In The Big Muddy And Other Love Songs (1993) 1967 [FLAC 2.0|48/24|image+.cue|MC-Rip] <Folk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794133.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Oh Yes I'd Climb (The Highest Mountain Just For You)
-A2 Seek And You Shall Find
-A3 The Sinking Of The Reuben James
-A4 Waist Deep In The Big Muddy(   Читать дальше...   )Жанр: FolkПродолжительность: 00:47:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C26BC584BA47B69EE368832E6EF611C4C2D147F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123383   (792403) от 07.04.2017
-
-The Alan Parsons Project - Vulture Culture (1984) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792403.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Let's Talk About Me (4:33)
-A2. Separate Lives (4:32)
-A3. Days Are Numbers (The Traveller) (4:56)
-A4. Sooner Or Later (4:25)(   Читать дальше...   )Производство: Arista - 206 577Жанр: Progressive RockПродолжительность: 00:37:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA32A8782BAB0FA456CFD2F447A6D73301B9257E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510148   (791953) от 15.11.2021
-
-ABBA - Voyage (2021) [WavPack 2.0|32/192|image + .cue|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791953.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Still Have Faith In You (5:09)
-02. When You Danced With Me (2:51)
-03. Little Things (3:09)
-04. Don't Shut Me Down (3:56)(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE53AF75DA6560AE91499E8166AC24BC6F283FC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510163   (791928) от 15.11.2021
-
-Moby - Reprise (2021) [WavPack 2.0|32/192|image + .cue|Vinyl-Rip] <Downtempo, Electronic, Orchestral>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791928.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Everloving
-02. Natural Blues (with Gregory Porter and Amythyst Kiah)
-03. Go
-04. Porcelain (with Jim James)(   Читать дальше...   )Жанр: Downtempo, Electronic, OrchestralПродолжительность: 01:10:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73D656F1944EBED68A845F91F95F65ABEF25BD27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510156   (791882) от 15.11.2021
-
-The Prodigy - The Fat Of The Land (2012) 2LP Reissue [FLAC 2.0|24/192|image +.cue|Vinyl-Rip] <Breakbeat>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791882.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Smack My Bitch Up (05:43)
-A2. Breathe (05:36)
-B1. Diesel Power (04:17)
-B2. Funky Shit (05:23)(   Читать дальше...   )Жанр: BreakbeatПродолжительность: 00:56:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:782AF8D99A0F7D8CA2F55BDE1BC1800BE8963D27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387269   (791768) от 01.06.2020
-
-Diana Krall - All For You (A Dedication to the Nat King Cole Trio) (1996) 2016 [DSD 128|tracks|Vinyl-Rip] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791768.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm an Errand Girl for Rhythm (2:55)
- 02. Gee Baby, Ain't I Good to You (4:07)
- 03. You Call It Madness (4:36)
- 04. Frim Fram Sauce (5:01)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:54:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F168EFECC63290A2C66FD7EE949660AA2BB0E0B9
 ```
 
 https://mybot314.ru/tekegram_catalog/

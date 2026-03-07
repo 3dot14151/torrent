@@ -1,3 +1,61 @@
+###  Публикация: 1019576   (748454) от 24.05.2016
+
+VA - Зарубежная Дискотека ХХ Века - 4 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_748454.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Baltimora - Tarzan Boy ( Extended Version 1984 )
+02. Gazebo - Lunatic ( 1984 )
+03. Dschinghis Khan - Samurai ( 1979 )
+04. Bad Boys Blue - I Live ( 1985 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:833BA4759159BE53DA7832D8E2E4B04BB32BF016
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019608   (748452) от 24.05.2016
+
+VA - Зарубежная Дискотека ХХ Века - 9 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_748452.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eddy Huntington - U.S.S.R. ( 12'' Version 1986 )
+02. Fun Fun - Give Me Your Love ( 1984 )
+03. Monte Kristo - The Girl Of Lucifer ( 1985 )
+04. Beloved - Your Love Takes Me Higher ( 1990 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:20:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5456F54AD141F0521E8235BA6E9F1F5B75C310B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1019605   (748451) от 24.05.2016
 
 VA - Зарубежная Дискотека ХХ Века - 8 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
@@ -687,64 +745,6 @@ VA - Зарубежная Дискотека ХХ Века - 20 (2016) [MP3|320 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B6734F0269787CEEA74AB4639C4AE932B0761AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020453   (743693) от 27.05.2016
-
-VA - Hot hits Car international (2016) [MP3|256 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743693.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ellie Goulding - Don't Need Nobody
-002. Troye Sivan - The Quiet
-003. Fais Feat. Afrojack - Hey
-004. Bliss & Klymvx Feat. Snoop Dogg & Cozy - California(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C01BC64B5094EA46B6E3009B14D5F895FAA2AFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020743   (743585) от 27.05.2016
-
-VA - Отдыхай на любимой волне (2016) [MP3|256-320 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Анна Седокова - О Тебе
-02. Dj Roshka Feat. Farid Aqa - Onun O
-03. Juan Magan Feat. Paulina Rubio & Dcs - Vuelve
-04. Андрей Орельский - Вованчик(   Читать дальше...   )Жанр: PopПродолжительность: 06:09:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A6390ACDDE7405FAC5D227370D3282392049849
 ```
 
 https://mybot314.ru/tekegram_catalog/

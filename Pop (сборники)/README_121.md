@@ -1,3 +1,73 @@
+###  Публикация: 469925   (97122) от 18.03.2012
+
+VA - Весенний хит-парад по-русски (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97122.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Женя Вилль - Ты Для Меня (4:10)
+2. Винтаж - Деревья (3:50)
+3. T - killah & Настя Кочеткова - Над Землей (DJ Vengerov remix) (4:31)
+4. Ева Польна - Je T'aime (Я Тебя Тоже Нет) (Dj Deny Soft 2012 Remix) (4:49)
+5. Юлия Михальчик - Матушка-Река (3:32)
+6. Градусы - Запишу Свое Сердце На Секцию Плавания (DJ Gladiator Remix) (4:47)
+7. Дима Билан - Я Просто Люблю Тебя (Dj Fisun & I-Dea Radio Edit) (3:11)
+8. Елка - Прованс (Dj Kirill Clash & Dj Dmitry Nema Remix) (3:42)
+9. Тимур Родригез - Лучше Не Будет (3:28)
+10. Вика Дайнеко И Корни - Многоточие (3:34)2012Жанр: PopПродолжительность: 06:12:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2300BF4AD758B5F8D714E20077855B9B7FCDB7E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469803   (97112) от 18.03.2012
+
+VA - XXXL Хитовый сезон Русский (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_97112.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Сергей Жуков & Opium Project - Я Буду С Тобой
+002 Лоя - Розы Темно-Алые
+003 St1m - One Mic One Love
+004 Юля Волкова (Julia Volkova) - All Because Of You
+005 Каста - Такое Чувство
+006 Макsим - Это Же Я
+007 Ляна Новак - Тихий Вечер
+008 4POST (Дима Бикбаев) - Навстречу Небу
+009 Анна Седокова - Такси
+010 Влад Дарвин & Alyosha - Смысл Жизни(   Читать дальше...   )2012Жанр: PopПродолжительность: 05:52:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25D208FD18D7577B271623076A50351FBE451205
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 468383   (97030) от 17.03.2012
 
 VA - Turkish Hits. Жаркие хиты из Анталии (2008) [MP3|112 kbps]<Pop>
@@ -822,76 +892,6 @@ VA - Танцевальный Рай Русский (2012) [MP3|256 кб/с]<Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05E38454908F5365F2609E87C4F5E0809FFE4765
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483503   (88776) от 16.04.2012
-
-VA - NeРусский Шторм 57 (2012) [MP3|320 kbps]<Pop | Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88776.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Al Mike feat. Gazi Demirel - Leila
-02. Anna Lesko Ft Gilberto - Go Crazy (Official Radio Edit)
-03. Attilson & Bossanova feat. Diana - Dancing Tonight (Video Edit)
-04. Brighi feat. Snoop Dogg - Play Me Like A Violin (Radio Killer Extended Mix)
-05. Calvin Harris feat. Ne-Yo - Let& Go (Radio Edit)
-06. Christopher S feat Max Urban - Star (Dj Nejtrino & Dj Stranger 2012 Remix)
-07. Crocodealer - Coffee From Columbia
-08. Deepcentral - So Divine (Radio Edit)
-09. Dj Gala feat. Kate - Don'T Need (Dj Force Club Mix)
-10. Dj Layla feat. Sianna - Your Angel(   Читать дальше...   )2012Жанр: Pop | DanceПродолжительность: 02:51:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD9A9FDC0A3CC25E484718FA28C180687EC80E95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483818   (88772) от 16.04.2012
-
-VA - XXXL Союз 70: Парад хитов Русский (2012) [MP3|256 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88772.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Ради славы & Katty - Целуй меня
-002 Тамерлан и Алена Омаргалиева - Hey yo
-003 Чи-Ли - Облака
-004 Банд'Эрос - Эти сумасшедшие ночи
-005 Потап и Настя Каменских - Если вдруг (Aleksey Kraft mix)
-006 Алисия - Улетаю (DJ Fisun remix)
-007 Митя Фомин & Кристина Орса - Не манекен (URAL DJS dance remix )
-008 Нюша - Выше (dance remix)
-009 Вера Брежнева - Реальная жизнь (DJ Vengerov remix)
-010 5sta Family - Тук-тук(   Читать дальше...   )2012Жанр: PopПродолжительность: 05:51:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:457A12B47AC94EE851E75BE58343B16A6E506ADA
 ```
 
 https://mybot314.ru/tekegram_catalog/

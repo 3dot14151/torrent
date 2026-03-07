@@ -1,3 +1,32 @@
+###  Публикация: 953497   (349436) от 04.11.2015
+
+Anima - Sacred Alliance (2015) [MP3|320 кб/с]<New Age, Electronic, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_349436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Great Mother's Dominion
+02. Surrender
+03. Sewa
+04. Sacred Lands(   Читать дальше...   )Жанр: New Age, Electronic, AmbientПродолжительность: 01:14:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE06C3BEC98DC222AEA6CEA4EC77C8D6879F620F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 951873   (349156) от 04.11.2015
 
 Jean Michel Jarre - Chronology (1993) Remastered / 2015, Sony Music /[FLAC|tracks + .cue]<Ambient, Electronic>
@@ -718,35 +747,6 @@ Trobar De Morte - Ouroboros (2016) [FLAC|Lossless|tracks + .cue] <Celtic, Darkwa
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5FF39645EB1C4FD3BBF9394CC175A5F7E93CA284
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257826   (343293) от 27.10.2018
-
-Trobar De Morte - Legends Of Blood And Light (2008) Reissue, 2016 [FLAC|Lossless|tracks + .cue] <Modern Classical, Medieval, Neofolk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343293.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Return (5:00)
- 02. Talisman (4:11)
- 03. Morrigan (4:36)
- 04. In Nomine Filius Mortis (4:42)(   Читать дальше...   )Жанр: Modern Classical, Medieval, NeofolkПродолжительность: 00:57:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CD8297D5F7C5AA12C2C198344957CE718F0BD14
 ```
 
 https://mybot314.ru/tekegram_catalog/

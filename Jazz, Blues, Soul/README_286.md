@@ -1,3 +1,247 @@
+###  Публикация: 1161676   (465705) от 29.08.2017
+
+John Surman - Flashpoint: NDR Jazz Workshop, April 1969 (2011) Cuneiform [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_465705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mayflower [08:41]
+02. Once Upon A time [08:41]
+03. Puzzle [05:57]
+04. Gratuliere [08:48](   Читать дальше...   )Жанр: Avant-Garde Jazz, Post-BopПродолжительность: 00:40:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1996173B5DABD93D9213B225E4DBBCA7E727D8A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1246017   (465686) от 09.09.2018
+
+Peter Bernstein - Solo Guitar - Live At Smalls (2013) [FLAC|Lossless|image + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_465686.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Django
+2 I Love You
+3 Crepuscule With Nellie
+4 Pannonica(   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:02:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:601EEAD4FA10299206D9B0A084B84FA8FB92E712
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1161548   (465633) от 29.08.2017
+
+VA - Jazz For Romance (2017) [MP3|320 Kbps] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_465633.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ib Christensen - These Foolish Things
+02. Antonio Carlos Jobim - Quiet Nights of Quiet Stars
+03. Larry Goldings - Strays
+04. Jan Johansson - Embraceable You(   Читать дальше...   )Жанр: JazzПродолжительность: 01:44:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15AD5DDC1B574EB2026BEDBB1E387F0192612F55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1320895   (465520) от 21.08.2019
+
+Pat Martino - Mission Accomplished: Interchange / Nightwings (1994) 2CD, 1999, 32 Jazz [FLAC|Lossless|image + .cue] <Post-Bop, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_465520.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Catch [7:07]
+02. Black Glass [6:52]
+03. Interchange [10:37](   Читать дальше...   )Жанр: Post-Bop, Guitar JazzПродолжительность: 01:48:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AF3AEB6C327285D2CA15FC294D84FFC7DEC75F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 548791   (465183) от 19.09.2012
+
+VA - Ladies First (2012) [FLAC|Lossless]<Jazz Vocal, Jazz-Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_465183.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whitney Houston - I Will Always Love You [04:26]
+02. Celine Dion - The Power Of Love [04:49]
+03. Bette Midler - From A Distance [04:41]
+04. Faith Hill - There You'll Be [03:43]
+05. Linda Lonstadt - Desperado [03:36]
+06. Beverly Craven - Promise Me [03:38]
+07. Lisa Stansfield - All Around The World [04:28]
+08. Susan Boyle - I Dreamed A Dream [03:12]
+09. Sarah McLachlan - I Will Remember You [04:50]
+10. Cyndi Lauper - True Colours [03:50](   Читать дальше...   )Жанр: Jazz Vocal, Jazz-PopПродолжительность: 00:53:16
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 940726   (465064) от 26.09.2015
+
+Chanticleer - Lost in the Stars (1996) /Teldec/[FLAC|tracks+.cue]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_465064.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.It's De-lovely / All Through the Night [03:22]
+02.Night and Day [03:05]
+03.I Can Dream, Can't I? [05:36]
+04.You and the Night and the Music [03:21](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:04:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C89A766B79762BE749DD91849173EB5849A0FB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 548946   (465021) от 19.09.2012
+
+Sara Gazarek - 2 альбома (2007 & 2012) [FLAC|Lossless]<Jazz Vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_465021.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everything I've Got [03:26]
+02. Blossom & Bee [03:36]
+03. Fly Away Birdie [04:31]
+04. The Luckiest [04:19]
+05. Down With Love [04:46]
+06. Lucky To Be Me [05:33]
+07. Tea For Two [06:10]
+08. I'm Old Fashioned [05:01]
+09. So This Is Love [04:14]
+10. The Lies Of Some Handsome Men [05:37](   Читать дальше...   )Жанр: Jazz VocalПродолжительность: 00:55:48
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 940783   (464909) от 26.09.2015
+
+Danielle Nicole - Wolf Den (2015) [MP3|320 кб/с]<Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_464909.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wolf Den (04:32)
+02. How You Gonna Do Me Like That (04:56)
+03. Take It All (02:57)
+04. You Only Need Me When You're Down (03:06)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:50:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7682BEAABB127A6832F7EDE732E433A1CF8A9F16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 940758   (464906) от 26.09.2015
 
 Ike Quebec - Bossa Nova Soul Samba (1962) /1996, Ars Nova/[FLAC|tracks+.cue]<Hard Bop, Bossa Nova>
@@ -514,256 +758,6 @@ Rosemary Clooney - Dedicated To Nelson Riddle (1956-1957) /1996, ООО "Гал�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D811B0438DE445CA70150493057673798716832A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941329   (463120) от 27.09.2015
-
-Dusko Goykovich - Balkan Blue (1996) 2CD /Enja/[FLAC|image+.cue]<Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463120.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - A Night in Skopje
-01.Simona [07:39]
-02.Yardbird Suite [06:44]
-03.Medium Rare [08:42](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:55:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E806C633DDBB82FC953EAD825FDE7BB84BBE8E5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 549536   (463035) от 20.09.2012
-
-Eden Atwood - 3 альбома (1993-2002) [FLAC|Lossless]<Jazz Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463035.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. For Every Man, There's a Woman [04:35]
-02. Twilight World [05:31]
-03. Silent Movie [05:34]
-04. Cat on a Hot Tin Roof [05:41]
-05. You've Changed [04:48]
-06. My Ship [04:25]
-07. Ev'ry Time We Say Goodbye [05:47]
-08. Right as the Rain [03:56]
-09. I'm Glad There Is You [05:48]
-10. Never Let Me Go [04:33](   Читать дальше...   )Жанр: Jazz VocalПродолжительность: 01:01:04
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 549345   (463032) от 20.09.2012
-
-Sally Night - Love For Sale (2012) [FLAC|Lossless]<Jazz, Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463032.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Funny Valentine [04:25]
-02. Love For Sale [04:04]
-03. Wisper Not [02:50]
-04. Angel Eyes [04:52]
-05. It's Alright With Me [03:57]
-06. Black Coffee [06:16]
-07. Tendery [04:10]
-08. Just You Just Me [02:19]
-09. Bossa Medley [06:06]
-10. The Lady Is A Tramp [03:51](   Читать дальше...   )Жанр: Jazz, VocalПродолжительность: 01:12:55
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941027   (463012) от 27.09.2015
-
-Jacky Terrasson - Take This (2015) /Universal/[FLAC|tracks+.cue]<Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463012.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Kiff [03:38]
-02.Un Poco Loco [04:18]
-03.Take Five (Take 1) [05:16]
-04.Come Together [03:28](   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:45:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC160248444A13523DE47A00696ED9A8C001DBE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941205   (462998) от 27.09.2015
-
-Herb Alpert - Come Fly With Me (2015) [FLAC|tracks|WEB-DL]<Smooth Jazz, Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come Fly With Me (2:38)
-02. Blue Skies (3:36)
-03. Got A Lot Of Livin' To Do (3:01)
-04. Cheeky (3:22)(   Читать дальше...   )Жанр: Smooth Jazz, PopПродолжительность: 00:40:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92FF1B0D659A61886D5C507B81E16204F7706115
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407549   (462888) от 09.09.2020
-
-Lena Horne - The Young Star (1941 - 1944) 2002, BMG [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462888.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stormy Weather [3:25]
-02. What Is This Thing Called Love? [2:43]
-03. Ill Wind (You're Blowin' Me No Good) [2:33]
-04. The Man I Love [3:23](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:44:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C3F7862FCDC1BC9FD9132DAF1204EAA8802B421
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 549496   (462868) от 20.09.2012
-
-VA - Smooth Jazz Hits for Lovers (2012) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462868.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boney Jones - Send One Your Love [04:35]
-02. Dave Koz - feat. Herb Alpert - This Guy's In Love With You [04:56]
-03. Jessy J - True Love [03:49]
-04. Peter White - Always, Forever [05:09]
-05. Mindi Abair - feat. Ryan Collins - Get Right [03:25]
-06. Marion Meadows - Flirt [04:21]
-07. George Benson - Show Me The Love [04:18]
-08. Jeff Lorber - You Got Something [04:19]
-09. The Rippingtons - feat. Russ Freeman - Love Story [04:07]
-10. Norman Brown - Sending My Love [04:19](   Читать дальше...   )Жанр: JazzПродолжительность: 00:53:26
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941480   (462861) от 27.09.2015
-
-Martin Denny - The Exotic Sounds of Martin Denny (1996) 2CD /Capitol Records/[FLAC|tracks+.cue]<Lounge, Easy Listening, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462861.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-01.Quiet Village [03:43]
-02.Isle of Love [02:30]
-03.Manila [02:28](   Читать дальше...   )Жанр: Lounge, Easy Listening, Smooth JazzПродолжительность: 02:09:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DD486532F4542C4752B4A2DA164C9CE0182A09A
 ```
 
 https://mybot314.ru/tekegram_catalog/

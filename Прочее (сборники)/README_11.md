@@ -1,3 +1,206 @@
+###  Публикация: 1474770   (1012629) от 04.06.2021
+
+VA - Shazam Хит-парад World Top 200 Май (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012629.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. BTS - Butter (2:44)
+002. Masked Wolf - Astronaut In The Ocean (2:12)
+003. Doja Cat, SZA - Kiss Me More (3:28)
+004. Lil Nas X - MONTERO (Call Me By Your Name) (2:17)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 10:57:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A9E277FFF3C6353C01549AFCA991FF916ACB40C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1474970   (1012524) от 05.06.2021
+
+VA - All Out 00s (2021) [MP3|320 Kbps] <Pop, Rock, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012524.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lady Gaga, Colby O'Donis - Just Dance (4:02)
+002. James Blunt - You're Beautiful (3:29)
+003. Maroon 5 - This Love (3:26)
+004. David Guetta - When Love Takes Over (feat. Kelly Rowland) (3:11)(   Читать дальше...   )Жанр: Pop, Rock, OtherПродолжительность: 16:29:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20F3C64434425BB8D7E0BD73E76CB37FD0015DCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1475503   (1012236) от 07.06.2021
+
+VA - Music News vol.106 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012236.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Marylova - Рингтон (03:00)
+ 002. Alex Pizzuti & Max & Johann feat. Jo - Boom (02:56)
+ 003. Alexa Dragu - Nu Ma Las (02:51)
+ 004. Alicia Keys - Foolish Heart (04:39)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 05:19:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C89488FE720DF686BDAACAEB5461702C326D7325
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476441   (1011642) от 11.06.2021
+
+VA - Music News vol.107 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011642.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Наргиз - Зачем Ты Так (04:12)
+ 002. Agunda feat. Тайпан - Битмейкер (02:09)
+ 003. AKTRU - Влюбился (02:39)
+ 004. Alan Walker & Imanbek - Sweet Dreams (02:19)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 08:06:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4272B821BD6146C0604405529DBDCF739230D958
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477306   (1011057) от 14.06.2021
+
+VA - Громкие новинки Июня (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011057.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Маша Кольцова, Nikitata, Ваня Дмитриенко, Арина Ростовская - За кулисами (2:46)
+02. Zivert - Рокки (2:57)
+03. Maroon 5 - Lost (2:52)
+04. Marshmello - Shockwave (3:01)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:00:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A199D8C6ECF2BDE36000992A334BF2560E1250F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477590   (1010963) от 15.06.2021
+
+VA - All Out 10s (2021) [MP3|320 Kbps] <Pop, Rock, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1010963.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ariana Grande - thank u, next (3:27)
+002. Bruno Mars - Just the Way You Are (3:40)
+003. Ed Sheeran - Shape of You (3:53)
+004. Lady Gaga - The Edge Of Glory (5:21)(   Читать дальше...   )Жанр: Pop, Rock, OtherПродолжительность: 09:01:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:697ECCE4D6633DBDE0275AAE5A752C34FCADC7FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477501   (1010949) от 15.06.2021
+
+VA - Music News vol.108 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1010949.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kylie Minogue - Marry The Night (04:40)
+ 002. Ai Mori - Друг (02:47)
+ 003. Akim - Километры (03:34)
+ 004. AnasteZiya - Мемуары (02:47)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:23:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:036F69501B0B5BCA5BD9491C26AB27382554D7E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1477977   (1010638) от 17.06.2021
 
 VA - Party Mix (2021) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -542,209 +745,6 @@ VA - Fitness Motivation Hits 2021 [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B9B7CA6685C4804F386096A7EF459E11C951EF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1485754   (1005183) от 27.07.2021
-
-VA - Наш Тик Ток 2 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005183.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Xcho - Путь (2:56)
-02. VESNA305 - БЕЛАМОРЕ (2:47)
-03. GAVRILINA - Омут (2:09)
-04. Бамбинтон - Party Music (3:15)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:34:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2FD6B4C8D0B0D1FBCF31A3F23D34CC7C76655BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1485863   (1005078) от 28.07.2021
-
-VA - Feel Good Classic Hits (2021) [MP3|320 Kbps] <Pop, Rock, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005078.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prince - Let's Go Crazy (2015 Paisley Park Remaster)
-02. a-ha - Take on Me
-03. Queen - Fat Bottomed Girls (Single Version / Remastered 2011)
-04. ABBA - Take A Chance On Me(   Читать дальше...   )Жанр: Pop, Rock, OtherПродолжительность: 06:42:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E8076E5410675BDB744F6E439EED7E05C7AC32F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 511792   (1004787) от 30.07.2021
-
-VA - Hard covers of fucking pops (2007-2010) 37CD [MP3|96-320 kbps] <Rock, Punk, Alternative, Metal>
-
->>След.
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004787.jpg" />
-</div>
-
-
-###  Подробнее
-
-Год: 2007-201001. Digger - True Blue (Madonna cover) (01:40)
-02. Today Is The Day - Wicked Game (Chris Isaak cover) (02:11)
-03. Wig Wam - I Turn To You (Melanie C. cover) (04:08)
-04. Arthurkill - Its No Good (Depeche Mode cover) (03:25)(   Читать дальше...   )Жанр: Rock, Punk, Alternative, MetalПродолжительность: 29:44:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEA15099841266410AF530BDD9F2131C42883EF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486774   (1004538) от 01.08.2021
-
-VA - Shazam & Apple Music Chart (Россия Топ 100 Июль) (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004538.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Artik & Asti - Она не я (3:34)
-002. The Limba, Andro, Navai - Никаких эмоций (3:58)
-003. Dzharakhov, Markul - Я в моменте (2:06)
-004. BRANYA, MACAN - Пополам (2:21)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:03:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:035A185F8D4C133F707BFC046E4207282AE2A8BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349383   (1004479) от 01.01.2020
-
-VA - не Громкие новинки недели 50 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004479.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.2 Маши - Не Буди (Video Edit) (3:59)
-2.Adeli - Навсегда (3:36)
-3.Alex Simons - Роза (2:54)
-4.Alina Botanovna - Небезопасно (3:23)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:47:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6C2C4A5BAADF5108503D7F26995624B627D5A07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349565   (1004303) от 02.01.2020
-
-VA - Finest Hour: Country Collection (2019) [MP3|320 Kbps] <Country>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004303.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Smooth Hound Smith - Three Shades Of Lonely
-002. Kane Brown - American Bad Dream
-003. Dirty Deep - Holy Pocket Boogie
-004. Johnny Cash - One More Ride(   Читать дальше...   )Жанр: CountryПродолжительность: 07:02:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B25CE78DE382B97DD95906CC405A6E85BA5C527
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487120   (1004003) от 03.08.2021
-
-VA - Свежаки Лета Remix NNM (2021) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004003.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Антон Девяткин - Camry (3:44)
-02. Artik Asti - Фурия (DJ Prezzplay Radio Edit) (3:30)
-03. Lucky Laura - Party Non Stop (D. Anuchin Radio Edit) (2:45)
-04. Dj Slon - Джимми Джимми (Dj Prezzplay Radio Edit) (2:41)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:50:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78F7C734FAADFAE33CAEBE4A8194E2B9102F83DA
 ```
 
 https://mybot314.ru/tekegram_catalog/

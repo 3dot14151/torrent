@@ -1,3 +1,32 @@
+###  Публикация: 1511859   (788373) от 22.11.2021
+
+Rolling Stones - Atlantic City '89 (feat. E. Clapton, J. Lee Hooker, Axl & Izzy)(1990) Bootleg 3cd-box [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788373.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paint It Black
+02. 2000 Light Year From Home
+03. Sympathy For The Devil
+04. Gimme Shelter(   Читать дальше...   )Жанр: RockПродолжительность: 02:35:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F038E683F2B3AF1B0D2D86BC3CB1604D602A1642
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1276661   (787206) от 18.01.2019
 
 Johnny Hallyday - Album De Sa Vie (2019) [MP3|320 Kbps] <Rock>
@@ -722,35 +751,6 @@ VA - Good Times Roll (2018) [MP3|320 Kbps] <Rock and Roll, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6130F6DBD23BEBA053FBF1C0DB8D2CFECCAED0B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211896   (776744) от 09.03.2018
-
-Uriah Heep - The Byron Era (2018) 2CD [MP3|320 Kbps] <Hard Rock, Classic Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776744.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Way Or Another
-02. Come Away Melinda
-03. Blind Eye
-04. Lady In Black(   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 02:31:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F236FDA96F5AED4BD492F6833D83AA37BFD53CA7
 ```
 
 https://mybot314.ru/tekegram_catalog/

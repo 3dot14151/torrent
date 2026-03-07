@@ -1,3 +1,241 @@
+###  Публикация: 1838538   (260831) от 23.11.2025
+
+Cotton Pickers - Pickin' Out Strong (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_260831.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  The Cool One (3:52)
+02.  I Wonder (6:02)
+03.  Free (3:53)
+04.  Looking At The Sundown (5:12)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B61864B96CFFC968EBD5A1551BB706BF1A358B77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838541   (260823) от 23.11.2025
+
+Jackdawg - Jackdawg (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_260823.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Bayou Rebel (4:09)
+02.  When the Sun Don't Shine (4:22)
+03.  The Men Who Would Be King (3:47)
+04.  Hunger (3:52)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:59:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40EED1FEF77F8A827B9A4E560305914834A63640
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 504467   (260758) от 03.06.2012
+
+Bill Connors - Return (2005) [FLAC|Lossless]<Post-Bop, Fusion, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_260758.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On the Edge
+02. Mr. Cool
+03. McMinor
+04. Mind Over Matter
+05. Minor Matters
+06. Try Tone Today
+07. Terrabill Blues
+08. Nobody Yet To
+09. It Be FM
+10. Brasilia2005Жанр: Post-Bop, Fusion, Guitar JazzПродолжительность: 00:55:25
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838622   (260687) от 23.11.2025
+
+Kim Wilson - Slow Burn (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_260687.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Kim Wilson feat. Nathan James - I'm Tryin' (2:50)
+02.  Kim Wilson feat. Nathan James & Marty Dodson - Leaving You Was On My Mind (5:04)
+03.  Kim Wilson feat. Richard Innes, Larry Taylor, Barrelhouse Chuck & Billy Flynn - Sweet Little Angel (5:44)
+04.  Boogie In E (4:20)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:54:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94A9C12C1610DEF095FE4368836506DCD2F17495
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838623   (260685) от 23.11.2025
+
+Los Skeletone Blues - Its a Great Album!!! (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_260685.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Can You Take It (2:35)
+02.  Battery Tongue Baby (3:29)
+03.  Got No Head (2:26)
+04.  Jazz Bomb (1:26)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CB88C6B932F459CA507E7E8BD696366345F6672
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838628   (260677) от 23.11.2025
+
+Luke - The Truth Remains The Same (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_260677.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Intro (1:03)
+02.  Love, Peace & War (4:46)
+03.  I Don't Really Know What Love Is (4:41)
+04.  The Truth Remains The Same (4:45)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA5E6AB8E7D2B3FD26617594A5655006A82B72C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838632   (260676) от 23.11.2025
+
+Matthew Patrick - Authentico (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_260676.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  40 Below (4:04)
+02.  Bikes, Bullets, and Beer (4:05)
+03.  Dark Train (3:38)
+04.  Long Cold Walk (3:32)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:39:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7CDB1010494B089D7BBECFFA53C38567DAA21C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838633   (260675) от 23.11.2025
+
+Rich Wendel's Fat Fish Logic - The Last Comeback (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_260675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Fish in the Sea (9:37)
+02.  Things Ain't What They Was (5:09)
+03.  Take a Minute for Yourself (5:08)
+04.  Wairunga Blues (5:39)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:05:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A987BA3072CC45C39765C286FB54F21DB49D16E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1838634   (260674) от 23.11.2025
 
 Southbound Snake Charmers - 1000 Cuts (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -537,238 +775,6 @@ Karlie McKinnon - Part Time Honey (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Bl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:195D3AEBA89EFBF9464FECD858BEEB91EE8F41A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837902   (257895) от 19.11.2025
-
-Jonah Hitchens - The Snake Boys (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257895.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Banter (0:16)
-02.  The Snake Boys (5:29)
-03.  Fine Fine Woman (5:35)
-04.  Don't Want No Business With You (Live at The Riff Corner, Clevedon) (7:24)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:35:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B968A0DB31413EACE0D669561A3FA04557462AE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837909   (257894) от 19.11.2025
-
-Maria Carbonell Blues Mood - Limonium Sessions (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257894.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Jazz Man (4:00)
-02.  For You My Love (3:31)
-03.  One Scotch, One Bourbon, One Beer (4:19)
-04.  Water Water (2:25)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:30:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:635CD883E06C5391EF6F1279C328CDBD8A91511F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837913   (257892) от 19.11.2025
-
-Patrick Sweany - Baby, It's Late (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257892.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  My Time Ain't Long (4:48)
-02.  Ain't It Hell (5:19)
-03.  See Through (4:13)
-04.  Trouble With Love (4:36)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EE7847B73C84AC9F4910F502DAE0ED5982187BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837745   (257693) от 18.11.2025
-
-VA - Electro Swing And Friends (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electro Swing, Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257693.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Riff Kitten - Goose Is Loose (2:09)
-02.  Riff Kitten - Cool So True (2:16)
-03.  Riff Kitten - Hit My Stride (2:13)
-04.  Luke Melville - Cafe De Jazz (2:09)(   Читать дальше...   )Жанр: Electro Swing, JazzПродолжительность: 00:22:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5954D40F36858F2518098A4F13CDF4C43EE00AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837750   (257692) от 18.11.2025
-
-Electro Swing Celebration, Bar Coffee Music Saloon, Electronic Music - Electro Swing in the Background (2025) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257692.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  The Disco Shuffle (2:52)
-02.  Bourbon & Brass (2:36)
-03.  Radio Electroswing (2:26)
-04.  Electro Swing Party (2:57)(   Читать дальше...   )Жанр: Electro SwingПродолжительность: 00:39:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CF0FD5EAA3072FD28DC5F64EE5F307385472B29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837754   (257690) от 18.11.2025
-
-Electro Swing Radio - Coffin Candy Charleston (House Electro Swing) (2025) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257690.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Black Cat Prance (Electro Swing Jazz) (1:43)
-02.  Tricks & Treats (House Electro Swing) (1:58)
-03.  The Cat's Go Meow (House Electro Swing) (2:15)
-04.  Vampire Boogie (Halloween Jazz Anthem) (1:53)(   Читать дальше...   )Жанр: Electro SwingПродолжительность: 00:48:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CD87C6B9F06D96B3127A0C909F8C20DE6AA8555
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837755   (257688) от 18.11.2025
-
-Soundify Background Music, Pub Music, Electronic Music - Electro Swing Cocktail (2025) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257688.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Swing Machine (2:46)
-02.  Time Travel Affair (2:52)
-03.  Electro Swing (3:22)
-04.  Syncopation Nation (3:15)(   Читать дальше...   )Жанр: Electro SwingПродолжительность: 00:54:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84556F9DA4D3B0D0B83CF4B16012A21B7B76AE0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837756   (257687) от 18.11.2025
-
-Rebekka Bakken - Nord (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257687.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Møt Meg
-02. Tusen blå
-03. Mitt hjerte alltid vanker
-04. Gjendines bådnlåt(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:01:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C63F1BE0E8ED4DFD21E5AEA5A877536ABEED64C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

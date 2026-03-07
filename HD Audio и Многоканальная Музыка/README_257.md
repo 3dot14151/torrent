@@ -1,3 +1,177 @@
+###  Публикация: 1800879   (5181) от 30.08.2025
+
+Green Day - Saviors (2024) edition de luxe, 2025, Reprise [FLAC 24/48, 24/96|Lossless|WEB-DL|tracks] <Punk, Alternative Rock, Indie Rock, Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5181.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The American Dream Is Killing Me [3:07]
+02 - Look Ma, No Brains! [2:04]
+03 - Bobby Sox [3:45]
+04 - One Eyed Bastard [2:53](   Читать дальше...   )Жанр: Punk, Alternative Rock, Indie Rock, RockПродолжительность: 01:12:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76C4B5216604E946CE0DF490F6720E3F41E90133
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815440   (5150) от 30.08.2025
+
+Knox Evercrest - Unwritten Game (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Fractured Kin Sorrow (3:11)
+02.  Born of Blues (3:52)
+03.  Lawless Play (4:11)
+04.  Ticking Fate (3:34)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D05E08AA8436146A279AB98885D13BB794292512
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815430   (5134) от 30.08.2025
+
+Carolyn Jones - All in divine timing (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Stand (4:46)
+02.  Toy (3:29)
+03.  Without you (5:51)
+04.  Bliss (3:38)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCCCFCBDB61B3FEEC5EAB9A866230184D348EBA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815441   (5123) от 30.08.2025
+
+Knox Vortex - Darling I Don’t Mind (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Darling I Don’t Mind (1:43)
+02.  Groove to Become (2:18)
+03.  The Idiot (2:53)
+04.  Azure Moon Evenings (2:18)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:21:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:787709C125B5D96489876950435615A4022BCE7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815436   (5117) от 30.08.2025
+
+David Rose - Be a Gentleman (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz, Vocal Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5117.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Be a Gentleman (3:34)
+02.  I Love It (1:27)
+03.  Blue Silk (3:57)
+04.  Organized Chaos (2:20)(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 00:47:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E13F11288876D9A0C9DFE8BDFACCE935746980A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815438   (5116) от 30.08.2025
+
+Eric Gales - A Tribute To LJK (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5116.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  You Shouldn't Have Left Me (4:50)
+02.  Rockin Horse Ride (feat. Christone "Kingfish" Ingram) (4:05)
+03.  Guitar Man (4:42)
+04.  Don't Wanna Go Home (feat. Joe Bonamassa) (5:23)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:47:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFB01D46797EE232041B678F08F7EECA91DA6E9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1815666   (4931) от 31.08.2025
 
 Liora Stedman - Spirit of Cobalt (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
@@ -571,180 +745,6 @@ De Profundis, Eamonn Dougan - Morales: Requiem a 5 & Officium defunctorum (2025)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CDB6104A756604486508CD5D6ABA655276E7D715
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816342   (4417) от 04.09.2025
-
-Joris Voorn - Serotonin (2025) 2CD [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic House & Techno>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4417.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rose (Extended Mix) [00:05:43]
-02. Flora (Extended Mix) [00:06:11]
-03. Horizon (Extended Mix) [00:05:47]
-04. Your Love (Extended Mix) [00:06:21](   Читать дальше...   )Жанр: Melodic House & TechnoПродолжительность: 01:16:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01023069F4AC277F36895A0985F1B376279E9523
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816021   (4416) от 04.09.2025
-
-Laufey - A Matter of Time (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Vocal Jazz, Vocal Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4416.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Clockwork [00:02:30]
-02. Lover Girl [00:02:44]
-03. Snow White [00:03:13]
-04. Castle in Hollywood [00:02:33](   Читать дальше...   )Жанр: Vocal Jazz, Vocal PopПродолжительность: 00:45:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:847596AEFB22E97BCEACF43C56F0540B58A4A005
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816273   (4415) от 04.09.2025
-
-Dj Cult Music - Blues Rock Cult Songs (2025) [FLAC 24/192|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4415.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Bourbon Powered Blues (3:24)
-02.  Chrome Heart Shuffle (3:59)
-03.  Echoes in Leather Boots (3:30)
-04.  Gravel Voice Lullaby (3:43)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:18:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C7A6EE7640362E98276612A661D5153B27F4EC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816036   (4413) от 04.09.2025
-
-Halle Choir, BBC Philharmonic and John Storgards - Shostakovich: Symphonies Nos. 1 & 3 "The First of May" & Scherzos, Opp. 1 & 7 (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] &lt ...
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4413.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scherzo in F-Sharp Minor, Op. 1 [00:05:00]
-02. Scherzo in E-Flat Major, Op. 7 [00:04:02]
-03. Symphony No. 1 in F Minor, Op. 10: I. Allegretto [00:09:13]
-04. Symphony No. 1 in F Minor, Op. 10: II. Allegro [00:05:01](   Читать дальше...   )Жанр: ClasicaПродолжительность: 01:15:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0721BEDE1BDE584847722C2891432E4D8198478C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816019   (4402) от 04.09.2025
-
-Pendulum - Inertia (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Drum & Bass, Electronic Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4402.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Driver [00:03:27]
-02. Come Alive [00:03:53]
-03. Save The Cat [00:02:52]
-04. Archangel [00:04:03](   Читать дальше...   )Жанр: Drum & Bass, Electronic RockПродолжительность: 00:54:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11E7A826EB980E3DDA6BEBA57F0DDC28ABF925B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816281   (4401) от 04.09.2025
-
-Rick White - Again (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4401.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Still A Radio (3:01)
-02.  Life In The Maze (2:10)
-03.  Contact (2:48)
-04.  The Cat (2:24)(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5276CD52D299E7B4EE350A13BA6150BA094DEB52
 ```
 
 https://mybot314.ru/tekegram_catalog/

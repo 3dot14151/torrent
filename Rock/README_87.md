@@ -1,32 +1,3 @@
-###  Публикация: 1592959   (181873) от 25.11.2022
-
-Berlin - Count Three & Pray (1986) [OGG Vorbis|480 Kbps] <Electronic, Rock, Soft Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181873.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Will I Ever Understand You
-02. You Don't Know
-03. Like Flames
-04. Heartstrings(   Читать дальше...   )Жанр: Electronic, Rock, Soft RockПродолжительность: 00:47:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24A89E52E127756C910F4F2C572AA7DD8A2E2C65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1427991   (181523) от 30.11.2020
 
 M-Opus - Origins (2020) 2xCD [MP3|320 Kbps] <Progressive Rock>
@@ -745,6 +716,35 @@ U.F.O. - One Night - Lights Out 77 - Live (2023) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7ACF61390F5491D36642D39F9A777731BC707ED8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1827103   (173430) от 20.10.2025
+
+David Gilmour - The Luck and Strange Concerts (2025) [MP3|320 Kbps] <Rock, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_173430.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 5 A.M. (Live from the Luck and Strange Concerts) [03:16]
+02. Black Cat (Live from the Luck and Strange Concerts) [02:02]
+03. Luck and Strange (Live from the Luck and Strange Concerts) [05:56]
+04. Breathe (In the Air) (Live from the Luck and Strange Concerts) [03:34](   Читать дальше...   )Жанр: Rock, Progressive RockПродолжительность: 02:16:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED37F47FE8524DF07C434F22691442E3649990AF
 ```
 
 https://mybot314.ru/tekegram_catalog/

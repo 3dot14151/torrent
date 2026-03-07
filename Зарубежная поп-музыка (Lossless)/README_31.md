@@ -1,3 +1,117 @@
+###  Публикация: 787181   (736673) от 17.05.2014
+
+VA - Pure... 60s (2012) Box Set, 4 CD [FLAC|Lossless]<Pop, Rock, Soft Rock, Pop-Roc>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736673.jpg" />
+</div>
+
+
+###  Подробнее
+
+Постепенно пополняется наша коллекция Pure... от Sony.
+Подоспели и 60-е годы. Этот щедрый набор с четырьмя дисками вобрал в себя почти 70 оригинальных записей хитов 60-х, включая песни Боба Дилана, Byrds, Элвиса Пресли и Джонни Кэша. Хотя, на мой взгляд, коллекция достаточно эклектичная, тем не менее, охватывая огромный пласт песен 60-х, она, бесспорно, даст представление (   Читать дальше...   )01. Bob Dylan - I Want You  (3:07)
+02. Van Morrison - Brown Eyed Girl  (3:03)
+03. Roy Orbison - Oh Pretty Woman  (2:58)
+04. Elvis Presley - Suspicious Minds  (4:34)(   Читать дальше...   )Жанр: Pop, Rock, Soft Rock, Pop-RocПродолжительность: 03:30:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D67AEC948C2DC63165A041FD5F3D995F3E054CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1398138   (736657) от 24.07.2020
+
+Les Humphries Singers - Mexico (1972) 2011, Warner [FLAC|Lossless|tracks + .cue] <Soft Rock, Pop Rock, Gospel>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736657.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Old Time Religion - 3:19
+2. Malaika - 2:10
+3. Lovely Day - 3:24
+4. She's Really Something Else - 2:39(   Читать дальше...   )Жанр: Soft Rock, Pop Rock, GospelПродолжительность: 00:39:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28F95D0594EFE9AC16302BABB64FEAF16EF399CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527670   (736386) от 29.01.2022
+
+Secret Service - Jane (2022) Single [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736386.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. JaneЖанр: PopПродолжительность: 00:03:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17FF3E3C0578ED321C7466BDAC9ACC66CBB1CCAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527652   (735873) от 30.01.2022
+
+Cats on Trees - Neon (2019) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_735873.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Keep on Dancing (3:17)
+ 02. Lion (2:25)
+ 03. If You Feel(3:07)
+ 04. Mama Said (3:23)(   Читать дальше...   )Жанр: Indie Pop, Pop-RockПродолжительность: 00:57:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3ABC5FB0CA207DBFA484DB18FC7A8B567866ED7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1527704   (735862) от 30.01.2022
 
 Marc Lavoine - Adulte jamais (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop, Chanson, French Music>
@@ -629,122 +743,6 @@ Supermax - The Magic Of Supermax (2015) [FLAC|Lossless|tracks + .cue] <Pop, Funk
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA6169D82607655412C1751EB6EA70A83F078762
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284323   (728961) от 21.02.2019
-
-The Lemon Trees - Open Book (1993) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love The Sun
-02. Love Is In Your Eyes
-03. Everything I Want To Know
-04. Child Of Love(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E1A69E801C0E5F1ADE72BDECF20AE03736EA3A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284274   (728897) от 21.02.2019
-
-Jamelia - Superstar-The Hits (2007) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Superstar
-02. Thank You
-03. See It in a Boy's Eyes
-04. Stop(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A2A586483DF2B5091A7B7D5227A6C8BCC6BEB32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022494   (728710) от 02.06.2016
-
-Fifth Harmony - Reflection (2015) Deluxe Edition [FLAC|Lossless|image + .cue] <Pop, Dance, RnB>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728710.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Top Down 3:40
-02. BO$$ 2:51
-03. Sledgehammer 3:51
-04. Worth It (feat. Kid Ink) 3:45(   Читать дальше...   )Жанр: Pop, Dance, RnBПродолжительность: 00:48:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD40757C2EE02933F38B8BD8A4E4871EA2227A15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128496   (727444) от 25.04.2017
-
-Texas - Jump On Board (2017) [FLAC|Lossless|image + .cue] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727444.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let's Work It Out (3:42)
- 02. Can't Control (3:43)
- 03. For Everything (4:32)
- 04. It Was Up to You (3:19)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:37:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81363537BAF79EA0412218B227FF8218D85590BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

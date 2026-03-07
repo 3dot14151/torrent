@@ -1,3 +1,29 @@
+###  Публикация: 1275145   (791042) от 10.01.2019
+
+Шрифты - Creative Market - Miletta typeface with ligatures - 313565 [TTF, OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791042.jpg" />
+</div>
+
+
+###  Подробнее
+
+Miletta - красивый рукописный шрифт, написанный настоящей кистью и тушью. Отсканированный с любовью и адаптирован для использования в качестве шрифта. Автор делал много лигатур и альтернатив, поэтому Ваша творческая работа будет веселой и милой.Формат: TTF, OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3963C6A1736F9AAF2A803E432AFF9C638D55BDF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1275148   (791038) от 10.01.2019
 
 Шрифты - Creative Market - SKATISTA 80% Greek+Cyrillic - 236715 [OTF]
@@ -650,35 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:67C5641974C318B3D383CD2757D68FD035C2BEC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129419   (757781) от 26.03.2018
-
-Шрифты - NNM-Club - Astakhov First Two Stripes - 1129419 [OTF, TTF, EOT, WOFF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757781.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатное семейство шрифтов (в т.ч. OFL)
-Количество / Штук: 6
-Разработчик: D. Astakhov
-(   Читать дальше...   )Формат: OTF, TTF, EOT, WOFF, SVG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEF08FA706577A54E662AA227B9FFC441A4B70CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1455946   (1025415) от 20.03.2021
+
+Tom Holkenborg (aka Junkie XL) - Zack Snyder's Justice League / Лига справедливости Зака Снайдера (Original Motion Picture Soundtrack) (2021) [MP3|320 кб/с]<Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025415.jpg" />
+</div>
+
+
+###  Подробнее
+
+[03:18] 01. Rose Betts - Song to the Siren
+[07:57] 02. Tom Holkenborg - A Hunter Gathers
+[00:57] 03. Tom Holkenborg - Migratory
+[01:04] 04. Tom Holkenborg - Things Fall Apart(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 03:54:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2CF088060F5CEFE509A9D402115C6F7C98F7268
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1455942   (1025411) от 20.03.2021
 
 Tom Holkenborg (aka Junkie XL) - Zack Snyder's Justice League / Лига справедливости Зака Снайдера (Original Motion Picture Soundtrack) (2021) [FLAC 2.0|44/24|tracks|WEB-DL] <Soundtrack, Score>
@@ -718,35 +747,6 @@ Benjamin Wallfisch - Mortal Kombat (Original Motion Picture Soundtrack) (2021) [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:791E872225D831DF5A60916000F34612AC79609B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463276   (1020456) от 18.04.2021
-
-Benjamin Wallfisch - Mortal Kombat / Мортал Комбат (Original Motion Picture Soundtrack) (2021) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020456.jpg" />
-</div>
-
-
-###  Подробнее
-
-[03:07] 01. Techno Syndrome 2021 (Mortal Kombat)
-[07:15] 02. Hanzo Hasashi
-[02:25] 03. Lord Raiden
-[02:43] 04. Bi-Han(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:19:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B5CE5812DE05A3B3385EACF32E8D250A0041403
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,235 @@
+###  Публикация: 1105091   (876644) от 17.02.2017
+
+Anthony Gomes - Sweet Stringing' Soul (2000) [FLAC|Lossless|image + .cue] <Blues Rock, Acoustic Blues, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_876644.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet Stringing Soul [01:43]
+02. Higher [03:40]
+03. Low Down Dirty Deal [03:44]
+04. When I Play The Blues [02:41](   Читать дальше...   )Жанр: Blues Rock, Acoustic Blues, SoulПродолжительность: 00:42:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E964855F8A2CCD007B927C016A88B8A13EC58C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1104914   (876640) от 17.02.2017
+
+Alexis Korner - Blues (1999) Compilation [FLAC|Lossless|image + .cue] <Blues, Rhythm-&-Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_876640.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интересно, что провозглашенный отцом британского блюза этот музыкант далеко не всегда придерживался канонов любимого жанра. Более того, он не был даже англичанином. Имеющий австро-еврейско-турецко-греческие корни Алексис Эндрю Николас Корнер родился в Париже 19 апреля 1928 года. Детство его прошло во Франции, Швейцарии и Северной Африке, и только с началом Второй (   Читать дальше...   )01. I Got My Mojo Working (4:19)
+02. One Scotch, One Bourbon, One Beer (2:59)
+03. Hi Heel Sneakers (4:22)
+04. Sweet Home Chicago (4:03)(   Читать дальше...   )Жанр: Blues, Rhythm-&-BluesПродолжительность: 00:58:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C19103E02774E26BF1A1F9B62DE164F1389F6D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1105642   (876638) от 17.02.2017
+
+Fred Chapellier - Electric Fingers (2012) [FLAC|Lossless|tracks + .cue] <Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_876638.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  Hot Rod Cadillac Automobile  (02:04) 
+02|  He's Walking  (03:34) 
+03|  Something About You  (03:58) 
+04|  Yield Not To Temptation  (03:08) (   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:51:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A60C75F486E99289BA244EF3D10FFBBF66A5C35D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1105694   (876635) от 17.02.2017
+
+Oleta Adams - Third Set (2017) [FLAC|Lossless|tracks + .cue] <Soul, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_876635.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's Alright With Me (8:59)
+02. Only The Lonely (7:21)
+03. Don't Interrupt The Sorrow (4:58)
+04. River (6:35)(   Читать дальше...   )Жанр: Soul, Vocal JazzПродолжительность: 01:00:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB55B3EFCAEF4AE43999ECAEAD2821D358744B81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1105170   (876555) от 17.02.2017
+
+VA - Acoustic Classical Jazz Playlist (2017) [MP3|320 Kbps] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_876555.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shannon & Keast - Moondance [00:02:59]
+02. Larkster Quartet - The Girl from Ipanema [00:05:39]
+03. Chris Snelling - Uno [00:03:14]
+04. Ginnie - Feeling Good [00:03:44](   Читать дальше...   )Жанр: JazzПродолжительность: 00:47:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFA4648653629532BE40F927662764A27E10F1C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1104894   (876415) от 17.02.2017
+
+Yussef Kamaal - Black Focus (2016) [FLAC|Lossless|tracks + .cue] <Experimental, Broken Beat, Acid Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_876415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Focus (4:34)
+02. Strings of Light (8:29)
+03. Remembrance (9:01)
+04. Yo Chavez (3:59)(   Читать дальше...   )Жанр: Experimental, Broken Beat, Acid JazzПродолжительность: 00:43:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AD6CF0D90C807A5701EBBB5035FBC204592FDD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495940   (876041) от 15.09.2021
+
+Roy Hargrove & Mulgrew Miller - In Harmony (2006, 2007) 2CD, 2021, Resonance Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight-Ahead Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_876041.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. What Is This Thing Called Love? [9:11]
+02. This Is Always [8:25]
+03. I Remember Clifford [8:36](   Читать дальше...   )Жанр: Post-Bop, Straight-Ahead JazzПродолжительность: 01:43:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12ABFD4C6DE1551C5B2D0284F1904040905D8783
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495791   (875965) от 15.09.2021
+
+Benito Gonzalez - Sing to the World (2021) [FLAC 2.0|96/24|tracks|WEB-DL] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_875965.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sounds of Freedom (04:56)
+02. Views of the Blues (09:01)
+03. Father (06:34)
+04. Offering (09:19)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:19:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5201C168BEDFFE923C23CD9225C433CE8FFACC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1495851   (875853) от 15.09.2021
 
 Chris Rea - Blue Guitars I - Beginnings (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -513,238 +745,6 @@ Disc 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:16018B02980447938D72F5AA2E5740F4DCE096E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105726   (875066) от 18.02.2017
-
-Andrea Motis - Emotional Dance (2017) [MP3|320 Kbps] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875066.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. He's Funny That Way 04:49
-02. I Didn't Tell Them Why 02:29
-03. Matilda 06:51
-04. Chega De Saudade 05:48(   Читать дальше...   )Жанр: JazzПродолжительность: 01:02:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E094F6D745F472EE0FDF3E3810C20B8D45C1E120
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106127   (875039) от 18.02.2017
-
-Andrea Motis - Emotional Dance (2017) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_875039.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. He's Funny That Way
-02. I Didn't Tell Them Why
-03. Matilda
-04. Chega De Saudade(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:02:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BA7DE4631F46C0DEFD417223B283AD050FA5FF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105852   (875023) от 18.02.2017
-
-Billy D & The Hoodoos - 4 Album (2002-2016) [FLAC|Lossless|image + .cue] <Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875023.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2002 - The HooDoos - Tales from Hollywood
-2009 - Billy D & The Hoodoos - Somethin's Wrong
-2014 - Billy D. - Hoodoo Man(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 02:43:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDF3DBFBA98976880B8D442DC538A0DE612B2CE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105383   (874986) от 18.02.2017
-
-Art Pepper - Taste of Pepper: Art Pepper Meets The Rhythm Section & Mucho Calor (1957) 2CD, 2010, Not Now Music [FLAC|Lossless|image + .cue] <Cool, West Coast Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874986.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Art Pepper Meets The Rhythm Section:
-01.You'd Be So Nice To Come Home To [05:29]
-02.Red Pepper Blues [03:41]
-03.Imagination [05:56](   Читать дальше...   )Жанр: Cool, West Coast JazzПродолжительность: 01:29:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:107C9CF9F455A806DAFDD7054801934787E08C48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 765590   (874976) от 12.03.2014
-
-Arkady Shilkloper, Andrei Kondakov, Vladimir Volkov, Christian Scheuber - Live In Norway (1998) [MP3|320 кб/с]<Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874976.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cat-and-Mouse [11:08]
-02. Children's Song [05:58]
-03. Joyeses Farces [07:48]
-04. Cobra [06:55](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:00:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02C1F9FF54467E2893C2AA9A0588582BCD74CD22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496009   (874648) от 16.09.2021
-
-VA - Fall Jazz (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_874648.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nat King Cole Trio - 'Tis Autumn (1993 Digital Remaster) (03:08)
-02. Sarah Vaughan - September Song (05:47)
-03. John Coltrane - Autumn Serenade (04:19)
-04. Dinah Washington - September In The Rain (02:09)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:41:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3F0F209DBCC8843CC27E8D83EFC5E4E65012B09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496201   (874640) от 16.09.2021
-
-V.A. - Smooth Jazz n Chill, Vol. 6 (2021) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874640.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cindy Bradley - Exhale
-02. Kayla Waters - Open Portals
-03. Nick Colionne - Right Around The Corner
-04. Oli Silk - Just Can't Resist(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:02:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99591B148E81442E4765BE38B11E2B634C2A1094
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495993   (874483) от 16.09.2021
-
-Chris Kramer - Unterwegs (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_874483.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meister Igel (Remaster) (3:58)
-02. Du gabst mir 7 Kinder (3:11)
-03. Ich hab Scheiß gebaut (5:50)
-04. Dein Herz schlägt wie es schlägt (Remastered) (3:59)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:57:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4521E72787DA241D23F70A4E123C0673AC91CFBC
 ```
 
 https://mybot314.ru/tekegram_catalog/

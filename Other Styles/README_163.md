@@ -1,3 +1,32 @@
+###  Публикация: 1684060   (127854) от 15.12.2023
+
+VA - Doggy Style: Sexy Chillout Beats (2023) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_127854.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dj Chillout Sensation - Unzip My Mind (3:02)
+02. Sexy Chillout Music Cafe - Wicked Desire (1:59)
+03. Dj Chillout Sensation - Doggy Style (2:13)
+04. Sexy Chillout Music Cafe - Ride to Ecstasy (2:39)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:54:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89D0A0431F6559EE968D348E5BA20B748AF8D044
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1684700   (127642) от 16.12.2023
 
 Sexy Chillout Music Specialists - Lustful Bubble Bath (2023) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Easy Listening, Lounge>
@@ -716,35 +745,6 @@ Paul Mauriat - White Christmas (1977) Reissue, 1984, Philips [OGG Vorbis|480 Kbp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5830B3A7E5AE3C040750478F0614EB75E2E71F40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695551   (119780) от 01.02.2024
-
-Ashley Ryan - Too Far Gone (2024) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119780.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hush Little Baby [00:02:54]
-02. Too Far Gone [00:02:55]
-03. Just a House [00:03:12]
-04. One Tractor Mind [00:03:30](   Читать дальше...   )Жанр: Contemporary CountryПродолжительность: 00:26:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7B3B1A10A604486CA06AB9C2DA560DB79255DCC
 ```
 
 https://mybot314.ru/tekegram_catalog/

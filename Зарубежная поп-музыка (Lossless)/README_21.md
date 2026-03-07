@@ -1,3 +1,116 @@
+###  Публикация: 1380531   (831451) от 04.05.2020
+
+VA - NOW Love Classics (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_831451.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. UB40 - (I Can't Help) Falling In Love With You (3:24)
+02. Bryan Ferry - Slave To Love (4:18)
+03. Cat Stevens - Wild World (3:20)
+04. Carpenters - We've Only Just Begun (3:04)(   Читать дальше...   )Жанр: Pop, Rock, BalladПродолжительность: 02:04:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:881E026BE3B2BD874CF17E14F5EE8E01F38B9258
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380767   (831360) от 04.05.2020
+
+VA - NOW That's What I Call Music! 73 (2020) USA version[FLAC|Lossless|tracks + .cue] <Pop, Rock, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_831360.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый выпуск нового десятилетия состоялся в январе 2020 г. Очередной сборник новинок из топов США (и немножко Великобритании) получился несколько более спокойным и "приглушенным" по сравнению с общим тоном предыдущих выпусков. Пожалуй, энергия на короткое время дает всплеск на 11 и 12 треках с дивами следующей волны Camila Cabello и Dua Lipa, но в остальном (   Читать дальше...   )01. Maroon 5 - Memories  (3:05)
+02. Taylor Swift feat. Shawn Mendes - Lover (Remix)  (3:39)
+03. Halsey - Graveyard  (3:01)
+04. Shaed & Zayn - Trampoline  (3:02)(   Читать дальше...   )Релиз состоялся: 24 января 2020Жанр: Pop, Rock, DanceПродолжительность: 01:07:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35D15955FCB7FE75CBAD1724A5FEBF44FEE80D42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 133754   (830999) от 15.03.2017
+
+Supermax - The Box (10 CD) (2009) [FLAC|lossless]<Soul, Reggae / Electronic, Funk>
+
+>>След.
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830999.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курт ХАУНСТЕЙН родился в Вене и еще в юности увлекся музыкой. Однако, поняв, что в Австрии особого успеха на этом поприще не добьешься, он решил перебраться в Германию. Там Курт познакомился с Фрэнком ФАРИАНОМ, продюсером BONEY M, и какое-то время поработал с ним. Также ХАУНСТЕЙН участвовал в различных танцевальных и фанк-проектах. Особенно ему нравились выступления (   Читать дальше...   )Жанр: Soul, Reggae / Electronic, Funk
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005871   (830808) от 10.04.2016
+
+All Saints - Red Flag (2016) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830808.jpg" />
+</div>
+
+
+###  Подробнее
+
+Четвёртый альбом выпущенный с промежутком в 10 лет.01. One Strike (03:34)
+02. One Woman Man (04:01)
+03. Make U Love Me (03:46)
+04. Summer Rain (03:44)(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C49B615B8D234EB76E132734A425B3AF4D06786
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1502072   (830215) от 13.10.2021
 
 Moussa - Premier (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, French Hip-Hop, Chillwave>
@@ -628,122 +741,6 @@ Vera Lynn - Vera Lynn 100 (2017) Compilation [FLAC|Lossless|WEB-DL|tracks] <Voca
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC3A5C0637C2F5DDC44FFA4D7703D6C7D5000DB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197016   (819051) от 05.01.2018
-
-Betsy - BETSY (2017) [FLAC|Lossless|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819051.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Little White Lies (03:25)
-02. Lost & Found (02:57)
-03. Fair (03:33)
-04. Last Time We Danced (03:08)(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F530667DD8B06645B5DF45C8447084A510851DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117249   (818930) от 22.03.2017
-
-VA - Acoustic: The Collection (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818930.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alanis Morissette - Ironic (Acoustic Version) (3:56)
-02. Coldplay - The Scientist (5:10)
-03. Bruno Mars - Grenade (Acoustic) (4:07)
-04. James Blunt - 1973 (Acoustic) (3:30)(   Читать дальше...   )Жанр: PopПродолжительность: 03:16:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D91BA5E68B9D9B9EF0703A4F8C1CAFA5D82ABAF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196963   (818873) от 05.01.2018
-
-Maroon 5 - Red Pill Blues (2017) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818873.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Best 4 You
-02. What Lovers Do (Feat. SZA)
-03. Wait
-04. Lips On You(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 01:30:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29881F19FC1D4F153AA678EAB4274FB134410927
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008219   (818093) от 17.04.2016
-
-Paul Handyside - Tide, Timber & Grain (2016) [FLAC|Lossless|tracks] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818093.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flowers Won't Bloom    05:38
-02. Fond Farewell    04:16
-03. Let Me Down Easy    03:52
-04. All Will Be Revealed    03:51(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:41:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:871A7F57B4D6F94E86384CC9D1B24E950851E4BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

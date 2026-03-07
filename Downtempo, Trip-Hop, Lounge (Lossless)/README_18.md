@@ -1,3 +1,32 @@
+###  Публикация: 1326276   (387417) от 19.09.2019
+
+VA - Take a Trip, Pt. 5 (2019) [FLAC|Lossless|Web-DL|tracks] <Trip-Hop, Electronic, Hip-Hop, Abstract, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_387417.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aminolen – Ixtlan (5:44)
+02. Dj Pandaj – The Room (feat. Georgeanne Kalweit & Jazzrevolver) (5:09)
+03. Nordgroove – Distance (3:19)
+04. Mr Peel – Headspace (3:36)(   Читать дальше...   )Производство: Cuntroll – CUNTROLL131Жанр: Trip-Hop, Electronic, Hip-Hop, Abstract, DowntempoПродолжительность: 01:14:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DD0CBA7BDC2CB1F44E6327CF2E7C1CC678005AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1414280   (387401) от 07.10.2020
 
 Sex Music Zone - Kamasutra Music 2020 [FLAC|Lossless|WEB-DL|tracks] <Easy Listening, Lounge>
@@ -713,35 +742,6 @@ Blank & Jones - Relax Edition 14 (2022) [FLAC|Lossless|WEB-DL|tracks] <Electroni
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:072E7C74E3D38AC2DDEA50236977818CD187754B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257562   (345647) от 26.10.2018
-
-Koan - Insidious (2018) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Downtempo, Ambient>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345647.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Awakening (Koan Remix) (9:20)
- 02. She Doesn't Know to Be Asleep (8:20)
- 03. When She Will Recognize Him (7:46)
- 04. Memaloose Island (8:27)(   Читать дальше...   )Жанр: Electronic, Downtempo, AmbientПродолжительность: 02:09:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BA52290596EF9A418E2B07DA4EAFE7898A7A7E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

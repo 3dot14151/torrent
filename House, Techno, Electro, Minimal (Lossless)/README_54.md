@@ -1,3 +1,115 @@
+###  Публикация: 1626833   (240291) от 16.04.2023
+
+VA - Chill & Dance Hits 2023 [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_240291.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A-Mase - Tremble (6:23)
+02. Alessio Cappelli - I Have Been Before (6:26)
+03. Andrey Keyton - I Want Your Soul (5:58)
+04. Anton Ishutin - Always (5:28)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 02:05:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5D0E5C6560DB99F9854241F3C5221C13C4C475E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467422   (239821) от 03.05.2021
+
+Biodub - Minutenschlaf EP (2012) Tiefenrausch [FLAC|Lossless|WEB-DL|tracks] <Dub Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239821.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 7pm September Light (10:36)
+ 02. Mangroove (05:41)
+ 03. Minutenschlaf (07:48)Жанр: Dub TechnoПродолжительность: 00:24:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEE3FE5A21331D8113C15E140CAC96946C5DA0F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370278   (238747) от 28.06.2021
+
+Biodub - Discography 21 Releases (2008-2021) Ki Records, Tiefenrausch [FLAC|Lossless|tracks+.cue, tracks] <Dub Techno, Dub, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_238747.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unterfluss (08:07)Тип издания: CD, WebЖанр: Dub Techno, Dub, Ambient •Продолжительность: 07:39:47 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1864BFF353EBDD8F0CEF1FD65B580D42B5CAE577
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549132   (237338) от 05.05.2022
+
+Виктор Цой - Ремиксы (2021) [FLAC|Lossless|WEB-DL|tracks] <Electro House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_237338.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Печаль (Dj Hitretz Remix) (6:34)
+ 02. Звезда по имени Солнце (DJ Vini Remix) (5:51)
+ 03. Спокойная ночь (DJ Karas & DJ Mar Dee Remix) (5:52)
+ 04. Печаль (DJ Shevtcov & DJ Gallin Remix) (3:42)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 01:33:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73DD5CE2FB85E06E2DEBAF7A14FFAC0D8D6F438D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1640815   (237031) от 19.06.2023
 
 TWO LANES - Duality (2023) [FLAC|Lossless|WEB-DL|tracks] <Chill House, Lo-Fi, Deep House>
@@ -629,122 +741,6 @@ Alic - Sliders (2014) EP [FLAC|tracks|WEB-DL]<Progressive, Techno>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6E8DBA24241D9E5F7B81414FA57995FDD4238FD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269268   (221575) от 14.12.2018
-
-VA - Utopia II (2018) Rebellion der Traumer [FLAC|Lossless|WEB-DL|tracks] <Melodic Techno & House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221575.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Monolink – WY (07:36)
-02. Iorie & Coss – Hadad (07:15)
-03. Elfenberg – Kazikot (07:01)
-04. Acado – Die Verdichtung des Raums (06:28)(   Читать дальше...   )Жанр: Melodic Techno & HouseПродолжительность: 01:42:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:177BCBCFF93B7038CDF974CB064B4DF2BCE03F0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269308   (221530) от 14.12.2018
-
-VA - Utopia (2017) Rebellion der Traumer [FLAC|Lossless|WEB-DL|tracks] <Melodic Techno & House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221530.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bernstein (CH) – Odlicht (06:56)
-02. Schattenspiel – Tiefsicht feat. René Van Munster (07:47)
-03. Ben Bohmer – Zweisamkeit (05:11)
-04. GYRL – Tesseract (07:33)(   Читать дальше...   )Жанр: Melodic Techno & HouseПродолжительность: 01:04:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C042F38E4F41580106730E17EF6F04A5309FC751
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513816   (221318) от 01.12.2021
-
-VA - Vocal House Essentials (2021) [FLAC|Lossless|WEB-DL|tracks] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221318.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lopi Native - Let Me Love You (Indy Lopez Remix) (06:41)
-02. KaiMack - Magic (06:02)
-03. Claire Wakeman - Addicted To You (Indy Lopez Remix) (05:29)
-04. Naked Flame - Follow You (Vocal Mix) (04:07)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:27:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45B33870327DA3B6642723766F622331F1B2B0CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425688   (220589) от 21.11.2020
-
-Marsh - Lailonie (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic House & Techno, Dancefloor>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220589.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Florence (5:06)
- 02. Lailonie (3:46)
- 03. Amor (by Marsh & Wassu) (4:22)
- 04. My Stripes (Ft. Leo Wood) (4:27)(   Читать дальше...   )Жанр: Melodic House & Techno, DancefloorПродолжительность: 00:56:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDFEDCA89310814F6D29AC42D3BFC9A77C80168E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 952469   (355450) от 01.11.2015
+
+Brutto - Родны Край (2015) [FLAC|image+.cue]<Punk Rock, Alternative rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_355450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Человек
+02. Родны Край
+03. Чёрная Сотня
+04. Moscow Calling(   Читать дальше...   )Жанр: Punk Rock, Alternative rockПродолжительность: 00:39:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25E0B645E325CC7D28CE28DB00C16AD5C450020E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1329230   (354598) от 04.10.2019
 
 DIIV - Deceiver (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
@@ -714,35 +743,6 @@ Elbow - Giants of All Sizes (2019) [FLAC|Lossless|tracks] <Britpop, Alternative 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CF5804C3FA6992D982E644FEF31A49D1602EDE59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330576   (339107) от 11.10.2019
-
-Big Thief - Two Hands (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339107.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock and Sing (02:03)
-02. Forgotten Eyes (03:31)
-03. The Toy (04:16)
-04. Two Hands (03:52)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:39:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DE7AC7751517AC070495CD188F23A93C2BEED53
 ```
 
 https://mybot314.ru/tekegram_catalog/

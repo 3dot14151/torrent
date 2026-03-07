@@ -1,3 +1,32 @@
+###  Публикация: 1294323   (630095) от 07.04.2019
+
+Angela Little - Chocolate Oyster (2018) OST [MP3|320 Kbps] <Easy Listening, Progressive Jazz, Acoustic>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_630095.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chocolate Oyster
+02. Frenemy
+03. Daytime Baby Blues
+04. Weekend(   Читать дальше...   )Жанр: Easy Listening, Progressive Jazz, AcousticПродолжительность: 00:23:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:080D8D2C1246B71BE6E959269C5AF181AB5F817A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1294294   (629992) от 07.04.2019
 
 Boy Howdy - Welcome to Howdywood (1992) [FLAC|Lossless|tracks + .cue] <Country>
@@ -731,35 +760,6 @@ VA - Eamonn Karran - I’ll Be With You (2018) [MP3|320 Kbps] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:810B6871D4F8792DF0A872AB45156E0A57AE22E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035549   (626378) от 17.07.2016
-
-Andy Hull and Robert McDowell - Swiss Army Man / Человек – швейцарский нож (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626378.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro Song (feat. Paul Dano) (02:27)
-02. Where Did You Come From? (feat. Paul Dano) (02:43)
-03. Cave Ballad (feat. Paul Dano) (01:46)
-04. Hank Drinks (01:28)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:47:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:365BBB2C96BBD2A022A81AA2593797BC196FE300
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 997326   (875339) от 16.03.2016
+
+VA - Радио 101: Живая акустика (1997) [FLAC|Lossless|tracks + .cue] <Acoustic, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_875339.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Никольский Константин - Я сам из тех.. (2:28)
+02. Сюткин и Ко - Ночной связной (4:28)
+03. Кузьмин Владимир - Подогрей мне молока (5:16)
+04. Nautilus Pompilius - Прогулки по воде (4:45)(   Читать дальше...   )Жанр: Acoustic, RockПродолжительность: 00:52:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:631127BE55FFB32315C739F8D3738E44AF68829E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997580   (873904) от 17.03.2016
+
+GAiNA - С Кем Ты Играешь И Поёшь?! (2008) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873904.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Время (3:24)
+02. Это Твой День (4:03)
+03. С Кем Ты Играешь И Поёшь?! (3:58)
+04. Кануло В Лету (4:40)(   Читать дальше...   )Жанр: Alternative Rock, Heavy MetalПродолжительность: 00:49:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4FD6AFD4AF61327C97D0E3F6FA4ED11D5DD1AC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997568   (873842) от 17.03.2016
+
+2ва Самолета - Подруга Подкинула Проблем (2000) [FLAC|Lossless|tracks + .cue] <Ska, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873842.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Небесное пиво (4:41)
+02. Жизнь запарка (2:55)
+03. Александр Македонский (3:40)
+04. Мамочка в крыжовнике (3:21)(   Читать дальше...   )Жанр: Ska, Pop RockПродолжительность: 00:45:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75CAE507B37E577FED8B176A1C5FC5FAA4F005C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374637   (873167) от 10.04.2020
+
+Аркона - Возрождение (2004) [FLAC|Lossless|image + .cue] <Pagan Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873167.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Коляда 6:56
+02. Масленица 2:51
+03. К дому Сварога 5:21
+04. Возрождение 6:05(   Читать дальше...   )Жанр: Pagan MetalПродолжительность: 00:58:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BB7AADB67C2C23AC487C687CC5D95F34A46D1D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1374640   (873158) от 10.04.2020
 
 Аркона - Жизнь Во Славу... (2006) [FLAC|Lossless|image + .cue] <Pagan Metal>
@@ -619,122 +735,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:48BE4C9193D5B3AC9C30F3EE8278F41AA1720B37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376817   (856905) от 19.04.2020
-
-Олег Скобля - Крылатый Лев (2004) [FLAC|Lossless|image + .cue] <Christian Rock (Православный рок)>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856905.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Поиграй в любовь  (5:30)
-02. Музыкант (4:58)
-03. Реквием (5:38)
-04. Содом  (5:28)(   Читать дальше...   )Жанр: Christian Rock (Православный рок)Продолжительность: 01:05:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:930B2E99B4D2C32CDA172C33110CF766CC8D3F8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498568   (855911) от 27.09.2021
-
-Красная плесень - Памяти В.Цоя (2021) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855911.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. А может это сон (New Version)
-2. Электричество (New Version)
-3. Уничтожили ночь (New Version)
-4. У кого-то есть... (New Version)(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:27:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:105E9513C735E9CEAFAE8AEE4BA290D0C894AE68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376957   (855064) от 20.04.2020
-
-Nobody.one - Mercy, Please Mercy! (2020) [FLAC|Lossless|tracks] <Instrumental, rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855064.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Jaguar [3:05]
-2. Tribe Solder [2:55]
-3. Sombrero [2:52]
-4. Mercy [4:28](   Читать дальше...   )Жанр: Instrumental, rockПродолжительность: 50:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B55A6109BF1E5AF4CA47D2F2A411725C506F527
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376893   (854590) от 20.04.2020
-
-Френдзона - Не разлей вода (2020) [FLAC|Lossless|WEB-DL|tracks] <Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854590.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Половое Воспитание[00:03:42]
-02. рокстармобиль [00:02:30]
-03. кокоро [00:03:59]
-04. я не буду твоим другом [00:03:37](   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:32:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F58D88831AE7B3CA075169F3812D713B123B079
 ```
 
 https://mybot314.ru/tekegram_catalog/

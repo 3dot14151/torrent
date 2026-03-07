@@ -1,3 +1,32 @@
+###  Публикация: 1542613   (637105) от 07.04.2022
+
+Joe Satriani - The Elephants Of Mars (2022) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_637105.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Sahara
+2. The Elephants of Mars
+3. Faceless
+4. Blue Foot Groovy(   Читать дальше...   )Жанр: RockПродолжительность: 01:06:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9ED1A57AC2149DF1025EA3F3F5519EF5A90053B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 908011   (636258) от 13.06.2015
 
 Upsilon Acrux - Sun Square Dialect (2015) [MP3|320 кб/с]<Avant-Prog, Math Rock>
@@ -746,35 +775,6 @@ VA - Classic Rock Presents: The Sound of 2015 (2015) [MP3|320 кб/с]<Classic R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0558C053DDB6E6F5310393F1E66B117C218C0590
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229241   (628071) от 05.06.2018
-
-Polestar 1 - Flying Thru The Universe (1980) LP [MP3|320 Kbps] <Electronic, Progressive Rock, Space Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628071.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Flying Thru The Universe (6:43)
-02.  Sinful Place (6:56)
-03.  I Can See It (3:49)
-04.  Searching (3:43)(   Читать дальше...   )Жанр: Electronic, Progressive Rock, Space RockПродолжительность: 00:39:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AEE3B71B6FE092344E6E2E805FDB40CC64D1499
 ```
 
 https://mybot314.ru/tekegram_catalog/

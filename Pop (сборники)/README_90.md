@@ -1,3 +1,73 @@
+###  Публикация: 571826   (388502) от 07.11.2012
+
+VA - Дискотека Best Hits (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_388502.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Yankovski feat. Пропаганда - Горностай
+02. Miami Club Feat. Nicci - Supernova (Radio Edit)
+03. Johan K feat. Sasha Wind - One More Day (DJ Mikis Remix Edit)
+04. DJ Niki feat. IKA - Так Люблю (Radio Edit)
+05. Alexandra Shine - Play That Game (Original Mix)
+06. Matreshka Girls Feat. Mc Zali - Наша Ночь
+07. Alexey Romeo & Smoky Mo - На Своей Волне (Radio Mix)
+08. John Puzzle feat. Elise & George Sunday - Spanish Lovin' (Radio Edit)
+09. DJ Lutique - Come Along
+10. Дима Билан - Лови Мои Цветные Сны(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A1BD03C2B0333720DDE4C202EA7FE0C6CE9D4FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 571836   (388181) от 07.11.2012
+
+VA - Радио Record: Высшая лига 7 50/50 (2012) [MP3|256 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_388181.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Magnit & DJ Kefir & T9 & Tina Smith - Пусть все будет так, как ты захочешь
+02. Gusttavo Lima - Balada (Regi Remix)
+03. DJ Ozeroff & DJ Sky - Будешь Нашим Королем (Madis feat. Artem Onyx & Vadim Smile Remix)
+04. Slam DJs feat. Zeni - Walk Away (Radio Mix)
+05. DJ Boyko & Katy Queen - Я люблю тебя (Sound Shocking Remix)
+06. Sultan & Ned Shepard feat. Taryn Manning - Send Me Your Love (Dave Aude Radio Edit)
+07. Диля Даль - Мой сильный мужчина (SantBeu Remix)
+08. Dada feat. Sandy Rivera - Lollipop (DJ Parker & DJ MAXima Radio Edit))
+09. 5sta Family - Вместе мы (DJ Lena Front & DJ Jeneva Remix)
+10. Ysa Ferrer - Flash in the Night (Pinnochio English Hard Version)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:59:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25946DF638C13F157794261703EB1B68A90574AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 570712   (387630) от 07.11.2012
 
 VA - Дорожное Авторадио. Лучшие песни (2012) [MP3|256 кб/с]<Pop>
@@ -729,70 +799,6 @@ VA - XXXL Радио Хиты 50х50 (2016) [MP3|320 Kbps] <Поп, Dance, Ро�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:96D9EE1F749884D0B1D264AA04F7ABD32255ED98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 572850   (381681) от 10.11.2012
-
-VA - Осенняя хитовая двухсотка 50/50 (2012) [MP3|128 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381681.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Кристина Межинская - До рассвета
-02. Алёна Копылова - Осень
-03. Zedd feat. Matthew Koma - Spectrum (Radio Mix)
-04. Kato & John - Turn The Lights Off (Sasha Semenov Remix)
-05. Mc Zali & Trinity - Певица Из Села (Dmitriy Rs Radio Remix)
-06. Ирина Дубцова - Ешь, молись, люби
-07. Ocean Drive - Revolution (Radio Edit)
-08. Moodorama - Wondering Why
-09. Marc Korn feat. Miani - Elena (Radio Mix)
-10. Ирина Тараканова - Где же ты(   Читать дальше...   )Жанр: PopПродолжительность: 12:01:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52E66EB3854E48BEB180831DFE6E67AF7951CC9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253545   (381617) от 10.10.2018
-
-VA - Pop Panorama: October Set (2018) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381617.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Guetta & Sia - Flames
-002. Cnco - Solo Yo
-003. Negramaro - La Prima Volta
-004. Giiants - American Summer(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 11:58:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60A2FA2E37A6B65390194441E66D644247F4A845
 ```
 
 https://mybot314.ru/tekegram_catalog/

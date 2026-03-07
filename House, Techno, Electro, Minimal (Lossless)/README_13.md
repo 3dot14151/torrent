@@ -1,3 +1,119 @@
+###  Публикация: 1494743   (885922) от 09.09.2021
+
+VA - Best Of Rave 2 (Box Set) (1995) Low Price Music [FLAC|Lossless|tracks] <Breakbeat, Hardcore, House, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_885922.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Opus III - I Talk To The  Wind (03:59)
+ 02. Transformer 2 - Pacific Symphony Too (Techno Symphony Remix) (05:11)
+ 03. Rum & Black - Wicked (04:24)
+ 04. DJ Professor - Rock Me Steady (03:31)(   Читать дальше...   )Тип издания: CDЖанр: Breakbeat, Hardcore, House, Techno •Продолжительность: 02:58:13 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5529DFD2F70C6E0183727D42B5BD7C40E6D757F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372181   (885369) от 03.04.2020
+
+The 5th Galaxy Orchestra - Utopia Lounge (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Chillout, Lounge>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_885369.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Place Between Us (6:31)
+02. Night Cityscapes (4:02)
+03. Exotic Flavours (4:30)
+04. Cuckoo Beach (4:30)(   Читать дальше...   )Жанр: Deep House, Chillout, LoungeПродолжительность: 00:52:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C2A5C7FC8A009256358EB77736F2B284B62687A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495111   (884539) от 10.09.2021
+
+VA - Scorchin' Sessions Vol. 1 (Mixed by Super8 & Tab) (2021) DJ Mix [FLAC|Lossless|WEB-DL|tracks] <EDM, Progressive House, Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_884539.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. BetweenUs - Lost Island (Mixed) (05:40)
+02. Sam Heyman - Corvus (Mixed) (04:54)
+03. Angel One - Each Of Us (Mixed) (02:42)
+04. Nick Hayes - Signal (Mixed) (04:07)(   Читать дальше...   )Жанр: EDM, Progressive House, TranceПродолжительность: 01:06:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57CA740DCA3AD89310D35B621A43AE17F95419AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1383880   (884429) от 10.09.2021
+
+Lou Karsh | Reptant - Discography 14 Releases (2016-2021) LKR Records, X-Kalay, Salt Mines [FLAC|Lossless|WEB-DL|tracks] <Electro, Acid, IDM, Techno, Breaks>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_884429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ghost In The Filter (05:21)
+ 02. Time Blind (05:31)
+ 03. Shermanic Ritual (06:09)
+ 04. Reptilian Magnetism (04:37)Тип издания: WEBЖанр: Electro, Acid, IDM, Techno, Breaks •Продолжительность: 06:523:17 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF3DABEBA9E76C892EDA9208AC8988CBC803D4F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1373946   (884292) от 10.09.2021
 
 Sven Weisemann (Desolate, Jouem, Phidias) - Discography 43 Releases (2006-2021) Fauxpas Musik, Mojuba [FLAC|Lossless|tracks+.cue, tracks] <Tech House, Downtempo, IDM, UK Garage, Deep House, Ambi ...
@@ -623,122 +739,6 @@ DISC 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CAB7CC8D1C9FA8FABD62CB5426B5836F496D5515
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107232   (868231) от 22.02.2017
-
-VA - We Love Funky by Miguel Vizcaino (2016) [FLAC|Lossless|image + .cue] <House, Nu Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868231.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zo! - We Are On The Move (Joey Negro & Dave Lee Remix) (04:56)
-02. Corduroy Mavericks feat. Soledrifter - True Love (Soledrifter Remix) (04:02)
-03. Dr Packer - Bizarre Love (04:47)
-04. Paul Mad - Believe in Love (Deep Beep Records) (06:26)(   Читать дальше...   )Жанр: House, Nu DiscoПродолжительность: 01:16:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D46FEBFA009B6AFCA5DFB020425DF0B81638E3E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999525   (864614) от 22.03.2016
-
-Underworld - A Collection (2012) Compilation [FLAC|Lossless|tracks + .cue] <Progressive House, Techno, Progressive Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864614.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. High Contrast – The First Note Is Silent (feat. Tiesto & Underworld) (3:39)
-02. Underworld – Scribble (3:48)
-03. Brian Eno & Karl Hyde – Beebop Hurry (3:08)
-04. Mark Knight, D Ramirez & Underworld – Downpipe (3:20)(   Читать дальше...   )Жанр: Progressive House, Techno, Progressive TranceПродолжительность: 01:09:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:380B0677A234EA2BD8685195C9C100AD1758B6C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108399   (864149) от 24.02.2017
-
-VA - Hernan Cattaneo - Balance Presents Sudbeat (2017) [FLAC|Lossless|WEB|tracks|image] <Deep House, Progressive House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864149.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hernan Cattaneo - Balance Presents Sudbeat (continuous DJ mix 1) (78:41)
-02. Hernan Cattaneo - Balance Presents Sudbeat (continuous DJ mix 2) (77:57)
-03. Toki Fuko - An Odor (8:59)
-04. Sahar Z & Navar - The Dogma Code (7:07)(   Читать дальше...   )Жанр: Deep House, Progressive House, Tech HouseПродолжительность: 06:22:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD3A9767285E278EE33AEB0EAD1EB27B7E0143EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999707   (863141) от 23.03.2016
-
-VA - Telrae Vinyl Mix by Salz (2012) [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863141.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Salz - Telrae Vinyl Mix by Salz (Continuous Mix) (01:17:40)
-02. Stefan Gubatz - An (08:20)
-03. Riley Reinhold - Get A Splash (Salz Dub-O-Lution Remix) (06:54)
-04. Martin Schulte - Killer (08:02)(   Читать дальше...   )Жанр: Dub Techno, TechnoПродолжительность: 03:09:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF486AA6904EA2DBC4274667C2894BC33C298C44
 ```
 
 https://mybot314.ru/tekegram_catalog/

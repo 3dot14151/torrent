@@ -1,3 +1,119 @@
+###  Публикация: 1254135   (377517) от 12.10.2018
+
+General Lafayette - Love Is A Rhapsody (1992) [FLAC|Lossless|image + .cue] <Pop, Ballad, Instrumental>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_377517.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Angel In Blue
+2.	For The Girl Who Couldn't Find Love
+3.	Melody For You
+4.	Angelitos(   Читать дальше...   )Жанр: Pop, Ballad, InstrumentalПродолжительность: 00:54:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CECAF8B8748D7EED7407770DDDE7EA7A33EF4E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253934   (377386) от 12.10.2018
+
+St. Vincent - MassEducation (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Baroque Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_377386.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slow Disco
+02. Savior
+03. Masseduction
+04. Sugarboy(   Читать дальше...   )Жанр: Indie Pop, Baroque PopПродолжительность: 00:45:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72F0FDF7C497159AAAF4704D8ECF939D2C21C995
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575581   (375383) от 10.09.2022
+
+Al Barton & Spirit Of Smokie - Room With A View (2011) Reissue, 2018, Big Lake [FLAC|Lossless|image + .cue] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_375383.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Come For Me
+02. Sacred Heart
+03. Highways And Heartaches
+04. Send Me An Angel(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:46:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43B0F47201136CD6B8D68DC2E295DEED274BFB7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949661   (374745) от 24.10.2015
+
+Selena Gomez - Revival (2015) Japanese Edition [FLAC|image+.cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_374745.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Revival
+02. Kill Em With Kindness
+03. Hands to Myself
+04. Same Old Love(   Читать дальше...   )Жанр: PopПродолжительность: 00:57:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E55A00A06D371BCCFFC39FE04ECCE9123F332B98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1318516   (374501) от 25.09.2019
 
 Bat For Lashes - 14 releases (2007-2019) [FLAC|Lossless|tracks + .cue|tracks] <Dream Pop, Indie Rock, Indie Pop>
@@ -634,122 +750,6 @@ Mireille Mathieu - Cinéma (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Chanson fr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C0EE22FEFB66744E60D3691BD56F557C8FDEF8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072181   (354392) от 12.11.2016
-
-Sandra - Close To Seven (1992) Japanese Edition [FLAC|Lossless|image + .cue] <Pop, Europop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Be Aggressive [04:45]
-02. Mirrored In Your Eyes [03:26]
-03. I Need Love [03:24]
-04. No Taboo [03:50](   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 00:44:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C93C62B65F0F0A483BC3389895BF757AD187489
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071965   (354250) от 12.11.2016
-
-Patricia Kaas - Patricia Kaas (2016) Deluxe [FLAC|Lossless|tracks] <Pop, Chanson>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354250.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adele 03:08
- 02. Cogne 03:34
- 03. Madame tout le monde 02:49
- 04. Sans tes mains 03:34(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 00:49:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F49A41EC0D08B98EA6CB52540246DC51410D09C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072271   (354107) от 12.11.2016
-
-Sandra - The Very Best Of (2016) 2CD, Compilation, Remastered [FLAC|Lossless|image + .cue] <Pop, Dance-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354107.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. (I'll Never Be) Maria Magdalena (Single Version) 3:58
- 02. Everlasting Love 3:42
- 03. We'll Be Together (Single Remix) 3:46
- 04. In The Heat Of The Night (UK Single Version) 3:57(   Читать дальше...   )Жанр: Pop, Dance-popПродолжительность: 02:13:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:755A22F365026D01DB822398DC0E01166CFD00C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1178844   (353441) от 29.10.2017
-
-Pink (P!nk) - Beautiful Trauma (2017) Japan [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353441.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beautiful Trauma
-02. Revenge
-03. Whatever You Want
-04. What About Us(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D48CFA83313F3E4E531FD1EBB6C35B90982DC89D
 ```
 
 https://mybot314.ru/tekegram_catalog/

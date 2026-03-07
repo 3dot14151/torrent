@@ -1,3 +1,32 @@
+###  Публикация: 1361937   (952238) от 21.02.2020
+
+H.e.a.t - H.e.a.t II (2020) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_952238.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Rock Your Body [4:04]
+ 02 - Dangerous Ground [4:07]
+ 03 - Come Clean [3:44]
+ 04 - Victory [4:28](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1ECE661C4F1E373F9B5D18C0B7CD3145CB5ABDD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 982168   (949815) от 02.02.2016
 
 Black Sun - Brandus (1997) [MP3|320 кб/с] <Rock, Hard Rock>
@@ -710,35 +739,6 @@ State Cows - 2 альбома (2010-2013) [MP3|320 Kbps] <Westcoast, AOR>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD73E1C8C66FDBF207260CB58FB476EE0B3CA45D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366644   (922036) от 12.03.2020
-
-Gotthard - #13 (2020) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922036.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Bad News
-2. Every Time I Die
-3. Missteria
-4. 10.000 Faces(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:00:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33E6724066E96A462DD910BF7966B1465ECFF114
 ```
 
 https://mybot314.ru/tekegram_catalog/

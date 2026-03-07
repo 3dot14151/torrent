@@ -1,3 +1,235 @@
+###  Публикация: 1656292   (203296) от 30.08.2023
+
+Wardell Gray - 1946 - 1950 (2002) Classics [FLAC|Lossless|tracks + .cue] <Bop, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_203296.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dell's Bells [2:55]
+02. One For Prez [3:11]
+03. The Man I Love [3:05]
+04. Easy Swing [3:01](   Читать дальше...   )Жанр: Bop, SwingПродолжительность: 01:09:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D57036E7F73F24BABA927A611768F07592C91DD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1656320   (203284) от 30.08.2023
+
+Kevin Galway - Something Bartered Something Blue (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_203284.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rider (5:34)
+02. Dead Man Blues (feat. Mike Palermo) (2:58)
+03. Nihilist Blues (4:11)
+04. Midnight Special (feat. Wally Knash) (4:12)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0E65FDCAC4700770AAD94A7DC6A1C806F875EF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1656319   (203269) от 30.08.2023
+
+Joel Astley - Seattle to Greaseland (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_203269.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Born Cryin' (3:46)
+02. Candy Shop (3:47)
+03. Just Right (4:12)
+04. Karma Wheel (5:03)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F952C533AEB4B7DF785D805AB8A8A4E4B9E85270
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1656533   (203039) от 31.08.2023
+
+Mal Waldron - Left Alone (1959) 2000, Avenue Jazz [FLAC|Lossless|image + .cue] <Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_203039.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Left Alone [6:07]
+02. Cat Walk [6:56]
+03. You Don't Know What Love Is [5:52]
+04. Minor Pulsation [8:14](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 00:38:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D680D8DA9666A3D55D92D301E98F1956C54DE4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1656887   (202832) от 01.09.2023
+
+Coco Montoya - Writing On The Wall (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_202832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Was Wrong
+02. Save It For The Next Fool
+03. You Got Me (Where You Want Me)
+04. (I'd Rather Feel) Bad About Doin' It(   Читать дальше...   )Жанр: BluesПродолжительность: 00:58:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4075CBDB03786BAEBA0BA319B4E834BE562806B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1656809   (202823) от 01.09.2023
+
+Tommy Flanagan - Something Borrowed, Something Blue (1978) 1990, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_202823.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bird Song [4:48]
+02. Good Bait [4:07]
+03. Peace [6:14]
+04. Friday the 13th [3:52](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 00:38:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:336D5CC1A83FA3E2F4402599B8AEBA007E32A247
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612752   (202660) от 16.02.2023
+
+Joe Louis Walker - Weight of the World (2023) [MP3|320 Kbps] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_202660.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Weight of the World (04:25)
+ 02. Is it a Matter of Time- (03:11)
+ 03. Hello, it's the Blues (06:46)
+ 04. Waking Up the Dead (04:33)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D524CA2732E88EDDBB916D10F476AC0B463B6D74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1830451   (202480) от 26.10.2025
+
+Electro Swing - New York City of Swing (2025) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing, Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_202480.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  New York City of Swing (3:13)
+02.  Neon Night Voyage (3:12)
+03.  Party Nights (3:05)
+04.  Ocean Sky (3:16)(   Читать дальше...   )Жанр: Electro Swing, JazzПродолжительность: 00:32:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D29ED0168D3792E657B0012AD4BCC9FB2A1316C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1830459   (202477) от 26.10.2025
 
 Electro Swing Groove - Vocal Nights, Vol. 2 (2025) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing, Jazz>
@@ -514,235 +746,6 @@ Tony Spinner (родился 9 июня 1963 года в Кейп-Жирардо
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61C086B43B21DB5D1189CE91296D38BBC0533253
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364505   (196833) от 18.06.2023
-
-James Cotton - 24 Albums (1967 - 2013) 27 CD [FLAC|Lossless|image + .cue|tracks + .cue] <Electric Chicago Blues, Harmonica Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_196833.jpg" />
-</div>
-
-
-###  Подробнее
-
-James Cotton (1 июля 1935 - 16 марта 2017) входит в десятку главных исполнителей на губной гармонике, создателей "современного блюза" в данной категории. Cotton родился 1 июля 1935 года в штате Миссисипи. James был одним из восьми детей в семье. Его отец являлся главой местной черной общины и проповедником. Естественно, он посещал все службы и пел в церкви. (   Читать дальше...   )Список альбомов:
-1967 The James Cotton Blues Band
-1968 Cut You Loose
-1975 High EnergyЖанр: Electric Chicago Blues, Harmonica BluesПродолжительность: 22:54:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0F2642DF9A86756B18965CA8B5593D343FBFF8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 314049   (196710) от 21.06.2023
-
-Martin Scorsese Presents: The Blues - A Musical Journey (5 CD set) (2003) [FLAC|Lossless]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_196710.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот пятидисковый бокс-сет включает в себя полную коллекцию музыки из семи фильмов в серииЖанр: BluesПродолжительность: 6:11:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC541BF2214DB6BF6E35D38B72592DB3CB9602E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317920   (195680) от 16.07.2023
-
-Hugo Race ft. Michelangelo Russo - John Lee Hooker's World Today (2017) [MP3|320 Kbps] <Blues rock, Alternative rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_195680.jpg" />
-</div>
-
-
-###  Подробнее
-
-Блюз-рок 21-го века - памяти Джона Ли Хукера...01. Hobo Blues
-02. Love Blues
-03. Serves You Right to Suffer
-04. Decoration Day(   Читать дальше...   )Жанр: Blues rock, Alternative rockПродолжительность: 00:47:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFB1808F969CD9BA5EBF40CAEDE99A6C8D2A14C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1828037   (193699) от 23.10.2025
-
-Satin Groove - More Saxxy (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193699.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Golden Groove (3:45)
-02.  Neon Sessions (4:31)
-03.  Midnight Motors (5:31)
-04.  Chrome (3:35)(   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:43:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B53F0F79760827EA168A2C627FB5F7DC3752E9F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827740   (193358) от 23.10.2025
-
-Timmy Stax - Bay Area Jazz and Soul Lake Merritt Jazz and Soul Revue (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193358.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  West Oakland Sunset (4:29)
-02.  Walk Around The Lake (4:47)
-03.  The Quiet Storm (3:53)
-04.  Inner Circle Jazz (3:49)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:42:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89F78D6093E06B1D5A84ECA68B29A50E65D9C158
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827748   (193353) от 23.10.2025
-
-VA - Acid Jazz Funk (Vol.4) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz, Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193353.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  The Smoke Orchestra - Lenticular Galaxy (2:49)
-02.  Fusion Funk Foundation, Lo Greco Bros & Soulstance - In The Morning (3:40)
-03.  Yuts and Culture - Back To Ma Funk (5:48)
-04.  Lainz & Black & Brown - Sfrombolus (6:20)(   Читать дальше...   )Жанр: Jazz, FunkПродолжительность: 02:15:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF91334B0F0E4E27F57AEAACC47D6474F402C372
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827760   (193345) от 23.10.2025
-
-Big Chief Monk Boudreaux & Spyboy Jwan Boudreaux - Slip Don't Fall (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193345.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Mardi Gras Morning! (7:07)
-02.  Can't Be Late (3:16)
-03.  Jock-a-Mo (5:15)
-04.  Travelin Man (3:34)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EADA369F2E4E85A96E02FC34C67EDE684B6C6E6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827764   (193343) от 23.10.2025
-
-Corey Congilio - A Good Place To Start (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193343.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Me (3:31)
-02.  Who's Been Talkin' (4:32)
-03.  I Wouldn't Treat A Dog (The Way You Treated Me) (4:59)
-04.  Heebie Jeebies (2:54)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:22:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DCCDB2251CFB8DB374A692660CBC875A4B3CAA2
 ```
 
 https://mybot314.ru/tekegram_catalog/

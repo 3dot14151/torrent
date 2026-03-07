@@ -1,3 +1,31 @@
+###  Публикация: 1026039   (706136) от 14.06.2016
+
+Midori - Island Paradise (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706136.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. To the Island [00:10:29]
+02. Sparkling Light [00:20:26]
+03. Temple Shrine [00:20:34]Жанр: New AgeПродолжительность: 00:51:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDF5C16C32A9EA87C0B62A71EB6C4202D994BF14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1025857   (705873) от 14.06.2016
 
 Air - Twentyears (2016) [MP3|320 кб/с] <Electronic, Downtempo, Ambient>
@@ -716,35 +744,6 @@ Levantis - I Love Yoga (Music To Relax Your Body And Mind), 3CD Box Set (2009) [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D9FC5FDB3FD38E8AEE3ECFBD28D02BF804F4A24A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132428   (700454) от 09.05.2017
-
-VA - Prey (Original Game Soundtrack) (2017) [MP3|241-287 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700454.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mick Gordon - The Experiment (01:36)
-02. Mick Gordon - Everything Is Going to Be Okay (02:29)
-03. Mick Gordon - Typhon Voices (01:54)
-04. Mick Gordon - The Phantoms (03:09)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:31:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C1A070128852A79D095B0B7D525078180ED2870
 ```
 
 https://mybot314.ru/tekegram_catalog/

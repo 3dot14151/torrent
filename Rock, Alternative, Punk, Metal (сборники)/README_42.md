@@ -1,3 +1,32 @@
+###  Публикация: 1271683   (148469) от 24.12.2018
+
+VA - Rock in Auto Vol 4. (2017) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_148469.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Saving Abel - Addicted (3:43)
+02. 12 Stones - Hey Love (3:53)
+03. AC / DC - You Shook Me All Night Long (3:30)
+04. Adelitas Way - Last Stand (3:42)(   Читать дальше...   )Жанр: RockПродолжительность: 06:45:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83A7C5999061B031079F1613EBC653D4C9171C42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1086794   (147936) от 26.12.2016
 
 VA - Radiohead - Best275z (1993 - 2016) [MP3|320 Kbps] <Alternative Rock, Electronic>
@@ -722,41 +751,6 @@ Blues Cousins - Compilation (2020) [MP3|320 Kbps] <Rock, Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:086360311628F4C36EBBE7904A688B24563815B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596432   (131265) от 30.12.2012
-
-VA - Rockовое Нашествие-Русская версия (2012) [MP3|128 кб/с]<Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131265.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 ДДТ - Напиши мне, напиши
-002 Алиса - Качели
-003 Король и Шут - На краю
-004 Сергей Шнуров - Sky Whisky
-005 Бригадный подряд, Король и шут, Пилот и Кукрыниксы - Питер рок-н-ролл
-006 Мельница - Дороги
-007 Браво - Вот и я
-008 Louna - Мама
-009 СерьГа - Берегите лес
-010 Чайф - Для него(   Читать дальше...   )Жанр: RockПродолжительность: 12:41:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3CE0FE43F95787647EE4AC6478067D6396215B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

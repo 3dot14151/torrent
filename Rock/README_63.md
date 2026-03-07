@@ -1,3 +1,32 @@
+###  Публикация: 1416688   (365250) от 17.10.2020
+
+T. Rex - T. Rex FM Broadcast 1976 (2020) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_365250.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ride A White Swan (Live)
+02. Life's A Gas (Live)
+03. Teenage Dream (Live)
+04. Metal Guru (Live)(   Читать дальше...   )Жанр: RockПродолжительность: 00:50:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BBF08D813E0B42DE29FEAB5CE678F48BBE17D8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1416438   (365108) от 17.10.2020
 
 Santana - FM Broadcast Santana Live (2014) [MP3|320 Kbps] <Rock, Indi Rock, Pop Rock>
@@ -716,35 +745,6 @@ The Rolling Stones - Grrr! (2012) [MP3|~190 кб/с (V2)]<Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C97031C33EFEEA088C85373621DEEE42904B7FA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1178804   (353965) от 29.10.2017
-
-Marcus Hook Roll Band - Tales Of Old Grand-Daddy (1973) Reissue, 1994, Albert Production [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353965.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Natural Man
-02. Louisiana Lady
-03. Shot In The Head
-04. Can't Stand The Heat(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09E5E34EBC634D6061CA5561AF6506C8B251B88C
 ```
 
 https://mybot314.ru/tekegram_catalog/

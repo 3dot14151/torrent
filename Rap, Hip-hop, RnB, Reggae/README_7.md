@@ -1,3 +1,90 @@
+###  Публикация: 1370627   (895294) от 28.03.2020
+
+N.Masteroff - Все мечты давно сгорели (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895294.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вдаль-высоко [02:48]
+02. Подорву! [02:19]
+03. На века [02:46]
+04. Не в обиду [02:04](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:23:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:130F808C49C395B06DCB3DD0523F1BD155328F93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370788   (895284) от 28.03.2020
+
+Эскимос Crew - Тяжёлая вода (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895284.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. В руке драп зажат (feat. Nemoy Djo) [03:12]
+02. Комната [02:36]
+03. Запой [03:12]
+04. Пропал [02:48](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:06:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46E24DEB9AD0E2585CC4DE4840BFEF2D8E577A4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370779   (895268) от 28.03.2020
+
+Овраг подпольщиков - Овраглэнд (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895268.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интро [01:04]
+02. Руки в гору [04:30]
+03. Пропал человек [04:01]
+04. Полёт над городом [03:34](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:27:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFA38B886C6EF34B1671FC487803CB4862AF90E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1370625   (895233) от 28.03.2020
 
 Kyok - DECADANCE 3 (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -658,93 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A36C191A5AC949309436C1CA68A9EC5535C044FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372700   (883851) от 04.04.2020
-
-ЗАМАЙ - Lust Hero, Vol. 2 (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883851.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Air Tuapse [04:14]
-02. Странные вещи [02:50]
-03. Instagram [02:53]
-04. Голуби [03:23](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:19:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9AAF80D7DD5191CCAA0E7B99DC8F8D3B89109AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372656   (883783) от 04.04.2020
-
-тима ищет свет - бойня (2020) [MP3|320 Kbps] <Rap, Hip-Hop, Alternative>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. слова (скит) [00:46]
-02. клоун [02:55]
-03. татуировка змеи [03:33]
-04. темный [03:44](   Читать дальше...   )Жанр: Rap, Hip-Hop, AlternativeПродолжительность: 00:38:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA46F3B8454FFC287112BED6ACAF8C097925F394
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372732   (883754) от 04.04.2020
-
-AKTHESAVIOR & Leon Fanourakis - FLATBU$H ¥EN (2020) [MP3|320 Kbps] <Rap, Hip-Hop, Mumble>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883754.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. INTRO [01:19]
-02. KONNICHIWA [03:14]
-03. CHICHI [02:37]
-04. PICCOLO [02:29](   Читать дальше...   )Жанр: Rap, Hip-Hop, MumbleПродолжительность: 00:20:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C296821FB54A31B19F090B5FA6AEA4EC761D008E
 ```
 
 https://mybot314.ru/tekegram_catalog/

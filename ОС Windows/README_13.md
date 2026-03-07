@@ -1,3 +1,58 @@
+###  Публикация: 1289010   (687717) от 15.03.2019
+
+Microsoft Windows 10.0.17763.316 Enterprise LTSC Version 1809 (Updated March 2019) - Оригинальные образы от Microsoft MSDN=VLSC [Ru]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_687717.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы - Windows 10 Enterprise LTSC Version 1809 Build 17763.316
+Windows 10 «Корпоративная с долгосрочным обслуживанием» (англ. Enterprise LTSC, ранее — Enterprise LTSB) — специальный вариант «Корпоративной», отличается от остальных редакций долгосрочной поддержкой одной версии и отсутствием Магазина и UWP приложений (кроме приложения «Параметры»).Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02CCEC8491E7BE5FEB9A42091895FA104951E81B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029015   (683685) от 25.06.2016
+
+Recovery USB-flash for Sony VAIO SVF152A29V (SVF1521H1R) Windows 8 [Ru]
+
+>>ОС Windows
+>>Windows OEM Recovery СD/DVD
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_683685.jpg" />
+</div>
+
+
+###  Подробнее
+
+В раздаче содержится образ USB-Recovery флешки созданной на ноутбуке Sony VAIO svf152a29v с помощью программы VAIO Care
+Образ флешки создан программой Acronis True Image Home 2014.
+Служит для восстановления ноутбука к заводским настройкам.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D87C3D2CE4838C995167EA435E639664CD770F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1222958   (680554) от 01.05.2018
 
 Microsoft Windows 10 10.0.17134.1 Business editions Version 1803 (Updated April 2018) - Оригинальные образы от Microsoft [MSDN] [En]
@@ -650,61 +705,6 @@ Windows Server SAC - канал Semi-Annual Channel идеально подхо�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D17DBF6D29ED7F1B285ED8F980233EC0511E0832
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545510   (612552) от 20.04.2022
-
-Microsoft Windows 11 [10.0.22000.613], Version 21H2 (Updated April 2022) - Оригинальные образы от Microsoft MSDN [Ru]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612552.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 11 - это серия операционных систем, разработанных корпорацией Майкрософт. Корпорация Майкрософт описала Windows как "операционную систему как службу", которая будет получать постоянные обновления своих функций и функций, дополненные возможностью для корпоративных сред получать некритические обновления более медленными темпами или использовать долгосрочные (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:323C421922489A73165F39D085929774FC268739
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545507   (612551) от 20.04.2022
-
-Microsoft Windows 10.0.19044.1645, Version 21H2 (Updated April 2022)  - Оригинальные образы от Microsoft MSDN [Ru]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612551.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 10 November 2021 Update (под кодовым названием "21H2") является двенадцатым и текущим основным обновлением Windows 10 в качестве накопительного обновления до обновления за май 2021 года и имеет номер сборки 10.0.19044.
-
-Оригинальные образы MSDN - Windows 10 Version 21H2 Build 19044.1645.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F33F306C0A58B8D4BB80B32D85BC357FDBC2CC2C
 ```
 
 https://mybot314.ru/tekegram_catalog/

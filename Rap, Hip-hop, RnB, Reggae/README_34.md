@@ -1,3 +1,90 @@
+###  Публикация: 1771699   (71820) от 07.01.2025
+
+Apathy - Connecticut Casual: Chapter 2 (2024) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Boom Bap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_71820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Connecticut Formal (3:41)
+02. Hammond Court Kids (3:59)
+03. No One Can Hear You Scream In Space (3:36)
+04. Vacation (3:31)(   Читать дальше...   )Жанр: Hip-Hop, Boom BapПродолжительность: 00:41:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B7E93EFF681D8801E40733E9564C2677ECD3A5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785074   (69368) от 15.03.2025
+
+Coolio - Greatest Hits (2025) Compilation [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Rap, Dance>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69368.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Gangsta's Paradise (feat. L.V.) [4:02]
+02 - Ooh La La [4:06]
+03 - County Line [2:58]
+04 - Rollin' with My Homies [4:07](   Читать дальше...   )Жанр: Hip-Hop, Rap, DanceПродолжительность: 00:40:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:507E132B2FEEC7E5BA267B50A835FB58F3F63EB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792029   (67761) от 17.04.2025
+
+Red Snapper - Barb and Feather (2025) [FLAC|Lossless|WEB-DL|tracks] <Trip-Hop, Funk>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67761.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ban-Di-To [00:04:53]
+2. Tolminka [00:04:49]
+3. Sirroco [00:04:43]
+4. Sound and Vision [00:03:55](   Читать дальше...   )Жанр: Trip-Hop, FunkПродолжительность: 00:37:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C16CC13810FC31F5A1E4CDA500824553A2112AF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1799017   (66542) от 25.05.2025
 
 Aesop Rock - Black Hole Superette (2025) [FLAC|Lossless|tracks + .cue] <Hip-Hop, Rap>
@@ -658,94 +745,6 @@ Damian Marley - 4 Albums + Single + Compilation (1996-2010) [FLAC|Lossless]<Regg
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F18E4846DAC6AE3246E312ED523EE52A65726772
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 269494   (51780) от 28.06.2024
-
-Триада - 8 Альбомов (2004-2011) [FLAC|Lossless]<Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51780.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа Триада образовалась в октябре 1999г, в составе Jazzz (Фёдор,Краснодар), Rico(Асватур, Ростов) Нигатив (Владимир, Краснодар).
-Название группы имеет несколько корнейСписок альбомов:
-2004 - Противоядие
-2005 - Орион
-2006 - Точка Росы (Соло Нигатива)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 07:32:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CE2467C2C98AD10500BF1AE9D00BCE031FAE751
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 285046   (51779) от 28.06.2024
-
-Бумбокс - 7 Альбомов (2005-2010) [FLAC|Lossless]<Hip-Hop / Funk / Reggae / Rock>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51779.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бумбокс — украинская фанки-грув группа. Образована в 2004 году в Киеве вокалистом группы «Графіт» Андреем Хлывнюком и гитаристом группы «Тартак» Андреем «Муха» Самойло. В основном песни группы исполняются на украинском языке с английскими и русскими фразами, но также присутствуют русскоязычные и англоязычные песни.Список альбомов:
-2005 - Меломанія
-2006 - Family Бiзнес
-2007 - Тримай(   Читать дальше...   )Жанр: Hip-Hop / Funk / Reggae / RockПродолжительность: 05:41:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17CAE72B53651518EE7B0BDF4347553DC8CD9422
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 365430   (51758) от 28.06.2024
-
-Gentleman - 6 Альбомов (1999-2010) [FLAC|Lossless]<Reggae, Roots Reggae, Dancehall, Reggae fusion, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>RnB, Reggae (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51758.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-1999 - Trodin On
-2002 - Journey To Jah
-2003 - Gentleman & The Far East Band Live(   Читать дальше...   )Жанр: Reggae, Roots Reggae, Dancehall, Reggae fusion, Hip-HopПродолжительность: 07:34:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE0153D892C87A26EF0A2CCA610B50EF8A5B5860
 ```
 
 https://mybot314.ru/tekegram_catalog/

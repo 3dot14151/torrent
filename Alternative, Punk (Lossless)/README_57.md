@@ -1,61 +1,3 @@
-###  Публикация: 1654625   (204958) от 22.08.2023
-
-Сметана band - Похмурий (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Pop-Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204958.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Аніме опенінг [00:03:42]
-02. Не закохуйся [00:04:09]
-03. Дискотека "Ностальжі" [00:03:27]
-04. Істерика [00:03:31](   Читать дальше...   )Жанр: Alternative Rock, Pop-PunkПродолжительность: 00:46:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E51A02A03B27F93738681D05ADCA9D0611982804
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654614   (204893) от 22.08.2023
-
-Rising Alma - Awake (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Female Vocals>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204893.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunrise [00:01:05]
-02. Awake [00:04:01]
-03. The Cage [00:03:28]
-04. Sail Away [00:03:16](   Читать дальше...   )Жанр: Alternative Rock, Female VocalsПродолжительность: 00:45:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D2C00F8710B402AA565E9896B74BE8E22321474
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1654622   (204889) от 22.08.2023
 
 Volatile Ways - 2 Albums (2020-2023) [FLAC|Lossless|WEB-DL|tracks] <Beatdown Hardcore, Metallic Hardcore, Female Vocals>
@@ -742,6 +684,64 @@ Simple Minds - Direction Of The Heart (2022) Deluxe Edition [FLAC|Lossless|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F1E54A1E7C4509F2613668751EAEF79DBCD04DE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657321   (192772) от 03.09.2023
+
+Glacerate - Hyper (2023) [FLAC|Lossless|WEB-DL|tracks] <Hyper Metal, Hardcore Punk, Desert Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_192772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Used [00:03:09]
+02. Binge [00:03:49]
+03. Abyss [00:01:58]
+04. Ultra [00:02:42](   Читать дальше...   )Жанр: Hyper Metal, Hardcore Punk, Desert RockПродолжительность: 00:20:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09118BE8BD6ED0002E601CB813D311BE8B71D51E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657343   (192763) от 03.09.2023
+
+Vydro - V[Y]Idro (2023) [FLAC|Lossless|WEB-DL|tracks] <rapcore, nu metalcore, alternative metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_192763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. V(Y)Idro [00:01:30]
+02. Sonâmbulo [00:03:29]
+03. Muros (Remaster) [00:04:15]
+04. Descolonizar [00:03:40](   Читать дальше...   )Жанр: rapcore, nu metalcore, alternative metalПродолжительность: 00:25:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0453C3700FDF2B1FE8C3E332FA12197F67248D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

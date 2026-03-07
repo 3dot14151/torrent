@@ -1,3 +1,32 @@
+###  Публикация: 1137877   (665132) от 28.05.2017
+
+VA - Остаться Молодым: Сборник Русского Рока (2017) [MP3|256-320 Kbps] <Рок, Альтернатива, Классика Рока>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_665132.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Северный Флот - Поднимая Знамя 4:41
+002. Epolets - Нам Выбирать! 3:57
+003. Иван Курнаев - В Пульсе Сердца 4:00
+004. Annodomini - Не Надо Слов 3:28(   Читать дальше...   )Жанр: Рок, Альтернатива, Классика РокаПродолжительность: 07:54:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11BF7F9DB7F867EABBB7C12714B8561CD153948E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1224647   (664786) от 11.05.2018
 
 Procol Harum - Beyond The Pale (2CD) Compilation (2018) [MP3|320 Kbps] <Rock, Progressive & Art-Rock>
@@ -725,35 +754,6 @@ VA - Рок впрок 12 (2019) [MP3|320 Kbps] <Рок, Поп-Рок>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93FDEF0A418AC8DAD05720D03362AF6BB47F001D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542140   (640873) от 05.04.2022
-
-VA - Fest Rebel Rock Radio , Vol.1 (2022) [MP3|320 Kbps] <Alternative, Progressive Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640873.jpg" />
-</div>
-
-
-###  Подробнее
-
-Непрекращающиеся экспериментыв подходе к написанию песен, яркие эмоции во время их исполнения — это то, чем исполнители рок жанра заслужили внимание музыкальной общественности и преданную любовь своих слушателей.001. Slaves - Wasting My Youth
-002. Stoner Avenue - Last Poor Man's Pray
-003. La Femme - Tu T'en Lasses
-004. Fame On Fire - Headspace(   Читать дальше...   )Жанр: Alternative, Progressive RockПродолжительность: 08:20:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F69ACFD86E6580A1E788643ECBC5A2BD962D9A37
 ```
 
 https://mybot314.ru/tekegram_catalog/

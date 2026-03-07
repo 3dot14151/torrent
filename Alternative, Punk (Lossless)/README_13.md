@@ -1,3 +1,32 @@
+###  Публикация: 1121166   (800496) от 02.04.2017
+
+Ten Fe - Hit the Light (2017) [APE|Lossless|tracks + .cue] <Indie, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800496.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Overflow
+02 - Turn
+03 - Elodie
+04 - Twist Your Arm(   Читать дальше...   )Жанр: Indie, ElectronicПродолжительность: 00:52:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AECBD28BFE5646BAB2E396FB4A80E0BD0305FA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1199650   (800406) от 17.01.2018
 
 Everything Everything - A Fever Dream (2017) [FLAC|Lossless|tracks + .cue] <Indie Pop, Art Rock>
@@ -716,35 +745,6 @@ Poets of the Fall - Ultraviolet (2018) [FLAC|Lossless|WEB-DL|tracks] <Alternativ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7AC4897694BCF1FD1710F190245ADEBF83B959B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275050   (791161) от 10.01.2019
-
-Mirah - Understanding (2018) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie Pop, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791161.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Counting (02:51)
-02. Information (03:50)
-03. Lake/Ocean (02:45)
-04. Lighthouse (05:10)(   Читать дальше...   )Жанр: Alternative Rock, Indie Pop, Indie RockПродолжительность: 00:38:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DC3AFC3EAE81FA250AC869DF44F63918883659F
 ```
 
 https://mybot314.ru/tekegram_catalog/

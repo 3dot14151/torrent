@@ -1,3 +1,61 @@
+###  Публикация: 1708058   (62395) от 20.03.2024
+
+VA - Свежий Русский Хит от ALEXnROCK часть 15 (2024) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_62395.jpg" />
+</div>
+
+
+###  Подробнее
+
+Из всех частей сборника, эта часть выдалась самой сложной. Я долго не мог подобрать и скомпановать материал, чтоб слушать было комфортно и неутомительно. Отечественные музыканты, как сговорились все и в раз запели про несчастную любовь. И исполнители с кавказским колоритом о том же. Королева, царица, бросила, обманула, итд итп. На одну муз гармонию все стихи кладут (   Читать дальше...   )001. TSOY - Фанк
+002. Коста Лакоста - Дожди
+003. Асия и TRITIA - Жить тобой
+004. TASSO - До лета(   Читать дальше...   )Жанр: PopПродолжительность: 02:56:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D0FFAF64B9A6B3059DDCE5003AFDDF4BA24A282
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708448   (61599) от 27.03.2024
+
+VA - Love Symphony (2024) [MP3|320 Kbps] <Pop, Rock, Ballad, Lyric>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_61599.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Саvеtоwn - Fоr Yоu
+002. Hаylеy Williаms - Find Mе Hеrе
+003. Р!Nk, Willоw Sаgе Hаrt - Соvеr Mе In Sunshinе
+004. Thе Kid Lаrоi, Justin Biеbеr - Stаy(   Читать дальше...   )Жанр: Pop, Rock, Ballad, LyricПродолжительность: 11:59:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EE5C610B5FD233147D0C73CEA591FFE63D53B9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1032234   (61087) от 01.04.2024
 
 VA - Зарубежная Дискотека ХХ Века - 78 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
@@ -684,64 +742,6 @@ VA - Disco Friday (2024) [MP3|320 Kbps] <Disco, Dance, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC4F66B26A46F778FED5312B429D69421BB2F19B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739420   (48545) от 28.07.2024
-
-VA - Pop Summer Seasons (2024) [MP3|320 Kbps] <Pop, Dance, RnB>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48545.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Gayle - Abcdefu
-002. Chic - Everybody Dance
-003. Panic! At The Disco - House Of Memories
-004. Oliver Tree - Life Goes On(   Читать дальше...   )Жанр: Pop, Dance, Rock, Hip-Hop, RnBПродолжительность: 10:32:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2847C35E983972A9376D031C0192071793CF3C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738670   (48495) от 29.07.2024
-
-VA - Pop-Rock Dreamers (2024) [MP3|320 Kbps] <Indie, Alternative, Pop, Rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48495.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Coldplay - Fix You
-002. Zeck - Like Rain
-003. Lianne La Havas - Bittersweet
-004. Lionel Richie - Say You, Say Me(   Читать дальше...   )Жанр: Indie, Alternative, Pop, RockПродолжительность: 12:35:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14E0841E789764089A6888820B0686BF7E01B377
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 266194   (308315) от 04.12.2010
+
+Adriano Celentano - Greatest Video. Vol.1 (2010) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_308315.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: МузыкаПеревод: ОригинальныйПродолжительность: 00:59:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75A55789F90AEA708D09E5F71540A983A37055D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 584646   (307911) от 04.12.2012
+
+Гига, ST, Хамиль - С новым годом, мама (2012 г.)[H264] HDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_307911.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новогодний клипЖанр: RapПродолжительность: 00:03:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E72ECE1FA14CE90CB958E67FB060F13875D31584
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 584559   (307902) от 04.12.2012
+
+Lindsey Stirling - Song of the Caged Bird (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_307902.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: InstrumentalПродолжительность: 00:03:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A677D89200DBA9F11D92F28160DB1AC21A5D46A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 584650   (307582) от 04.12.2012
 
 The Best of...(vol.3) (2011) DVDRip
@@ -640,91 +718,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C5ACD0939238ECE85BB607310CDEAB2219B9682
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184364   (301295) от 17.11.2017
-
-Death Angel - Sonic German Beatdown (Live In Germany) (2009) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301295.jpg" />
-</div>
-
-
-###  Подробнее
-
-Релиз содержит выступления группы на фестивалях Rock Hard 2007, Live Factory 2008 и пару клипов (Thicker Than Blood, Dethroned (uncensored))Производство: Nuclear Blast (Germany)Жанр: Thrash MetalПродолжительность: 01:19:01+01:42:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FD1ECC41A3740A3C945E652B451C2B0750B18F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184338   (301180) от 17.11.2017
-
-Dio - Evil Or Divine (Live in New York City) (2003) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301180.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт группы Dio записанный в Roseland Ballroom (New York City) 13 декабря 2002 и выпущенный на DVD в июле 2013. Релиз содержит сам концерт, интервью, фото, закулисные съемки и видеоклип Push1. Killing The Dragon
-2. Egypt/Children of the Sea
-3. Push
-4. Drum Solo(   Читать дальше...   )Производство: Eagle VisionЖанр: Heavy Metal, Hard RockСубтитры: ОтсутствуютПродолжительность: 01:38:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3BA54F00B3178D99CAD3FB939FBAA77AFA5E4DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960998   (301135) от 01.12.2015
-
-New Order, Live In Glasgow (2008) DVD9 + DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301135.jpg" />
-</div>
-
-
-###  Подробнее
-
-DVD1: Концерт в Глазго. Съёмки - октябрь 2006 года. (DVD-9)
-DVD2: Редкие и ранее не опубликованные съёмки. (DVD-5)1	Crystal	7:07
-2	Turn	4:33
-3	True Faith	5:49
-4	Regret	4:05(   Читать дальше...   )Жанр: Alternative Rock, Pop Rock, House, New Wave, Electro, Synth-popПеревод: ОтсутствуетЯзык субтитров: English, French, German, Spanish, Brazilian Portuges.Продолжительность: DVD1:~ 01:47:00, DVD2:~ 00:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04C77EBF0A19EA969F743901AAE6661DBB1C12AA
 ```
 
 https://mybot314.ru/tekegram_catalog/

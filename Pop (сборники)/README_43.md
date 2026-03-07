@@ -1,3 +1,61 @@
+###  Публикация: 1533135   (706935) от 23.02.2022
+
+VA - Good Feeling 70s (2022) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fleetwood Mac - Go Your Own Way (2004 Remaster)
+02. Elton John - Tiny Dancer (Remastered)
+03. The Four Seasons - December, 1963 (Oh What a Night!)
+04. Eagles - Take It Easy (2013 Remaster)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:11:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FFB81C86DB5794A485812DF4501F6C31ACCC4DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1533142   (706933) от 23.02.2022
+
+VA - Good Feeling 90s (2022) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_706933.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Faith Hill - This Kiss
+02. Spice Girls - Stop
+03. Go West - The King of Wishful Thinking
+04. Tina Turner - The Best (Edit)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:44:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED3A2163482D6C40CF985C03E196305387C24ECE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1533139   (706571) от 23.02.2022
 
 VA - Good Feeling 80s (2022) [MP3|320 Kbps] <Pop, Dance>
@@ -687,64 +745,6 @@ VA - Свежий Русский Хит от ALEXnROCK часть 1 (2019) [MP3|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD48C2C5969D30435798B2D5D190BBB735E4EFFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132643   (698872) от 10.05.2017
-
-VA - Звездная тусовочка. Сборник № 10 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698872.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bahari - I Miss You 3:13
-002. Alicia Keys - Pawn It All 3:10
-003. Miela - Города 4:18
-004. Анжелика Варум & Игорь Крутой - Опоздавшая Любовь 4:17(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C94A22A149459792EB273CEB66D6A99691F2526B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132965   (698860) от 10.05.2017
-
-VA - Топовая сотня весенняя от Хит FM. Часть № 6 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698860.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Наташа Турбина - Маша 3:09
-002. Иван Тетенов - Море Магнит 3:20
-003. Ласковый Шепот - Не Говори Мне 4:47
-004. Константин Легостаев - Религия Любви 3:22(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B4C83224D5BB9AA3515C1E008E77F8C08D48946
 ```
 
 https://mybot314.ru/tekegram_catalog/

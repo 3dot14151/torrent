@@ -1,3 +1,61 @@
+###  Публикация: 1005652   (832388) от 09.04.2016
+
+VA - Музыка хорошего настроения 7 (2016) [MP3|256 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_832388.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lemaitre - Stepping Stone
+002. Слот - Круги На Воде
+003. Remady & Manu-L - Another Day In Paradise
+004. Gaia - Carnation(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AB531344A6D6EC8C762AA68B0D0E051E9EEF79B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501927   (831750) от 12.10.2021
+
+VA - Fresh Pop 3 (2021) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_831750.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Unison feat. Isupov - На Чиле (3:04)
+002. SAMURAMI - Ua-Ya (2:42)
+003. BITTUEV - Братик (1:53)
+004. JONY The Limba - Босс (2:58)(   Читать дальше...   )Жанр: PopПродолжительность: 05:35:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC33A5D0776372EB8E083C64BA676B0135EFFDF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1380689   (831570) от 04.05.2020
 
 VA - Popular Folk Sound (2020) [MP3|320 Kbps] <Pop, Dance, Folk>
@@ -687,64 +745,6 @@ VA - 100 Popular European Hit (2017) [MP3|320 Kbps] <Pop, Dance, Eurodance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60B939AD24DA8BC1806419D463DFFC42DDC9539B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382198   (820601) от 10.05.2020
-
-VA - Новички в попсе Vol 3 (2020) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820601.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Alex Dalimjanov - Депрессия (2:50)
-2.Anthony El Mejor - Не Забывай Меня (2:59)
-3.BeRill - Бумеранг (2:32)
-4.DJ Jedy feat. AnasteZia - Имя Моё (3:40)(   Читать дальше...   )Жанр: PopПродолжительность: 02:25:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F33847C3FA318C52BC29DFCC7C3FDBEF6CA17BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196736   (820417) от 04.01.2018
-
-VA - Новогодняя Дискотека Руки Вверх! (2018) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820417.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Руки Вверх! & Astero - Когда мы были молодыми
-02. МС Вспышкин и Никифоровна - Новогодняя (Scorpio Rework)
-03. Вирус! - С Новым Годом!
-04. Serebro - Новый год!(   Читать дальше...   )Жанр: PopПродолжительность: 01:14:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:425919229AC9347ED2C9E44C91B27D4184CC3B00
 ```
 
 https://mybot314.ru/tekegram_catalog/

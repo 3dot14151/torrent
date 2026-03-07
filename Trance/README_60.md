@@ -1,3 +1,90 @@
+###  Публикация: 1759778   (103253) от 10.11.2024
+
+VA - Trance: The Vocal Session 2025 (2024) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Talla 2XLC - Take Me There (Extended Mix) [6:38]
+02. John O’Callaghan & Alex Holmes - Devotion (Cold Blue Extended Remix) [7:02]
+03. Ciaran McAuley & Christina Novelli - Say Something (Extended Mix) [6:11]
+04. Lost Witness & Ayda van Helden, Andrew Senior & call me AL - Timeless (Extended Mix) [7:18](   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 04:29:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F495FD36B6CE481D43AE40B06F8DEFDD5C48618D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759862   (103240) от 10.11.2024
+
+Victor Special - Friendsland (2024) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103240.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Victor Special - Welcome To Friendsland (Album Anthem Original Mix) [6:45]
+02. Victor Special & Juan Almiñana Obando - Traveling Through Space (Original Mix) [7:22]
+03. Victor Special & Mehran Vedadi - Heat Of The Southern Sun (Original Mix) [6:25]
+04. Victor Special & Andre Wildenhues - Nowhere Express (Original Mix) [6:15](   Читать дальше...   )Жанр: TranceПродолжительность: 01:18:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BDDA8729CF4812284250C8E42BF71B484BC7D1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760797   (103166) от 16.11.2024
+
+VA - D.Trance 108 (2024) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_103166.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. BVDE & Myde - The Beauty of Life (04:45)
+02. Afterus - Your Journey (Extended Mix) (06:40)
+03. N-sKing - Nervous Breakdown (Extended Mix) (06:46)
+04. Alexander Popov & Eximinds - Atlantis (Extended Mix) (05:03)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:30:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DCDE7C40B17CFBC6820C7D509EAE71B2145726B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1761770   (103036) от 22.11.2024
 
 VA - Nothing But... Trancetopia Vol. 21 (2024) [MP3|320 Kbps] <Trance>
@@ -655,93 +742,6 @@ VA - Coldharbour Reflections 2024 (2024) [MP3|320 Kbps] <Trance, Vocal Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C69FBF08E537E392EC1983A5FCCEDF1B5F52E06B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769469   (100684) от 28.12.2024
-
-VA - Reason II Rise Best Of 2024 (2024) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100684.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pinkque - Ghost Of You (Mixed) [03:23]
-02. Airdream & Victor Special - Autumn Haze Before Sunrise (Mixed) [05:36]
-03. Kvaii - Sunshine (Mixed) [05:01]
-04. Cenk Basaran - Coming From Paradise (Mixed) [04:20](   Читать дальше...   )Жанр: TranceПродолжительность: 01:28:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73DDFC6E70083306DF213093BE62A2C5C7EC4A31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769458   (100679) от 28.12.2024
-
-VA - Reason II Rise: Uplift Best Of 2024 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100679.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. TP One & D`Arcangel - Jade Eyes Of Asia (Mixed) [05:02]
-02. Mike Van Fabio - Love Of Yesterday (Mixed) [03:45]
-03. Kaselia & N-sKing - Endless Horizon (Mixed) [04:54]
-04. Laucco - Yinghu (Mixed) [04:26](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:14:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C73C4B1745B5D314744F701065D210C0442DAFD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770099   (100607) от 30.12.2024
-
-VA - The Best Releases 2024 of Endlessky Audio (By Abstract Moon & André Wildenhues) (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100607.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. D.J.G. & M.I.K! - Who You Are (Forceflow Remix) (06:38)
-02. Andy Newtz - Take Me to the Stars (Rick Art Remix) (05:16)
-03. Gayax - Midnight Bird (Original Mix) (06:47)
-04. Iberian - Lose Yourself in the Dream (D.J.G. & M.I.K! Remix) (06:18)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:15:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AB3719D90615DDE996270DBFC03EF4D5E72907A
 ```
 
 https://mybot314.ru/tekegram_catalog/

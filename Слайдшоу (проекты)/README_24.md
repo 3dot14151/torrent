@@ -1,3 +1,29 @@
+###  Публикация: 1115246   (827619) от 17.03.2017
+
+Проекты - VideoHive - Elegant Business Slideshow [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_827619.jpg" />
+</div>
+
+
+###  Подробнее
+
+Elegant Business Slideshow - Стильный оригинальный проект. Прекрасно подходит для слайд-шоу, презентаций или видео-руководства для вашего бизнеса, а так же для интервью, конференций, курортных галерей, туристических компаний, гостиниц, ресторанов, магазинов одежды, модных журналов, недвижимости, специальных мероприятий, телешоу или других СМИ.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10D77D9D341827B22E6536679D6BC595FAEF58B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1381279   (827575) от 06.05.2020
 
 Проекты - Motion Array - A War Reporter - 577564 [AEP]
@@ -652,32 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D963A4421BE07AE2A949355E1B5E7FA3FF9055C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116604   (822067) от 20.03.2017
-
-Проекты - VideoHive - Modern Inspirational Parallax Opener | Slideshow - 19236871 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_822067.jpg" />
-</div>
-
-
-###  Подробнее
-
-Modern Inspirational Parallax Opener | Slideshow - проект для создания кинематографического слайд-шоу с эффектом параллакса.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A76EEBE6C3471300A416B2534D44FCE56EC94525
 ```
 
 https://mybot314.ru/tekegram_catalog/

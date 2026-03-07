@@ -1,3 +1,32 @@
+###  Публикация: 795882   (685726) от 14.06.2014
+
+VA - Alterportal HITS 14 Vol. 69 - May (2014) [MP3|128-320 кб/с] <Alternative, Metal, Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_685726.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Waiting Room Reunion - Storm Rages On
+02. die Apokalyptischen Reiter - Wo Es Dich Gibt
+03. Body Count - Talk Shit, Get Shot
+04. Seventh Day Slumber - Goodbye(   Читать дальше...   )Жанр: Alternative, Metal, RockПродолжительность: 01:59:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83042A82FC25710CD1B04A3A92DF7C4579428724
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1403991   (684277) от 23.08.2020
 
 VA - Concord Dawn: Hard Rock Core Anthology (2020) [MP3|320 Kbps] <Hard Rock, Metal, Hardcore>
@@ -715,35 +744,6 @@ VA - Dr. Metal Presents: Vol.5 (2015) [MP3|224 кб/с]<Heavy, Speed, Power Meta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A89AF722CBAA98E2E81E948FB2B3B81073B2B61C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137877   (665132) от 28.05.2017
-
-VA - Остаться Молодым: Сборник Русского Рока (2017) [MP3|256-320 Kbps] <Рок, Альтернатива, Классика Рока>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665132.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Северный Флот - Поднимая Знамя 4:41
-002. Epolets - Нам Выбирать! 3:57
-003. Иван Курнаев - В Пульсе Сердца 4:00
-004. Annodomini - Не Надо Слов 3:28(   Читать дальше...   )Жанр: Рок, Альтернатива, Классика РокаПродолжительность: 07:54:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11BF7F9DB7F867EABBB7C12714B8561CD153948E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,235 @@
+###  Публикация: 1628472   (236599) от 23.04.2023
+
+Riccardo Fassi & Gary Smulyan - L'amico Immaginario (1994) 1998, Splasc(H) Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_236599.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Why Budda [8:58]
+02. Harpo [6:43]
+03. Amico immaginario [9:30]
+04. Near the River [5:09](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:12:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE1E90869A2EC73E84E12673F91AD12D79C21562
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641479   (236540) от 22.06.2023
+
+Jan James - Time Bomb (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_236540.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Swingin In The Sweet Sunshine (3:26)
+02. Stronger Now (3:59)
+03. Desperate Times (4:21)
+04. Sometimes Love's Like That (3:57)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:52:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1836138DA70BB63503AA1D374FEB3672CD5D915
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641470   (236529) от 22.06.2023
+
+Damian Lewis - Mission Creep (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_236529.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Down on the Bowery (4:09)
+02. Soho Tango (4:38)
+03. Hole in my Roof (3:35)
+04. Harvest Moon (4:49)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F44EBA86D0E26B528B6E7217286BBFDAD4F01A2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609140   (236527) от 02.02.2023
+
+Jimmy Giuffre - Jimmy Giuffre (1954, 1955) 2005, Membran Music [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_236527.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Four Brothers [3:17]
+02. Someone To Watch Over Me [3:10]
+03. Sultana [2:53]
+04. A Ring-Tail Monkey [2:36](   Читать дальше...   )Жанр: Cool, West Coast JazzПродолжительность: 00:35:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ED4400B0B32B87A5F4488490FC1E8185B606633
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641489   (236499) от 22.06.2023
+
+Mizz Lowe - Classy Woman (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_236499.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Honey Tree (feat. Bobby Rush) (4:14)
+02. Classy Woman (feat. Bobby Rush) (3:21)
+03. Hip Shakin Mama (feat. Bobby Rush) (4:06)
+04. Easy Baby (3:30)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:852AD217F7A7585B940A0B8F9866F202FFF7834A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641488   (236482) от 22.06.2023
+
+Mike Guldin and Rollin' & Tumblin - The Franklin Sessions (2023) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_236482.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Franklin Shuffle (3:47)
+02. Kevin McKendree -- Killin' Floor (feat. Kevin McKendree) (5:27)
+03. The McCrary Sisters -- The Right Thing (feat. The McCrary Sisters & Yates McKendree) (4:23)
+04. Sometimes You Gotta Roll the Dice (2:26)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:47:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94EF653102E2A4C49EF00E1559FE2A1129ED2A02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641493   (236450) от 22.06.2023
+
+White Noise Band - Bite the Road (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_236450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Triton (5:35)
+02. Gathering (4:33)
+03. Sing'n Ride (6:36)
+04. Shadow and Sun (4:45)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27C530D7E06151485753AF73834EE721E4B44834
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640307   (236449) от 17.06.2023
+
+European Jazz Trio - Pray: Spring Sea (2012) M&I [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_236449.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pray [4:30]
+02. The Four Seasons: Winter 2nd Movement [4:33]
+03. Recuerdos de la Alhambra [5:59]
+04. Haruno Umi (Spring Sea) [5:14](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:06:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62A6FDD752DD416667E692B4F2CE710F14E6C8CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1609442   (236421) от 03.02.2023
 
 Barney Kessel - Three Classic Albums Plus (1957 - 1959) 2CD, 2012, Avid Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Bop, Guitar Jazz>
@@ -513,238 +745,6 @@ Eddie Gomez Trio - Palermo (2007) Jazz Eyes [FLAC|Lossless|tracks + .cue] <Post-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA2E1B1A7811FCB1FA458C44C86784FB840D7F28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640614   (236163) от 18.06.2023
-
-HeavyDrunk - You Don't Know Me (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_236163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sippi Dupree (03:15)
-02. 47lb Rooster (03:09)
-03. You Don't Know Me (04:08)
-04. Trailblazer (02:32)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B26474AE37A155C895B324AAD796981B1CB7450D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511467   (236148) от 21.11.2021
-
-Eric Alexander Quartet - Sunday In New York (2006) Venus Records [FLAC|Lossless|image + .cue] <Post-Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236148.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunday in New York [8:55]
-02. Avotcja [8:58]
-03. Dearly Beloved [6:42]
-04. Like Someone in Love [6:26](   Читать дальше...   )Жанр: Post-Bop, Mainstream JazzПродолжительность: 01:02:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A39F570DE0BBBA954135385D2F3F9E07CD90947
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511462   (236132) от 21.11.2021
-
-Florian Pellissier Quintet - Rio (2021) Hot Casa Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236132.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rio [4:59]
-02. The Wildcards [3:34]
-03. Live at the Vanguard [6:21]
-04. Between the Bars (feat. Agathe Iracema) [3:22](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:36:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E528B763AD7DA549FCA7A1177DFEC2D19EA80A3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641794   (236093) от 24.06.2023
-
-Carmen Lundy - Soul To Soul (2014) Core Port [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_236093.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kindred Spirits [5:24]
-02. Life Is a Song in Me [6:16]
-03. Soul to Soul [6:40]
-04. When Will They Learn [7:11](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:17:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2422A3E245340C930BBE0673D5EF8C9D6E4DEDCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641791   (236087) от 24.06.2023
-
-Jessica Williams - Songs For A New Century (2008) Origin Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_236087.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Empathy [7:26]
-02. Toshiko [5:48]
-03. Fantasia [7:02]
-04. Song for a Baby [4:18](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:01:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87F14A3427C90AAA59BF55E4A580BF1087601D3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635591   (236051) от 26.05.2023
-
-Gary Versace - All For Now (2020) SteepleChase [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_236051.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anchors [4:50]
-02. The Man I Love [7:42]
-03. Good Morning Heartache [8:58]
-04. Favorite Places (Room 448) [7:49](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 01:02:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:348A83A301764E5A68E4D0BA7DC88B601D766D67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511459   (236046) от 21.11.2021
-
-Eddie Higgins Trio - Secret Love (2007) Venus Records [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236046.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Secret Love [4:31]
-02. Ghost Of A Chance [6:06]
-03. Star Eyes [4:38]
-04. Round Midnight [5:43](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:01:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:573E26140C7211DED80C388620EDAE353B8FA300
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445616   (236043) от 06.02.2021
-
-Hot Lips Page - After Hours In Harlem (1940 - 1941) 1998, HighNote [FLAC|Lossless|tracks + .cue] <Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236043.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Got Rhythm [5:00]
-02. I'm in the Mood for Love [3:22]
-03. Dinah [8:03]
-04. Tea for Two [6:50](   Читать дальше...   )Жанр: SwingПродолжительность: 00:54:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A874B30A5FB5F2F45C6AC3E1C3AB1371D36EB94E
 ```
 
 https://mybot314.ru/tekegram_catalog/

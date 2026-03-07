@@ -1,3 +1,32 @@
+###  Публикация: 1232844   (596358) от 26.06.2018
+
+Kimberly Haynes - In Dreams (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Folk>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_596358.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kabir's Song
+02. Interlude - Sangeeta’s Soul
+03. I Am Light
+04. Interlude - Sangeeta’s Light(   Читать дальше...   )Жанр: New Age, FolkПродолжительность: 00:48:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6FAF7E8D4F2C3E25085F403D7AF8E359B9D9B20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1299643   (595971) от 03.05.2019
 
 Muddy Waters - Folk Singer (2013) 1964 [FLAC 2.0|192/24|tracks|WEB-DL]<Blues, Folk>
@@ -731,35 +760,6 @@ Giovanni Marradi - The Best of Giovanni, Vol. 2 (2008) [FLAC|Lossless|WEB-DL|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E12F10D214EB5499D759186E73A42773B3A3461D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552254   (588492) от 19.05.2022
-
-Giovanni Marradi - Italian Love Songs (2006) [FLAC|Lossless|WEB-DL|tracks] <Piano, Instrumental, New Age>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come Back to Sorrento (3:25)
-02. Santa Lucia (4:01)
-03. Tarantella (2:49)
-04. Intermezzo (3:27)(   Читать дальше...   )Жанр: Piano, Instrumental, New AgeПродолжительность: 00:44:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DAE8247AA1D4FEAE577CD4517BF7C02AF14BA12
 ```
 
 https://mybot314.ru/tekegram_catalog/

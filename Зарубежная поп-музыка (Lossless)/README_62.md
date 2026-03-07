@@ -1,3 +1,119 @@
+###  Публикация: 955031   (337339) от 09.11.2015
+
+VA - Barbra Streisand & Partners (2014) [FLAC|tracks + .cue]<Pop, Vocal, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_337339.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Barbra Streisand & Michael Buble - It Had To Be You (04:23)
+ 02. Barbra Streisand & Stevie Wonder - People (04:15)
+ 03. Barbra Streisand & John Mayer - Come Rain Or Come Shine (04:11)
+ 04. Barbra Streisand & Babyface - Evergreen (Love Theme From A Star Is Born) (03:14)(   Читать дальше...   )Жанр: Pop, Vocal, BalladПродолжительность: 01:10:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14B29E67FBAB2436644426AF6B1082B6EE99B197
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330775   (336843) от 12.10.2019
+
+Blue Hawaii - Open Reduction Internal Fixation (2019) [FLAC|Lossless|WEB-DL|tracks] <Dreampop, Synthpop, Experimental>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_336843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All the Things (03:07)
+02. Still I Miss U (03:17)
+03. All That Blue (05:33)
+04. Sparkle (03:32)(   Читать дальше...   )Жанр: Dreampop, Synthpop, ExperimentalПродолжительность: 00:35:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C54598AB9EB3712A644398815B99CAAB928385C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1579441   (336296) от 27.09.2022
+
+VA - Pop Rock Greats (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_336296.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Devon - TRUST ISSUES (3:27)
+02. The Clause - In My Element (3:37)
+03. The Verve - Bitter Sweet Symphony (Remastered 2016) (5:57)
+04. Keane - Everybody's Changing (3:36)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:57:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B437A16DAF0FBBA6479CA0EB85E9BF1BE6877BF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1258328   (336181) от 30.10.2018
+
+Roxette - Look Sharp! (30th Anniversary Edition) (2018) 2CD, RE. RM. Parlophone [FLAC|Lossless|tracks + .cue] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_336181.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Look (T&A Demo - Mar 30, 1988) (3:29)
+02. Dressed For Success (T&A Demo - May 20, 1987) (3:22)
+03. Dressed For Success (EMI Demo - May 26-30, 1987) (3:53)
+04. Sleeping Single (T&A Demo - May 22, 1987) (3:54)(   Читать дальше...   )Жанр: Pop Rock |Продолжительность: 01:15:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6095E47F3BA264BEB206905C81C36F6166D14460
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 955193   (335009) от 10.11.2015
 
 Mylene Farmer & Sting - Stolen Car (2015) Single [FLAC|image+.cue]<Pop>
@@ -624,122 +740,6 @@ Alison Moyet - Singles (1995) [FLAC|image + .cue]<Pop, Synth-pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03C2A6A93F9B39751B5EAEFAC0EFC39DB9ACED45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957420   (327442) от 17.11.2015
-
-One Direction - Made In The A.M. (2015) Deluxe Edition [FLAC|Lossless|image + .cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327442.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hey Angel
-02. Drag Me Down
-03. Perfect
-04. Infinity(   Читать дальше...   )Жанр: PopПродолжительность: 00:58:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2E2B8AADF5AB2BF1C64F9290A6BD5AB52376A48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 956989   (327276) от 17.11.2015
-
-VA - BRAVO The Hits 2015 (2015) [FLAC|Lossless|tracks|WEB-DL]<Top 40, Pop, Electronic, R&B, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327276.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Glasperlenspiel - Geiles Leben (Madizin Single Mix) (3:32)
-02. Louane - Avenir (Radio Edit) (3:03)
-03. Avicii - Broken Arrows (3:52)
-04. Sido feat. Andreas Bourani - Astronaut (3:59)(   Читать дальше...   )Жанр: Top 40, Pop Compilation, Pop, Rock, Electronic, Hip Hop, R&B, Europop, Indie Pop, Euro House, Electro, Synthpop, Pop Rap, Reggae Fusion, Pop Rock, Indie RockПродолжительность: 02:40:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E2CCEDF1BC1955D276D6088E9339D9EFA77D2F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581509   (327130) от 05.10.2022
-
-Richard Marx - Songwriter (2022) [FLAC|Lossless|image + .cue] <Pop, Rock, Country...>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327130.jpg" />
-</div>
-
-
-###  Подробнее
-
-Richard Marx. Одно только его имя вызывает в воображении необыкновенные мелодии и его песни, исполненные с сердечной искренностью и достоверностью. Отмеченный наградами певец, автор песен, музыкант и автор, он ворвался в поп- и рок-чарты, чтобы завоевать сердца каждого ребенка 80-х, и с тех пор продолжает творить чудеса. Так что на самом деле неудивительно, что его (   Читать дальше...   )01. Same Heartbreak Different Day (3:09)
-02. Only A Memory (3:02)
-03. Anything (2:38)
-04. Moscow Calling (4:53)(   Читать дальше...   )Жанр: Pop, Rock, Country...Продолжительность: 01:09:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:993B5BDD948ECB3C1D8A58A85AF6EB1A5489EB6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957549   (326705) от 18.11.2015
-
-Kylie Minogue - Kylie Christmas (2015) Deluxe Edition [FLAC|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326705.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's the Most Wonderful Time of the Year
-02. Santa Claus Is Coming to Town (feat. Frank Sinatra)
-03. Winter Wonderland
-04. Christmas Wrapping (with Iggy Pop)(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36C52C9DA35302738C4CB82EF7261650DB3EA68E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 950043   (372870) от 25.10.2015
+
+VA - Autumn Dance Hits Vol.1 (2015) [MP3|320 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_372870.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alessia - Ale Kumaye (Black Due Remix)
+02. Kshmr & Bassjackers Feat. Sirah - Memories (Original Mix)
+03. Audshine feat. Diego Coronas & El Siciliano - Baila (Radio Edit)
+04. Madcon Feat. Ray Dalton - Dont Worry (Kolya Funk & Eddie G Remix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:40:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86B770A538496C9D77BF318227EFEA2348AC68AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950067   (372578) от 25.10.2015
+
+VA - Дискотека забытых хитов (зарубежная) - 17 (2015) [MP3|160 - 320 кб/с]<Italo Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_372578.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ's Project - Vision Of Love (01:54)
+02. Clock On 5 - Take It (Mayerling) (06:21)
+03. Tina Charles - Hold Me (04:12)
+04. Tom Spencer - Blue Eyed Eddy (06:43)(   Читать дальше...   )Жанр: Italo DiscoПродолжительность: 02:50:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A994037C934057FAFCB8446068EA90F40702FDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1254667   (372512) от 14.10.2018
 
 VA - Русское радио: Хит-парад 'Золотой Граммофон' 12.10.2018 [MP3|320 Kbps] <Pop>
@@ -717,76 +775,6 @@ VA - Acoustic (2015) [MP3|320 кб/с]<Pop, Acoustic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C9CB7D7D3198BAA1804A59DD1ABED28BCFCEBFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 575875   (365929) от 16.11.2012
-
-VA - Самые Горячие Хиты Авторадио 3 (2012) [MP3|128 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365929.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Золотое Кольцо - Полночь
-002. Savage - Goodbye
-003. Олег Газманов - Никто, Кроме Нас
-004. Shivaree - Goodnight Moon
-005. Юрий Шатунов - Улыбка
-006. Guns'n' Roses - Don't Cry
-007. Юлия Ковальчук - Между Нами
-008. Barbra Streisand - Woman In Love
-009. Hi-Fi - Земляничный Дождь (Новая Версия)
-010. Nazareth - Love Hurts(   Читать дальше...   )Жанр: PopПродолжительность: 12:43:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C29DDF2EFDAF8EA8F5744104CA7BBD425B62C027
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 575891   (365282) от 16.11.2012
-
-VA - Наше Радио: Лучшее и Новое (2012) [MP3|128 кб/с]<Рок>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365282.jpg" />
-</div>
-
-
-###  Подробнее
-
-002. Кукрыниксы - Хрустальный Мир
-003. Сплин - Страшная Тайна
-004. Антитела - Смотри В Меня
-005. Сансара - Любящие Глаза
-006. Lunchbox - Стальная Нить
-007. Алиса - Ангел
-008. Король И Шут - Христова Невеста
-009. Конец Фильма - На Все 100роны
-010. Ддт - Напиши Мне, Напиши
-011. Василий К. & Интеллигенты - Баллада Об Уходе В Рай(   Читать дальше...   )Жанр: РокПродолжительность: 12:35:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BB5935F92B7790E8BCB5B239685AFB06709621A
 ```
 
 https://mybot314.ru/tekegram_catalog/

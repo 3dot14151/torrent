@@ -1,3 +1,32 @@
+###  Публикация: 1326040   (407363) от 18.09.2019
+
+VA - Rock Concept: Euro Edition (2019) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_407363.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sep7ember - Bullet
+002. Big Mother Gig - Obliterate
+003. Gene Simmons - Carnival Of Souls
+004. Northward - Timebomb(   Читать дальше...   )Жанр: RockПродолжительность: 10:48:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B5F897A2525126B7F935508A9A86C133194A924
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1413982   (406811) от 06.10.2020
 
 VA - September Hardcore Review (2020) [MP3|320 Kbps] <Hardcore, Hard Rock, Metal>
@@ -719,35 +748,6 @@ VA - Rock Drive 11 (2020) от DON Music [MP3|320 Kbps] <Hard Rock, Rock, Blues 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F7BB1DA3B7FDBBB1BCD75F274F95BDBC92CACBE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255253   (365888) от 17.10.2018
-
-VA - Shy Of Shameless: October Blues Collection (2018) [MP3|320 Kbps] <Blues, Rock Blues, Rock and Roll>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365888.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Billy Lee Riley - Goin' Jukin'
-002. Ray Bonneville - Waiting on the Night
-003. Chuck Berry - My Mustang Ford
-004. Ray Bonneville - Riverside Drive(   Читать дальше...   )Жанр: Blues, Rock Blues, Rock and RollПродолжительность: 09:02:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CCB8D9C2C2D419575EC22DC452C7FAA6F875FAE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,82 @@
+###  Публикация: 1210700   (778448) от 04.03.2018
+
+3D модели - 3ddd - Будильник в стиле стимпанк [V-Ray|*.max, FBX]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778448.jpg" />
+</div>
+
+
+###  Подробнее
+
+Будильник в стиле стимпанк,
+3dsMax 2013Формат: V-Ray|*.max, FBX
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0C0797B2B3D9D9F1179CB507A29CF313B884732
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212196   (776392) от 10.03.2018
+
+3D модели - Daz 3D - Nature  [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776392.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор растительности для DAZ 3D из категории Nature.Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:318557DC07959504EB6C377F5724AD0272CC4844
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212068   (776385) от 10.03.2018
+
+3D модели - Daz 3D - Structures [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776385.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник старинные здания и интерьеры для DAZ 3D из категории Structures.Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9B9F12993A13DC02D5DB2A5A734AF0B3FC3D4D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1212006   (776381) от 10.03.2018
 
 3D модели - Berries. Pomegranate CGI [Max]
@@ -605,86 +684,6 @@ UHD Leather - это набор текстур и шейдеров высоко�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A68FE9B3E10720139D9DFA3EC10FF1061A0EB5A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215014   (761284) от 24.03.2018
-
-3D модели - Daz 3D - UHD Fuzzy Cloth - Shaders and Merchant Resource - 48369  [DUF]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761284.jpg" />
-</div>
-
-
-###  Подробнее
-
-UHD Fuzzy Cloth представляет собой набор специальных скриптовых шейдеров, имитирующих реалистичную шерстяную ткань. для DAZ 3D из категории Resource.Формат: DUF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1ED8331307CB8028AF209AEA3858E7C941F0847
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215136   (761152) от 24.03.2018
-
-3D модели - Daz 3D - Sci-Fi [DUF]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761152.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор 3d моделей для DAZ 3D - научная фантастика из категории Structures.Формат: DUF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:027939A7406966A23AC3CA20772444A640FE34D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215028   (761144) от 24.03.2018
-
-3D модели - CGTrader - Lexus IS F-Sport 2016 3D model [MAX, SKP, 3DS, FBX, OBJ, C4D]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761144.jpg" />
-</div>
-
-
-###  Подробнее
-
-3D модель Lexus IS F-Sport 2016
-(Max) Version: 2010, Renderer: Default (Scanline)
-(Cinema 4D) Version: 11.5, Renderer: Advanced Renderer 3Формат: MAX, SKP, 3DS, FBX, OBJ, C4D
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:555719EABE22F61A2F704B56B026E680B84E4FF3
 ```
 
 https://mybot314.ru/tekegram_catalog/

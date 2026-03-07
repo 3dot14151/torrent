@@ -1,3 +1,32 @@
+###  Публикация: 1672791   (167706) от 29.10.2023
+
+VA - Acoustic Rock (2023) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_167706.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Green Day - Good Riddance (Time of Your Life) (2:33)
+02. Coldplay - Sparks (3:47)
+03. Disturbed - The Sound of Silence (4:08)
+04. Stone Temple Pilots - Plush (Acoustic Version) (4:49)(   Читать дальше...   )Жанр: RockПродолжительность: 04:08:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB4C8897F9B75E4E95E1CAF61A9A344E7462F4E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1516086   (166572) от 10.12.2021
 
 VA - Blues Rock Collection (2021) [MP3|320 Kbps] <Rock, Blues Rock>
@@ -716,35 +745,6 @@ VA - Animalistic: Hard Rock Review (2019) [MP3|320 Kbps] <Hard Rock, Hardcore, M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:954E8AE069CD0D877D09A5A1841059247ABCFA4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271683   (148469) от 24.12.2018
-
-VA - Rock in Auto Vol 4. (2017) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148469.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Saving Abel - Addicted (3:43)
-02. 12 Stones - Hey Love (3:53)
-03. AC / DC - You Shook Me All Night Long (3:30)
-04. Adelitas Way - Last Stand (3:42)(   Читать дальше...   )Жанр: RockПродолжительность: 06:45:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83A7C5999061B031079F1613EBC653D4C9171C42
 ```
 
 https://mybot314.ru/tekegram_catalog/

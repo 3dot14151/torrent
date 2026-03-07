@@ -1,3 +1,32 @@
+###  Публикация: 1414580   (376166) от 12.10.2020
+
+Carpenter Brut - Blood Machines / Кровь машин (Original Motion Picture Soundtrack) (2020) [FLAC|Lossless|WEB-DL|tracks]<Darkwave, Synthwave, Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_376166.jpg" />
+</div>
+
+
+###  Подробнее
+
+[01:36] 01. Intro
+[03:21] 02. Blood Machines Theme
+[03:19] 03. Attack Of The Amazons
+[02:24] 04. The Ceremony(   Читать дальше...   )Жанр: Darkwave, Synthwave, SoundtrackПродолжительность: 00:35:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CBDA0513D4AC097AB948B8BFEA3FA0A597CF52D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1414498   (376026) от 12.10.2020
 
 Gregorian Prayers - 50 Must-Have Mystic Gregorian Pop Remixes (2012) [MP3|320 Kbps] <New Age, Enigmatic, Choral>
@@ -714,35 +743,6 @@ VA - Romantic Collection - Instrumental vol.3 (2000) [APE|image+.cue]<Instrument
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:895AB3A6198AB1259BB34B470B29E1E650494B63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070689   (366531) от 07.11.2016
-
-Gustavo Santaolalla - Last of Us (2013) [FLAC|Lossless|tracks + .cue] <Soundtrack, Instrumental, Ambient>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366531.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Quarantine Zone (20 Years Later) - [3:40]
-02. The Hour - [1:02]
-03. The Last of Us - [3:04]
-04. Forgotten Memories - [1:08](   Читать дальше...   )Жанр: Soundtrack, Instrumental, AmbientПродолжительность: 00:55:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:685733E4C8001A852F10DF93FDBA6446BCF44DA2
 ```
 
 https://mybot314.ru/tekegram_catalog/

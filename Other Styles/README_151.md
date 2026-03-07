@@ -1,3 +1,35 @@
+###  Публикация: 69832   (216732) от 12.12.2012
+
+Tony O'Connor - 26 albums (1989-2007)[MP3|192-320 kbps]<New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_216732.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Horizon Blue (9:19)
+02. Cascade (7:33)
+03. Lilypond (7:06)
+04. Quietude (6:00)
+05. Somewhere (6:53)
+06. Perido a Tiempo (7:42)
+07. When We Sail Away (9:16)Жанр: New AgeПродолжительность: 00:53:50
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1084967   (216353) от 20.12.2016
 
 Meditative Mind - 7 Chakras Healing Music (Tibetan Singing Bowl Edition) (2016) [MP3|320 Kbps] <New Age>
@@ -715,35 +747,6 @@ VA - Симфония природы (3CD) (2008) [FLAC|Lossless|image + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F1CCFF9BB8074C2834D4C0768C7B6A925B2BCB9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607496   (208994) от 26.01.2023
-
-Nino Rota - Greatest Film Hits (2012) 5xCD, BOX Set [FLAC|Lossless|image + .cue] <Instrumental, Soundtrack>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208994.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nino Rota (3.12.1911 – 10.4.1979) - итальянский композитор, пианист, дирижер и академик. Nino Rota родился в 1911 году в Милане, в семье музыкантов. В детстве, переехав в Рим, поступил в консерваторию, которую закончил в 1929 году. Еще в консерватории Nino Rota прослыл вундеркиндом – он зарекомендовал себя как композитор и дирижер оркестра, а его первая оратория (   Читать дальше...   )CD1 - The Godfather Part I, II:
-01. Main Title. The Godfater Waltz (3:09)
-02. I Have But One Heart (3:01)
-03. The Pick-Up (2:10)(   Читать дальше...   )Жанр: Instrumental, SoundtrackПродолжительность: 05:09:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C72804D4C11CF870D4AA4BBF852A713BBF198679
 ```
 
 https://mybot314.ru/tekegram_catalog/

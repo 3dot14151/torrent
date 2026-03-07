@@ -1,3 +1,235 @@
+###  Публикация: 1573682   (408817) от 02.09.2022
+
+Shemekia Copeland - Done Come Too Far (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408817.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Too Far to Be Gone (3:47)
+02. Pink Turns to Red (3:28)
+03. The Talk (5:23)
+04. Gullah Geechee (3:36)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:45:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0D907DE05B69D37181721243835C8B1D15AB2F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573851   (408815) от 02.09.2022
+
+Ella Fitzgerald - Ella At The Hollywood Bowl: The Irving Berlin Songbook (2022) Verve Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Song Is Ended [2:15]
+02. You're Laughing at Me [3:26]
+03. How Deep Is the Ocean? [3:07]
+04. Heat Wave [2:01](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:42:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BE8552331E9B30553F2A82610BCAC1F2F5F1380
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573620   (408810) от 02.09.2022
+
+Bonnie Raitt - Just Like That... (2022) [FLAC|Lossless|tracks + .cue] <Blues, Blues Rock, Rock, Pop Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408810.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Made Up Mind (3:41)
+02. Something’s Got a Hold of My Heart (4:52)
+03. Livin’ for the Ones (3:05)
+04. Just Like That (5:05)(   Читать дальше...   )Жанр: Blues, Blues Rock, Rock, Pop RockПродолжительность: 00:46:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03D40BA5C175237A778458C68F472573EA726150
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1325891   (408770) от 17.09.2019
+
+Enrico Pieranunzi - Originals (2012) Jazzit Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Forget the Poet [7:10]
+02. From E. to C. [6:16]
+03. Seaward [4:38]
+04. Fermati a guardare il giorno [4:52](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 00:52:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C824635DA8CF33862E18EB8D75151E24FE12081
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573690   (408734) от 02.09.2022
+
+Tommy McLain - I Ran Down Every Dream (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408734.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Tomorrows Now (3:08)
+02. I Ran Down Every Dream (feat. Elvis Costello) (3:23)
+03. I Hope (3:47)
+04. Livin' on the Losin' End (2:54)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05A3B61F57F91BE6DB88D4446A653FA41D638E4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1325885   (408711) от 17.09.2019
+
+Jackie McLean - Four Classic Albums (1957 - 1960) 2CD, 2011, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408711.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Filide [7:28]
+02. Millie's Pad [8:42]
+03. Two Sons [7:22](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:32:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78D8C49BFE0A16B8B183FE81A1707DC9D0C9AF04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1325919   (408699) от 17.09.2019
+
+Nicki Parrott - Papa Loves Mambo (2019) [FLAC|Lossless|image + .cue] <Vocal Jazz, Latin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408699.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Papa Loves Mambo
+02. Somos Novios
+03. Perfidia
+04. Kiss Of Fire(   Читать дальше...   )Жанр: Vocal Jazz, Latin JazzПродолжительность: 00:55:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A33CF8418CD81CC4F751DEA04FF1DE85E52188DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573676   (408656) от 02.09.2022
+
+Marcus King - Young Blood (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's Too Late (2:56)
+02. Lie Lie Lie (3:36)
+03. Rescue Me (4:46)
+04. Pain (4:22)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E3071BD633397EDCC0F783A886757725F0383D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 184134   (408638) от 24.09.2017
 
 VA - Сны Аризоны (2001) [MP3|320 kbps]<Blues>
@@ -516,237 +748,6 @@ Eric Clapton & Friends - A Tribute To Ginger Baker: London 2020 (2020) Box Set, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA49FB7E6FCAA088FFC9886331F74C72A127218C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 557955   (408010) от 13.10.2012
-
-Essence Featuring Jaco Pastorius - Last Flight (1984) 1989 DIW Records, Disk Union [FLAC|Lossless]<Jazz-Funk, Jazz-Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_408010.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Universe Is My Home Part One (26:53)
-02. Universe Is My Home Part Two (18:35)
-03. Galeon (13:42)Жанр: Jazz-Funk, Jazz-RockПродолжительность: 00:59:10
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252700   (407910) от 06.10.2018
-
-Fantastic Negrito - Please Don't Be Dead (2018) Deluxe [MP3|320 Kbps] <Blues Rock, R&B, Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407910.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Plastic Hambugers (03:38)
-02. Bad Guy Necessity (03:59)
-03. A Letter to Fear (04:05)
-04. A Boy Named Andrew (04:23)(   Читать дальше...   )Жанр: Blues Rock, R&B, RockПродолжительность: 00:57:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A3E88E89211B08FB87639E5A996BE88C921E750
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252607   (407806) от 06.10.2018
-
-Katie Melua - Ultimate Collection (2018) [MP3|320 Kbps] <Vocal Jazz, Pop Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407806.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Nine Million Bicycles
-02. What a Wonderful World (with Eva Cassidy)
-03. Plane Song(   Читать дальше...   )Жанр: Vocal Jazz, Pop JazzПродолжительность: 02:02:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:900BE350B0EC8458BE1C78B562ADDA59608D12AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252704   (407805) от 06.10.2018
-
-Katie Melua - Ultimate Collection (2018) 2CD [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Pop Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407805.jpg" />
-</div>
-
-
-###  Подробнее
-
-Треклист CD1:
-01. Nine Million Bicycles
-02. What a Wonderful World (with Eva Cassidy)
-03. Plane Song(   Читать дальше...   )Жанр: Vocal Jazz, Pop Jazz |Продолжительность: 02:02:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:173AC235B096345A480DFB00D57F0F7FA62C4D8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168872   (407633) от 25.09.2017
-
-David Rogers Sextet - The World Is Not Your Home (2007) Jumbie Records [FLAC|Lossless|tracks + .cue] <World Fusion, African Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407633.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The World Is Not Your Home [13:12]
-02. Don't Drop That Coffin! [05:00]
-03. Oboo Ketua Nyom [11:25]
-04. Mobius Trip [07:43](   Читать дальше...   )Жанр: World Fusion, African JazzПродолжительность: 00:56:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCE0E28E2EDA14A5207A8C872D835325B2BDD951
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574021   (407548) от 03.09.2022
-
-Pee Wee Russell - Weary Blues (1933 - 1963) 4CD, 2005, Membran Music [FLAC|Lossless|tracks + .cue] <Dixieland, Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407548.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. The Eel [3:03]
-02. Madame Dynamite [2:57]
-03. Home Cooking [2:55](   Читать дальше...   )Жанр: Dixieland, Swing, Mainstream JazzПродолжительность: 04:13:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07BA416D3731A7CC46B4416766FC0134EC29FC8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574024   (407544) от 03.09.2022
-
-Joey Alexander - Origin (2022) Mack Avenue [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Remembering [5:44]
-02. On the Horizon [5:28]
-03. Dear Autumn [5:38]
-04. Winter Blues [7:13](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 00:52:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69C5FAEA1E1771F0E838D4B4C1A4072BEF80ADC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326094   (407433) от 18.09.2019
-
-Dizzy Gillespie - Dizzy's Diamonds: The Best Of The Verve Years (1950 - 1964) 3CD, 1992, Verve Records [FLAC|Lossless|tracks + .cue] <Bop, Afro-Cuban Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407433.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Big Band:
-01. Prelude [5:57]
-02. 'Bout to Wail [6:49]
-03. Umbrella Man [3:03](   Читать дальше...   )Жанр: Bop, Afro-Cuban Jazz, Big BandПродолжительность: 03:43:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45250A40CC93D69579966570842AD0E3FA1C30D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

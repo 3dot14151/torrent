@@ -1,3 +1,32 @@
+###  Публикация: 288570   (1030598) от 18.02.2021
+
+VA - Original Musette (2000) [FLAC|Lossless|image + .cue] <Instrumental, Accordion>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030598.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Le p'tit bal du samedi soir (02:39)
+02. Caroussel Java 		(02:51)
+03. Java Militaire 		(02:19)
+04. La Java Bleue 		(02:46)(   Читать дальше...   )Жанр: Instrumental, AccordionПродолжительность: 00:59:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AE378FF2B6741713BA0298852237A6D79FC21DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 257665   (1030590) от 18.02.2021
 
 VA - Tango Planet – The Best Of Tango (1998) [FLAC|Lossless|image + .cue] <Tango>
@@ -716,35 +745,6 @@ Dark Diva - 3 Albums (2021-2023) [MP3|320 Kbps] <Trip Hop, Folk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA6E2616D33623B4E6163F871D20DE7C08E77069
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447866   (1030211) от 20.02.2021
-
-Go_A - #Ідиназвук (2016) [FLAC|Lossless|WEB-DL|tracks] <Folk, IDM>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030211.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Веснянка (04:13)
-02. Вогнi (04:39)
-03. Сонце (05:39)
-04. Намалюй (03:38)(   Читать дальше...   )Жанр: Folk, IDMПродолжительность: 00:44:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03105757EF06A5966184B0EE85A0C8F6F1E2ACC5
 ```
 
 https://mybot314.ru/tekegram_catalog/

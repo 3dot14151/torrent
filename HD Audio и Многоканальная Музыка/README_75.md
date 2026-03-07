@@ -1,3 +1,177 @@
+###  Публикация: 1678177   (147691) от 20.11.2023
+
+Blackbird - Pink Shades (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_147691.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Stay Or Go
+02 – Down Down Down Down
+03 – Pink Shades
+04 – Lonely On Lovers Lane(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:36:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8758AE19329E8F81E21B71EB18BA86990508E9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677798   (147635) от 20.11.2023
+
+Palehorse (Palehørse) - Hunting Grounds (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metal, Alternative Metal, Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_147635.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Revival [4:26]
+02 - Deathless Endeavor [3:40]
+03 - Magnetism [4:11]
+04 - Skeleton Shuteye [3:42](   Читать дальше...   )Жанр: Metal, Alternative Metal, Progressive MetalПродолжительность: 00:40:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A74641334F820AE493BF65679B6F7DCF9ACC32D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678067   (147527) от 20.11.2023
+
+Olivia Newton-John - Totally Hot (1978) 45th Anniversary, Remastered, Reissue, 2023, Geffen [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_147527.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Please Don't Keep Me Waiting (5:48)
+02. Dancin' 'Round And 'Round (4:01)
+03. Talk To Me (3:29)
+04. Deeper Than The Night (3:38)(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:304DAFE2FDACFA4926DC284230E04122725C5431
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677806   (147477) от 20.11.2023
+
+Papa Roach - 20/20 (2020) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, Alternative Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_147477.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Infest (Live at INFEST IN-Studio, 2020) [4:28]
+02 - Last Resort (Live at INFEST IN-Studio, 2020) [3:16]
+03 - Broken Home (Live at INFEST IN-Studio, 2020) [3:45]
+04 - Dead Cell (Live at INFEST IN-Studio, 2020) [3:14](   Читать дальше...   )Жанр: Rock, Alternative RockПродолжительность: 01:10:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21A0E67D01851B0479D52DBA3D86DAD0099D51DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678164   (147439) от 20.11.2023
+
+Thea Gilmore - Thea Gilmore (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie Folk>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_147439.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nice Normal Woman [00:02:38]
+02. Bones [00:02:49]
+03. Hope And Fury [00:02:20]
+04. Unravel Me [00:03:39](   Читать дальше...   )Жанр: Indie-FolkПродолжительность: 00:40:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA4B1D885E9B811E2EE70E0B6E63F20EC2235B27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678115   (147431) от 20.11.2023
+
+Bob Dylan - The Complete Budokan 1978 (Live) (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_147431.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One of Us Must Know (Sooner or Later) (Live at Nippon Budokan Hall, Tokyo, Japan - March 1, 1978) (4:44)
+02. Blowin' in the Wind (Live at Nippon Budokan Hall, Tokyo, Japan - March 1, 1978) (4:36)
+03. Just Like a Woman (Live at Nippon Budokan Hall, Tokyo, Japan - March 1, 1978) (5:07)
+04. Oh, Sister (Live at Nippon Budokan Hall, Tokyo, Japan - March 1, 1978) (4:57)(   Читать дальше...   )Жанр: RockПродолжительность: 4CD, 04:29:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA1B5E86D5902AEBF3DF2A635A57F348C88EFE90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1678046   (147371) от 20.11.2023
 
 Vince Clarke - Songs of Silence (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Ambient, Drone, Experimental>
@@ -571,186 +745,6 @@ Soulfly — американская грув-метал группа, обра�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2515F30CBE67551D119DD35535893E666E979D70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520087   (141385) от 28.12.2021
-
-Electric Light Orchestra - Discovery (1979) Japanese Edition [DSD128 2.0|5,645 MHz/1|tracks|SACD] <Rock, Pop Rock, Symphonic Rock>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141385.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Shine A Little Love 4:42
-A2 Confusion 3:42
-A3 Need Her Love 5:12
-A4 The Diary Of Horace Wimp 4:17(   Читать дальше...   )Жанр: Rock, Pop Rock, Symphonic RockПродолжительность: 00:39:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08F79219744DB560ED0623BFA83D10ED099C968A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 740292   (141203) от 30.12.2013
-
-Yello - You Gotta Say Yes To Another Excess (1983) [FLAC 2.0 24/96|traks(Vinil-Rip)]<Electro, Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141203.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-1. I Love You  3:23
-2. Lost Again  4:18
-3. No More Words  3:59
-4. Crash Dance  2:10
-5. Great Mission  2:57
-6. You Gotta Say Yes To Another Excess	2:10
-Сторона 2
-1. Swing  3:22
-2. Heavy Whispers  3:57(   Читать дальше...   )Жанр: Electro, Synth-popПродолжительность: 00:37:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D891DA1AE4586B582B8C619B9581245841CD0075
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348746   (140982) от 29.12.2019
-
-Leonard Cohen - Thanks for the Dance (2019) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Contemporary Singer/Songwriter>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Happens to the Heart (4:34)
- 02. Moving On (3:12)
- 03. The Night of Santiago (4:15)
- 04. Thanks for the Dance (4:13)(   Читать дальше...   )Жанр: Contemporary Singer/SongwriterПродолжительность: 00:29:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4B856C6887D03482BB918D17F88CCB19526C9A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679139   (140599) от 24.11.2023
-
-Opeth - Blackwater Park (2001) Reissue, 2010, Music On Vinyl,  Sony Music Entertainmen [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Death Metal, Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140599.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. The Leper Affinity (10:23)
-A2. Bleak (09:17)
-B1. Harvest (06:01)
-B2. The Drapery Falls (10:52)(   Читать дальше...   )Жанр: Progressive Death Metal, Progressive RockПродолжительность: 01:16:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AA060F65666CDE58970FC83A6EFDDCEE0CF1BEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679247   (140591) от 24.11.2023
-
-Final Strike - Finding Pieces (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140591.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Archers (3:44)
-02. Finding Pieces (4:17)
-03. Fly (4:27)
-04. Freedom (5:36)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:41:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6375584D82F30A947C3F2662B07BE92F425D583C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272661   (140587) от 29.12.2018
-
-VA - Новогодняя Дискотека. Выпуск 1 (1998) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140587.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. Балаган LTD & Филипп Киркоров - Наивная
-02. Таня Буланова - Пела Я Тебе
-03. Кай Метов - Снегурочка(   Читать дальше...   )Жанр: PopПродолжительность: 00:57:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8DE0B547A24B3D13FFC667C536121492C55DC96
 ```
 
 https://mybot314.ru/tekegram_catalog/

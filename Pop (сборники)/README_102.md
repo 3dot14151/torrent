@@ -1,3 +1,61 @@
+###  Публикация: 964305   (283782) от 10.12.2015
+
+VA - Пацаны - Ваще Ребята! vol.22 (2015) [MP3|128-320 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_283782.jpg" />
+</div>
+
+
+###  Подробнее
+
+16. DJ Jedy feat. Ilaila - За Плечи (Future House Remix).
+17. Anton Mayer feat. Denis Rublev - Бьет По Глазам.
+18. Серебро - Отпусти Меня.
+19. Марсу Нужны Любовники - Её глаза (Dj Denis Rublev & Dj Anton remix).(   Читать дальше...   )Жанр: PopПродолжительность: 02:25:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A608C5BFA41C5A690531BC20DBFA9461CA42576
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 964331   (283268) от 10.12.2015
+
+VA - Супер 100-ка Музыкальной дискотеки 50х50 (2015) [MP3|256-320 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_283268.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Паола - Новогодняя Сказка
+002. Fences - Dogs At The Table
+003. Бьянка - Любимый Дождь
+004. Hoodie Allen Feat. Alex Wiley - Sirens(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D9F2C3734BA30EF7865D4DCD695B4AE2CCFEC69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1081286   (282694) от 10.12.2016
 
 VA - Billboard 2016 Year End Hot 100 Songs (2016) [MP3|320 Kbps] <Pop>
@@ -684,61 +742,6 @@ VA - Союз 2018. Лучшие хиты попмузыки (2017) [MP3|256-320
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E25A013B5E4C5E0B3ADC4D70575619F60180C9C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264839   (277667) от 25.11.2018
-
-VA - Greatest Dance Hits (2018) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277667.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alan Walker - Diamond Heart
-002. Baz - Like A Dream (Original Mix)
-003. Castellani Feat. Mel - Feel Something
-004. Cocooma - The Lights(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 11:56:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A5B2C9184EB46B8E9763AC74778A75E908B3135
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 273007   (277446) от 20.12.2010
-
-VA - Discoтека Life is Life (2010) [MP3|128 kbps]<Dance / Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277446.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Dance / DiscoПродолжительность: 12:31:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38BA61FB3F74DCD54FA278DE63CBFF0835600BB4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,206 @@
+###  Публикация: 1339895   (264272) от 22.11.2019
+
+VA - Italoconnection: Remixes Vol. 2 (2018) [FLAC|Lossless|image + .cue] <Italo-Disco, Electro>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264272.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Atelier Folie - Freedom Time (Italoconnection Remix) (6:14)
+02. Josep Xorto & The Congosound - Aixo Que Sona Es Nostre (Italoconnection Remix) (5:05)
+03. Aleph - Fly To Me (Italoconnection Remix) (5:38)
+04. Synergic Silence - Follow Your Instinct (Italoconnection Remix) (5:47)(   Читать дальше...   )Жанр: Italo-Disco, ElectroПродолжительность: 01:09:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:230ACEC543E12E830544EB87D68E9F9500257392
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340163   (264264) от 22.11.2019
+
+Celine Dion - Courage (2019) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Flying On My Own (00:03:32)
+02 - Lovers Never Die (00:02:51)
+03 - Falling In Love Again (00:03:51)
+04 - Lying Down (00:03:59)(   Читать дальше...   )Жанр: Pop
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E06A17EACE2BD77652E31D866586AC54A6C5BD59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340097   (264242) от 22.11.2019
+
+VA - 100 Greatest 2019 Songs (Best Songs of the Year) (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance, Other>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264242.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lizzo - Truth Hurts
+002. Cardi B & Bruno Mars - Please Me
+003. Tones and I - Dance Monkey
+004. Lil Uzi Vert - Sanguine Paradise(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:42:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84573F9B3BCC00C0EBB8CBE4E6EBF87669FA85C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340149   (264238) от 22.11.2019
+
+Robbie Williams - The Christmas Present (2019) Deluxe Edition [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264238.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+1. Winter Wonderland
+2. Merry Xmas Everybody
+3. Let It Snow! Let It Snow! Let It Snow!(   Читать дальше...   )Жанр: PopПродолжительность: 01:27:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F86CBD15CF40FDA960A820EC9C14EE3C4DC4E28B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340379   (264012) от 23.11.2019
+
+Francesca Michielin - 2640 (2018) RCA Records [FLAC|Lossless|WEB-DL|tracks] <Italo Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264012.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Comunicare (4:21)
+ 02. Bolivia (3:36)
+ 03. Noleggiami ancora un film (3:44)
+ 04. Io non abito al mare (3:13)(   Читать дальше...   )Жанр: Italo PopПродолжительность: 00:44:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D4E5D91C4DBBEFFCFD377B5C7494927CDD96088
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340446   (264010) от 23.11.2019
+
+Micro együttes - Olasz slágerek – magyarul No.1 (2005) [FLAC|Lossless|image + .cue] <Pop, Cover>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264010.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Imádok útra kelni (4:02)
+02. Felicita (3:23)
+03. Azzuro (3:28)
+04. Szívem egy vándorcigány (4:00)(   Читать дальше...   )Жанр: Pop, CoverПродолжительность: 01:04:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFEB2A7B440D7FEEE799FF2897ADF04D3CF62B10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340323   (263991) от 23.11.2019
+
+Rebel Force Band - Living In These Star Wars (1977) LP [MP3|320 Kbps] <Electronic, Novelty, Space Rock, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263991.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Living In These Star Wars (3:48)
+02. Don't Fall In Love With An Android (3:18)
+03. Leia (4:16)
+04. Chewie the Rookie Wookie (2:26)(   Читать дальше...   )Жанр: Electronic, Novelty, Space Rock, DiscoПродолжительность: 00:34:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:110FBF70B735DD382733BA6FCA14E707BB7D406D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1340452   (263982) от 23.11.2019
 
 Ole - Super Disco Tube (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
@@ -542,209 +745,6 @@ VA - ZYX Italo Disco Spacesynth Collection (2014) 2CD, Compilation [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6ED379C022C04DAFAEA3416894673F1D68CFF98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192712   (262791) от 18.12.2017
-
-VA - 100% Clubland 90s (4 CD) (2017) [MP3|320 Kbps] <Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262791.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc: 1:
-01. Livin' Joy - Dreamer
-02. Snap! - Rhythm Is A Dancer [7" Edit]
-03. Technotronic, Felly - Pump Up The Jam(   Читать дальше...   )Жанр: DanceПродолжительность: 05:02:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D298A8600B7C19556FAA6EB526E9F4122E1A4B9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192767   (262759) от 18.12.2017
-
-Bananarama - True Confessions (1986) Reissue, 1988, London Records [FLAC|Lossless|image + .cue] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. True Confessions (5:20)
- 02. Ready Or Not (3:55)
- 03. A Trick Of The Night (4:41)
- 04. Dance With A Stranger (4:32)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:48:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10EBAFF9DC894844221B3A715B62F648249EF9A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192856   (262727) от 18.12.2017
-
-Георг Отс - Я люблю тебя, жизнь (2006) [FLAC|Lossless|image + .cue] <Советская эстрада, Ретро>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262727.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ария Мистера Икс (4:34)
-02. Я люблю тебя, жизнь (3:27)
-03. Мелодия (3:58)
-04. Королева (3:44)(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 01:19:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:906F7FDD0398598757E6CD87F5508E1A3F54A9C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341364   (262630) от 27.11.2019
-
-VA - Clubfete 2020 (63 Club Dance And Party Hits) (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262630.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Regard - Ride It 2:38
-02. Riton x Oliver Heldens feat. Vula - Turn Me On 3:29
-03. VIZE feat. Laniia - Stars 2:46(   Читать дальше...   )Жанр: PopПродолжительность: 03:19:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EDDEB88762DAE0D88F9699793B7F77F84650565
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341221   (262622) от 27.11.2019
-
-VA - ZYX Italo Disco New Generation Vol. 15 (2019) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262622.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Excitations and Fred Ventura - State Of Confusion (Italoconnection Remix) (6:31)
-02. Stockholm Nightlife feat. Helly - My Guiding Star (ZYX Extended) (7:28)
-03. Tom Hooker - You're Right (Mixtended Version) (7:04)
-04. Alex Valentini - See You Again (Extended Mix) (5:24)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 02:33:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52FF031A5CAE6EA4871C378B0EE5BF6FFC50EFCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341338   (262618) от 27.11.2019
-
-VA - Christmas Pop Hits (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262618.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chris Rea - Driving Home For Christmas 4:00
-02. The Pogues feat. Kirsty MacColl - Fairytale Of New York 4:32
-03. Kylie Minogue - Winter Wonderland 1:53
-04. Wizzard - I Wish It Could Be Christmas Everyday 4:39(   Читать дальше...   )Жанр: PopПродолжительность: 03:10:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA285B71169A8E67B9DA92E898AC9F179D5B59FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341216   (262615) от 27.11.2019
-
-VA - ZYX Italo Disco Spacesynth Collection 2 (2015) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Italo-Disco, Spacesynth, Space-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262615.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A.M. Samurai - Secret Entrance (4:42)
-02. Marco Rochowski - Voyage Of Discovery (5:46)
-03. Synthesis - Strange Land (6:51)
-04. Rygar - Illusion In C Minor (6:37)(   Читать дальше...   )Жанр: Italo-Disco, Spacesynth, Space-DiscoПродолжительность: 02:15:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:834F9E7CC05CC4BC4759A97F1DBA76FBDF3DED03
 ```
 
 https://mybot314.ru/tekegram_catalog/

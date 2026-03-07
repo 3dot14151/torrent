@@ -1,3 +1,61 @@
+###  Публикация: 1675052   (160544) от 07.11.2023
+
+VA - Chill Hits 2 (2023) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_160544.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jessie Murph - Always Been You (2:08)
+002. Jessie Murph - Pray (2:25)
+003. Jeremy Zucker - always, i'll care (2:27)
+004. Wasia Project - ur so pretty (2:24)(   Читать дальше...   )Жанр: PopПродолжительность: 07:07:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BEAEFA42C25AA84F7ACB5F456DCE17741EF1D8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 417840   (160523) от 07.11.2023
+
+VA - Кавказ Бомба Hits (2011) [MP3|256-320 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_160523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Альбина Токова - Горный ветер
+02. Азамат Биштов и Мурат Тхагалегов - Сердце
+03. Рамазан Кайтмесов - От меня не уйти
+04. Анастасия Аврамиди и Мурат Тхагалегов - Вянут розы в снегу(   Читать дальше...   )Жанр: PopПродолжительность: 04:52:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A34020052FF9B08A39998A1B75F5915AE669D82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1599552   (159819) от 23.12.2022
 
 VA - Ultimate Party Classics Dance (2022) [MP3|320 Kbps] <Electropop, Future House, Nu Disco, Eurodance>
@@ -687,64 +745,6 @@ Adele - 100% Adele (2018) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4D5F6DEE9864E70777E1A86B9FDFEBB2555A892
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825720   (151694) от 17.10.2025
-
-Romantic Dreams - Favorites Collection Part 5 (2025) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Sunoai>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151694.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Your Soul
- 02 - Start Again
- 03 - Butterflies Inside My Heart
- 04 - Inhale the Future, Exhale the Past(   Читать дальше...   )Жанр: Italodisco, Italodance, Eurodisco, Eurodance, SunoaiПродолжительность: 00:31:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99B790363D0F8A37EBE709B10DF968A2DD38F1C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271191   (151435) от 22.12.2018
-
-VA - Русское радио Хит-парад Золотой граммофон 21.12.2018 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151435.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Денис Клявер - Когда ты станешь большим
-02. #2Маши - Босая
-03. Руки Вверх - К Черту Эту Гордость
-04. Ирина Дубцова - Факт(   Читать дальше...   )Жанр: PopПродолжительность: 01:08:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAD6F8601A6B7688561CE87C298F35E178B798A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

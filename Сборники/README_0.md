@@ -1,3 +1,55 @@
+###  Публикация: 1488642   (1001711) от 12.08.2021
+
+Сборник - GraphicRiver - 10 in 1 Christmas Photoshop Actions Bundle - 22793168 [PSD, PAT, GRD, ABR, ATN, ASL, TPL, EPS, AI, PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001711.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот рождественский набор содержит более 50 экшенов Photoshop премиум-класса для Рождества, сгруппированных в 10 наборов, и сделан PSDDude.Формат: PSD, PAT, GRD, ABR, ATN, ASL, TPL, EPS, AI, PNG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4BD73E613C7C8C8EAC338440DF4C6F04571E535
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353443   (991688) от 18.01.2020
+
+Сборник - Creative Market - Big Bundle Clipart Volume 2 - 4396150 [AI, PNG, EPS, JPEG, SVG]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_991688.jpg" />
+</div>
+
+
+###  Подробнее
+
+Большая подборка клипарта на различную тематику.Формат: AI, PNG, EPS, JPEG, SVGРазрешение файлов: 1663x3505-4569x2274
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73498D4B505EDA2AC1AFAA562B7A8E31E869F439
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1353983   (989675) от 20.01.2020
 
 Сборник - MightyDeals - Retro/Vintage Graphic Design Bundle 2 [AI, ASL, PNG, EPS, JPEG, PSD, PAT]
@@ -622,58 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:114D0D7CEFFD9B407D540AFE51D608115515FD6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379114   (842380) от 27.04.2020
-
-Сборник - Creative Market - The Icon Bundle 4000 - 618315 [AI, PNG, PSD, EPS, SVG]
-
->>Материалы для мультимедиа и дизайна
->>Сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842380.jpg" />
-</div>
-
-
-###  Подробнее
-
-Всем привет. Это мой новый большой набор иконок. В этом наборе вы не увидите, 500 значков стрелок или 300 значков сетки. Только разные и сложные иконки, только хардкор.Формат: AI, PNG, PSD, EPS, SVGРазрешение файлов: 16x16-512x512
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C8BF9C595104B439DD3A3031E7A08EEEB56377F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500732   (840832) от 06.10.2021
-
-Сборник - GraphicRiver, Envato Elements - Сборник шаблонов от Envato Elements [PSD, IDML, INDD, INX, AI, EPS, INDT]
-
->>Материалы для мультимедиа и дизайна
->>Сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840832.jpg" />
-</div>
-
-
-###  Подробнее
-
-Большой сборник шаблонов от Envato Elements и GraphicRiver.Формат: PSD, IDML, INDD, INX, AI, EPS, INDT
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86E1D07A5D6DCAC546A62A74D4464F1C2CCBD6FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

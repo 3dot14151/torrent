@@ -1,3 +1,32 @@
+###  Публикация: 1684945   (127112) от 19.12.2023
+
+Переучёт (Oxxxymiron) - Семейный альбом (2023) [MP3|320 Kbps] <Alternative, Hip-Hop, Experimental>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_127112.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Заходи скорее
+02 Всё сразу
+03 Макдональдс
+04 Семейный альбом(   Читать дальше...   )Жанр: Alternative, Hip-Hop, ExperimentalПродолжительность: 00:32:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0DB1A41C96434D867935D400710EEA4F2AC23E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1823112   (117633) от 10.10.2025
 
 Заточка - Опять за старое (2025) [MP3|320 Kbps] <Rap, Hip-Hop, Country>

@@ -1,3 +1,177 @@
+###  Публикация: 1809797   (64655) от 01.08.2025
+
+Tomoko Aran – Fuyu-Kukan = Floating Space = 浮遊空間 (1983) [FLAC 2.0|48/24|image +.cue|MC-Rip] <Electronic, New Wave, City Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_64655.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+A1 Body To Body
+A2 Lonely Night
+A3 I'm In Love(   Читать дальше...   )Жанр: Electronic, New Wave, City PopПродолжительность: 00:45:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2127C96833163B25D9A419C8EF12198A11B1ADD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810070   (64614) от 02.08.2025
+
+The Alan Parsons Project - Collection (1976-1987) [DSD 128|tracks|Vinyl-Rip] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_64614.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Alan Parsons Project — рок-группа из Великобритании, творившая с 1975 по 1990 годы в стилях арт-рок, симфонический рок и прогрессивный рок. Основана Аланом Парсонсом (Alan Parsons) и Эриком Вульфсоном (Eric Woolfson). После 1990 года группа официально не существует, но Алан Парсонс и Эрик Вульфсон продолжали выпускать сольные альбомы, близкие к творчеству группы. (   Читать дальше...   )1976 Tales Of Mystery And Imagination (UK, Charisma – CDS 4003 LP)
+1977 - I Robot (Japan, Arista – IES-80885 LP)
+1978 Pyramid (UK, Arista – SPART 1054 LP)
+1979 - Eve (Japan, Arista – 20RS-36 LP)Жанр: Pop Rock, AOR, Soft RockПродолжительность: 00:39:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C8FA323DC7C23C2EDFA43C9EF2A7C3FF27ABCC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810032   (64545) от 02.08.2025
+
+Reneé Rapp - BITE ME (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_64545.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Leave Me Alone (02:22)
+ 02 - Mad (02:55)
+ 03 - Why Is She Still Here_ (02:30)
+ 04 - Sometimes (03:04)(   Читать дальше...   )Жанр: PopПродолжительность: 00:33:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8ED9BD24F43AB9B3B117C0EB3B35E1E3DBD3A12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 441160   (64325) от 25.01.2012
+
+John Lennon - Lennon Legend: The Very Best Of John Lennon (1997) [DTS 5.1|Tracks]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_64325.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Imagine (3:55)
+02. Instant Karma! (3:35)
+03. Mother (5:39)
+04. Jealous Guy (4:15)
+05. Power to the People (3:46)
+06. Cold Turkey (5:03)
+07. Love (3:22)
+08. Mind Games (4:13)
+09. Whatever Gets You Thru the Night (3:35)
+10. #9 Dream (4:48)(   Читать дальше...   )1997Жанр: RockПродолжительность: 1:23:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABE8CBCCB87A94D7E52E5C7E138694F5B01CCC3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821495   (64022) от 02.10.2025
+
+Judas Priest ft. Ozzy Osbourne - War Pigs (Charity Version) (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_64022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.War Pigs (Charity Version)(8:05)Жанр: Heavy MetalПродолжительность: 00:08:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE58831542A181453F19A3C1FAC7E4BD8B3E68AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821499   (64018) от 02.10.2025
+
+Megadeth - Tipping Point (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_64018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Tipping Point(4:29)Жанр: Thrash MetalПродолжительность: 00:04:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F193F13089037BBAF5192F6CC846E24ED34393EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1821514   (64012) от 02.10.2025
 
 Hooded Menace - Lachrymose Monuments Of Obscuration (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Death-Doom Metal>
@@ -571,180 +745,6 @@ Pressed By – Ленинградский Завод Грампластинок(
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:126B3A68B60E3F18C3C0765E9D2D8A07736271F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706052   (63180) от 12.03.2024
-
-ВИА «Синяя птица» - От сердца к сердцу (1978) [FLAC 24/192|Lossless|tracks] <Pop, Retro>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63180.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 сторона.
-01. От сердца к сердцу (В. Лозовой — И. Машбаш, перевод В. Твороговой)
-02. Это ошибка (Я. Френкель — И. Шаферан)
-03. Не обещай меня любить (А. Днепров — В. Харитонов)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:38:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B9C0376F5D25C7D3478792AEC8F4716AB4E6C99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706048   (63173) от 12.03.2024
-
-The Shocking Blue - Golden Hits (1991) [FLAC 24/192|Lossless|tracks] <Classic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63173.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Venus
-02. Shocking You
-03. Send Me A Postcard
-04. Long & Lonesome RoadЖанр: Classic RockПродолжительность: 00:38:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67C3F7DE59797203D595855C2402E1F08BB0979A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706042   (63162) от 12.03.2024
-
-The Beatles - Magical Mystery Tour, Yellow Submarine (Волшебное таинственное путешествие, Желтая субмарина) (1967, 1969) 1992 [FLAC 24/192|Lossless|tracks] <Classic Rock, Soundtrack>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63162.jpg" />
-</div>
-
-
-###  Подробнее
-
-Волшебное таинственное путешествие.
-Сторона 1.
-01 - Волшебное таинственное путешествие. (Джон Леннон - Пол МакКартни)
-02 - Дурак на холме. ( Джон Леннон - Пол МакКартни)(   Читать дальше...   )Жанр: Classic Rock, SoundtrackПродолжительность: 00:36:35, 00:39:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96C5536862A076106547220FC45BFBE996D92805
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706308   (63159) от 12.03.2024
-
-VA - А любовь жива (1980) [FLAC 24/192|Lossless|tracks] <Pop, Retro>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63159.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 сторона.
-01. Кружатся диски (5.18) Д. Тухманов — И. Кохановский
-Валерий Леонтьев
-02. Эти летние дожди (4.10) М. Минков — С. Кирсанов(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:35:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EBC25FE439715ECCCBDF461F3A7B6D610E0486A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648172   (63055) от 13.03.2024
-
-Black Label Society (Zakk Wylde; Zakk Sabbath) - Studio Albums (17 releases) (1994-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Southern Rock, Groove Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63055.jpg" />
-</div>
-
-
-###  Подробнее
-
-Black Label Society — сольный проект гитариста Закка Уайлда, известного по своей работе с Оззи Осборном.1999 - Sonic Brew
-2000 - Stronger Than Death
-2002 - 1919 Eternal
-2003 - The Blessed Hellride(   Читать дальше...   )Жанр: Hard Rock, Heavy Metal, Southern Rock, Groove MetalПродолжительность: 17:48:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4AB29AD4F19B22344E0F74F15607E0927936591
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706802   (62971) от 14.03.2024
-
-VA - Песни Давида Тухманова (1979) [FLAC 24/192|Lossless|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62971.jpg" />
-</div>
-
-
-###  Подробнее
-
-I сторона
-1. Так не должно быть (Л. Дербенев)
-М. Боярский и О. Зарубина
-Вокальный ансамбль(   Читать дальше...   )Жанр: PopПродолжительность: 00:12:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FB6A01139B3F3A95C8EEA49DB337232782F839C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,38 @@
+###  Публикация: 457630   (94708) от 26.02.2012
+
+Theodor Bastard - Oikuomene (2012) [MP3|320 кб/с]<Rock, Folk, Darkwave>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_94708.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Takaya Mija (05:36)
+02. Farias (05:26)
+03. Gerda (05:59)
+04. Benga (04:44)
+05. Sagrabat (Diumgo) feat. Julien Jacob (03:34)
+06. Oikoumene (07:41)
+07. Tapachula (07:09)
+08. Intifadah (05:13)
+09. Clean Kron (03:25)
+10. Sol De Morte (03:44)(   Читать дальше...   )2012Жанр: Rock, Folk, DarkwaveПродолжительность: 01:04:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A66B199848D1339B4B472134E2F224F0B41A098
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1821995   (94701) от 04.10.2025
 
 VA - The Orient Collective: Ancient Spirits (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
@@ -820,41 +855,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23D9A40BF73F8EDCF71BA5E7966ED59CAE811EF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 464920   (81362) от 11.03.2012
-
-Irish Ёрш - Я Ирландец! (2011) [MP3|320 кб/с]<Celtic, Irish Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Навигатор (03:22)
- 02. Дубадам вдрабадан (03:23)
- 03. Если горцу выпить не с кем (03:22)
- 04. Ковбойская (02:47)
- 05. Четыре упыря для Кухулина (03:12)
- 06. Ирландские старцы (03:55)
- 07. Тёмные джунгли Лондона (03:13)
- 08. Джиги (04:02)
- 09. Как всё достало! (03:07)
- 10. Три пузыря (03:01)(   Читать дальше...   )2011Жанр: Celtic, Irish FolkПродолжительность: 00:49:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14E49253F9925BC45792310117D9A2E2C7E5E7DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

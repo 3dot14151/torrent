@@ -1,3 +1,38 @@
+###  Публикация: 592448   (135191) от 23.12.2012
+
+Gergely Boganyi - Frederic Chopin: The Complete Nocturnes (2008) [DST 2.0 1bit/2822,4kHz |SACD-R] <Classical>
+
+>>Классика
+>>Классика (HD Audio)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135191.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+1. Nocturne op.9 No.1 Bb minor
+2. Nocturne op.9 No.2 Eb major
+3. Nocturne op.9 No.3 B major
+4. Nocturne op.15 No.1 F major
+5. Nocturne op.15 No.2 F# major
+6. Nocturne op.15 No.3 G minor
+7. Nocturne op.27 No.1 C# minor
+8. Nocturne op.27 No.2 Db major
+9. Nocturne op.32 No.1 B major(   Читать дальше...   )Жанр: ClassicalПродолжительность: 51:56 + 58:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57F95E7449F48BEA48F471747A9DE5C0ADB27A55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 593513   (134657) от 24.12.2012
 
 Mendelssohn - Piano Concertos 1 & 2, Songs without words: Schiff, Dutoit - SOBR (1999) [FLAC|Lossless]<Classical, Concerto, Romanticism>
@@ -732,35 +767,6 @@ VA - The Best Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8FB33BF7266D84E59C71022F47965061171D3DEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694921   (120134) от 30.01.2024
-
-VA - Dramatic Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Katya Kramer-Lapin - Piano Sonata No. 14 in C-Sharp Minor, Op. 27 No. 2 Moonlight Sonata I. Adagio sostenuto (5:43)
-02. Misha Fomin - 12 Etudes, Op. 10 No. 12 in C Minor Revolutionary (2:38)
-03. Misha Fomin - Piano Sonata No. 8 in C Minor, Op. 13 Pathétique I. Grave - Allegro di molto e con brio (9:07)
-04. Misha Fomin - Piano Sonata No. 8 in C Minor, Op. (   Читать дальше...   )Жанр: ClassicalПродолжительность: 03:05:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:072611F24BF56D68BF07D5480E931BC00E1CC560
 ```
 
 https://mybot314.ru/tekegram_catalog/

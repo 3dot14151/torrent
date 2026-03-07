@@ -1,3 +1,90 @@
+###  Публикация: 1394234   (764513) от 04.07.2020
+
+VA - Dream Dance Vol.89 (2020) 3CD  Box Set [MP3|320 Kbps] <Trance, Progressive, Dance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764513.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Dream Dance Alliance - Under The Moonlight (Edit) 2:55
+02. Armin Van Buuren & Brennan Heart feat. Andreas Moe - All On Me 2:59
+03. Martin Garrix feat. John Martin - Higher Ground 3:27(   Читать дальше...   )Жанр: Trance, Progressive, DanceПродолжительность: 03:40:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7F836EC1FE1FE64035C6512182A1D0D450687BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126785   (764473) от 19.04.2017
+
+Physical Dreams - Dreams Trance (2017) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764473.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Surrender  10:13
+02.  Feel  9:26
+03.  Baroque V  8:49
+04.  Back Home  8:49(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:31:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7625795EF7C2A95C12CA0A6CE26F92B00449B012
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214686   (764143) от 22.03.2018
+
+VA - Infrasonic Winter Selection (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764143.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Evaa Pearl - Westfold (Original Mix)
+02. Sector7 - Cyclone (Extended Mix)
+03. Make One - Reborn (Extended Mix)
+04. WeToo - Karma (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:13:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE2C2D3D63F48D8586BDA1A70A296AE3895F9EE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1214666   (764074) от 22.03.2018
 
 VA - FG Top 10: March (2018) [MP3|320 Kbps] <Trance, Progressive Trance>
@@ -658,93 +745,6 @@ VA - Suanda Music Radio Top 15 (April 2018) [MP3|320 Kbps] <Trance, Progressive>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69C217F905C8B9C2D416F26CD3AA9C2B51225B06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217470   (743481) от 04.04.2018
-
-VA - United Colors Of Trance Vol.11 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Earth Inc - Strong
-02. Vol Deeman - Fantasy
-03. Daniel Wanrooy & Marc Simz - Komaru
-04. Ryoji Takahashi & EpicFail feat. Amy K - Moments(   Читать дальше...   )Жанр: TranceПродолжительность: 02:42:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD47B86B589DBDF9FAE9A395DC5B471D2460CAA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217669   (742404) от 05.04.2018
-
-VA - Voice Of Suanda Vol.6 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742404.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maria Milewska - Crystalized (Original Mix)
-02. Dennis Graft feat. Maria Milewska - Until (Extended Mix)
-03. Eranga feat. Maria Milewska - Up To You (Original Mix)
-04. NoMosk feat. Maria Milewska - Black Light (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:50:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D80D9AF5848CF1DAC1C97139C57A698F17CBD59B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396934   (741341) от 19.07.2020
-
-VA - Black Hole Trance Music 07-20 (2020) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zara Taylor & Martin Graff - Falling (Extended Mix) 06:31
-02. Orkidea - That Feeling (Extended Mix) 07:13
-03. Craig Connelly & Siskin - All For Love (Extended Mix) 07:45
-04. Gordey Tsukanov - The Clutch (Extended Mix) 07:20(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:50:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:821EBC5652E2DC19DB9D0482DD6A80D79CCE942F
 ```
 
 https://mybot314.ru/tekegram_catalog/

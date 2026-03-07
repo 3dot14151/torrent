@@ -1,3 +1,88 @@
+###  Публикация: 547677   (471962) от 16.09.2012
+
+Jelena Karleusa feat. Nesh - SO (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_471962.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:04:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3786F13CC68F6FCE303C8A7D757B385235A7017F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 386346   (471949) от 11.09.2011
+
+Deadmau5 - Live @ Earl's Court (2011) [Progressive House / Minimal Trance / Techno] DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_471949.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выступление Deadmau5 18 декабря 2010 года в Лондоне, Earl's Court, собравшее 19 000 фанатов мауса и любителей электронной музыки. Грандиозная атмосфера, яркие спецэффекты, треки из последнего альбома мауса "4x4=12", выступление с LED mau5head и mau5cube, а также использование сенсорного микшера "Holodesk".01. Deadmau5 - Limit break
+02. Some Chords
+03. The Reward Is Cheese (feat. Jelo)
+04. Bad Selection(   Читать дальше...   )Производство: Ultra Records (США)Жанр: House, Trance, Progressive, Electro, DubstepПродолжительность: 01:57:35
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 546008   (471732) от 16.09.2012
+
+Scorpions - Life In Wacken (2012) DVDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_471732.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wacken Open Air – крупнейший в мире летний фестиваль тяжелой музыки, проходящий под открытым небом. Это грандиозное трехдневное событие проходит ежегодно в первые выходные августа в местечке Вакен (Германия, район Гамбурга).
+Вы сможете увидеть полное выступление, прощальное выступление группы «Scorpions», одной из 60 групп выступавших на heavy-metal фестивале Wacken (   Читать дальше...   )01. Make It Real
+02. Is There Anybody There?
+03. The Zoo
+* Interview(   Читать дальше...   )Жанр: Концерт, RockСубтитры: ВшитыПродолжительность: 01:29:04
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1160771   (471675) от 26.08.2017
 
 Graham Bonnet Band - Live...Here Comes the Night (2017) Blu-ray [H.264/1080i]
@@ -635,91 +720,6 @@ Eminem выступил в Madison Square Garden, в Нью-Йорке 8 авг�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A9CC26054B1E02746EB5FBD439EEAE87239ADD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058711   (465880) от 02.10.2016
-
-Blind Guardian (2016) HDTVRip [H.264/720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465880.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выступление Blind Guardian на рок-фестивале  "Rock Hard Festival" в мае 2016!Производство: Германия / WDR ChannelЖанр: МузыкаПродолжительность: 01:45:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0E680D5E3EEDABAAD8CDE7C958D3EC48C067DC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 703041   (465825) от 23.09.2013
-
-Beat Club - Progressive Times - Vol 6. 1971-72 (2009) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465825.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lucifer's Friend - Ride The Sky
-02. Warhorse - Ritual
-03. Frumpy - Take Care Of Illusion
-04. Fleetwood Mac - Dragonfly(   Читать дальше...   )Жанр: Музыка, RockПродолжительность: 01:42:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:452DD195556A2771DC78517003453EE898A801CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161520   (465360) от 29.08.2017
-
-Dirkschneider - Live - Back To The Roots - Accepted! (2017) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465360.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концертный проект DIRKSCHNEIDER появился на свет в начале 2016 года. Это группа Удо Диркшнайдера, но в отличие от коллектива U.D.O., под брэндом DIRKSCHNEIDER музыканты исполняют классику ACCEPT. Осенью прошлого года коллектив выпустил концертный аудио альбом «Live – Back To The Roots».
-Релиз от1. Intro
-2. Starlight
-3. Living For Tonite
-4. Flash Rockin' Man(   Читать дальше...   )Производство: AFM RecordsЖанр: Rock, Hard Rock, Heavy MetalПродолжительность: 02:16:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7825D2D74C59B99740A251DDD3488AE2DCCB867C
 ```
 
 https://mybot314.ru/tekegram_catalog/

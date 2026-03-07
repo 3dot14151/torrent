@@ -1,3 +1,32 @@
+###  Публикация: 1103137   (887626) от 11.02.2017
+
+Budgie - The Best of Budgie (1997) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_887626.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Breadfan
+2. In The Grip Of A Tyrefitter's Hand
+3. I Ain't No Mountain
+4. In For The Kill(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:09:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E55FF0CCCDA21390E9C807D95912DA8E57AE2369
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1103698   (885993) от 12.02.2017
 
 Axia - Axia (1986) Reissue, 1986, MTM Music [MP3|320 Kbps] <Hard Rock>
@@ -726,35 +755,6 @@ Gus G. - Quantum Leap (2021) [MP3|320 Kbps] <Hard Rock, Heavy Metal, Guitar Inst
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:403B67FB32EDD31B212EDAA4A6FF527427D60C1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113168   (839648) от 10.03.2017
-
-Deep Purple - All I Got Is You (2017) EP [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839648.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All I Got Is You
-02. Simple Folk
-03. Above and Beyond
-04. Time for Bedlam (First Take)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:21:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2680B7EA45F8C72B61CA01ACF20473BBC6FF7C3B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,116 @@
+###  Публикация: 1089021   (953774) от 02.01.2017
+
+VA - Bedrock 18 - Signals (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_953774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. John Digweed - Fanfare (Darren Emerson Reprise) 04:15
+02. Quivver - Mumbo Jumbo (Reprise) 05:00
+03. Sebastian Markiewicz - Sensation 09:45
+04. Collective Machine - Hold You in the Moment 07:34(   Читать дальше...   )Жанр: Deep House, Tech House, MinimalПродолжительность: 05:27:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62D12A2744E9E2E94E5A74860E9FCB539B4A678A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362413   (949612) от 23.02.2020
+
+Zimmer - Zimmer (2019) [FLAC|Lossless|WEB-DL|tracks] <EDM, Deep House, Nu Disco, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_949612.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Physique (4:21)
+ 02. Wildflowers (3:38)
+ 03. Mayans (3:38)
+ 04. Techno Disco (4:34)(   Читать дальше...   )Жанр: EDM, Deep House, Nu Disco, DowntempoПродолжительность: 00:50:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D63B16F7EECC6AF613A93D496B26825139C6596
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362518   (949547) от 23.02.2020
+
+VA - Anjunadeep 11 (Mixed by Jody Wisternoff & James Grant) (2020) [FLAC|Lossless|tracks + .cue] <Electronic, Progressive House, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_949547.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hosini & Jones Meadow – 8 Hours, Still No Rain (3:14)
+02. CRi – Never Really Get There (feat. Jesse MacCormack) (5:00)
+03. HVMP – Flora (4:31)
+04. Jerro – Tunnel Vision (feat. Kauf) (3:00)(   Читать дальше...   )Производство: Anjunadeep – ANJCD080Жанр: Electronic, Progressive House, Deep HouseПродолжительность: 02:39:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:191DA17744B8197B76EAD61CBEB75907A1291FD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 623753   (949379) от 02.03.2013
+
+Mano Le Tough - Changing Days (2013) [FLAC|Lossless]<Tech House, Deep House, Minimal Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_949379.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Tech House, Deep House, Minimal TechnoПродолжительность: 00:57:32
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 858856   (947327) от 12.01.2015
 
 VA - Krake #002 (2014) [FLAC|Lossless|WEB-DL]<Techno, Ambient, IDM, Abstract, Drone>
@@ -629,122 +742,6 @@ Cristian R - New Frequency (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2A288976A5226A6A1C797DEA671CAF952130BAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364890   (933816) от 05.03.2020
-
-Nathan Micay - Blue Spring (2019) LuckyMe [FLAC|Lossless|WEB-DL|tracks] <Experimental, Breaks, Techno, Ambient, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Romance Dawn For The Cyber World (05:00)
- 02. Join Me Or Die. Can You Do Any Less (05:09)
- 03. Ecstacy Is On Maple Mountain (05:39)
- 04. He Has The Key (05:15)(   Читать дальше...   )Жанр: Experimental, Breaks, Techno, Ambient, TranceПродолжительность: 00:53:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E30195178D218057310A7E316B213AA915468C0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985926   (932572) от 13.02.2016
-
-Blank & Jones and Mark Reeder  ‎ - Reordered (2009) [FLAC|Lossless|tracks + .cue] <House, Electro, Synth-pop>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932572.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Forest (Schwarzwald Mix) (6:48)
-02. Heart Of Wax (Heart Of Crystal Mix) (6:27)
-03. Loneliness (Alone In The Dark Mix) (4:55)
-04. Consequences (Resultant Mix) (4:27)(   Читать дальше...   )Жанр: House, Electro, Synth-popПродолжительность: 01:18:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:888809ADADCA8BCEBFFDE85666471594376F9146
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094132   (930856) от 17.01.2017
-
-Sven Laux - Alliteration (2017) Archipel [FLAC|Lossless|WEB-DL|tracks] <Ambient, Techno, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930856.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Transmission I (09:05)
-02. Parachesis (08:02)
-03. Antimetabole (07:56)
-04. Transmission II (11:44)(   Читать дальше...   )Жанр: Ambient, Techno, MinimalПродолжительность: 01:15:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9929D99EF1F71F2BB3FAAC6CBF25CE61E309A79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986790   (929261) от 15.02.2016
-
-VA - Clubbers Guide Summer 2007 (2007) [FLAC|Lossless|tracks + .cue] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929261.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kim Sozzi - Break Up (2-4 Grooves remix) (4:03)
-02. SJB feat. Jane Wiedlin - Rush Hour (Fonzerelli Hot & Sexy remix) (3:30)
-03. Dada feat. Sandy Rivera & Trix - Lollipop (Jerry Ropero remix) (4:45)
-04. Haji & Emanuel feat. Robert Owens - If (3:45)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:17:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CF1DFB379C19C771B4E354729235F6491F04819
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 513185   (1004715) от 31.07.2021
+
+VA - 30 The Final Countdown covers (2009) [MP3|128-320 кб/с]<Rock, Metal, Ska, Reggy>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004715.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Axel Boys Quartet - The Final Countdown
+02. Norther - The Final Countdown
+03. Skam - The Final Countdown (original mix)
+04. Boney Nem - The Final Countdown(   Читать дальше...   )Жанр: Rock, Metal, Ska, ReggyПродолжительность: 01:53:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACD082E143ABB2D261E0DDC60066E66DD6A041E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 524409   (1004698) от 31.07.2021
 
 VA - Тараканы! covers (2010) [MP3|192 kbps] <Punk>
@@ -713,35 +742,6 @@ VA - Рок 2019 Главные Хиты (2020) [MP3|320 Kbps] <Rock, Alternativ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C9A0A0D9841ACB1B139BE6C31B3D76C01716DEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356548   (976676) от 01.02.2020
-
-VA - Amphetanarchy: Hard Rock Cafe (2020) [MP3|320 Kbps] <Hard Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976676.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mitch Rivers - Reconsider Me
-002. The Quill - Hammerhead
-003. Dead Express - Nightmare On High Heels
-004. Louden Swain - Mrs. Vance(   Читать дальше...   )Жанр: Hard Rock, AlternativeПродолжительность: 09:49:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3A4FAA3C23BD988DD9F56D9059CE4A0E5682146
 ```
 
 https://mybot314.ru/tekegram_catalog/

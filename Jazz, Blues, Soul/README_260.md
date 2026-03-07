@@ -1,3 +1,235 @@
+###  Публикация: 1157513   (525221) от 12.08.2017
+
+Albert King - The Tomato Years (1994) [FLAC|Lossless|tracks + .cue] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_525221.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Cold Women With Warm Hearts
+2. Truckload Of Lovin'
+3. Cadillac Assembly Line
+4. Angel Of Mercy(   Читать дальше...   )Жанр: BluesПродолжительность: 01:12:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B41E862F1A882E1B9EDA83E873F0DBAA9C8C83F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1157822   (524780) от 13.08.2017
+
+Paul Bley - Early Trios (1953, 1954) 2005, Fresh Sound [APE|Lossless|image + .cue] <Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_524780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Like Someone In Love [04:09]
+02. Opus 1 [04:14]
+03. Walkin' [04:33]
+04. Spontaneous Combustion [04:20](   Читать дальше...   )Жанр: Bop, Piano JazzПродолжительность: 01:08:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A9A54166EEC507D45C55F898F484CB15DB9FEFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1157823   (524778) от 13.08.2017
+
+Bert Joris Quartet - Magone (2007) Dreyfus [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_524778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr. Dodo [06:20]
+02. Magone [06:09]
+03. Triple [03:47]
+04. Anna [08:15](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:06:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A6508D5754750123A6570285DAEBE528CF613E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1157813   (524773) от 13.08.2017
+
+Ronnie Magri And His New Orleans Jazz Band - Shim Sham Revue (2001) Jubilee Music [FLAC|Lossless|tracks + .cue] <Dixieland, New Orleans Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_524773.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burlecue [02:58]
+02. Moonglow [03:03]
+03. Black & Tan Fantasy [03:06]
+04. Easy Rockin' [02:21](   Читать дальше...   )Жанр: Dixieland, New Orleans JazzПродолжительность: 00:47:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E639F60356EF7EE3F0E9A2FF88AEEFAB88A28D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1313328   (524512) от 08.07.2019
+
+Heather Newman - Rise From The Flames (2019) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_524512.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Coming For You
+02. Zakary
+03. She Sure Looks A Lot Like Me
+04. You MeanTo Tell Me(   Читать дальше...   )Жанр: BluesПродолжительность: 00:54:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EC87DC90414DB21D2613E44741A40A1C211C905
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1240534   (524473) от 12.08.2018
+
+Kool&Klean - Best of so Far (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_524473.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Far Away
+02. Sail
+03. I Can Only Imagine
+04. Feel the Light(   Читать дальше...   )Жанр: Jazz, Smooth JazzПродолжительность: 01:12:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EAFE3CAA4FE73EA6AEC86FADBB14889BD271645
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1559425   (524417) от 25.06.2022
+
+Brian Lynch Big Band - The Omni-American Book Club: My Journey Through Literature In Music (2019) 2CD, Hollistic [FLAC|Lossless|tracks + .cue] <Big Band, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_524417.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Crucible for Crisis [12:08]
+02. The Struggle Is in Your Name [8:59]
+03. Affective Affinities [8:05](   Читать дальше...   )Жанр: Big Band, Post-BopПродолжительность: 01:56:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4878F9015F8FC0579792FF32730A4DFBA1DF2B07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1053930   (524371) от 18.09.2016
+
+Oberg - Blues As Blues Can Get (2009) [APE|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_524371.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blues As Blues Can Get   [05:36]
+02. Wishing Well   [04:47]
+03. What You Got   [04:30]
+04. Head Up High   [06:37](   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:49:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECD3A32DBEF93BD25986E38EE37D96ADDE72E873
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1053808   (524353) от 18.09.2016
 
 Neal Black & Larry Garner - Guilty Saints (2016) [FLAC|Lossless|image + .cue] <Modern Electric Blues>
@@ -514,238 +746,6 @@ Concerto for Jazz Band & Symphony Orchestra - Liebermann, Stravinsky, Ellington 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB67BB8E4E7FCAFDBCE00424354EBA77594BB1D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928026   (523336) от 15.08.2015
-
-The Stella Vees - Don't Tell Me Your Name (2015) [MP3|320 кб/с]<Chicago & West Coast Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523336.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shake It (02:58)
-02. Just For Another Day (04:03)
-03. Dizzy Too (03:37)
-04. Don't Tell Me Your Name (04:14)(   Читать дальше...   )Жанр: Chicago & West Coast BluesПродолжительность: 00:39:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50015D1BE9E61846ADE14ADA308B41BD10C59C0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928012   (523331) от 15.08.2015
-
-Aysha - Take Me Higher (2015) [MP3|320 кб/с]<Smooth Jazz, R&B>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523331.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Up So High (04:02)
-02. Take Me Higher (04:14)
-03. Send For Me (05:51)
-04. You're the Only One (03:07)(   Читать дальше...   )Жанр: Smooth Jazz, R&BПродолжительность: 00:42:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77C836B92205FC592ED2EDC3A591BB75874F52B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 371837   (523060) от 05.08.2011
-
-Jools Holland - Finding The Keys. The Best Of (2011) [MP3|320 kbps]<Blues, Jazz, Swing, R&B>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523060.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Message To My Son - With Solomon Burke & Eric Clapton (04:34)
-02. 200Lbs Of Heavenly Joy - With Tom Jones 		  (04:09)
-03. The Informer  (0Ash Howes Mix) - With Ruby Turner 	  (03:32)
-04. I've Got News For You - With Michael McDonald 	  (04:35)(   Читать дальше...   )Жанр: Blues, Jazz, Swing, R&BПродолжительность: 01:15:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF55676FD4EEB600D971B07EE7C2B27445A509AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313688   (523033) от 10.07.2019
-
-Errol Rackipov Group - Distant Dreams (2017) OA2 Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523033.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Odd Times [7:00]
-02. The Dream of the Little Gypsy [6:13]
-03. Shopeto in NY [5:45]
-04. Attitude Problem [5:00](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:46:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33423DAED0D589EB444B4F36ADBA7F5C8B10F623
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313690   (523031) от 10.07.2019
-
-Geof Bradfield - African Flowers (2010) Origin Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, African Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523031.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Butare [5:23]
-02. Piano Solo [2:26]
-03. The Children's Room [5:49]
-04. Lubumbashi [7:18](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, African JazzПродолжительность: 00:59:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00EF4ECF3A8751E9797C070178CBFF4BB34F0AC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 371931   (522938) от 05.08.2011
-
-Paul Anka - Rock Swings (2005) [MP3|320 kbps]<Swing>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eye Of The Tiger 	     (04:05)
-02. Jump 		     (03:38)
-03. Everybody Hurts 	     (04:13)
-04. Wonderwall 		     (03:38)(   Читать дальше...   )Жанр: SwingПродолжительность: 00:58:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F797B6F478FA7ABF279F96CD5176D9DB036204D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559791   (522773) от 27.06.2022
-
-Digging Roots - Zhawenim (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522773.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. She Calls Me (3:55)
-02. Tall Grass (3:54)
-03. The Healer (3:53)
-04. SKODEN (3:34)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F24B127CDB30052061F32D213BE45FB054F7C7C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559881   (522697) от 27.06.2022
-
-Avishai Cohen - Big Vicious (2020) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522697.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Honey Fountain (Big Vicious-Rejoicer) - 4:34
-02. Hidden Chamber (Cohen) - 4:43
-03. King Kutner (Cohen) - 4:10
-04. Moonlight Sonata (Beethoven) - 5:30(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:50:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7321B1B6DFF30071E275BEE14E13DD88F7BA9E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

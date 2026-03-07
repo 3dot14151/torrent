@@ -1,3 +1,32 @@
+###  Публикация: 1235298   (560521) от 11.07.2018
+
+Masfel - Angyaltojas (2000) [FLAC|Lossless|tracks + .cue] <Experimental rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_560521.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Szivlapat / Heart Shovel (00:06:43)
+2. Pitbull Terrier (00:07:54)
+3. Angyaltojas / Angel's Egg (00:10:25)
+4. Partycsoka / Partichoke (00:07:44)(   Читать дальше...   )Жанр: Experimental rockПродолжительность: 00:51:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3745006CAED082ABC6B6A2A821D2C98D2FDB3AFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1235391   (560469) от 11.07.2018
 
 VA - Hospital Hungary (2005) Приложение #083 к журналу Stereo & Video S&V#03'2005 [FLAC|Lossless|image + .cue] <Experimental rock, Acid Jazz>
@@ -716,35 +745,6 @@ Bill Callahan - Shepherd in a Sheepskin Vest (2019) [FLAC|Lossless|tracks + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC2ADE6BB0872BC5BC21029E7BC365B343FE0D03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309598   (550436) от 20.06.2019
-
-Two Door Cinema Club - False Alarm (2019) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Once (3:21)
-02. Talk (4:25)
-03. Satisfaction Guaranteed (feat. Mokoomba) (3:50)
-04. So Many People (4:43)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:40:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:789ECD8D33B1F29A9D8863C29339D6DD42F031C2
 ```
 
 https://mybot314.ru/tekegram_catalog/

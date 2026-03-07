@@ -1,3 +1,235 @@
+###  Публикация: 1695348   (120472) от 28.01.2024
+
+The Other Broken Ones - Something Wicked (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120472.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rear Naked Choke (4:21)
+02. Something Wicked (3:53)
+03. Hollywood (4:02)
+04. Grind (4:17)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:35:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DF93A9D4254FAC1BAA96C76696738BD4887268C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695331   (120467) от 28.01.2024
+
+Alice Babs - How Do You Do, Mr. Swing (100th Birthday - Recordings of 1939 - 1941) (2024) [MP3|320 Kbps] <Jazz, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120467.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Joddlarflickan [00:03:15]
+02 - Jag Har En Liten Radiola [00:02:40]
+03 - Ett Glatt Humör [00:02:26]
+04 - Vårat Gäng [00:03:16](   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 00:39:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F363397F49B2C733B2DD9926A88199BB6B7F6DFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695351   (120451) от 28.01.2024
+
+Kalle Reger - Smooth Groove 1 (Smooth Groove 1) (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120451.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hometown (Smooth Groove 1)
+02. Smooth Groove Remember (Smooth Groove 1)
+03. Ishow You Love (Smooth Groove 1)
+04. Tears On Your Cheek (Smooth Groove 1)(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 00:39:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E74EF663DC82B5DAC5FB7D80D430FCCEFCDC401
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695332   (120446) от 28.01.2024
+
+Streetwize - Lift Me Up (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120446.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leave The Door Open (4:01)
+02. About Damn Time (4:10)
+03. Lift Me Up (4:13)
+04. Kiss Me There (3:19)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:41:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3EAE9F023DB22BFF75FA70804173303174B080A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695132   (120442) от 28.01.2024
+
+Caro Emerald & The Grandmono Orchestra - Live In Concert (At The Heineken Music Hall) (2011) [FLAC|Lossless|WEB-DL|tracks] <Soul-Jazz, Big Band, Bossa Nova, Swing, Ballad>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120442.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro Greg Shapiro (Live) [00:01:31]
+02. Zoot Suite Theme (Live) [00:01:58]
+03. Absolutely Me (Live) [00:01:40]
+04. Just One Dance (Live) [00:04:22](   Читать дальше...   )Жанр: Soul-Jazz, Big Band, Bossa Nova, Swing, BalladПродолжительность: 01:13:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1191274533FA9C40357D756DC3E33EBA2D76CE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695335   (120433) от 28.01.2024
+
+Brad "Guitar" Wilson - Buckle Up (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120433.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lucille (3:23)
+02. Can't Always Get What You Want (4:50)
+03. Hoodoo Party (2:40)
+04. Hound Dog (4:16)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:55:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B603FBEAE70DF097D12FDC19F858A496A71BAC13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695347   (120432) от 28.01.2024
+
+Richard Lindgren - Grand Jubilee (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120432.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Big Fat Nothing (6:08)
+02. Empire In Ruins (5:22)
+03. Argentinian Shoes (4:03)
+04. Lament From A Reservoir (4:51)(   Читать дальше...   )Жанр: Blues, RockПродолжительность: 00:53:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:152DB4E5C7ADEA78315986429E8B34235B9A8EA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695344   (120419) от 28.01.2024
+
+Rene Huard Project - Blues Calling (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hard Times (2:58)
+02. Child's Play (4:15)
+03. Blues Calling (4:15)
+04. Demolition Man (3:55)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A58436A237F9D3A4DF4494EFE184C6226172B8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1695361   (120416) от 28.01.2024
 
 Hanne Boel - Norwegian Recordings (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Pop>
@@ -513,238 +745,6 @@ Andy Lindquist - Balderdash Rose (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B680F9A59252A847D126AD510BC4405839C5F6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695715   (119937) от 31.01.2024
-
-The Christopher Dean Band - Need a Friend (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119937.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What Have I Done Wrong (5:22)
-02. Need a Friend (3:32)
-03. It Takes Time (3:41)
-04. Out of Bad Luck (4:21)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:55:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A817E8282D517CC8D02C2E978FE8CCCF8150A905
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695921   (119936) от 31.01.2024
-
-VA - Jazz Tunes Winter 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Clever Motion - Play This Chords (Original Mix) (3:26)
-02. Dave Belford - Everest (Original Mix) (3:26)
-03. Karim Azak - Give You Devotion (Original Mix) (3:27)
-04. David Alaba - Nu Moves (Original Mix) (3:28)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:56:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D4403AFE80769B223B1A33E542C3141185C42F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695719   (119934) от 31.01.2024
-
-Toshiyuki Miyama & New Herd - 90th Anniversary Concert (2012) 2CD, Little Beat [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119934.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The 'Guys' from Ipanema [5:04]
-02. Donna Lee [6:22]
-03. Pithecanthropus Erectus [8:38]
-04. Children's Song (Nen Neko Bocchan/On Seisei) [3:31](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 01:47:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B49F0F7A52AA85B32F4CBC0EC413E4AE399A754D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695916   (119930) от 31.01.2024
-
-VA - Easy Listening Soothing Jazz After Dark (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119930.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. eJazz Artistry - I Can't Stop Loving You (4:22)
-02. Kool&Klean - Begin Again (4:34)
-03. Chillaxing Jazz Kollektion - Beautiful Day (4:11)
-04. Chillaxing Jazz Kollektion - Soulful (4:28)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 02:11:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4A0E41FEB0210BCD79D402A3EBF9DC39757153E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695920   (119929) от 31.01.2024
-
-VA - Jazz Lounge Relaxation Intimate Moments Instrumentals (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kool&Klean - My World (5:25)
-02. Konstantin Klashtorni - Together Again (4:07)
-03. Chillaxing Jazz Kollektion - Home (5:42)
-04. Chillaxonic - Ethereal (5:09)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 02:10:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75E0F50BCAD7C70C23982AB22537C510A1C272AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695918   (119923) от 31.01.2024
-
-VA - Fusion Jazz Funk Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock, Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119923.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black & Brown - P-Lainz (6:23)
-02. Elegant People - Stand Up And Dance (5:03)
-03. The Soultrend Orchestra - 3 Of a Kind (3:27)
-04. Bright Magus - Jungle Corner (5:24)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz Rock, FunkПродолжительность: 01:46:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F0558BA2FE67F9E018C39AA06B2D2039980FC70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271422   (119841) от 01.02.2024
-
-Kenny Neal - 16 Albums (1988 - 2016) [FLAC|Lossless|image + .cue|tracks + .cue] <Modern Electric, Louisiana Blues, Swamp Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119841.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kenny Neal - блюзмен второго поколения c южной Луизианы, старший сын знаменитого блюзмена из Батон Руж (Луизиана) Raful Neal. Он родился в музыкальной семье, а знаменитый Slim Harpo дал свою гармонику трехлетнему Kenny, чтобы упокоить его. С тех пор Kenny освоил не только гармонику, но и гитару, хотя начинал он еще подростком в качестве бас-гитариста в группе отца. (   Читать дальше...   )Список альбомов:
-1988 - Big News From Baton Rouge! (Alligator Records)
-1989 - Devil Child (Alligator Records)
-1991 - Walking On Fire (Alligator Records)Жанр: Modern Electric, Louisiana Blues, Swamp BluesПродолжительность: 13:13:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C70A9748D773B3BADB4AA68C04C81E4103644FD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696130   (119782) от 01.02.2024
-
-Club Des Belugas - Remixes (2024) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Broken Beat>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119782.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ai Mi Morena (feat. Mo' Horizons)
-02. Peanut Vendor (feat. Anita O'Day)
-03. Hazy (feat. Queen Mab)
-04. The Secret (feat. Mister T, Jean Honeymoon)(   Читать дальше...   )Жанр: Nu Jazz, Broken BeatПродолжительность: 01:09:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6144BB8B22C9F3A57AD04121DF40BBB4AD67A245
 ```
 
 https://mybot314.ru/tekegram_catalog/

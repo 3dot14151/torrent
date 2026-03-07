@@ -1,3 +1,90 @@
+###  Публикация: 1607659   (1043944) от 27.01.2023
+
+Twiztid - Glyph (2023) [FLAC|Lossless|WEB-DL|tracks] <Hardcore Rap, Horrorcore Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043944.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Keepin 1 (3:32)
+02. Stab (3:05)
+03. Fallin In <3 With Some1 Who Hates You (2:49)
+04. 360 (feat. Blaze Ya Dead Homie & ABK) (4:15)(   Читать дальше...   )Жанр: Hardcore Rap, Horrorcore Rap, Hip-HopПродолжительность: 00:34:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A13C483EDE6BAA39FA6BD65EDE1E9E44614DEB25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607937   (1043837) от 28.01.2023
+
+Murovei - WINSK I-II (2023) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043837.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Олимп (Intro) [00:01:53]
+02. Выговор [00:02:13]
+03. Звездочки [00:02:36]
+04. Помпеи [00:02:16](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 2 CD, 00:49:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A6D4F29BEBAE316C7226D6E6779EB101265D547
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607711   (1043815) от 28.01.2023
+
+Sam Smith - Gloria (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, R&B, Soul>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>RnB, Reggae (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Me More [00:03:23]
+02. No God [00:03:17]
+03. Hurting Interlude [00:00:18]
+04. Lose You [00:03:10](   Читать дальше...   )Жанр: Pop, R&B, SoulПродолжительность: 00:33:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC63C866ED0FA08D60D4EF64DD63D0C8BBB569AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1608019   (1043789) от 28.01.2023
 
 Каспийский груз - Осторожно Окрашено (2023) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
@@ -653,90 +740,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35C31F552DB1FE5F4B4FD5F13CA35DCF04AFC752
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445547   (1033516) от 06.02.2021
-
-Звонкий - После пяти (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. После пяти (03:15)Жанр: Pop, Hip-HopПродолжительность: 00:03:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9D5BAA6B7581D9E10D94F2A2C3B24D5CEF31F4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444503   (1033280) от 07.02.2021
-
-Onyx - 100 MAD (2019) [FLAC 2.0|24/48|tracks|WEB-DL] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop, RnB, Reggae (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033280.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 100 Mad Movement Intro (00:43)
-02. Fucc Dis Rap Shit (ft. Planet Asia & Tha God Fahim) (03:32)
-03. Drug Dealers (ft. Jay Nice, Makem Pay & Larceny) (02:41)
-04. Goon Squad (ft. Termanology) (02:51)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:33:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7935191B882E7FDC33A76957F6E9D4228029D3FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446605   (1032748) от 09.02.2021
-
-Ka - Behind The Scenes (2020) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Abstract Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032748.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (5:48)
-02. Amsterdam (2:51)
-03. RS6 (3:19)
-04. Donker & Regen (2:51)(   Читать дальше...   )Производство: Hella CashЖанр: Hip-Hop, Abstract Hip-HopПродолжительность: 00:43:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E148F6C0E24BECA56A4CFD5CD7FD28EE8599B55
 ```
 
 https://mybot314.ru/tekegram_catalog/

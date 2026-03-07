@@ -1,3 +1,29 @@
+###  Публикация: 551838   (450278) от 25.09.2012
+
+Metropolitan Museum Of Art - European Paintings p.2 [Графика]
+
+>>Графика, Арт, Разное
+>>Классическое искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_450278.jpg" />
+</div>
+
+
+###  Подробнее
+
+Metropolitan Museum Of Art - European Paintings p.1
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E4AB2938118392CDFB8F48B0EC7DB9E898E51EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 943238   (449287) от 03.10.2015
 
 Обои - В траве сидел кусако, похожий на собако. 2560x1440 - 100 шт [JPG]
@@ -654,32 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB763A68343F61F35FC1ADB32CDDEFE79F94595B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248681   (442387) от 20.09.2018
-
-Обои - Сборник разнообразных обоев 2560x1600 #453 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442387.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка картинок на различную тематику.Формат: JPGРазрешение файлов: 2560x1600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BACBAE4EF408C1325BEC3F5237168984B63C85CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

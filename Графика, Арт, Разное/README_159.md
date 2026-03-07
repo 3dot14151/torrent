@@ -1,3 +1,30 @@
+###  Публикация: 1815378   (5226) от 30.08.2025
+
+Картинки - Wallpapers Mix №1959 [JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_5226.jpg" />
+</div>
+
+
+###  Подробнее
+
+Высококачественные обои в новом сборнике на ваш рабочий стол.
+Количество 510.Формат: JPGРазрешение файлов: 1920x1080 - 7952x5304
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A400385A9A8CA8FE78495B96948959B1FC474AD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1815481   (5026) от 31.08.2025
 
 Картинки - Wallpapers Mix №1961 [JPG]
@@ -656,32 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E743543AE1658F3375B04C96B6F2D062706F35E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808229   (2080) от 19.09.2025
-
-Иконки - UI8 - Zappicon - Clean & Modern UI Icons [PNG, FIGMA, SVG, ICONJAR]
-
->>Графика, Арт, Разное
->>Иконки и аватарки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2080.jpg" />
-</div>
-
-
-###  Подробнее
-
-Zappicon — это продуманная и современная библиотека иконок, созданная с заботой о дизайнерах, разработчиках и авторах.Формат: PNG, FIGMA, SVG, ICONJAR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1782B5F636F9039AAEEEFFD0ECF0D1B6F5D5838C
 ```
 
 https://mybot314.ru/tekegram_catalog/

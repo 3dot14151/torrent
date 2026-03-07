@@ -1,3 +1,55 @@
+###  Публикация: 1321268   (460674) от 23.08.2019
+
+Проекты - VideoHive - Storm Particles Logo Intro - 24366091 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_460674.jpg" />
+</div>
+
+
+###  Подробнее
+
+Storm Particles Logo - это проект AE, в котором логотип раскрывается через "перезаряд статического электричества", приводящий к огромному взрыву... Дерзайте!Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD9AC25AD8D57F42E6012740F1354BA7843CBFC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1059728   (459206) от 05.10.2016
+
+Проекты - VideoHive - Electric Shockwave Logo - 17517301 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_459206.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для мощной, горячей и эффектной демонстрации вашего логотипа.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A38979D3193E55A27508EAF2A62D3C89DC61E8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 941780   (457633) от 29.09.2015
 
 Проекты - VideoHive - Fast Slide [AEP]
@@ -620,58 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14F9DADBD5CEDDA6CB6BBF1F55DDBC226EC7E4E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061901   (443634) от 12.10.2016
-
-Проекты - VideoHive - Energy Logo - 17778642 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443634.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для демонстрации Вашего логотипа.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:208F0575A761F6247B4CCCB7D1B39D6A543FF00B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062038   (443629) от 12.10.2016
-
-Проекты - VideoHive - Epic Light Reveal - 17676713 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443629.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для кинематографической демонстрации логотипа или слогана.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDA174A869A4118B5FA4FD8FEDD90D3C2EDA6543
 ```
 
 https://mybot314.ru/tekegram_catalog/

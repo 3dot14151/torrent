@@ -1,3 +1,32 @@
+###  Публикация: 1031371   (668646) от 03.07.2016
+
+VA - Sleep, Rest, Relax (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668646.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Radiance [00:10:20]
+02. Cloud Dancing [00:03:36]
+03. In a New Light [00:06:27]
+04. Sungrass [00:06:32](   Читать дальше...   )Жанр: New AgeПродолжительность: 01:06:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4217E1B9098877B0B02223A7B6FD5E4066CFD368
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031242   (668644) от 03.07.2016
 
 Midori - Soul Healing / The Best of Midori (2016) [MP3|320 Kbps] <New Age>
@@ -736,35 +765,6 @@ Diane Arkenstone & David Arkenstone - Avalon: Between Earth and Sky (2022) [FLAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:574002EB34F6C2BAC5A2428CC1CDF47A566F58DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138151   (664194) от 29.05.2017
-
-The Romantic Strings and Orchestra - Stardust Moods (1989) [MP3|320 Kbps] <Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664194.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Some Enchanted Evening (3:36)
-2. All The Things You Are (3:55)
-3. Tenderly (3:39)
-4. With A Song In My Heart (2:59)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:10:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:196DFF8DCC450A07A96E6450F9EA7C0E24191D6D
 ```
 
 https://mybot314.ru/tekegram_catalog/

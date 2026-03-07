@@ -1,3 +1,32 @@
+###  Публикация: 1446083   (1033051) от 08.02.2021
+
+Sacha Korn - Nokout (2009) [FLAC|Lossless|image + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033051.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lass Mich Gehn
+02. Nackt Und Kalt
+03. Wer Wir Waren
+04. Du & Ich(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:39:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EC569C7BDBE08E7A9D511541924124946FF7C12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1620287   (1032316) от 19.03.2023
 
 Bloodsucking Zombies From Outer Space - Geisterhaus [Morder Blues III] (2023) [FLAC|Lossless|WEB-DL|tracks] <Horrorbilly, Psychobilly, Punk Rock>
@@ -716,35 +745,6 @@ Guano Apes - Proud Like A God (1997) Reissue, 1998, Supersonic Records [FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:74220C8D8CF1DCF0BAC649441464828113332CC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460380   (1022590) от 05.04.2021
-
-Evanescence - The Bitter Truth (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Alternative Metal, Gothic Metal, Nu Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022590.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Artifact / The Turn
-02. Broken Pieces Shine
-03. The Game Is Over
-04. Yeah Right(   Читать дальше...   )Жанр: Alternative Metal, Gothic Metal, Nu MetalПродолжительность: 00:54:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:557B6B7EBF2D5543E95C7D1405CB263260578DF7
 ```
 
 https://mybot314.ru/tekegram_catalog/

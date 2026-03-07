@@ -1,3 +1,61 @@
+###  Публикация: 1033115   (640009) от 10.07.2016
+
+VA - Summer Running (2016) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_640009.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stereo Palma Feat. Craig David - Our Love (Club Mix)
+02. Sean Norvis & Lil Lee - Piece of Me
+03. Sky and Sand - Feeling Alive (Radio Love)
+04. Soundmietzen Feat. Egowelle - Meine Welt (Mabose Radio Edit)(   Читать дальше...   )Жанр: PopПродолжительность: 07:39:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:990FB7A5BDE5E93C7B6EADEB293CAEDAD8908EA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033326   (640007) от 10.07.2016
+
+VA - Summer Hits 2016 Vol.3 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_640007.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Fait - Lost (Short Mix)
+02. Ti-Mo - One Way Street (Radio Edit)
+03. Ray Knox - Reach Out (Rob Mayth Edit)
+04. Age Pee - Out of the Dark (Rob Mayth Remix)(   Читать дальше...   )Жанр: PopПродолжительность: 02:03:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8A558CFF158E6C8487C1E1C9CC6A7AF305A1271
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1228137   (639274) от 30.05.2018
 
 VA - MegaHits Sommer 2018 (2CD) (2018) [MP3|320 Kbps] <Pop, Dance>
@@ -705,70 +763,6 @@ VA - На Вершине Европейских Чартов 8 50/50 (2012) [MP3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:42844191768BC73FE507B063049B311AB46025FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908227   (633602) от 14.06.2015
-
-Serebro - Не надо больнее (2015) [MP3|320 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633602.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Не Надо Больнее
-03. Я Тебя Не Отдам
-04. #Угар(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:51:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFDA36B00622EA1EFA7B52C7835367B840ECF4F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 519920   (633587) от 08.07.2012
-
-VA - Лучшая 100ка: Вечеринка продолжается!!! (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633587.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Градусы - Не Надо Париться
-02. Натана - Тарантино
-03. Женя Вилль - Ты Для Меня
-04. Света - Супер Спортсмен (Dj Jump Radio Version)
-05. Любовь Фоменко - Знаешь Сам (Dance Version)
-06. Настя Задорожная - До Дна
-07. Любовь Фоменко - Линии Сердца
-08. Дима Билан - Honey
-09. Real O - Луна (Я В Белом Платьице)
-10. Маттиас - За тобой(   Читать дальше...   )Жанр: PopПродолжительность: 06:08:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFC3C8E7B56F34E3FEFC3C8372082AC809A17EEA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 957420   (327442) от 17.11.2015
+
+One Direction - Made In The A.M. (2015) Deluxe Edition [FLAC|Lossless|image + .cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_327442.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hey Angel
+02. Drag Me Down
+03. Perfect
+04. Infinity(   Читать дальше...   )Жанр: PopПродолжительность: 00:58:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2E2B8AADF5AB2BF1C64F9290A6BD5AB52376A48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 956989   (327276) от 17.11.2015
+
+VA - BRAVO The Hits 2015 (2015) [FLAC|Lossless|tracks|WEB-DL]<Top 40, Pop, Electronic, R&B, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_327276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Glasperlenspiel - Geiles Leben (Madizin Single Mix) (3:32)
+02. Louane - Avenir (Radio Edit) (3:03)
+03. Avicii - Broken Arrows (3:52)
+04. Sido feat. Andreas Bourani - Astronaut (3:59)(   Читать дальше...   )Жанр: Top 40, Pop Compilation, Pop, Rock, Electronic, Hip Hop, R&B, Europop, Indie Pop, Euro House, Electro, Synthpop, Pop Rap, Reggae Fusion, Pop Rock, Indie RockПродолжительность: 02:40:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E2CCEDF1BC1955D276D6088E9339D9EFA77D2F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1581509   (327130) от 05.10.2022
+
+Richard Marx - Songwriter (2022) [FLAC|Lossless|image + .cue] <Pop, Rock, Country...>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_327130.jpg" />
+</div>
+
+
+###  Подробнее
+
+Richard Marx. Одно только его имя вызывает в воображении необыкновенные мелодии и его песни, исполненные с сердечной искренностью и достоверностью. Отмеченный наградами певец, автор песен, музыкант и автор, он ворвался в поп- и рок-чарты, чтобы завоевать сердца каждого ребенка 80-х, и с тех пор продолжает творить чудеса. Так что на самом деле неудивительно, что его (   Читать дальше...   )01. Same Heartbreak Different Day (3:09)
+02. Only A Memory (3:02)
+03. Anything (2:38)
+04. Moscow Calling (4:53)(   Читать дальше...   )Жанр: Pop, Rock, Country...Продолжительность: 01:09:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:993B5BDD948ECB3C1D8A58A85AF6EB1A5489EB6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957549   (326705) от 18.11.2015
+
+Kylie Minogue - Kylie Christmas (2015) Deluxe Edition [FLAC|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's the Most Wonderful Time of the Year
+02. Santa Claus Is Coming to Town (feat. Frank Sinatra)
+03. Winter Wonderland
+04. Christmas Wrapping (with Iggy Pop)(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36C52C9DA35302738C4CB82EF7261650DB3EA68E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 957440   (326522) от 18.11.2015
 
 Justin Bieber - Purpose (2015) Deluxe Edition [FLAC|image+.cue]<Pop>
@@ -626,123 +742,6 @@ Taylor Swift - reputation (2017) Scene [FLAC|Lossless|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B06CFC7078868CEED8CB462BFAC0871D3D34DC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260157   (314350) от 06.11.2018
-
-VA - 90s 00s and 10s Love Songs (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314350.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meg Birch - One Last Time
-02. The Shaken Bakers - Love Will Keep Us Alive
-03. Shannon & Keast - Yours
-04. Karizma Duo - A Thousand Miles(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00AAB8A708D1AE7DAA2982034F8BA620C4CEC1A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260050   (314218) от 06.11.2018
-
-VA - Just Acoustic (2018) 4CD [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314218.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-01. Coldplay - The scientist
-02. Alanis Morissette - Hand in my pocket
-03. Dua Lipa - New rules(   Читать дальше...   )Жанр: PopПродолжительность: 04:51:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0ECF01E0AB955BCB300CEE81FE1013D677E14F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332395   (313875) от 20.10.2019
-
-VA - Bravo The Hits 2019 [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313875.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Shawn Mendes & Camila Cabello - Senorita 3:11
-02. Ava Max - Sweet But Psycho 3:07
-03. Lil Nas X feat. Billy Ray Cyrus - Old Town Road (Remix) 2:51(   Читать дальше...   )Жанр: PopПродолжительность: 02:37:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65E6E21108068DE9F9A3F5CB3E31AE1FDE5AC500
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260252   (313806) от 06.11.2018
-
-VA - Top Of The Pops '1978 (2018) Box Set, 3CD [FLAC|Lossless|tracks + .cue] <1970s, pop, rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313806.jpg" />
-</div>
-
-
-###  Подробнее
-
-После довольно продолжительного перерыва продолжаю серию путешествий по победителям топов прошлого века (ссылки на предыдущие релизы смотрите внизу).
-Этот список треков является хронологическим списком популярных песен, исполняемых музыкантами и музыкальными ансамблями в Top of the Pops, еженедельной телевизионной программой BBC One, в которой представлены исполнители (   Читать дальше...   )CD1
-01. John Travolta & Olivia Newton-John - You're The One That I Want  (2:51)
-02. ABBA - Take A Chance On Me  (4:04)
-03. Boney M - Rivers Of Babylon  (4:16)(   Читать дальше...   )Релиз состоялся: 16.03.2018Жанр: 1970s, pop, rockПродолжительность: 02:50:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:362B0C2798C78EA930A6E4AF85C16C4DED8A7913
 ```
 
 https://mybot314.ru/tekegram_catalog/

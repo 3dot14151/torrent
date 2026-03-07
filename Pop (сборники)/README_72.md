@@ -1,3 +1,67 @@
+###  Публикация: 1239234   (540352) от 04.08.2018
+
+VA - ЕвроХит Топ 40 Europa Plus 03.08.2018 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_540352.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clean Bandit feat. Demi Lovato - Solo 3:41
+02. David Guetta feat. Sia - Flames 3:15
+03. Alvaro Soler - La Cintura 3:25
+04. Jax Jones feat. Ina Wroldsen - Breathe 3:28(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:18:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AFC9CDD2136500C2DE62001877C1134ABB86242
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 531887   (540305) от 06.08.2012
+
+VA - Золотой Шлягер (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_540305.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Вадим Казаченко - Я Буду Любить Тебя
+ 002. Жасмин - Можно
+ 003. Митя Фомин - Садовник (Radio Edit)
+ 004. Катя Лель - Не Могу Забыть
+ 005. Филипп Киркоров - Мне Не Жаль Тебя
+ 006. Диана Гурцкая - В Этом Городе
+ 007. Потап И Настя Каменских - Не Хватило Воздуха
+ 008. Николай Басков И Валерия - Сохранив Любовь
+ 009. Макс Барских - Замок Из Дождя
+ 010. Xs - Вооружена И Опасна(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E1D12FAD429B94096CE8C0F306AE1D75C67544F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 531880   (540169) от 06.08.2012
 
 VA - Главная дискотека августа 2 50/50 (2012) [MP3|256 кб/с]<Pop>
@@ -705,64 +769,6 @@ VA - Только хиты Хит FM 6 (2016) [MP3|256 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F322EC4393C0BBB2286C60D4E0E4926314F82E1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156173   (528486) от 06.08.2017
-
-VA - German Top 100 Single Charts 04.08.2017 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528486.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Luis Fonsi – Despacito (feat. Daddy Yankee)
-002. Axwell Λ Ingrosso – More Than You Know
-003. Imagine Dragons – Thunder
-004. Robin Schulz – OK (feat. James Blunt)(   Читать дальше...   )Жанр: PopПродолжительность: 05:46:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CAC8798A34F44244813FC964790768B632517F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313082   (528240) от 07.07.2019
-
-VA - German Top 100 Single Charts 12.07.2019 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528240.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Capital Bra x Samra - Tilidin (2:52)
-2.Shawn Mendes & Camila Cabello - Señorita (3:11)
-3.Shirin David, Maître Gims - ON OFF (3:11)
-4.UFO361, Data Luv - Shot (3:44)(   Читать дальше...   )Жанр: PopПродолжительность: 05:15:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34447D23381FE505F89DF28A7607B08E38A3120E
 ```
 
 https://mybot314.ru/tekegram_catalog/

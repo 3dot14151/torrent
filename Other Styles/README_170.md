@@ -1,3 +1,32 @@
+###  Публикация: 1792096   (67760) от 17.04.2025
+
+VA - Lost in Thoughts: Sentimental Rock Folk Soundtrack (2025) [FLAC|Lossless|WEB-DL|tracks] <Folk, Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_67760.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Atwater Collective - You Are My Rock (3:54)
+02.  Paul James Moore - Good Morning Sun (3:27)
+03.  Sten Veiths - Die Young (4:09)
+04.  Tanya Shakison - Give Me a Sign (3:12)(   Читать дальше...   )Жанр: Folk, RockПродолжительность: 00:56:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C61F3F1AC3B90D5B4722D72B84CCFB5D6E41AFFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1791925   (67544) от 23.04.2025
 
 Светлана Калачёва, Александр Ганичев - Песни русской души (2025) [MP3|320 Kbps] <Фолк>
@@ -716,35 +745,6 @@ Stoner Boner - Seductive Eruptions: Tantric Sex Music for the Ultimate High (201
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:77380C13F54034EA8AD24B7F9D317D4C3FBBA254
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717705   (58960) от 21.04.2024
-
-Sex Pistols - The Filth & The Fury (Original Motion Picture Soundtrack) (2024) [FLAC|Lossless|WEB-DL|tracks] <OST>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58960.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. God Save The Queen [00:03:19]
-02. Submission [00:04:10]
-03. Don't Give Me No Lip, Child [00:03:27]
-04. Watcha Gonna Do About It [00:01:53](   Читать дальше...   )Жанр: OSTПродолжительность: 01:00:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF1F727DD49BF37A7A9AE521301E368154076C56
 ```
 
 https://mybot314.ru/tekegram_catalog/

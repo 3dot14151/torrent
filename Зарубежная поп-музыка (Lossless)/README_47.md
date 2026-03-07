@@ -1,3 +1,119 @@
+###  Публикация: 1307397   (555084) от 09.06.2019
+
+Горячий шоколад - Береги (2009) [FLAC|Lossless|tracks + .cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Выбрала любовь
+02. Береги
+03. Чувства
+04. Неба мало ( feat. Дмитрий Климашенко )(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CDC93DB9ED43A91AC0AE7F518DB3E16CB0C413A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1307581   (554905) от 10.06.2019
+
+Minor Majority - Napkin Poetry (2019) [FLAC|Lossless|tracks + .cue] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_554905.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lucy (4:46)
+02. I've Been Here Before (4:22)
+03. Can't Think Of A Reason (5:00)
+04. Forgive Me (3:05)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:56:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5D334A79DB28E952266AA0FC6C3B544044C7AAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1236123   (554752) от 16.07.2018
+
+Anna Tatangelo - Ragazza di periferia (2007)  [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_554752.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Essere una donna Mastered (4:03) bonus track
+02. Colpo di fulmine (3:30) bonus track
+03. Quando due si lasciano (3:35)
+04. Dimmi dimmi (3:40)(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DB52E64EED0E602B6CE41DA84E195A715CE3C08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1307579   (554699) от 11.06.2019
+
+Fortuna Ehrenfeld - Helm Ab Zum Gebet (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_554699.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heiliges Fernweh (02:51)
+02. Hör endlich auf zu jammern (03:43)
+03. Helm ab zum Gebet (02:48)
+04. Bad Hair Day (03:20)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:38:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB988732D338CCDC68383D0042608464543CC1A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1307605   (554439) от 12.06.2019
 
 Prince - Originals (2019) Anthology [MP3|320 Kbps] <Pop, Rock, Funk>
@@ -632,122 +748,6 @@ Mariah Carey - Music Box (1993) [FLAC|Lossless|image + .cue] <Pop, R&B>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C79618A0E139ED2471D2399240F4A9F3AD612DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238862   (544606) от 01.08.2018
-
-VA - Supervara (2018) 2CD [FLAC|Lossless|image + .cue] <Dance, Synth-Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544606.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-01. Inna – Me gusta (3:56)
-02. Manuel Riva feat. Alexandra Stan – Miami (3:34)
-03. Akcent feat REEA – Deep In Your Eyes (3:14)(   Читать дальше...   )Жанр: Dance, Synth-PopПродолжительность: 01:49:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:830677F67A6FF0D6DC35BAA0F1723E99090BDEFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311013   (544584) от 27.06.2019
-
-Helen Shapiro - 'Tops' With Me / Helen Hits Out! (2000) [FLAC|Lossless|tracks + .cue] <Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544584.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Little Devil
-02. Will You Love Me Tomorrow?
-03. Because They're Young
-04. The Day The Rains Came(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 01:08:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4906B09A338BF459967994F5C364F351C29F87F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310994   (544582) от 27.06.2019
-
-Helen Shapiro - At Abbey Road 1961-1967 (1998) [FLAC|Lossless|tracks + .cue] <Blues, Pop, Soul, Funk>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Treat Me Like A Child (Mono) (02:36)
-02. You Don't Know (Mono) (03:12)
-03. Walkin' Back To Happiness (Take 2 Plus Studio Conversations) (Stereo) (02:51)
-04. Walkin' Back to Happiness (Take 13 Master) (Stereo) (02:34)(   Читать дальше...   )Жанр: Blues, Pop, Soul, FunkПродолжительность: 01:13:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EE4B3F3ECEA801D89EC0057BA363DF844CEC3ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311024   (544532) от 27.06.2019
-
-Budka Suflera - Zlote Przeboje (Unknown) [FLAC|Lossless|image + .cue] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544532.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Twoje radio (5:16)
-02. Ona przyszla prosto z chmur (4:36)
-03. Samotny noca (3:00)
-04. Martwe morze (4:42)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:19:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02B57C3B8F82DA97E197167076170ADD3303DC60
 ```
 
 https://mybot314.ru/tekegram_catalog/

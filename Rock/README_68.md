@@ -1,3 +1,32 @@
+###  Публикация: 1182218   (319092) от 09.11.2017
+
+Kid Rock - Sweet Southern Sugar (2017) [MP3|320 Kbps] <Rock, Country Rock, Southern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_319092.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Greatest Show On Earth
+2. Po-Dunk
+3. Tennessee Mountain Top
+4. I Wonder(   Читать дальше...   )Жанр: Rock, Country Rock, Southern RockПродолжительность: 00:42:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEB4BB8D20E4B4E5486B89352DBA59AC16780BC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 692049   (318846) от 28.11.2013
 
 Paul McCartney - 73 Albums, 31 Singles (1970-2013) Discography [MP3|320 кб/с]<Rock, Electric, Classical>
@@ -710,35 +739,6 @@ Mickey Thomas - Alive Alone (серия "Другие восьмидесятые
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D93031559885FC66FB6D20AEB3817C22B1268843
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422377   (310713) от 08.11.2020
-
-Juicy Lucy - Juicy Lucy (1995) Reissue, Remastered, 2010, Japanese Edition [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310713.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. She Makes Me Go Down (04:29)
- 02. Please Please (05:04)
- 03. Mom's Apple Pie (03:52)
- 04. Come For Me Lady (05:29)(   Читать дальше...   )Жанр: RockПродолжительность: 01:14:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA1D6874A4C1DC2E21C4B518856E0232F01624EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

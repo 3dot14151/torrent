@@ -1,3 +1,235 @@
+###  Публикация: 528330   (573223) от 28.07.2012
+
+Lazer Lloyd - My Own Blues (2012) [FLAC|Lossless|image + .cue]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_573223.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Keep Movin (3:41)
+02. Good Man Down (4:14)
+03. My Own Blues (3:18)
+04. By Your Side (4:09)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:57:36
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303514   (573137) от 21.05.2019
+
+Horace Parlan, Jesper Lundgaard, Ed Thigpen - Relaxin' With Horace (2004) Stunt Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_573137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Like Someone in Love [7:00]
+02. Don't Take Your Love from Me [6:25]
+03. Thinking of You [6:07]
+04. Theme for Ernie [7:14](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 01:08:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CE0CA2F6B1801A1633A82459ED0D06966FF0C94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1151552   (573073) от 19.07.2017
+
+Taylor Eigsti - Let It Come To You (2008) Concord [WavPack|Lossless|image + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_573073.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Love You [04:27]
+02. Timeline [08:29]
+03. Not Ready Yet [05:00]
+04. Caravan [09:02](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:10:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A50EBA10C019F3D9F1795C0DD104C6AFFFFC5980
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1151662   (573066) от 19.07.2017
+
+Attila Zoller - Gypsy Cry (1969) 2001, Collectables Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_573066.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wild Wild Wes [02:43]
+02. Another Kind Of Love [04:09]
+03. Horns [04:01]
+04. Meet In Berlin [04:49](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:40:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33EDB7D6271989A0886B0C161F5130B3DDD5C79D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1151539   (573057) от 19.07.2017
+
+Cal Tjader - Agua Dulce (1971) 2011, BGP Records [FLAC|Lossless|tracks + .cue] <Afro-Cuban Jazz, Cool, Latin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_573057.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Agua Dulce (Cool-Ade) [04:08]
+02. Curacao [05:38]
+03. Somewhere in the Night [04:26]
+04. Gimme Shelter [02:55](   Читать дальше...   )Жанр: Afro-Cuban Jazz, Cool, Latin JazzПродолжительность: 00:35:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13412DF23DBBB098BA1387027B184A96894E625D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1151661   (573049) от 19.07.2017
+
+Horace Tapscott - The Dark Tree (1989) 2CD, 2009, hatOLOGY [FLAC|Lossless|tracks + .cue] <Post-Bop, Avant-Garde Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_573049.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. The Dark Tree [20:57]
+02. Sketches of Drunken Mary [11:33]
+03. Lino's Pad [16:46](   Читать дальше...   )Жанр: Post-Bop, Avant-Garde JazzПродолжительность: 02:07:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04BA03BD87590E77A6ABF98482680A61B79151E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1151545   (573031) от 19.07.2017
+
+Rikiya Nakamura Life Is Now Trio - Frame by Frame (2016) Anido Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_573031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pust begut niukluzhe (I Play the Accordion) [04:50]
+02. Le Theme de haut pays des neiges (Theme of Land of the Snowy Mountains) [06:07]
+03. Chanson du mois de mai (Song of the Month of May) [04:24]
+04. Who's Afraid of the Big Bad Wolf [06:42](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:57:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BD93F58F4746C9C5FDCDCB8A250B40B522189AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043453   (572994) от 16.08.2016
+
+Clark Terry - Yes, The Blues (1981) 1996, Pablo[FLAC|Lossless|image+ .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_572994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Diddlin' [08:50]
+ 02.Railroad Porter Blues [05:38]
+ 03.Swingin' The Blues [07:05]
+ 04.Marina Bay Rednecks [07:50](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:43:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D779A34A2FC043A36B14ACE017C4F7A5AC43230
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1234230   (572904) от 04.07.2018
 
 April Stevens - Teach Me Tiger! (1960) 2012, EMI Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -513,263 +745,6 @@ Blake Aaron - Soul Stories (2015) [FLAC|Lossless]<Smooth Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE2C594CA63E05FE94517BEC2FF6EEF4DA7E226F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920212   (571734) от 27.07.2015
-
-VA - Sax 'N' Chill (Satin Smooth Jazz Grooves) (2015) [MP3|320 кб/с]<Jazz, Sax, Chillout>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571734.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Perelandra - On the Box (Smooth Sax Mix) (05:40)
-02. Delectable - Woman in Love (04:42)
-03. Cocktail Groovers - Garden of Sun (Sensual Mix) (05:04)
-04. Wonderphazz - Still Waters (Harmonica Mix) (05:07)(   Читать дальше...   )Производство: RagimusicЖанр: Jazz, Sax, ChilloutПродолжительность: 01:30:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF586E45B27AD3529250BD01790DF9AC5FB86998
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 528482   (571577) от 29.07.2012
-
-Braff Oester Rohrer - The Tide Is In (2001) [FLAC|Lossless]<Bebop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571577.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Song of Wonderful Things
-02. Mc Braff
-03. Jone's Tones
-04. My Little Suede Shoes
-05. You Don't Know What Love Is
-06. New SongЖанр: BebopПродолжительность: 01:13:57
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 528392   (571483) от 29.07.2012
-
-The Blues Overdrive - The Blues Overdrive (2012) [FLAC|Lossless]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571483.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Death On the Highway [04:44]
- 02. Out in the Country [03:42]
- 03. I Was Wrong [02:33]
- 04. Ball & Chain [05:07]
- 05. Mr. 16 Tons (Blues for Thorup) [04:07]
- 06. Too Blind to See [03:39]
- 07. I Need Your Lovin' [02:36]
- 08. Got Myself a Woman [03:09]
- 09. Big Fat Woman [02:45]
- 10. Done Tryin' [04:33](   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:32
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 528730   (571480) от 29.07.2012
-
-Acme Blues Company - I Think I Made It (2006) [FLAC|Lossless]<Industrial Strength Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571480.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Is Love Worth the Cost
-02. Except My Own
-03. Sugar Mama
-04. Easy Money
-05. I Think I Made It
-06. Hey Baby
-07. You Ain't the First (Live)
-08. A Little Somethin' Somethin'
-09. No Shortage of the Blues
-10. Liquor Store(   Читать дальше...   )Жанр: Industrial Strength BluesПродолжительность: 00:50:43
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 528489   (571292) от 29.07.2012
-
-Brecker Brothers - Out of the Loop (1994) [FLAC|Lossless]<Jazz-Funk, Jazz-Fusion, Crossover Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571292.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slang
-02. Evocations
-03. Scrunch
-04. Secret Heart
-05. African Skies
-06. When It Was
-07. Harpoon
-08. The Nightwalker
-09. And Then She WeptЖанр: Jazz-Funk, Jazz-Fusion, Crossover JazzПродолжительность: 00:54:53
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043578   (571187) от 17.08.2016
-
-Martin Lechner - Somethin' Old & Somethin' New, Somethin' Else! (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571187.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lullaby Of Birdland
-02. Valerie
-03. The Masquerade Is Over
-04. Ready Or Not(   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 01:04:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A213AEDFF6579E70880A0DA5FCCD76C1636A8CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 528708   (571163) от 29.07.2012
-
-Brian Simpson - Above The Clouds (2007) [APE|Lossless]<Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What Cha Gonna Do?
-02. Juicy
-03. From the Hip
-04. Let's Get Close
-05. One More Time
-06. The Last Kiss
-07. Fiona's Song
-08. Bali Listen
-09. Above the Clouds
-10. Memories Of You(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:44:06
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234465   (571151) от 05.07.2018
-
-Jimmie Lunceford - 1940 - 1941 (1992) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571151.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whatcha Know Joe? [2:41]
-02. Red Wagon [2:35]
-03. You Ain't Nowhere [2:56]
-04. Please Say The Word [2:41](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:08:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:867F6CD465C8E98F271CCA5E556F7B7C749BC984
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1138151   (664194) от 29.05.2017
+
+The Romantic Strings and Orchestra - Stardust Moods (1989) [MP3|320 Kbps] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_664194.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Some Enchanted Evening (3:36)
+2. All The Things You Are (3:55)
+3. Tenderly (3:39)
+4. With A Song In My Heart (2:59)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:10:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:196DFF8DCC450A07A96E6450F9EA7C0E24191D6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 901360   (663350) от 26.05.2015
 
 Eilen Jewell - Sundown Over Ghost Town (2015) [MP3|320 кб/с]<Americana, Country, Folk>
@@ -766,35 +795,6 @@ Atom Music Audio - Mechanize, Vol. 1: Industrial Hybrid Rock Tracks (2018) [MP3|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C0BBA16CA8FDD41D2D312F90170F1DFE40BBC65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140583   (654768) от 07.06.2017
-
-Indiajiva - Inner Sanctum (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654768.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Indiajiva - Awakening (7:16)
-2. Indiajiva - Dreaming (14:30)
-3. Indiajiva - Immersion (12:53)
-4. Indiajiva - Inner Sanctum (31:16)Жанр: New AgeПродолжительность: 01:06:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7420D4F18F78AEC0896D979255B8B0A5FADC0C9B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,218 @@
+###  Публикация: 906841   (641378) от 10.06.2015
+
+VA - My Favourite Hits of 1976 (14CD) (2015) [MP3|320 кб/с]<Electronic, Chanson, Funk, Disco, Pop, Rock, Blues Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641378.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Nazareth - Somebody To Roll (03:53)
+002. ABBA - Dancing Queen (03:48)
+003. Smokie - I'll Meet You At Midnight (03:15)
+004. Boney M. - Daddy Cool (03:27)(   Читать дальше...   )Жанр: Electronic, Chanson, Funk, Disco, Pop, Rock, Blues RockПродолжительность: 16:45:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F4E5C4E2E221B0483692EF12B9729246AE82465
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227945   (641201) от 29.05.2018
+
+VA - Urban Groundz (2018) [MP3|320 Kbps] <Club, Dance, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641201.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. ACP - Say It Now (Love You Back)
+002. AkroSonix - Mr. (Original Mix)
+003. The Chainsmokers - You Owe Me
+004. Lanui - It's A New Day (Anatol Cyberia Remix)(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 07:51:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CB270A676CD4C0EA9B74215CC3610F49BA2B7A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 518785   (641018) от 04.07.2012
+
+VA - Рок в Авто (Полный привод - 50х50) (2012) [MP3|160-320 кб/с]<Hard Rock, Heavy Metal, Alternative Metal, Nu Metal>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Rolling Stones - Anybody Seen My Baby
+ 02. The Rolling Stones - Already Over Me
+ 03. IceCreamOff - В Минске весна
+ 04. IceCreamOff - Легион
+ 05. Oasis - Stop Crying Your Heart Out
+ 06. Oasis - Wonderwall
+ 07. КолизеЙ - Имя Твоё
+ 08. Колизей - Сила Воли
+ 09. Accept - Kill The Pain
+ 10. Accept - Primitive(   Читать дальше...   )Жанр: Hard Rock, Heavy Metal, Alternative Metal, Nu MetalПродолжительность: 05:10:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:230CE3D9DCA005EFD879F60086E37F6301800EBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142619   (640909) от 15.06.2017
+
+VA - 100 Cardio Dance Control Hits (2017) [MP3|269-320 Kbps] <Funky, Tropical, Progressive, Bigroom, Nu Disco, Future House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_640909.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dani Kode - Monada 05:00
+02. Josh Nor - Savana 05:42
+03. Cya - Mistakes (Original Mix) 06:33
+04. Baggi Ft. Sylvia Tosun - Time Painter (Vocal Extended Mix) 05:48(   Читать дальше...   )Жанр: Funky, Tropical, Progressive, Bigroom, Nu Disco, Future HouseПродолжительность: 09:25:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5C3D079C38E1F0F98752094DDC00230F4467AD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142572   (640799) от 15.06.2017
+
+VA - Новая Русская Дискотека Vol.9 (2017) [MP3|256-320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_640799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Студия-80 - Остров отдыха вашей души  5:02
+02.  Сборная Союза - Мы Хорошие Люди  3:25
+03.  Елена Максимова - Когда любовь придёт  4:10
+04.  Стас Михайлов - Там За Горизонтом  3:43(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:05:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC068B41BFEC0E9466E78154B1F1736AB664B0E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 518584   (640732) от 04.07.2012
+
+VA - Сборник медленных хитов Vol.8 (2012) [MP3|320 кб/с]<Pop | Rock | Blues>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_640732.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Bryan Adams - I Think About You (3:36)
+2. Richard Marx - On The Inside (3:13)
+3. S Club 7 - Never Had A Dream Come True (4:00)
+4. Adriano Celentano - Conto Su Di Te (4:21)
+5. Sting Feat.Anouska Shankar - The Book Of My Life (6:16)
+6. Touch And Go - Tango In Harlem (3:23)
+7. Charice - Before It Explodes (4:01)
+8. Julio Iglesias Jr - Under My Eyes (4:26)
+9. Tiziano Ferro - L'ultima Notte Al Mondo (3:52)
+10. Michael Bolton - Go The Distance (4:41)Жанр: Pop | Rock | BluesПродолжительность: 06:58:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A827E6A22F09A7B73FC2AB441A0D2ABD448CCDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292954   (640493) от 01.04.2019
+
+VA - Exotic Disco Dance (2019) [MP3|320 Kbps] <Electronic, Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_640493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abbe - You Make It Hard To Love You (1980) (7:13)
+02. AKB - Stand Up - Sit Down (1979) (8:13)
+03. Amadeo - Moving Like A Superstar (1977) (10:05)
+04. Bombers - (Everybody) Get Dancin' (1979) (9:25)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 05:05:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1763B8928877BA003036BA6CA5F19B13E0FD4A30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1033209   (640193) от 10.07.2016
 
 VA - Funky Club House XS (2016) [MP3|245-320 Kbps] <Club, Funky House, Electro>
@@ -572,215 +787,6 @@ VA - Kizomba Sexy Hits Vol 2 (2016) [MP3|320 Kbps] <World, Zouk, Kizomba>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D9038B6B87959F5FBB83152B653A7B49DF3E277
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907583   (636063) от 13.06.2015
-
-VA - Billboard Hot 100 Singles Chart 20th June (2015) [MP3|128-320 кб/с]<Hip-Hop, Country, EDM, Synthpop, Electro-R&B>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636063.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wiz Khalifa - See You Again (Feat. Charlie Puth)
-02. Taylor Swift - Bad Blood (Feat. Kendrick Lamar)
-03. Fetty Wap - Trap Queen
-04. Walk The Moon - Shut Up And Dance(   Читать дальше...   )Жанр: Hip-Hop, Country, EDM, Synthpop, Electro-R&BПродолжительность: 06:06:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97441E2C1B48FBEF8EFB0DCFA0EF67E6192C7E40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907978   (636047) от 13.06.2015
-
-VA - Club Of Fans Dance Vol.4 (2015) [MP3|320 кб/с]<House, Trap, EDM, Electro House, Progressive>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636047.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Katelyn Tarver - Weekend Millionaires (Young Bombs Remix)
-02. Tanya Bryantseva & Kibo - Wish Feat. Kibo (Original Mix)
-03. Norda - Dance For Me (Extended)
-04. As I Am, Nicola Tate - Saving Grace (Vip Dub)(   Читать дальше...   )Жанр: House, Trap, EDM, Electro House, ProgressiveПродолжительность: 08:11:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:094A0FCC0744B8899218B5DB96310E6C52626DA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228652   (635821) от 01.06.2018
-
-VA - ЕвроХит Топ 40 Europa Plus 01.06.2018 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jax Jones - Breathe (Ina Wroldsen)
-02. Consoul Trainin feat. Steven Aderinto & DuoViolins - Obsession
-03. Dynoro feat. Gigi D'Agostino - In My Mind
-04. C-BooL feat. Giang Pham - DJ Is Your Second Name(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:17:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45E20B297E79D2AA1805ABA2585FBAEAA3F1422C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908032   (635564) от 13.06.2015
-
-VA - Музыкальный подарок от Europa Plus (2015) [MP3|320 кб/с]<Pop, Dance, Eurodance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635564.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mband - Она Вернётся (04:09)
-002. Nickelback - The Hammer's Coming Down (04:23)
-003. Slava Basyul - Разбуди Меня (04:13)
-004. Dirty South Feat. Kids Without Instruments - The Best Days (04:27)(   Читать дальше...   )Жанр: Pop, Dance, EurodanceПродолжительность: 06:07:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:830CFFD993B6E60FF9CC8F134C5252E6838E9450
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 519822   (635342) от 07.07.2012
-
-VA - Клубная Дискотека DFM 50/50 (2012) [MP3|256 кб/с]<Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635342.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oceana - Endless Summer (Bodybangers Remix Edit)
-02. DJ Smash - Young Hearts (Radio Edit)
-03. Nickelback - When We Stand Together (DJ Noiz Bootleg)
-04. MC Zali & Fidel Wicked - Nosom Po Kokosam
-05. Ledina Celo - Can You Touch Me Baby (Edit Mix)
-06. Бурановские бабушки - Party For Everybody (Dj Slon Remix)
-07. Sak Noel - Where
-08. Марсель - Иди Ко Мне (Remix)
-09. Bodyrox feat. Chipmunk & Luciana - Bow Wow Wow (Bluestone vs Loverush Radio Edit)
-10. DJ M.E.G. feat. Сергей Лазарев & Тимати - Moscow to California (DJ Favorite Radio Edit)(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 07:15:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:124ACF8D18EFF1F7DEB179A4DBBE27082AFB1E33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293672   (635233) от 04.04.2019
-
-VA - Top 100 Зайцев.Нет Март 2019 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635233.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 5Sta Family - Снова вместе (3:38)
-002. Anivar - Украду (3:14)
-003. MiyaGi & Эндшпиль - I Got Love - МУЗЫКА НА МАШИНУ (4:36)
-004. ATL - Танцуйте (3:40)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:17:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B4DFC32B536DA7A539DC061F74C1992B6EE034E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542486   (635170) от 08.04.2022
-
-VA - Music News vol.178 (2022) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635170.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Karina - Too Much To Drink (03:10)
- 002. Abdulkarim - Я Не Могу Тебя Простить (03:53)
- 003. Alicia Keys - City Of Gods (Part Ii) (03:12)
- 004. ANik feat. Ignat Izotov - Высоко (02:23)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 05:09:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89D9E0810A7DAD333F36E67D424F0339F34DE5D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

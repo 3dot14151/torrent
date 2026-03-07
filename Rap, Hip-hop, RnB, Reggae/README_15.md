@@ -1,3 +1,90 @@
+###  Публикация: 1289264   (688145) от 15.03.2019
+
+Смоки Мо - Белый блюз (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_688145.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Смоки, скажи им
+2. Белый блюз
+3. #ВидаЛока
+4. Бутылка вина(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:40:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61C17BF373C696F11C4F6B57B630FD34DA20CF52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289096   (688132) от 15.03.2019
+
+VA - Vintage Reggae Cafe - The Definitive Collection, Vol. 2 (2019) [MP3|320 Kbps] <Reggae>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>RnB, Reggae
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_688132.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+1 All About That Bass - The Reggister's
+2 Yellow - Natty Bong
+3 L.S.F. (Lost Souls Forever) - Sublime Reggae Kings(   Читать дальше...   )Жанр: ReggaeПродолжительность: 2:21:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F1A8E14787C93812227A5BC8E98C4098D4D9077
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029018   (686256) от 24.06.2016
+
+VA - Vintage Reggae Cafe Vol 4 (2015) [MP3|320 кб/с] <Reggae>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>RnB, Reggae
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Reggister's - All About That Bass (2:53)
+02. Natty Bong - Yellow (4:33)
+03. Sublime Reggae Kings - L.S.F. (Lost Souls Forever) (3:12)
+04. Trippynova - Treasure (3:04)(   Читать дальше...   )Производство: Music BrokersЖанр: ReggaeПродолжительность: 00:46:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:931C35918EEDBB19821F13203E1472530C45A609
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1289495   (686235) от 16.03.2019
 
 Alborosie meets The Wailers United - Unbreakable (2018) [FLAC|Lossless|tracks + .cue] <Reggae, Dub>
@@ -658,93 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:632E4B9BBC9B29FA685032F972C6FEB99C991FB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 901257   (663877) от 25.05.2015
-
-БАСТА / НоГгано / N1NT3ND0 - 12 Альбомов (2006-2015) Дискография [FLAC|tracks, image+ .cue]<Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663877.jpg" />
-</div>
-
-
-###  Подробнее
-
-Василий Михайлович Вакуленко, он же Баста, Ноггано, Баста Хрю, Баста Бастилио, Nin-ten-do, родился 20 апреля 1980 года в городе Ростов-на-Дону в семье военных. Помимо общеобразовательной школы учился в музыкальной. В 15 лет впервые попробовал писать рэп, собрал свою группу. Поступил в училище на дирижерское отделение. Но, закончив первый курс, ушёл, поскольку стало (   Читать дальше...   )Список альбомов:
-2006 - Баста 1 (Переиздание)
-2007 - Баста 2 (Переиздание)
-2010 - Баста 3(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 14:08:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB29124C940B44015C8F019A8B213B7E882793A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138553   (663038) от 30.05.2017
-
-Onyx & Dope D.O.D. - Shotgunz In Hell (2017) [MP3|320 kbps] <Hip-Hop, Hardcore Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663038.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shotgunz in Hell (Intro) (1:42)
-02. Can't Hear You (feat. SickFlo) (4:12)
-03. XXX (3:14)
-04. Piro (feat. Dopey Rotten) (2:45)(   Читать дальше...   )Жанр: Hip-Hop, Hardcore Hip-HopПродолжительность: 00:36:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AC7DFEB81BCE30D6E98B384EF444BE7A1D8DEE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225267   (661824) от 14.05.2018
-
-SLIMUS - Место под луной (2018) [MP3|320 Kbps] <Rap, Hip-hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661824.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Инвайт
-02. Мертвый президент
-03. Намедни
-04. За мое время(   Читать дальше...   )Жанр: Rap, Hip-hopПродолжительность: 00:19:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6482CBD03797AA9FC9DC1BBE955D0259ED468C4
 ```
 
 https://mybot314.ru/tekegram_catalog/

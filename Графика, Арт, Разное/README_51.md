@@ -1,3 +1,29 @@
+###  Публикация: 893155   (710677) от 30.04.2015
+
+Обои - Grand Theft Auto V Wallpapers (Arts) + Screenshots [JPG, PNG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_710677.jpg" />
+</div>
+
+
+###  Подробнее
+
+Официальные арты и скриншоты из игры Grand Theft Auto V + OnlineФормат: JPG, PNGРазрешение файлов: 3840x2160, 2560x1600, 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:737199023BCA333B9CD5EB49091614707E3CED88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1219819   (709954) от 16.04.2018
 
 Обои - Сборник разнообразных обоев 1920x1200 #300 [JPG, PNG]
@@ -644,32 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08F7E20CBFD5B68C4B63E802BA7FD80531831380
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287883   (701640) от 08.03.2019
-
-Обои - Ultra HD 3840x2160 Wallpaper Pack 373 [JPG, PNG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701640.jpg" />
-</div>
-
-
-###  Подробнее
-
-В хорошем качестве подборка обоев на различную тематикуФормат: JPG, PNGРазрешение файлов: 3840x2160
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37640B8C046328F38FFD4DCFFDC70A757E04CEB4
 ```
 
 https://mybot314.ru/tekegram_catalog/

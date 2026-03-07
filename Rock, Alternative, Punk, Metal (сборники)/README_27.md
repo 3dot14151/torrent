@@ -1,3 +1,32 @@
+###  Публикация: 1314031   (521419) от 12.07.2019
+
+VA - Tree Of Life: Rock Digest June (2019) [MP3|320 Kbps] <Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_521419.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Devon Church - A Wave On Land
+002. Ace Frehley - I Wanna Go Back
+003. Ken Hensley - Set Me Free
+004. The Hazytones - The Hand That Feeds(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 13:16:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F3AD5EDA0372D7F6D11FE5D168112FAF53559EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 928717   (521371) от 17.08.2015
 
 Rock Ballads - Collection (7CD) (1991-1997) [MP3|320 кб/с]<Rock, Art Rock, Soft Rock, Pop Rock>
@@ -725,35 +754,6 @@ CD 01
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99F4D06C18E782517B46C791A2618112C58AD360
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319736   (479335) от 14.08.2019
-
-VA - Purgatory: Metal Compilation (2019) [MP3|320 Kbps] <Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479335.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Negacy - Black Messiah
-002. Sargeist - Unbound
-003. Black Lotus - The Swamp
-004. I Killed Anubis - Look At Yourself(   Читать дальше...   )Жанр: MetalПродолжительность: 12:46:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E3A13DFF8A2621432212C9961EB78BE46B60A5E
 ```
 
 https://mybot314.ru/tekegram_catalog/

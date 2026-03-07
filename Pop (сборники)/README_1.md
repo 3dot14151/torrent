@@ -1,3 +1,61 @@
+###  Публикация: 1444844   (1034222) от 03.02.2021
+
+Thе Ritсhiе Fаmily - Bad Reputation (1975-1983) [MP3|320 Kbps] <Pop, Funk, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034222.jpg" />
+</div>
+
+
+###  Подробнее
+
+Американская вокальная группа из Филадельфии. Некогда, во времена Disco, довольно популярная в Америке и мало известная в нашей стране. Основной период их творчества приходится на 1975-1983 года, а в последующие года меликнувшие только со своими ремиксами.01. Theme Of The Queen Of Sheba
+02. Theme Of Nefertiti
+03. Theme Of Cleopatra
+04. Lady Champagne(   Читать дальше...   )Жанр: Pop, Funk, DiscoПродолжительность: 03:20:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE161BD68BBB3AF0EFFDBAF47B957516D669EAC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444787   (1034212) от 03.02.2021
+
+VA - International Pop Party (2021) [MP3|320 Kbps] <Pop, Dance, Folk>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034212.jpg" />
+</div>
+
+
+###  Подробнее
+
+Абсолютно все треки микса "International Pop Party" просто напичканы отличным танцевальным настроем, чьи мелодии призывают вас самозабвенно пуститься в музыкальное путешествие по самым разнообразным странам и послушать что поют и танцуют их жители.001. The Boyz - Checkmate
+002. DJ Di Granati - Du Bist Engel
+003. Dua Lipa - Levitating
+004. The Whiskey Gingers - Change Your Mind(   Читать дальше...   )Жанр: Pop, Dance, FolkПродолжительность: 09:00:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D335A8E2B018AFEF6B5B44DCA765924681DFF895
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1445226   (1033708) от 05.02.2021
 
 VA - 90s Retro Dance Hits (2021) [MP3|320 Kbps] <Dance, Pop, Electro Dance>
@@ -689,64 +747,6 @@ VA - Just My Dream: Disco Dance Mix (2021) [MP3|320 Kbps] <Disco, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:431310F1E61BC5966BFC1ED54A50B2C4341890DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458970   (1023469) от 31.03.2021
-
-VA - The Dream Dance (2021) [MP3|320 Kbps] <Pop, Dance, Romantic>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023469.jpg" />
-</div>
-
-
-###  Подробнее
-
-Опять о любви, но по-иному. Приятный звук, и мелодия и вокал, а это уже не мало! Лирический стиль звучания и мягкий, доверительный вокал - всё это располагает к душевному романтическому состоянию.001. Reddcross - Soul
-002. Another Level - Whatever You Want
-003. Dou & Lono - Someone To Love You More
-004. Onur Atli - What's Love(   Читать дальше...   )Жанр: Pop, Dance, RomanticПродолжительность: 08:44:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51BEE22F5A2FBA7395FCF298A4143056E0D6DEAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459389   (1023290) от 01.04.2021
-
-VA - Disco Instrumental (2021) [MP3|320 Kbps] <Disco, Instrumental>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anna Jane - Take Me Home (Instrumental Disco Mix) (6:20)
-02. Bananarama - Ecstasy (Wild Style) (5:37)
-03. Bazykina Twins - Moscow Nights (Instrumental) (3:53)
-04. Bon Ton - Video Star (3:27)(   Читать дальше...   )Жанр: Disco, InstrumentalПродолжительность: 05:22:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C99E68C6D57A77E1070CBDA5846CB13B111FC4A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,90 +1,3 @@
-###  Публикация: 1433012   (162081) от 19.12.2020
-
-Future Faces - Euphoria (2020) [MP3|320 Kbps] <Alternative, EBM, Coldwave, Post-Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162081.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Radiant [00:05:18]
-02 Enter Life [00:03:41]
-03 Billion Years [00:05:03]
-04 Halcyon [00:05:18](   Читать дальше...   )Жанр: Alternative, EBM, Coldwave, Post-PunkПродолжительность: 00:40:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE09AE0C2EF3C7376677C19E4E4F11693D3E37FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432918   (162073) от 19.12.2020
-
-Улица Восток - В последний раз (2020) [MP3|320 Kbps] <Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162073.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Война [00:03:24]
-02 Наши дни [00:02:54]
-03 СМРТ [00:03:12]
-04 Лошади [00:03:53](   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:27:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00D971FB0AC372199F3705DA838703A6BDEAD0F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433183   (161401) от 20.12.2020
-
-Imposter - Абсцесс (2020) [MP3|320 Kbps] <Street-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161401.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Нити [00:01:52]
-02 - Хаос [00:03:30]
-03 - Злоба [00:02:21]
-04 - Страх [00:04:18](   Читать дальше...   )Жанр: Street-MetalПродолжительность: 00:27:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D54D33BCE51300424A95C5ED4F3111CE4DD9E87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1599205   (160162) от 22.12.2022
 
 Weezer - 4 EP (2022) [MP3|320 Kbps] <Alternative, Indie Rock>
@@ -783,6 +696,105 @@ CD 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26F258802FCABD1876E70CB04572ACDB92F53C51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680186   (134522) от 28.11.2023
+
+The Dwarves - Concept Album (2023) [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134522.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Blast On
+2. Feeling Great
+3. Voodoo
+4. Terrorist(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:37:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02EE80643028CF975B52D1FBF4DE76372BCF9A40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592753   (134397) от 24.12.2012
+
+Alt-J - An Awesome Wave (2012) [MP3|320 кб/с]<Indie-Pop, Indie-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134397.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Intro
+02 (Interlude 1)
+03 Tessellate
+04 Breezeblocks
+05 (Interlude 2)
+06 Something Good
+07 Dissolve Me
+08 Matilda
+09 MS
+10 Fitzpleasure(   Читать дальше...   )Жанр: Indie-Pop, Indie-RockПродолжительность: 00:41:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EA8661304052237DB8E52E24D39F95567CFF090
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593869   (134160) от 25.12.2012
+
+Hinder - Welcome To The Freakshow (2012) [MP3|320 кб/с]<alternative rock, post-grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Save Me [00:02:46]
+ 02. Ladies Come First [00:03:03]
+ 03. Should Have Known Better [00:03:28]
+ 04. Freakshow [00:03:05]
+ 05. Talk To Me [00:03:11]
+ 06. Get Me Away From You [00:03:10]
+ 07. Is It Just Me [00:03:21]
+ 08. I Don't Wanna Believe [00:03:31]
+ 09. See You In Hell [00:03:19]
+ 10. Anyone But You [00:04:11](   Читать дальше...   )Жанр: alternative rock, post-grungeПродолжительность: 00:52:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2ECEF3AC9D1A5CFD4801EF64E0A01D5EA1F6F21
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1094013   (932422) от 16.01.2017
+
+Utopia - Oops! Wrong Planet (1977) Remastered, 1995, Mobile Fidelity Sound Lab [MP3|320 Kbps] <Synth Pop, Prog Rock, Art Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932422.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trapped
+02. Windows
+03. Love In Action
+04. Crazy Lady Blue(   Читать дальше...   )Жанр: Synth Pop, Prog Rock, Art RockПродолжительность: 00:46:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0015859709235DC362C38EED22A489BB2FA46666
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 861868   (931951) от 22.01.2015
 
 VA - Riders On The Stoorm: 16 Psychedelic Rock Nuggets (2014) [MP3|320 кб/с]<Psyhedelic Rock>
@@ -735,35 +764,6 @@ Crow - Crow By Crow (1970) Reissue, 2011,  Austria Record Finder [MP3|320 Kbps] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C214C4A26FCC75032E6AA1FBF84FB67DC202795A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490692   (917570) от 21.08.2021
-
-Seventh Crystal - Delirium (2021) [MP3|320 Kbps] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917570.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Say What You Need To Say (3:56)
-02. When We Were Young (2:55)
-03. Broken Mirror (3:59)
-04. Delirium (3:37)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:44:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D905221521649B8CAD5CD97D577B8763008FA997
 ```
 
 https://mybot314.ru/tekegram_catalog/

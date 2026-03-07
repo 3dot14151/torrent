@@ -1,3 +1,335 @@
+###  Публикация: 591841   (135288) от 23.12.2012
+
+VA - DubStep Pro V.8 (2012) [MP3|320 кб/с]<DubStep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135288.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Koda - The Last Stand
+02. Kyson - Remi (Essay Remix)
+03. Trifonic - Santa Rosa (Original Mix)
+04. Leon Hayward - Me & You (Original Mix)
+05. Helios - The Obeisant Vine (Hammock Remix)
+06. Azedia - Precipitate (Original Mix)
+07. Bar9 - Before The Storm (Original Mix)
+08. Synchronice - Broken Record (Original Mix)
+09. Skullee ft Jose Feliciano - Feliz Navidad
+10. Cyberoptics & F3tch - Wormhole (Original Mix)(   Читать дальше...   )Жанр: DubStepПродолжительность: 04:25:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F19C5C5C6283D79DFD697D24E0AC15B3E6797169
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679637   (135194) от 26.11.2023
+
+VA - Western Mood (2023) 2CD  [MP3|320 Kbps] <Country>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135194.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brandy Clark - Buried [03:06]
+02. Madeline Edwards - Mama, Dolly, Jesus [02:45]
+03. The Highwomen - The Chain [04:52]
+04. Monroe Crossing - There's No Place Like Home For The Holidays [03:00](   Читать дальше...   )Жанр: CountryПродолжительность: 07:45:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2463E934379525D6E1430039D0AFCBB3ACE2062F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679503   (135186) от 26.11.2023
+
+VA - Музыка для машины Vol.44 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135186.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 3-ий Январь - Спой Со Мной (02:37)
+02. Юлия Беретта - Диско (03:27)
+03. Сергей Одинцов - Мы Вдвоем (04:06)
+04. D.I.P Project - Сочинять Сны (Dance Mix) (03:43)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:38:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F50E9010CCD2FD7C98FDF1FF6637F5E0A31BEFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593479   (135179) от 23.12.2012
+
+Skrillex - Best of all time (2012) [MP3|256 кб/с]<Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135179.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skrillex – Kill Everybody (Original Mix)
+02. Skrillex – Kill Everybody (Bare Noize Remix)
+03. Skrillex – Fucking Die (Cooper Mix)
+04. Skrillex – First Of The Year (Equinox)
+05. Skrillex – Father Said (feat. 12th Planet)
+06. Skrillex – Disco Rangers
+07. Skrillex – Bangarang
+08. Skrillex – All I Ask Of You (12th Planet Remix)
+09. Skrillex – All I Ask Of You (12th Planet Remix)
+10. Rob Zombie – Sick Bubblegum (Skrillex Remix)(   Читать дальше...   )Жанр: DubstepПродолжительность: 03:12:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:340C563418375B93BAE5413286F81880A36F7FEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679669   (135159) от 26.11.2023
+
+VA - Record Super Chart 25.11.2023 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_135159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dezko - Ascend (3:20)
+02. Calvin Harris feat. Sam Smith - Desire (2:59)
+03. The Kolors - Italodisco (3:19)
+04. Robin Schulz - One With The Wolves (3:00)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:36:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:832856FFBBE75DB971BE7097EC6DFDA3C5DD7A59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592718   (134992) от 24.12.2012
+
+VA - The Club music 2 (2012) [MP3|256 кб/с]<Club,Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Neil Davidge - Arrival (Norin & Rad Remix)
+02. Europe - The Final Countdown (DJ Shevtsov & Slash Junior Remix)
+03. Klonez - Funked
+04. DJ Pitkin - club opera
+05. Иван Дорн - That Girl ( Johnny Funk Mash-Up)
+06. Lolita Hunters feat. Robkay - Heut` Nacht (Radio Edit)
+07. Tocadisco, Koen Groeneveld, Ahmet Sendil - Oldschool (Ahmet Sendil Mix)
+08. Kerli - The Lucky Ones (Hector Fonseco Remix)
+09. Offspring & Fernando Lopez - Self The Plumber (Coffee B Mash-UP 2012)
+10. Kojak - Come(   Читать дальше...   )Жанр: Club,DanceПродолжительность: 08:30:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A37E06D727E163124E063130C6AA6C4BD8E08C73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593356   (134986) от 24.12.2012
+
+VA - Ultra.Trance: 5 (2005) [MP3|320 кб/с]<Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134986.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: TranceПродолжительность: 01:09:45
+ 01. Don’t Forget Me (Way Out West’s Dust Biter Mix) - Way Out West
+ 02. Feel the Vibe (Eric Prydz Remix) - Axwell
+ 03. Without You Near (Gabriel & Dresden Mix) - Markus Schulz, Departure & Gabriel & Dresden
+ 04. Resurrection (Gabriel & Dresden Vocal Mix) - Nicol Sponberg
+ 05. Dark Side of the Moon - Ernesto vs Bastian
+ 06. Lyteo (Rank 1 Remix) - Mr. Sam
+ 07. More Than A Life Away - Marco V
+ 08. Pleasure Island (Vocal Mix) - Randy Katana
+ 09. The Loves We Lost (Vocal Mix) - Tiësto(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2E4B31119625DEF4FC8092479DC777FA493F615
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593885   (134981) от 24.12.2012
+
+VA - Liberation Melody (2012) [MP3|320 кб/с]<Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134981.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ozo Effy - Eve (Original Mix) 07:17
+ 02. Orjan Nilsen - Copperfield (Original Mix) 07:09
+ 03. Nds & Blue Vs Spark7 - Your Love (Original Mix) 07:39
+ 04. Neev Kennedy, Adrian&Raz - This Heart Is Yours (Philippe El Sisi Remix) 07:13
+ 05. Matt Bukovski - Blissful Time (Original Mix) 06:38
+ 06. Kenan Teke - Black Tulips (Original Mix) 07:11
+ 07. Markus Schulz Feat. Ana Diaz - Nothing Without Me (Beat Service Remix) 07:12
+ 08. Paul Webster - Engaged (Indecent Noise Remix) 06:20
+ 09. Fisher & Fredda.L - Into The Light (Original Mix) 06:42
+ 10. Juventa - 405 (Original Mix) 07:22(   Читать дальше...   )Жанр: TranceПродолжительность: 02:52:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2573CDF60885FD17C74A0B9BC2A3C9894B0CC6C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593612   (134899) от 24.12.2012
+
+VA - Модная VIP тусовка Зимний выпуск 4 (2012) [MP3|128 кб/с]<Рор>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134899.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Катя Баженова - Все О Чем Мечтаю
+002. Анжелика Агурбаш - Для Тебя
+003. Джиган - Нас Больше Нет (Michael Yousher Remix)
+004. Перестрелки - Глаза
+005. Леонид Агутин И Thomas N'evergreen - Ай-Яй-Яй
+006. Snookers - Ready 2 Party (Stefy De Cicco Radio Mix)
+007. Жасмин, Николай Басков, Сергей Лазарев, Зара И Слава - Как В Детстве
+008. Brandy - Wildest Dreams
+009. Fly Project feat. MC Zali & Trinity - Певица Из Села
+010. Паулина Анис - Ангел Хранитель(   Читать дальше...   )Жанр: РорПродолжительность: 12:56:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ED025013388037E1B3F122B2D845AC913F8BA7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593609   (134880) от 24.12.2012
+
+VA - Танцевальный МегаХит (2012) [MP3|256 кб/с]<Рор>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_134880.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сергей Лазарев - Слезы В Моём Сердце
+02. Anastacia - One
+03. 5sta Family - Пуэрто Рико
+04. August Rush feat. Natalie Voice - So Many Times
+05. Светлана Светикова - Буду
+06. Lovers vs. Lanfranchi & Farina - Think
+07. Размер Project - Водка Стайл
+08. Manian feat. Carlprit - Don't Stop The Dance (Video Edit)
+09. Нюша - Queen Of The Night
+10. Medina - Fool (I Feel Bad For You)Жанр: РорПродолжительность: 05:55:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D499074BF3FCB9AE0F3552C7B28F371EBE117923
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1679874   (134877) от 27.11.2023
 
 VA - Smooth Live Jazz (2023) [MP3|320 Kbps] <Smooth Jazz>
@@ -518,338 +850,6 @@ VA - Новогодний cборник зарубежной музыки (2012)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F7929D86934B26A11A8DFA887CD5CA064983482
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593726   (134563) от 24.12.2012
-
-VA - Новогодние пляски (2012) [MP3|128 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134563.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Лера Туманова (Электра) - Новогодняя
-002 Жанна Фриске & In-Grid - Падает Снег
-003 Надежда Бабкина - Раз, два, люблю тебя
-004 Ирина Салтыкова - Валенки
-005 Верка Сердючка - Елки
-006 Витас - Потолок ледяной
-007 Фристайл - Метелица (New version)
-008 Че те надо - Елочка
-009 Виктор Королев - С Новым годом!
-010 Алла Пугачева и Максим Галкин - Холодно(   Читать дальше...   )Жанр: PopПродолжительность: 11:37:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B2AB4DD766D9310A1EBCA69B28B7A9A063A84CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593854   (134454) от 24.12.2012
-
-VA - Живёт моя отрада. Застольные песни (2012) [MP3|128 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134454.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Надежда Кадышева и ансамбль Золотое кольцо - Живет моя отрада
-002 Пари и Балаган Лимитед - Зимняя история
-003 Золотое Кольцо - Ой, снег-снежок
-004 Верка Сердючка - А я только с мороза
-005 Че Те Надо - Кабы не было зимы
-006 Премьер-Министр & Ольга Орлова - Синий иней
-007 София Ротару - Белая зима
-008 Куклы Напрокат - Кружатся снежинки
-009 Людмила Николаева - Зима, зима
-010 Эдуард Хиль - Зима(   Читать дальше...   )Жанр: PopПродолжительность: 11:09:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53E1BA185AC3AB56B47F6DA0B42C5B07F79B2CB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593892   (134272) от 25.12.2012
-
-VA - Island Dreams (2012) [MP3|320 кб/с]<Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134272.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Markus Schulz Feat. Ana Diaz - Nothing Without Me (Antillas & Dankann Club Mix) 06:32
- 02. Krazy Sandi - Insanity (Dj John Spider Remix) 07:03
- 03. Poshout, Aelyn - Thank You Club Dub Mix 07:01
- 04. Yahel, Liya - Creatures (Radio Edit) 03:37
- 05. Manuel Rocca - Bittersweet (Lence & Pluton Remix) 07:07
- 06. Roger Shah, Adrina Thorpe - Island Feat. Adrina Thorpe (Antillas Vocal Edit) 04:54
- 07. Summer Channel Ft Fisher - A Thousand Miles (Joys Dub Remix) 08:12
- 08. Dash Berlin Feat Kate Walsh - When You Were Around (Lange Radio Edit) 04:10
- 09. Orkidea - Liberation (Mystery Islands Remix) 06:45
- 10. Walsh & Mcauley Feat David Berkeley - Sail On The Waves (Future Disciple Remix) 08:23(   Читать дальше...   )Жанр: TranceПродолжительность: 02:09:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94AABA7CEECCEAD0CFC017E039FDFB29B9396A10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594359   (134230) от 25.12.2012
-
-VA - Chillout Cafe: Aperitif Edition (2012) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134230.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aperitif Quartet - Another Drink
-02. Lounge Lovers - Piano Pianoforte
-03. Jazz Bar - Indelette
-04. Funkalova - Samvise
-05. Cool John - With the Trumpet
-06. Beach Groove Ensemble - Vibrations
-07. Novo Som - Acapulco Express
-08. The Chiller - Chiller
-09. Examination - Maginot
-10. Gold Lounge Project - Vibes(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:42:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6339BCE0111CF52DEBA2B11CF5D380A76412182
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680379   (134217) от 29.11.2023
-
-VA - Music News vol.319 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134217.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Aleksia - Свет Внутри (02:08)
- 002. 22 Region - Так и Живём (03:01)
- 003. Akila - Наглая (02:38)
- 004. Akoma - Следуй За Мной (02:43)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:03:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CA5897E9AFF762C4E2B2DA0B760E65EC98EC22E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594322   (134200) от 25.12.2012
-
-VA - До 18 и старше №40 Зима (2012) [MP3|256 кб/с]<Рор>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134200.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. White Project - Новогодняя (Radio Version)
-002. DJ Smash feat. Asti - Атом
-003. Аксиома - Новый Год В Июле
-004. White House - Я Так Люблю Тебя
-005. Vetra-N - Долго нельзя
-006. Pulse - Танцуй Со Мной
-007. Maxigroove - Орбит Без Сахара
-008. Manifest & Leo - У-у-у
-009. СтаЯ - Привет DJ
-010. Makhno Project - Высота (Radio Edit)(   Читать дальше...   )Жанр: РорПродолжительность: 06:04:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E9E9A4E9DDCFEE8AD93C8F400DF3A356EF45640
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680332   (134185) от 29.11.2023
-
-VA - Chillout For Peace Of Mind (2023) [MP3|320 Kbps] <Chillout, Lounge, Relaxing>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134185.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Estragur - North Wind [05:06]
-02. Magmatunes - You [05:17]
-03. Ludwig A.F. - Glass [04:34]
-04. The Big Port - Another World [04:40](   Читать дальше...   )Жанр: Chillout, Lounge, RelaxingПродолжительность: 03:49:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73F6394CC7FF207C28A7BF0DAC7981F3350B2C30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680443   (134159) от 29.11.2023
-
-VA - Музыка для машины Vol.46 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134159.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aimi Feat. & Dj. Nejtrino - Одна На Танполе (Remix) (03:11)
-02. Jemmy - Обнули (03:22)
-03. Фрик Пати - Напоследок (02:30)
-04. Юлия Колерт - Батискаф (04:12)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:38:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DC68E7BBEB38E91DD6C316063D6BECE7F9B6E36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594147   (133678) от 26.12.2012
-
-VA-Новая Игрушка 30-31  (2012) [MP3|320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A-DESSA - Fire
-02. Serebro - Мальчик
-03. Dan Balan - Не любя
-04. Нюша - Воспоминание
-05. Полина Гагарина - Нет
-06. Зара - Я буду нежной
-07. Дима Билан - Так не бывает
-08. Ромади и Батишта - Формула любви
-09. Инь-Ян - Инопланетянин
-10. Ева Польна - Весь мир на ладони моей(   Читать дальше...   )Жанр: PopПродолжительность: 02:18:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAFD5729110E70543AF1340DF2B8ECB38B385489
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594131   (133675) от 26.12.2012
-
-VA-Самые сливки танцевальные 11  (2012) [MP3|320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oceana - Endless Summer (UEFA Euro 2012 oficial song) [03:29]
-02. Dan Balan - Не любя [03:15]
-03. Alex Ferrari - Bara Bara Bere Bere [03:39]
-04. Митя Фомин - Хорошая песня [03:02]
-05. Loreen - Euphoria (WINNER of EUROVISION 2012-SWEDEN) [03:00]
-06. Стая - Сердце [03:06]
-07. Junior Caldera feat.Natalia Kills & Far East Movement - Lights Out [03:08]
-08. Artik feat.Asti - Облака [03:39]
-09. Tonic feat.Erick Gold - Lead The Way [03:35]
-10. A-Dessa - Fire [03:14](   Читать дальше...   )Жанр: PopПродолжительность: 01:19:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82B2D329EBA259ECBB5DBF2BCF4948763F5C5B99
 ```
 
 https://mybot314.ru/tekegram_catalog/

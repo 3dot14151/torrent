@@ -1,3 +1,235 @@
+###  Публикация: 1043996   (569263) от 18.08.2016
+
+The Jimmy Giuffre - 3 (1956) Remaster, 2012, Warner[FLAC|Lossless|tracks + .cue] <Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_569263.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Gotta Dance [02:36]
+ 02.Two Kinds of Blues [05:18]
+ 03.The Song Is You [03:59]
+ 04.Crazy She Calls Me [04:21](   Читать дальше...   )Жанр: CoolПродолжительность: 00:38:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A18C080B4D6577053109E66546C4967635C74199
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043722   (569262) от 18.08.2016
+
+Egberto Gismonti - Em Familia (1981) EMI[FLAC|Lossless|tracks + .cue] <World Fusion, Ethnic Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_569262.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Loro [05:26]
+02.Don Quixote [05:28]
+03.Em Familia [09:37]
+04.Sanfona [04:30](   Читать дальше...   )Жанр: World Fusion, Ethnic JazzПродолжительность: 00:42:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0E3A3853004DB773079D3E9C974029232016BBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043888   (569261) от 18.08.2016
+
+Nora McCarthy & The People Of Peace Quintet - Blessings (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Modern Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_569261.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Love Poem For The People
+2. Akara Moi Moi
+3. Nimbus
+4. Into The Middle Of Something(   Читать дальше...   )Жанр: Vocal Jazz, Modern JazzПродолжительность: 01:06:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E7161A407BDB23B5CB944425948A93D4628424E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043885   (569258) от 18.08.2016
+
+Tara Kannangara - Some Version Of The Truth (2015) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Contemporary>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_569258.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sound the Alarm
+02. Stand in Line (Intro)
+03. Stand in Line
+04. Atoms for Peace(   Читать дальше...   )Жанр: Vocal Jazz, ContemporaryПродолжительность: 00:48:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC411EDEF1E6C52831CA7604D49E7AB02B16AC9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044013   (569257) от 18.08.2016
+
+Reuben Wilson - The Sweet Life (1974) 2006, Groove Merchant[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_569257.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Inner City Blues [04:48]
+ 02.Creampuff [05:32]
+ 03.Sugar [06:11]
+ 04.I'll Take You There [06:27](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:33:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E3CF2A7725691603DACAA28A559D89FAFA83258
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234617   (569246) от 06.07.2018
+
+VA - Summer In Electro And Swing Jazz (2018) [MP3|320 Kbps] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_569246.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ukulele Swing - Christian Lisi 02:49
+02. Non Dimenticare - JazzInCase 03:18
+03. Prince of Persia - Minor Swing Quintet 07:27
+04. Toccata - Parma Brass Quintet 02:07(   Читать дальше...   )Жанр: JazzПродолжительность: 01:19:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F72FA8ACBF874BBF1C630453E0214F50DAED4B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043895   (569106) от 18.08.2016
+
+Robin McKelle - The Looking Glass (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Soul, Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_569106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gravity
+02. Stand Up
+03. I’'m the One
+04. Forgive Me(   Читать дальше...   )Жанр: Vocal Jazz, Soul, PopПродолжительность: 00:41:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99E6BFE8DB11474D24C333E2B699D393CCD0D284
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043892   (569102) от 18.08.2016
+
+Simona Parrinello - Con Alma (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_569102.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beatrice
+02. Con Alma
+03. Melancholia
+04. Everybody's Song But My Own(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:56:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F1938914094F45B8593F8725D48611C8AC1642E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1555304   (569070) от 04.06.2022
 
 The Red Mitchell-Harold Land Quintet - Hear Ye! (1961) 1989, Atlantic [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -547,256 +779,6 @@ Buck Clayton - Tenderly (1959) 2009, Inner City Records [FLAC|Lossless|image + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F98D5BED548C45F75B0C98E95FD9376293498A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 529380   (567572) от 31.07.2012
-
-Alabama Mike - Tailor Made Blues (2010) [FLAC|Lossless]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567572.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tailor Made
-02. Ghetto Life
-03. Eddie Lee
-04. Go Ahead
-05. I'm Gone
-06. Enough To Keep Me Holdin' On
-07. Moon Dog Howl
-08. Stop Putting Me On
-09. Look Here Baby
-10. Hoo Doo Man(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:16
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044220   (567566) от 19.08.2016
-
-Rez Abbasi - Bazaar (2006) [FLAC|Lossless|tracks + .cue] <Fusion, Indian Classical, Modal Music>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567566.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bazaar (Abbasi) - 7:34
-02. Leather (Abbasi) - 6:02
-03. Thin Elephant (Abbasi) - 9:08
-04. Life Goes (Abbasi) - 8:58(   Читать дальше...   )Жанр: Fusion, Indian Classical, Modal MusicПродолжительность: 01:00:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC4AA9AE9CBDD26CEC30BC02FE72CA42A139E559
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 529371   (567559) от 31.07.2012
-
-Al Basile - Groovin' In The Mood Room (2006) [APE|Lossless]<Blues, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567559.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Got to be the Boss
-02. How Much Better (Better Can Get)
-03. She's on the Mainline
-04. Picked to Click
-05. Your Turn to Pay
-06. Baby Sister
-07. I'm in a Mood
-08. The Show Must Go On
-09. Your Rights
-10. Take My Word For It(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 00:50:09
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 529404   (567557) от 31.07.2012
-
-Albert Castiglia - Burn (2002) [APE|Lossless]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567557.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Didn't Know
-02. Since You've Been Gone
-03. Burn
-04. Can't Be Satisfied
-05. Teasing The Trains
-06. No One To Blame
-07. Take Me With You When You Go
-08. The Day The Old Man Died
-09. Closing Time
-10. Cadillac Assembly Live (Live)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:36
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152264   (567505) от 22.07.2017
-
-Yusef Lateef - The Golden Flute (1966) 2004, Universal [APE|Lossless|image + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567505.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Road runner [04:48]
-02. Straighten up and fly right [03:29]
-03. Oasis [04:27]
-04. (I don't stand) A ghost of a chance with you [04:07](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:39:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:994DE713EF61FE5B1DAA2FB2D1C21D210B699F97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152247   (567503) от 22.07.2017
-
-Shirley Scott - Blue Seven (1961) 2000, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567503.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Seven [06:51]
-02. How Sweet [07:40]
-03. Don't Worry 'Bout it Baby, Here I Am [06:46]
-04. Nancy (With The Laughing Face) [05:32](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:44:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE4014693C96AA2D84C6F8F9971778FA12A1CF93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555661   (567491) от 05.06.2022
-
-Maynard Ferguson - The Complete Roulette Recordings Of The Maynard Ferguson Orchestra (1958 - 1961) 10CD, 1994, Mosaic Records [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567491.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01:
-01. And We Listened [5:45]
-02. The Fugue [3:28]
-03. Humbug [3:31](   Читать дальше...   )Жанр: Bop, Hard Bop, Big BandПродолжительность: 09:11:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BE9B9D6F96AE0B91E31E0FC4DD3C9E1BCFEDD75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044390   (567464) от 19.08.2016
-
-Jimmy Burns - Back To The Delta (2003) [FLAC|Lossless|image + .cue] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567464.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back To The Delta    04:13
-02. Stop The Train    04:56
-03. Red Hot Mama   03:54
-04. Stranded In Clarksdale    04:04(   Читать дальше...   )Жанр: BluesПродолжительность: 01:07:20.61
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:452BCFE4E3D4174B1798CB97DA27756A32012CFA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1857093   (1059383) от 04.03.2026
+
+Lash! - Crank It Up (1989) 2026 [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1059383.jpg" />
+</div>
+
+
+###  Подробнее
+
+B 1989-90 годах группа записала демо-альбом только на кассете. В золотую эру, когда hair metal в Голливуде был на подъеме, такая потрясающая группа, как Lash! они могли бы стать грандиозными, потому что у них был убийственный сингл “Crank it Up”, на который было снято музыкальное видео, но в итоге они ушли на второй план, не заключив контракт на запись и не выпустив (   Читать дальше...   )01. Lay Your Body Down  03:12
+02. Crank It Up  03:51
+03. Bad Boys  03:40
+04. Think Of Me  06:13(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CCF7048428C9A4948D18B031475D3BF29AAD70E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1850763   (1054713) от 29.01.2026
 
 Mayhem Mavericks - I Can Feel The Heartache (2026) [MP3|320 Kbps] <Melodic Hard Rock, AOR>
@@ -719,35 +748,6 @@ Voodoo Circle - Locked & Loaded (2021) [MP3|320 Kbps] <Hard Rock, Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:27F1E1769417E1A2FFC34A70B6FE7107670BA334
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440035   (1039155) от 16.01.2021
-
-Miss Lava - Doom Machine (2021) [MP3|320 Kbps] <Hard Rock, Stoner>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fourth Dimension (03:44)
- 02. In the Mire (03:52)
- 03. Magma (01:10)
- 04. Brotherhood of Eternal Love (05:45)(   Читать дальше...   )Жанр: Hard Rock, StonerПродолжительность: 00:56:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:334E1DF02358A36D3B873ED4EE7C363EC54DBA50
 ```
 
 https://mybot314.ru/tekegram_catalog/

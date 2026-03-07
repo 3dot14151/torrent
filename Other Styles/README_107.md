@@ -1,3 +1,32 @@
+###  Публикация: 377804   (468155) от 06.09.2020
+
+Richard Clayderman - Plays The Music Of ABBA (2010) Compilation [FLAC|Lossless|tracks + .cue] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_468155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mamma Mia (3:15)
+02. Waterloo (3:01)
+03. Dancing Queen (3:46)
+04. The Winner Takes It All (3:04)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:55:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8E4F884CFC74CB375B2E758F22EEF6B618E529C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1245978   (467787) от 08.09.2018
 
 VA - Mystera V (2000) [FLAC|Lossless|tracks + .cue] <NewAge>
@@ -711,35 +740,6 @@ Jules Calmer - Deserted Paradise (2017) [MP3|320 Kbps] <Ambient, New Age, Downte
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:98D8761851E7FA604B359AF787820C8E0C5BDF1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161403   (463225) от 30.08.2017
-
-VA - Baby Driver / Малыш на драйве (Music from the Motion Picture) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463225.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Jon Spencer Blues Explosion - Bellbottoms (05:16)
-02. Bob & Earl - Harlem Shuffle (02:48)
-03. Jonathan Richman - Egyptian Reggae (02:37)
-04. Googie Rene - Smokey Joe's La La (02:55)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:44:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E68D2F3D4631B2F889D03FDD63BC0A59121922EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

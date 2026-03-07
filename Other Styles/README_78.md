@@ -1,3 +1,38 @@
+###  Публикация: 519651   (635631) от 07.07.2012
+
+VA - Yak pushu strelu / As I let an arrow fly / Як пущу стрелу песни русско-украинско-белорусского пограничья (2007) [MP3|320 кб/с]<Ethnic>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635631.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Vesna, Vesnyanochka (0:36)
+ 2. Na Gryanoy Nedele (1:04)
+ 3. Seraya Iy Zeziulechka (0:42)
+ 4. Katis, katis, zharkoie solntse (2:00)
+ 5. Oy, ty, lastochka (1:14)
+ 6. Gdje zhiviot moya milaya (2:12)
+ 7. Da khodila Tanechka po gorodu (1:33)
+ 8. Sidel Vanya na divane (2:39)
+ 9. Oy, ya v boru vodu beru (1:12)
+ 10. Sama idu po kameniu (2:32)(   Читать дальше...   )Жанр: EthnicПродолжительность: 01:09:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EFD1874518F9D358DA724F0F1B1F6DAF33AA907
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 519869   (635620) от 07.07.2012
 
 Metafora - Flores Alvarez (2012) [MP3|320 кб/с]<instrumental metal>
@@ -767,35 +802,6 @@ Douglas Spotted Eagle - Voices (1999) [MP3|320 Kbps] <Native American, Folk, Wor
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2BF6758CEE50B14BCB1C099842CF16A21D9DEF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294323   (630095) от 07.04.2019
-
-Angela Little - Chocolate Oyster (2018) OST [MP3|320 Kbps] <Easy Listening, Progressive Jazz, Acoustic>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chocolate Oyster
-02. Frenemy
-03. Daytime Baby Blues
-04. Weekend(   Читать дальше...   )Жанр: Easy Listening, Progressive Jazz, AcousticПродолжительность: 00:23:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:080D8D2C1246B71BE6E959269C5AF181AB5F817A
 ```
 
 https://mybot314.ru/tekegram_catalog/

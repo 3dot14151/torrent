@@ -1,3 +1,32 @@
+###  Публикация: 1211896   (776744) от 09.03.2018
+
+Uriah Heep - The Byron Era (2018) 2CD [MP3|320 Kbps] <Hard Rock, Classic Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776744.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Way Or Another
+02. Come Away Melinda
+03. Blind Eye
+04. Lady In Black(   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 02:31:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F236FDA96F5AED4BD492F6833D83AA37BFD53CA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1211791   (776741) от 09.03.2018
 
 VA - 100 Hits Rock (2018) [MP3|256-320 Kbps] <Rock>
@@ -718,35 +747,6 @@ VA - I Love Music! - Gothic Metal Edition Vol.33 (2017) [MP3|320 Kbps] <Gothic M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA455D1583DFC31737EB75AFA46392C33FF99116
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126565   (765371) от 18.04.2017
-
-VA - I Love Music! - Heavy Metal Edition Vol.33 (2017) [MP3|320 Kbps] <Heavy Metal, Power Metal, Progressive Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765371.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 13Tries - Burned Down 4:22
-002. Al Atkins - Heavy Thoughts 6:12
-003. Almah - Capital Punishment 4:01
-004. Ancestral - Lust For Supremacy 5:50(   Читать дальше...   )Жанр: Heavy Metal, Power Metal, Progressive MetalПродолжительность: 11:48:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:002FD3383C586E6FF7815F6A7F9BB1B6CD412E0B
 ```
 
 https://mybot314.ru/tekegram_catalog/

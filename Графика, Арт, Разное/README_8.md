@@ -1,3 +1,33 @@
+###  Публикация: 601255   (998350) от 10.01.2013
+
+[Wallpapers] Car wallpapers (10.01.13)
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998350.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Car wallpapers (10.01.13)
+Название: Car wallpapers (10.01.13)
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1680х1050 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C4497326AABD33C233AD084B1831153EB25F531
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 601252   (998337) от 10.01.2013
 
 [Wallpapers] Ships and boats (10.01.13)
@@ -648,32 +678,6 @@ Best HD Wallpapers Pack (2/2013) [Wallpapers]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6D218AD47C8D8E23C33CAD050B6C82D1A464F80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604748   (996092) от 18.01.2013
-
-Рисованная графика - Artworks by Omar Oritz
-
->>Графика, Арт, Разное
->>Современное изобразительное искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996092.jpg" />
-</div>
-
-
-###  Подробнее
-
-Работы художника-иллюстратора Omar Oritz.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A99E40769CFE69B07CED7A8DD6D1C919AFB3834B
 ```
 
 https://mybot314.ru/tekegram_catalog/

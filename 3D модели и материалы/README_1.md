@@ -1,3 +1,81 @@
+###  Публикация: 1456066   (1025162) от 21.03.2021
+
+3D модели - Evermotion - Archmodels vol. 209 [V-Ray|*.max]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025162.jpg" />
+</div>
+
+
+###  Подробнее
+
+Archmodels vol. 209 включает 36 профессиональных высокодетализированных 3D-моделей для архитектурной визуализации. В этой коллекции представлены качественные 3d модели одежды, экспозиции обуви и сумок. Текстуры и материалы присутствуют. Все объекты готовы к использованию в ваших визуализациях.Формат: V-Ray|*.max
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5243921DA7DA3428085B073F23390DB08389608E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456448   (1025046) от 22.03.2021
+
+3D Smart materials - Artstation - Zack Maxwell - Stylized Stone - Smart Materials [SPSM]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025046.jpg" />
+</div>
+
+
+###  Подробнее
+
+Умные материалы от автора Zack Maxwell.Формат: SPSM
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B3647768F0440021EEDB20066309619996E99AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456440   (1025042) от 22.03.2021
+
+3D Smart materials - Artstation - Zack Maxwell - Stylized Metal - Smart Materials [SPSM]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025042.jpg" />
+</div>
+
+
+###  Подробнее
+
+Умные материалы от автора Zack Maxwell.Формат: SPSM
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:521D52928899FBE66C4BF845871D8161B1DDCF69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1456435   (1025041) от 22.03.2021
 
 3D Smart materials - Artstation - Zack Maxwell - Stylized Fabric - Smart Materials [SPSM, SBSAR]
@@ -595,84 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C41F3267997FE525F279603D88DC3E5E12804542
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475946   (1011977) от 09.06.2021
-
-3D модели - Hum3D - BelAZ 75710 Dump Truck 2013 [FBX, MAX, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011977.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки BelAZФормат: FBX, MAX, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1A4C7D20E0A64508A1E744D3C3B7F88F7923B05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475939   (1011942) от 09.06.2021
-
-3D модели - BMW 6 Series Gran Turismo M-Sport with HQ interior 2017 [3DS, C4D, FBX, LWO, MAX, OBJ, WRL]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011942.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки BMWФормат: 3DS, C4D, FBX, LWO, MAX, OBJ, WRL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A716A732C9C99BB34BB0A452393BE40391EDDA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475954   (1011933) от 09.06.2021
-
-3D модели - 3ddd - Audi Q8 2019 [Corona|V-Ray|*.max, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011933.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель Audi Q8 2019 с анимацией.Формат: Corona|V-Ray|*.max, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEFE838551FD80F9530E419D21E389992A2ABAF1
 ```
 
 https://mybot314.ru/tekegram_catalog/

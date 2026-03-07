@@ -1,3 +1,32 @@
+###  Публикация: 1107114   (868003) от 22.02.2017
+
+Cyndi Lauper - At Last (2003) [FLAC|Lossless|image + .cue] <Pop, Pop Rock, New Wave>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_868003.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. At Last
+02. Walk On By
+03. Stay
+04. La Vie En Rose(   Читать дальше...   )Жанр: Pop, Pop Rock, New WaveПродолжительность: 00:50:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:466B0A73BF4AE7527A6573317AB19D84E2E77735
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 645083   (867140) от 17.04.2013
 
 Deep Forest - Deep Africa (2013) /Promo CD/ [APE|Lossless]<World, New Age>
@@ -708,35 +737,6 @@ VA - Romantic Collection - Nordic (2002) [FLAC|Lossless|image + .cue] <Instrumen
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E7244863EBC84EB25F3BD28771BD9430DC24235
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109311   (859007) от 27.02.2017
-
-E.S. Posthumus - Unearthed (2001) [FLAC|Lossless|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859007.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Antissa
-02. Tikal
-03. Harappa
-04. Ulaid(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:58:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F479CB6BCEFDF9387459139DDBC843AE63645C86
 ```
 
 https://mybot314.ru/tekegram_catalog/

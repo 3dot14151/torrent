@@ -1,3 +1,32 @@
+###  Публикация: 1494453   (889351) от 07.09.2021
+
+Proud Peasant - Peasantsong (2021) [MP3|320 Kbps] <Progressive-Rock, Symphonic-Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_889351.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Prelude [00:01:49]
+02. Daybreak [00:03:26]
+03. Cencibel [00:03:14]
+04. Turbulence [00:01:48](   Читать дальше...   )Жанр: Progressive-Rock, Symphonic-ProgПродолжительность: 00:32:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC996F1F8F90BFED4550E06BFBEFB989DF73C156
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1372134   (887262) от 02.04.2020
 
 Omana - Альбом Жахів (2020) [MP3|320 kbps] <Rock>
@@ -731,35 +760,6 @@ Bon Jovi - Best Ballads (1997) [MP3|320 kbps]<Rock>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374585   (872981) от 10.04.2020
-
-Mungo Jerry - Touch the Sky (2020) [MP3|320 Kbps] <Blues, Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872981.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Touch the Sky
-02. You'll Be Sorry
-03. Rhythm is a Healer
-04. I'll Be a Hippy 'Til I Die(   Читать дальше...   )Жанр: Blues, Rock, Classic RockПродолжительность: 00:49:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2ABA25244931865EBDBE425B0D6054603BC1E2EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

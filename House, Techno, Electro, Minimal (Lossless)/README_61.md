@@ -1,3 +1,119 @@
+###  Публикация: 1681877   (128754) от 10.12.2023
+
+VA - Milk and Sugar Summer Sessions (2023) [FLAC|Lossless|WEB-DL|tracks] <Funky/Club House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_128754.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gabriel One & Justin Prins - Sirens (Extended Mix) [6:15]
+02. Chasing Kurt - Let It Run (Momo Khani & Meindel Remake) [4:57]
+03. Milk & Sugar - Has Your Man Got Soul (Chasing Kurt Remix) [4:26]
+04. Karol XVII & MB Valence ft. Lazarusman - Whispers (2022 Retouch) [4:49](   Читать дальше...   )Жанр: Funky/Club HouseПродолжительность: 02:37:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE2CC3C4E5A3143EF842A0327418C7DFC891EA01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683881   (128147) от 13.12.2023
+
+VA - Buddha Luxury 2024 (Compiled by Marga Sol) (2023) [FLAC|Lossless|WEB-DL|tracks] <Organic House, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_128147.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Martin Hiska - Shike (5:03)
+02. Coskun Umut Oruc - Istanbulounge (3:48)
+03. Marga Sol - Valley of Lust (4:35)
+04. Martin Hiska - When It Drops (4:59)(   Читать дальше...   )Жанр: Organic House, DowntempoПродолжительность: 01:40:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCB475DFDC6CCC751E5C94712C92CA0BE733095B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684493   (127812) от 15.12.2023
+
+VA - Spreepark (Collected by Oliver Koletzki) - 2023 [FLAC|Lossless|WEB-DL|tracks] <Tech House, Techno, Progressive>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_127812.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jan Rene Lai – Little Things Are Lost
+02. Kellerkind – Blue Sky Thinking
+03. Sascha Home & Deckert – They Know
+04. Malandra Jr. – Dangerous Mind(   Читать дальше...   )Жанр: Tech House, Techno, ProgressiveПродолжительность: 01:23:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C161B6F736818D90724D6E35B91DD1702072312
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823717   (125899) от 12.10.2025
+
+VA - Autumn Hits (Deep Strips Records) (2025) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_125899.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Fly - Little Time (2:49)
+02. Andrew Ross - Move WIth Me (3:33)
+03. DeepTurco - Memory (3:33)
+04. Sharapov - Keep On Rising (3:19)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:35:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DC63AB179BBC1734D8C1BBD6E9758B2A41A4FB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1690623   (123810) от 08.01.2024
 
 VA - Selador Decade Mix (Mixed by Dave Seaman & Steve Parry) - 2023 [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
@@ -615,122 +731,6 @@ Soul Button - Master Minds (2024) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Dee
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E6EECEE5D97A42462F2694F40963EFFC4388DDA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717443   (111149) от 20.04.2024
-
-Rinzen - Bend to the Light (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111149.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rinzen, Shallou - Burnin'
-02. Rinzen - The Pursuit
-03. Rinzen - Astronauta
-04. Rinzen, Molly Moonwater - Déjà Vu(   Читать дальше...   )Жанр: Tech House, Deep House, ProgressiveПродолжительность: 00:50:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E21058218FC5045DBEBD831FB678D511554BE75C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717453   (111148) от 20.04.2024
-
-Soul Button - Dual Realms Of Sound (2023) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111148.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soul Button - Incendiary
-02. Soul Button - Dalliance
-03. Soul Button - Secret Sense
-04. Soul Button - Qabila(   Читать дальше...   )Жанр: Tech House, Deep House, ProgressiveПродолжительность: 01;14:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42197CDC105F34E7A609E0C08D4E50B8D9943E39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718017   (110943) от 25.04.2024
-
-Механический Пёс - Benzin (2024) [FLAC|Lossless|WEB-DL|tracks] <Electroclash, Breaks, Industrial>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110943.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alien Queen [00:05:48]
-02. Electrical [00:05:13]
-03. Never look back [00:05:13]
-04. Old school [00:04:39](   Читать дальше...   )Жанр: Electroclash, Breaks, IndustrialПродолжительность: 00:33:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BA0DC27F537FBF548C12139440BBAEED93C687F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718589   (110941) от 25.04.2024
-
-Christian Löffler - A Life (2024) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Vocal, Progressive>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110941.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Christian Löffler – When Everything Was New
-02. Christian Löffler – Roused (feat. Malou)
-03. Christian Löffler – A Life
-04. Christian Löffler – Portals (feat. Mogli)(   Читать дальше...   )Жанр: Tech House, Deep House, Vocal, ProgressiveПродолжительность: 00:47:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B3C7FD1E9CEE99E070722F7401920BA42021415
 ```
 
 https://mybot314.ru/tekegram_catalog/

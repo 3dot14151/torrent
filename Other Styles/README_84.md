@@ -1,3 +1,32 @@
+###  Публикация: 1147954   (604312) от 05.07.2017
+
+Karushanti - Isle of Skye (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604312.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Long Road to Skye
+02. Skye Bridge
+03. Pure Sligachan
+04. Mealt Waterfall(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A90A3F7E8716EF22B1A4F9359A3BDF367E87C3CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1062185   (604199) от 25.04.2022
 
 Francis Goya/Франсис Гойя - Романтический альбом (2006) 3CD [APE|Lossless|image + .cue] <Neo-Classical, Romantic>
@@ -716,35 +745,6 @@ Angelight - Четыре ветра (2006) [FLAC|Lossless|tracks + .cue] <New Ag
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CAB7412B5FFFFEA952694AEBE35B6012708A3F4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298560   (601755) от 28.04.2019
-
-DBUK - Songs Nine Through Sixteen (2019) [FLAC|Lossless|tracks + .cue] <Folk, Americana, Gothic Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601755.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Bonnie Clyde, The Big-Bull-Hen Of The Women's Prison (6:37)
-2. Deerslayer (5:26)
-3. From The Estate Of John Denver (6:59)
-4. In San Francisco Bay (4:07)(   Читать дальше...   )Жанр: Folk, Americana, Gothic CountryПродолжительность: 00:39:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D689ED015B36526B665778469FB7608EA030353E
 ```
 
 https://mybot314.ru/tekegram_catalog/

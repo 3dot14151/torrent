@@ -1,3 +1,32 @@
+###  Публикация: 1281073   (755090) от 06.02.2019
+
+Тінь Сонця - Буремний край (2016) [MP3|320 Kbps] <Folk Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_755090.jpg" />
+</div>
+
+
+###  Подробнее
+
+[03:19] 1 Ромко Живий
+[03:39] 2 Громом І Вогнем
+[04:17] 3 На Відблисках Мого Меча
+[06:14] 4 Промінь Волі(   Читать дальше...   )Жанр: Folk Rock, Heavy MetalПродолжительность: 00:40:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F03769AB9EF6F0704242B1A3884A6B34E2721288
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1281075   (755085) от 06.02.2019
 
 Тінь Сонця - Зачарований світ (2018) [MP3|320 Kbps] <Folk Rock, Heavy Metal>
@@ -713,35 +742,6 @@ Eberhard Schoener - 2 Albums (1978) (Bass Guitar, Vocals - Sting) [MP3|320 Kbps]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F26059BF54767A1DD0C7238E4CB168D09E72025
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283120   (741153) от 15.02.2019
-
-Noel & The Red Wedge - Peer Pressure (1982) LP [MP3|320 Kbps] <Electronic, Pop Rock, New Wave>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Special To You (3:19)
-02. Act Of Love (3:02)
-03. She's A Big Girl Now (3:07)
-04. Stranger (3:24)(   Читать дальше...   )Жанр: Electronic, Pop Rock, New WaveПродолжительность: 00:35:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74B0D6E2924A6B56490EE446A6C81C02E43C70BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

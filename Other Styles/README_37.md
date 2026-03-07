@@ -1,3 +1,32 @@
+###  Публикация: 1503501   (819398) от 19.10.2021
+
+24Relax - Native American Music (2021) 2CD [MP3|320 Kbps] <Native American, New age, World music>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pacific Blue
+02. The Power of Native Spirit
+03. Native American Horses
+04. The Nomadic Ancestors(   Читать дальше...   )Жанр: Native American, New age, World musicПродолжительность: 01:19:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D6838D63E03AFE8E670BCBB6EB75A397313A17E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1007258   (819323) от 16.04.2016
 
 Mark Knopfler & Evelyn Glennie - Altamira (2016) [MP3|320 кб/с] <Soundtrack, Score>
@@ -714,35 +743,6 @@ Jon Henrik Fjallgren - Goeksegh - Jag ar fri (2015) [FLAC|Lossless|tracks] <Ethn
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85A0B3766C19E0729833DA6CF185251E3C62610D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503976   (815876) от 21.10.2021
-
-VA - Peaceful Night Instrumental Music (2021) [FLAC|Lossless|WEB-DL|tracks] <Instrumental Soft Rock>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815876.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wildlife - Wishing You Were Here (04:17)
-02. Ray Hamilton Orchestra - Anytime You Need A Friend (04:25)
-03. Tony Skeggs - Hotel California (06:44)
-04. Wildlife - Take It Easy (03:35)(   Читать дальше...   )Жанр: Instrumental Soft RockПродолжительность: 00:49:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36026D76084CDEF2205226031308E64CB2DA2958
 ```
 
 https://mybot314.ru/tekegram_catalog/

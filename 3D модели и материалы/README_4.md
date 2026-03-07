@@ -1,3 +1,83 @@
+###  Публикация: 1353970   (989593) от 20.01.2020
+
+3D модели - Evermotion - Archmodels vol. 152 [Mental Ray|V-Ray|*.max, C4D, FBX, OBJ, RFA, IES]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_989593.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередной сборник 3d моделей от Evermotion!
+Впервые сборник предоставляется бесплатно. В данный сборник вошли 76 моделей освещения от компании LUG в стиле модерн.Формат: Mental Ray|V-Ray|*.max, C4D, FBX, OBJ, RFA, IES
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6C5E6D53F40CEB335A972AF6C91A2714A309675
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1354242   (988804) от 21.01.2020
+
+3D материалы - Megascans Displacements- All 52 Maps 4K [JPG, EXR]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_988804.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка из 52-х 3D материалов со всеми картами и самом высоком разрешении.Формат: JPG, EXRРазрешение файлов: 8192x8192
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E030D361F0F09B782F504EAEF8BE62730836077
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1354411   (987710) от 22.01.2020
+
+3D модели - Сборка военной техники из игр [MAX, OBJ, 3DS, DWG, FBX, W3D, GMAX, MA, SMD, ASSET, META, C4D, P3D]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987710.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник разной военной техники из таких игр как World of Tanks, Men of War: Assault Squad 2, Spintires, Metro: Exodus, Call of Duty: Modern Warfare Remastered, S.K.I.L.L. - Special Force 2 и т.д.
+190штФормат: MAX, OBJ, 3DS, DWG, FBX, W3D, GMAX, MA, SMD, ASSET, META, C4D, P3D
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA0DEF5A7F39773EB170056D933570C97B529D21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1354414   (987699) от 22.01.2020
 
 3D сцены - Evermotion - Archinteriors vol. 45 [V-Ray|*.max]
@@ -606,85 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3D2566BB6701B8421A75D6E892E08B9AE74855F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489567   (925221) от 16.08.2021
-
-3D модели - TurboSquid - Iveco EuroCargo Double Cab Chassis Truck 2008 - 1266903 [V-Ray|*.max, FBX, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925221.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки IvecoФормат: V-Ray|*.max, FBX, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:778B81914DCCDDA51D0CD642E56692A0D08376B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489425   (925199) от 16.08.2021
-
-3D модели - Hum3D - Peterbilt 357 Day Cab Chassis Truck 2006 [V-Ray|*.max, 3DS, 3DM, C4D, FBX, LWO, MB, OBJ, STL]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925199.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки Peterbilt.Формат: V-Ray|*.max, 3DS, 3DM, C4D, FBX, LWO, MB, OBJ, STL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6C3F6147C46B0578EDADC755095CE2B8FA7AEB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366465   (923383) от 11.03.2020
-
-3D модели - 3DDD - 3D Panel - 3D Models - 3dSkyPro - Volume 1 [Corona|V-Ray|*.max, FBX, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923383.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник моделей с сайта 3ddd/3dsky.
-Количество моделей: 50 шт.Формат: Corona|V-Ray|*.max, FBX, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B57F7A3098B17921846C68B3C38F55148A7256BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

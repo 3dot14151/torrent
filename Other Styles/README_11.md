@@ -1,3 +1,32 @@
+###  Публикация: 1356325   (979110) от 30.01.2020
+
+Marco Beltrami & Brandon Roberts - Underwater / Под водой (Original Motion Picture Soundtrack) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_979110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Bends (01:36)
+02. Voyage to the Bottom of the C (Main Title) (02:43)
+03. Norah's Theme (02:23)
+04. Sprung a Leak (01:41)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:44:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:898B309CE66D50197EA32AADBA7B2BC634BE2008
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 742439   (979005) от 06.01.2014
 
 Briza (David Arkenstone) - Ambient Cafe (2006) [FLAC|Lossless|image + .cue] <New Age>
@@ -728,35 +757,6 @@ VA - Mystic Spirits Vol. 2, 2CD  (2000) [FLAC|Lossless|image + .cue] <Ambient, F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B64E2AC6234555751FCD9B19D90194E8ED42018
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357457   (974336) от 03.02.2020
-
-VA - Mystic Spirits vol. 3, 2CD (2001) [FLAC|Lossless|image + .cue] <Folk, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974336.jpg" />
-</div>
-
-
-###  Подробнее
-
-2-1 –Delerium Silence (Album Version - Edit) 4:07
-2-2 –Oliver Shanti & Friends Sacral Nirvana (Radio Edit) 5:55
-2-3 –Steve McDonald Soldier's Lament 4:54
-2-4 –Rednex The Spirit Of The Hawk (F.A.F. Radio Mix) 4:02(   Читать дальше...   )Жанр: Folk, AmbientПродолжительность: 02:32:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57FD464C36681C1CBF217544BE2A5FFFD89BC4C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,206 @@
+###  Публикация: 1577034   (239024) от 17.09.2022
+
+DJ BoBo - Fantasy (2010) [OGG Vorbis|484 Kbps] <Electronic, Eurodance, Dance-pop>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_239024.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Is My Time	3:49
+02. The Voice Of Freedom	2:59
+03. Superstar	3:32
+04. Roll Up	2:43(   Читать дальше...   )Жанр: Electronic, Eurodance, Dance-popПродолжительность: 01:27:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:402EF31593ACB37EB97FF0BE42865957E50A7CE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638516   (238995) от 09.06.2023
+
+VA - Acoustic Delight (2023) [MP3|320 Kbps] <Pop, Rock, RnB>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_238995.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vance Joy - Riptide
+02. Ed Sheeran - Castle on the Hill (Acoustic)
+03. Christina Perri - A Thousand Years
+04. Coldplay - Everglow(   Читать дальше...   )Жанр: Pop, Rock, RnBПродолжительность: 02:51:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C0B406E2DEC028211E197DEDEF978BCF53E032B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1636588   (238965) от 31.05.2023
+
+Allivm - Survivante (2023) [FLAC 2.0|192/24|tracks|WEB-DL] <Pop>
+
+>>Pop
+>>Pop (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_238965.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A2LIVM (2:59)
+02. Noémie (3:47)
+03. Allivm c'est nous (2:31)
+04. La lumière (3:36)(   Читать дальше...   )Жанр: PopПродолжительность: 00:23:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BC2E1F8FE6B9A1373FCCE58C47D5D9B325337FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087376   (238843) от 27.04.2022
+
+Madonna - Best Of... (2002) All Stars Presents Series, Unofficial Release [APE|Lossless|image + .cue] <Electronic, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_238843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rain
+02. Papa Don't Preach
+03. La Isla Bonita
+04. You'll See(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 01:13:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CAF627BA34EF7C720DC29961214D74FA5CC4EF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1636929   (238795) от 01.06.2023
+
+VA - Certified Love Songs (2023) [MP3|320 Kbps] <Pop, Rock, RnB, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_238795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Weeknd - Die For You
+02. Baby Bash, Frankie J - Suga Suga
+03. Nelly, Kelly Rowland - Dilemma
+04. Tory Lanez - Say It(   Читать дальше...   )Жанр: Pop, Rock, RnB, DanceПродолжительность: 02:36:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:947C64A7DFD08653E1521D6BB7B1F22EF0BC622A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638844   (238785) от 10.06.2023
+
+Jake Shears - Last Man Dancing (2023) [FLAC|Lossless|image + .cue] <Dance-pop, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_238785.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Too Much Music (4:38)
+02. Do the Television (4:38)
+03. feat. Kylie Minogue - Voices (4:26)
+04. I Used To Be In Love (3:28)(   Читать дальше...   )Жанр: Dance-pop, Synth-popПродолжительность: 00:50:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC642524BD8222CEC45914135EFFCE20AC0159C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1636921   (238770) от 01.06.2023
+
+VA - Chill Vibes 2023 (2023) [MP3|320 Kbps] <Pop, Rock, RnB, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_238770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Metro Boomin - Creepin'
+02. Post Malone - Chemical
+03. Rema - Calm Down
+04. Karol G - TQG(   Читать дальше...   )Жанр: Pop, Rock, RnB, DanceПродолжительность: 04:45:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:829EBDE29BBD2BE37C861CA05DD582B7F73FCB75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1628449   (238686) от 23.04.2023
 
 Polnalyubvi - О чем поет твое сердце (2023) [MP3|320 Kbps] <Indie, Folk, Neo-classic>
@@ -542,209 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF2361A23870F4568BD65A488840F09523E04B77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627742   (237102) от 20.04.2023
-
-VA - ZYX Italo Disco New Generation Vol. 6 (2015) 2 CD [OGG Vorbis|480 Kbps] <Italo-Disco, Euro-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237102.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Talking Eyes - The Summer Goes (extended version)
-02. M-Tracking - Give Me Your Hand (maxi version)
-03. Clock on 5 - Love Kills (The Mayerling, Part 2)
-04. Digitalo - Love Me Endlessly (extended version)(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, Synth-popПродолжительность: 02:33:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC91E5B88D92DA4E71843AC022A5BD89426CCBC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627492   (237074) от 20.04.2023
-
-VA - ZYX Italo Disco New Generation Vol. 3 (2013) 2 CD [OGG Vorbis|480 Kbps] <Italo-Disco, Euro-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237074.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Savage - Save Me (Vocal Remix)
-02. Joey Mauro - Japan Kiss (Marschall Longdrink Remix)
-03. Tess - Cry Away (Italo Disco Extended Mix)
-04. TQ & Linda Jo Rizzo - Out Of The Shadow (Extended)(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, Synth-popПродолжительность: 02:32:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0ABF91E426086807817FD8310477F2E9C1D4422F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630805   (237067) от 02.05.2023
-
-VA - 12 Inch Maxi Club Disco Funk Vol. 02 (2015) CD, Compilation [MP3|320 Kbps]  <Disco, Italo Disco, New Wave, Synthpop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237067.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rhyze - Rhyze To The Top (Club Mix)
-02. Harvey Mason - Groovin' You (Club Mix)
-03. Hamilton Bohannon - Let's Start The Dance (Club Mix)
-04. Gordon's War - The Rock Is Gonna Get You (Club Mix)(   Читать дальше...   )Жанр: Disco, Italo Disco, New Wave, SynthpopПродолжительность: 02:09:45 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DC8DE283746C175E8B309502DE4A39D5F941647
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630835   (237037) от 02.05.2023
-
-Jessie Ware - That! Feels Good! (2023) [FLAC 2.0|48/24|WEB-DL|tracks] <Pop, Indie Pop, Electronic>
-
->>Pop
->>Pop (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237037.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. That! Feels Good!
-02. Free Yourself
-03. Pearls
-04. Hello Love(   Читать дальше...   )Жанр: Pop, Indie Pop, ElectronicПродолжительность: 00:40:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:120F91E21376D462D3C0AD825D2B80C1AE87F52E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031951   (236933) от 06.09.2022
-
-Евгений Осин - Любовное настроение (2003) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236933.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. [04:59] Ялта
-02. [03:44] Мальчишка
-03. [03:36] Две девушки
-04. [03:39] 8-е марта(   Читать дальше...   )Жанр: PopПродолжительность: 01:03:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5762BDDA4EDD1EAD98FB9AFE9EDDE8FEBDB5034F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631019   (236862) от 03.05.2023
-
-VA - Soft Rock Sunset Easy Classics (2023) [MP3|320 Kbps] <Pop, Soft Rock, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236862.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gerry Rafferty - Right down the Line
-02. Foreigner - That Was Yesterday
-03. Carly Simon - You Belong to Me
-04. Fleetwood Mac - Dreams (2018 Remaster)(   Читать дальше...   )Жанр: Pop, Soft Rock, RockПродолжительность: 03:22:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:039C3DDF0F47CC5564B535BBABB0327FC439E995
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630800   (236821) от 02.05.2023
-
-VA - 12 Inch Maxi Club Disco Funk Vol. 01 (2015) CD, Compilation [MP3|320 Kbps] <Disco, Italo Disco, New Wave, Synthpop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oliver Cheatham - Get Down Saturday Night (Club Mix)
-02. Carl Carlton - She's A Bad Jama (Club Mix)
-03. Fat Larry's Band - Act Like You Know (Club Mix)
-04. Gene Chandler - When You're N°1 (Club Mix)(   Читать дальше...   )Жанр: Disco, Italo Disco, New Wave, SynthpopПродолжительность: 02:05:51 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF43CD07CE4839C8A516E4DFE0F27A7539CF14D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1200363   (796143) от 20.01.2018
+
+Sade - Stronger Than Pride (1988) Unofficial Release [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <R&B, Downtempo>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796143.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Love Is Stronger Than Pride (4:17)
+A2. Paradise (4:02)
+A3. Nothing Can Come Between Us (4:24)
+A4. Clean Heart (4:01)(   Читать дальше...   )Производство: Not On Label - BL 1017Жанр: R&B, DowntempoПродолжительность: 00:42:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3048926114DED2031AAFC5845A63E24A651E54E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274259   (794133) от 06.01.2019
+
+Pete Seeger - Waist Deep In The Big Muddy And Other Love Songs (1993) 1967 [FLAC 2.0|48/24|image+.cue|MC-Rip] <Folk>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794133.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Oh Yes I'd Climb (The Highest Mountain Just For You)
+A2 Seek And You Shall Find
+A3 The Sinking Of The Reuben James
+A4 Waist Deep In The Big Muddy(   Читать дальше...   )Жанр: FolkПродолжительность: 00:47:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C26BC584BA47B69EE368832E6EF611C4C2D147F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509028   (793669) от 13.11.2021
+
+The Alan Parsons Project - Eye In The Sky (1982) Remastered 2021, Mobile Fidelity [DSD 2.0 1bit/2822,4kHz |SACD-R] <Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Sirius (1:56)
+02 - Eye In The Sky (4:36)
+03 - Children Of The Moon (4:51)
+04 - Gemini (2:10)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:42:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25416AEB363B4EF9A15529C3FDA4E3A85B09123C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123383   (792403) от 07.04.2017
+
+The Alan Parsons Project - Vulture Culture (1984) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792403.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Let's Talk About Me (4:33)
+A2. Separate Lives (4:32)
+A3. Days Are Numbers (The Traveller) (4:56)
+A4. Sooner Or Later (4:25)(   Читать дальше...   )Производство: Arista - 206 577Жанр: Progressive RockПродолжительность: 00:37:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA32A8782BAB0FA456CFD2F447A6D73301B9257E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510148   (791953) от 15.11.2021
+
+ABBA - Voyage (2021) [WavPack 2.0|32/192|image + .cue|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791953.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Still Have Faith In You (5:09)
+02. When You Danced With Me (2:51)
+03. Little Things (3:09)
+04. Don't Shut Me Down (3:56)(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE53AF75DA6560AE91499E8166AC24BC6F283FC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510163   (791928) от 15.11.2021
+
+Moby - Reprise (2021) [WavPack 2.0|32/192|image + .cue|Vinyl-Rip] <Downtempo, Electronic, Orchestral>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791928.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everloving
+02. Natural Blues (with Gregory Porter and Amythyst Kiah)
+03. Go
+04. Porcelain (with Jim James)(   Читать дальше...   )Жанр: Downtempo, Electronic, OrchestralПродолжительность: 01:10:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73D656F1944EBED68A845F91F95F65ABEF25BD27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1510156   (791882) от 15.11.2021
 
 The Prodigy - The Fat Of The Land (2012) 2LP Reissue [FLAC 2.0|24/192|image +.cue|Vinyl-Rip] <Breakbeat>
@@ -571,180 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84750145A44EC22BAD4D6BA8D7787118BAA22D92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205577   (783152) от 11.02.2018
-
-Teruo Yoda and Moody Kings - The Season Of Love (1968) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip]  <Easy Listening, Instrumental>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783152.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Koi No Kisetsu (3:23)
- 02. Yuzuki (2:25)
- 03. Shinjuku Sodachi (2:57)
- 04. Hoshi O Minaide (2:28)(   Читать дальше...   )Жанр: Easy Listening, InstrumentalПродолжительность: 00:38:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8BB63C9B9B6E6158E22B89E710F00C29593D927
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377963   (781360) от 19.06.2020
-
-Robert Plant - Digging Deep (2020) [DSD 128|tracks|Vinyl-Rip] <Pop/Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781360.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Burning Down One Side (3:55)
- 02. Like I've Never Been Gone (5:58)
- 03. Big Log (5:07)
- 04. In The Mood (5:21)(   Читать дальше...   )Жанр: Pop/RockПродолжительность: 01:17:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88D7BEDC507C9AD409BF258406862B15A172F150
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207556   (780371) от 19.02.2018
-
-Demis Roussos - 5 Albums (1971-1978) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop, Folk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780371.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fire And Ice 
-A1 Fire And Ice
-A2 She Came Up From The Nort
-A3 Good Days Have Gone(   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 03:30:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE47DCD164DDA7F43736DEFB744B22B3844689A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207999   (780193) от 20.02.2018
-
-Queen - The Game (1980) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780193.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Play The Game (3:30)
-02. Dragon Attack (4:19)
-03. Another One Bites The Dust (3:34)
-04. Need Your Loving Tonight (2:49)(   Читать дальше...   )Производство: EMI Records - EMA 795Жанр: RockПродолжительность: 00:35:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:917FEFB453720A6BF0F4E87012394F4F45DA796B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207147   (780176) от 20.02.2018
-
-Lindsey Stirling - Brave Enough (2016) [FLAC 2.0|192/24|image+cue|Vinyl-Rip] <Modern Classical, Dance-pop, Dubstep>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780176.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Lost Girls
-2. Brave Enough
-3. The Arena
-4. The Phoenix(   Читать дальше...   )Жанр: Modern Classical, Dance-pop, DubstepПродолжительность: 00:55:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB9E73B1F759B061B09727E85848AA367F1C36DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208378   (779760) от 23.02.2018
-
-Within Temptation - Hydra (2014) [FLAC 2.0|192/24|image + cue|Vinyl-Rip] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let Us Burn
-02. Dangerous (feat. Howard Jones)
-03. And We Run (Feat. Xzibit)
-04. Paradise (What About Us?) (feat. Tarja)(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8404BFE1F2EAC5D41638FAB2B010C58864E49E66
 ```
 
 https://mybot314.ru/tekegram_catalog/

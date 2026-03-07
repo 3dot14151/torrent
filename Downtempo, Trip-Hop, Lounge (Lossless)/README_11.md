@@ -1,3 +1,32 @@
+###  Публикация: 1530573   (728980) от 11.02.2022
+
+VA - Distant Places Lounge Vol.1: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728980.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Free Spirit Muse - Breath-Ful Moments (20:21)
+02. Matt Sour - Like a Fairy Tale (Original Mix) (4:44)
+03. Gary B - Afraid to Fall (Original Mix) (4:53)
+04. Michael E - Wind Chime (Original Mix) (5:53)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:26:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC95F4D0ECC4D135AE7FC26DC2BC9680CE393493
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1022792   (727682) от 03.06.2016
 
 Above & Beyond - Acoustic II (2016) [FLAC|Lossless|WEB-DL|tracks] <Downtempo , Chillout>
@@ -716,35 +745,6 @@ Hugo Kant - OUT OF TIME (2017) [FLAC|Lossless|tracks] <Downtempo, Trip-Hop, Inst
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9FB51AEF40576B31D52CE2D42F5A77988304CD34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030627   (672290) от 01.07.2016
-
-Night Sky (aka Afternova) - Visions (2016) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Chillout>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Summer Wind (2:27)
-02. Visions (2:43)
-03. Reminiscence (2:02)
-04. A New Way (2:01)(   Читать дальше...   )Жанр: Ambient, ChilloutПродолжительность: 00:24:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E50A2BB0C8F1D9CFEF0CA6A0E49903FE4D0A6D3E
 ```
 
 https://mybot314.ru/tekegram_catalog/

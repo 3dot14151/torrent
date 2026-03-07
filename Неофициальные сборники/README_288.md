@@ -1,3 +1,317 @@
+###  Публикация: 1226360   (655442) от 20.05.2018
+
+VA - Русский Хит В Машину Выпуск 2 (2018) [MP3|256-320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655442.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Градусы - Она
+02. Юлия Самойлова - I Won't Break (Россия на «Евровидении-2018»)
+03. Егор Крид - Миллион алых роз
+04. Артур Пирожков - Чика(   Читать дальше...   )Жанр: PopПродолжительность: 05:39:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C41CD3D7AD867A88BAA6C592E5B941C6FD7CB86F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 515412   (655433) от 26.06.2012
+
+VA - Самые Горячие Русские Хиты Муз-ТВ Хит 4 (2012) [MP3|256 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655433.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Dan Balan - Не любя
+002 Слава - Sex не любовь
+003 Марсель - Иди ко мне
+004 Блестящие и Герои - Из Чего Же
+005 Джиган feat. Николай Басков - Паранойя
+006 Макс Барских - Пылай
+007 Наташа Королева - Небеса
+008 Филипп Киркоров - Я отпускаю тебя
+009 Анжелика Варум - Нарисуй Любовь
+010 Дима Билан & Nikki Jamal - Come Into My World(   Читать дальше...   )Жанр: PopПродолжительность: 05:49:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C3BC74F844FFE9BC63282035C777D13EF4A4D72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 515644   (655425) от 26.06.2012
+
+VA - Жаркие Хиты Лета 50/50 (2012) [MP3|128 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655425.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Far East Movement feat. Justin Bieber - Live My Life
+002. Нюша - Воспоминание
+003. Tanzamomo - Rum & Coca
+004. Инфинити - А Он Такой
+005. Loreen - Euphoria
+006. Дилайс - Нежно-Нежно
+007. Oceana - Endless Summer (Single Mix)
+008. Чи-Ли - Океан
+009. Jennifer Lopez feat. Flo Rida - Goin' In
+010. Ksela feat. DJ Alix - Наше Лето(   Читать дальше...   )Жанр: PopПродолжительность: 11:45:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11A6F6820EAB959B3B995F2C420E2027DF321CEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 515271   (655420) от 26.06.2012
+
+VA - Звезды Дорожного Радио 1 (2012) [MP3|256 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655420.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Потап и Настя Каменских - Прилелето
+002 Каролина - Летний Дискобар (Версия 2012)
+003 Дискотека Авария - Россия Победит!
+004 Винтаж feat. Bobina - На-На-На
+005 Юрий Шатунов - Летний Ливень
+006 Татьяна Овсиенко - Тому, кого люблю
+007 Валерий Леонтьев - Лето любви
+008 Катя Лель - С Днем рождения
+009 Dan Balan - Не любя
+010 Ирина Круг - Перелетная птица(   Читать дальше...   )Жанр: PopПродолжительность: 06:11:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EC0902540EE351901EB03266C49632D3627E200
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 515460   (655416) от 26.06.2012
+
+VA - Шедевры Испанской Гитары - 6 дисков (1998-2001) [MP3|320 кб/с]<Instrumental-Classical>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655416.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во второй половине XVI века гитарная музыка в Испании пришла к блестящему расцвету. В нее все больше стали проникать народные мелодии. Постепенно становилось традицией сочинять вариации к популярным произведениям. Эти вариации получили название "диференсиас" (diferencias). В них чувствовалась любовь испанцев к украшениям, по количеству музыкального "орнамента" эти вариации можно сравнить с арабесками Альгамбры. Изобретательность композиторов была просто неистощима. Например, Энрикес де Вальдеррабано на тему популярного сатирического романса "Conde claros" написал пьесу из ста двадцати вариаций.1. Lara & Reyes - Cotton Candy (4:33)
+ 2. Jesse Cook - Tempest (3:02)
+ 3. Robert Michaels - Cupid's Dance (4:55)
+ 4. Ottmar Liebert - Barcelona Nights (4:02)
+ 5. Gipsy Kings - Passion (3:03)
+ 6. Shahin & Sepehr - Yasmine (4:11)
+ 7. Jesse Cook - Orbit (3:09)
+ 8. Struntz & Farah - Zumba (3:42)
+ 9. Ottmar Liebert - 2 The Night (4:17)
+ 10. Gipsy Kings - Michael (4:04)(   Читать дальше...   )Жанр: Instrumental, Flamenco, GuitarПродолжительность: 00:57:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC872A8739C07D77568CD0B6943A1ADDBB0A43A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904169   (655232) от 02.06.2015
+
+Балаган Лимитед - Лучшие Песни (2015) [MP3|320 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Кто бы мог подумать
+02. Мама не велит
+03. Чтоб тебя
+04. Тик-так ходики(   Читать дальше...   )Жанр: PopПродолжительность: 01:10:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:888E73EEA9B3BAB970BDC9C197088184AF6D4C84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904215   (655174) от 02.06.2015
+
+VA - Дискотека Nonstop Party №1 (2015) [MP3|320 кб/с]<Pop, Dance, Club>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_655174.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Iowa - Улыбайся
+002. Bass Ace, Albina Mango - This Is Deep (Colin Rouge Remix)
+003. Aronchupa - I'm An Albatraoz
+004. Awolnation - Sail (No Hopes, Misha Klein Remix)(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 14:16:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08C261C9AECDA27201C42DA838DA9D108BDC4D39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539537   (654997) от 28.03.2022
+
+VA - Hallucinate (2022) [MP3|320 Kbps] <Rock, Metal, Hard Rock, Hardcore>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_654997.jpg" />
+</div>
+
+
+###  Подробнее
+
+Презентуем Вам очередной разноплановый сборник хард рок музыки под названием «Hallucinate». Неповторимое звучание представленных композиций, собственный стиль исполнителей, широкий насыщенный саунд, которого музыканты добились благодаря своей усердной работе и безграничному таланту, все это на треках представляемого лонгплея.001. To Kill Achilles - Venom
+002. Purgatory - Thorn Of Life
+003. Flesh Worship - Sordid Betrayal
+004. Kontaminate - Blood Hunger Forever(   Читать дальше...   )Жанр: Rock, Metal, Hard Rock, HardcoreПродолжительность: 09:55:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27DDEFF346112A3ABE2C376867A4A37C04BFA15E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539540   (654960) от 28.03.2022
+
+VA - Angel In Zion (2022) [MP3|320 Kbps] <Reggae, Dub, Riddim, Reggaeton>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_654960.jpg" />
+</div>
+
+
+###  Подробнее
+
+Теперь любовь, о которой поется в современном Reggae, это не просто романтическая любовь двух человек, а космическая, духовная любовь, любовь к ближнему и к Богу. И когда певцы регги не поют о любви, они поют о восстании и революции против сил, препятствующих этой любви, таких как насилие, нищета, расизм и угнетении правительствами, которые они наблюдали или испытывали (   Читать дальше...   )001. Gary Clail - Beef
+002. Hr With The Scotch Bonnets - H.R. Psalm
+003. Zion Head - This Time So Hard
+004. The Great Zeee - Big Joy Riddim(   Читать дальше...   )Жанр: Reggae, Dub, Riddim, ReggaetonПродолжительность: 08:22:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:478B3B69041DC03FD24A48012A98C6FC19D61F78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539495   (654919) от 28.03.2022
+
+VA - Beatport Electro House: Sound Pack #506 (2022) [MP3|320 Kbps] <Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_654919.jpg" />
+</div>
+
+
+###  Подробнее
+
+Beatport продолжает знакомить нас с новинками электронной сцены - подтверждение тому 506-й релиз который включил в свой треклист целых 120 самых актуальных треков в стиле Electro House.001. Soul Train - A New Soul
+002. Kiberu - Ufzag
+003. Waterfall Eleven - Breathin
+004. Minor Crime - Spiritual Rites(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 12:55:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74F86E5B6B29C8BBC8BA36FEAE4E264AF705A545
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1140688   (654865) от 07.06.2017
 
 VA - SpaceSynth & ItaloDisco Hits Vol.27 (2017) [MP3|320 Kbps] <Italo Disco, Spacesynth, Hi NRG>
@@ -483,306 +797,6 @@ Hits of My Soul - сборник электронной и инструмент�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82A90E43D793B6FC142A4002FD9626667CDB16CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 516067   (654588) от 27.06.2012
-
-VA - Летняя Туса 4 на Радио Record 50/50 (2012) [MP3|320 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654588.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, DanceПродолжительность: 08:46:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:240C0494AD3547883C6E2A1ACB5586390A6D5150
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 516111   (654580) от 27.06.2012
-
-VA - XXXL Music Box. Выпуск 8 (2012) [MP3|256 kbps]<Pop|Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654580.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 А-Студио и Quest Pistols - Медведица
-002 Lady GaGa - Glitter & Grease
-003 Varda - Я Тебе Не Верю
-004 Arash Ahangari - Ahange Zamoone
-005 Дискотека Авария и Нюша - Moscow Never Sleeps
-006 Fly Project - Back In My Life (Radio Edit)
-007 Dress Code - Кучерявое Лето
-008 Taio Cruz & Flo Rida - Hangover (Hardwell radio edit)
-009 Varda & Виталий Козловский - Потанцуй
-010 Roman Bellezzo vs Slam DJs feat. Irene - Frozen (Radio mix)(   Читать дальше...   )Жанр: Pop|DanceПродолжительность: 05:52:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E04BB0C74D7E734F903495FFC926B3B5C050161
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 516105   (654575) от 27.06.2012
-
-VA - Курортный Хит (2012) [MP3|128 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654575.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Michel Telo Feat. Pitbull - Ai Se Eu Te Pego (Smash Mode Radio Edit)
-002. Simon From Deeo Divas Feat. Goody - Disco Dancer (Simon Original Radio Mix)
-003. Modana And Carlprit - Shake That Boo Boo (Radio Edit)
-004. Armin Van Buuren Presents Gaia - Jai Envie De Toi (Radio Edit)
-005. Mike Candys And Evelyn - Around The World (Radio Mix)
-006. Mishelle Feat. Randi - It Feels So Good (Radio Edit)
-007. Matisse And Sadko Ft Ollie James - Were Not Alone (Hi Scandinavia) (Radio Edit)
-008. Helena Feat. Steve Owner - Hold On Me (Original Mix)
-009. Pink Lady Deejay - Face To Face
-010. Tradelove - Pum Back(   Читать дальше...   )Жанр: PopПродолжительность: 11:56:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8388D650DFAA88A0145B9B9978B6FDA9AC10665E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226565   (654550) от 21.05.2018
-
-VA - Зарубежный Хит В Машину Выпуск 2 (2018) [MP3|256-320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654550.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Netta - Toy (Music Video Version)
-02. Selena Gomez - Back To You (из сериала «13 причин почему». Сезон 2)
-03. Christina Aguilera - Twice
-04. Charlie Puth - The Way I Am(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:08:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CE79BEE935F7A6DD39D45A48C1EE5120EBC360E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 516068   (654512) от 27.06.2012
-
-VA - Хит парад Союз лето (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654512.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 05:39:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DC11E924E81E44D58488E6E865B79D184D8FBDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226469   (654421) от 21.05.2018
-
-VA - Club Dance Ambience Vol.148 (2018) [MP3|320 Kbps] <Dance, Club House, Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654421.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. #2Маши - Красное Белое (Rakurs & Ramirez Radio Edit)
-002. Addal vs. Mida feat. KiFi - 405 (Ramirez & Mike Prado Radio Edit)
-003. Afterman - Runnin' (Sunshine Mix)
-004. Alok, Bhaskar, Jetlag Music - Bella Ciao (Extended Mix)(   Читать дальше...   )Жанр: Dance, Club House, Electro HouseПродолжительность: 07:12:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:736FC9A96C6C318908550D5916D0198D4CAC5FCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515815   (654406) от 27.06.2012
-
-VA - Шоферской Хит 8 (2012) [MP3|128 kbps]<Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654406.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Сборная союза - Давай дружок
-002. Борис Погодин - Дальнобойщик
-003. Виктор Королев - Братишка
-004. Александр Закшевский - Вези меня такси
-005. Руслан Уфимский - Про российского таксиста
-006. Алекс Алексеев - Попутчик
-007. Елена Хмель - Счастье ты моё!
-008. Марина Александрова - А мужики Сво
-009. Евгений Росс - Прописан-Алтай
-010. Андрей Бандера - Сбереги любимую(   Читать дальше...   )Жанр: ШансонПродолжительность: 12:13:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A31F1C992D8C32FBB2D7978F68A921A1FADFF024
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904602   (654380) от 03.06.2015
-
-VA - Extra House (episode 2) (2015) [MP3|320 кб/с]<House, Deep House, Club House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654380.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. FictiOne - 123 (Techtower Remix) (07:49)
-002. Da Funk - You Got Me (Telekollektiv Remix) (07:33)
-003. Deep Active Sound - Feeling (VieL Remix) (07:07)
-004. Flow & Zeo, Nytron, Tea Lyrics - Inside (Original Mix) (08:03)(   Читать дальше...   )Жанр: House, Deep House, Club HouseПродолжительность: 02:03:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10FA7C417C4A49F3DAA0649F66AF574C045E76CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 516125   (654346) от 27.06.2012
-
-VA - Новинки русского Рэпа. Музыкальный Каприз (2012) [MP3|192 кб/с]<Rap, Hip-hop>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654346.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Rap, Hip-hopПродолжительность: 08:18:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4934CF6D8D181BB6AE1BF7937B5722EED27DF103
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903848   (654132) от 03.06.2015
-
-Вольфганг Амадей Моцарт - Музыка Моцарта для беременных (2000) [MP3|320 кб/с]<Класика>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654132.jpg" />
-</div>
-
-
-###  Подробнее
-
-Регулярно слушая сборник музыки Моцарта для беременных, молодые родители делают неоценимый вклад в развитие ребенка. Еще не родившийся малыш воспринимает мелодию и реагирует на нее, стимулируется его умственное развитие.
-Научно доказано, что музыка Моцарта для беременных, которую можно слушать онлайн или предварительно скачать, поднимает настроение и оказывает целительное (   Читать дальше...   )1. Andante, II, From the Divertimento in G Minor, K.158 : 04:43
-2. Adagio, II, From the String Quartet No. 12 in B Flat Major, K.172: 05:49
-3. Adagio, V, From the Divertimento in D Major, K.100: 02:42
-4. Andante, II, From the Divertimento, II, From the Cassation in D Major: 05:34(   Читать дальше...   )Жанр: МузыкаПродолжительность: 00:33:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:749AA32417D085E58A9D0C2738B1C4B24EAFE2B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

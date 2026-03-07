@@ -1,3 +1,32 @@
+###  Публикация: 803307   (621019) от 09.07.2014
+
+Marc Shaiman - Семейка Аддамс / The Addams Family (2014 (1991)) [FLAC|Lossless]<Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621019.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Carol of the Bells* / The Fa-La-La Song** / Deck the Halls**
+ 02 - Main Title#
+ 03 - Morning
+ 04 - Chess*(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:10:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B7F3B646B2FBA84E5FD25A38657D22B8B546D93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1036320   (621005) от 20.07.2016
 
 VA Hit Country - Hit Country (2014) [MP3|320 Kbps] <Country, Alt Country>
@@ -728,41 +757,6 @@ BrunuhVille - Timeless (2018) [MP3|320 Kbps] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93426F683099212BAB604BE1BAD5C0CCD2E33784
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523557   (617109) от 16.07.2012
-
-VA - Ethnic Voices - Navahos Dreams (2005) [MP3|320 кб/с]<Native American, Ethnic, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617109.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Magec - Magic Mushroom (1:56)
-02. Marcel Thebach - One-World (5:00)
-03. Marcel Thebach - One-Ganjaland (5:50)
-04. G.E.N.E. - Wakonda (5:32)
-05. Ultrabass - Under Ancient Skies (7:31)
-06. Venja - Whentribal Wizard Dance (4:18)
-07. G.E.N.E. - Hte Flight Of The Clouds (5:10)
-08. Magec - Monguor Saman (3:44)
-09. Magec - Feelings (3:36)
-10. Magec - Fishbone Ceremony (4:28)(   Читать дальше...   )Жанр: Native American, Ethnic, New AgeПродолжительность: 01:04:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2DF66C232A866A618BF75B3E0AAF2C96F55A03D
 ```
 
 https://mybot314.ru/tekegram_catalog/

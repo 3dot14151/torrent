@@ -1,3 +1,206 @@
+###  Публикация: 948391   (411382) от 20.10.2015
+
+VA - Взорви танцпол 50х50 (2015) [MP3|320 кб/с]<Dance, club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_411382.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Duke Dumont - Ocean Drive (Michael Calfan Remix)
+002 Felix Jaehn feat. Polina - Book Of Love (Extended Mix)
+003 Madcon feat. Ray Dalton - Don't Worry (Kolya Funk & Eddie G Remix)
+004 Steve Anderson & Andrea Britton - Easy To Say (Original Mix)(   Читать дальше...   )Жанр: Dance, clubПродолжительность: 08:28:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B29016564E3D5D644A72B5993D12CE7D102F327
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 711466   (411063) от 16.10.2013
+
+Анна Герман - Лучшие песни (1968-1981) [MP3|320 кб/с]<Эстрада, ретро>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_411063.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Без тебя
+02. Не спеши
+03. Ты, только ты (дуэт со Стаханом Рахимовым)
+04. Я жду весну(   Читать дальше...   )Жанр: Эстрада, ретроПродолжительность: 01:16:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D6DFF85AE66BCD171A38D321FA7B713D25EC106
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1412967   (411016) от 02.10.2020
+
+VA - Новинки С Разных Популярных мп3 Сайтов ver.100 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_411016.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dance:
+01. 71 Digits - My Loneliness (Jake Tarry Remix) (2:41)
+02. 9Tendo feat. Mr. President - Coco Jamboo (2:44)
+03. AlbWho feat. Iraida - Labirint (Radio Edit) (2:51)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 08:38:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BE66C16D64345A9861E857D34D8DECDE9571E54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251815   (410970) от 04.10.2018
+
+VA - Фитнес - Хит Vol.4 (2017) [MP3|320 Kbps] <Trance, House, Dubstep>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410970.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Workout Trance - Cardio Physical Stamina (Workout DJ Mix Mashup)
+02. Crossfit Junkies - Sugar (Workout Remix)
+03. Gomer Edwin Evans - Melodies Of ZEN
+04. iSweat Fitness Music - Cake by the Ocean(   Читать дальше...   )Жанр: Trance, House, DubstepПродолжительность: 13:59:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:505BA7C83296963B9B869E172C33B4D1F3E13191
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573683   (410537) от 01.09.2022
+
+VA - Future Nu Disco Classics Vol. 07 (2022) CD, Compilation [MP3|320 Kbps] <Nu Disco, Funky, Indie Dance, Soulful House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410537.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Conan Liquid - Friends of Daniel
+02. Tony Postigo - Together (Radio Mix)
+03. Ezirk - Righteous Jams
+04. Hotmood - Old School(   Читать дальше...   )Жанр: Nu Disco, Funky, Indie Dance, Soulful HouseПродолжительность: 02:08:39 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3766059ED1BD70DBD7313FAACB0F77881B7612ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573689   (410536) от 01.09.2022
+
+VA - Future Nu Disco Classics Vol. 08 (2022) CD, Compilation [MP3|320 Kbps] <Nu Disco, Funky, Indie Dance, Soulful House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410536.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jaycee Styles - Like The Son
+02. Dave Mathmos - YOU & ME
+03. Luxxury - Midnight Special
+04. D.P.V. - Flaming Night(   Читать дальше...   )Жанр: Nu Disco, Funky, Indie Dance, Soulful HouseПродолжительность: 02:18:59 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5ADE9B5D98E08F41E796008CE8138CC3ED8D793
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573692   (410493) от 01.09.2022
+
+VA - Future Nu Disco Classics Vol. 09 (2022) CD, Compilation [MP3|320 Kbps] <Nu Disco, Funky, Indie Dance, Soulful House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Antonio Santana - Japan Smooth
+02. Truth Committee - Salsa Revolution
+03. Discotron, Sandy's Groove - Don't You Worry About Me
+04. Moonlight Breakfast - Look Up (Happy Gutenberg Remix)(   Читать дальше...   )Жанр: Nu Disco, Funky, Indie Dance, Soulful HouseПродолжительность: 02:28:30 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE04B386B8E8071FC6DA3CCCD414842B6E6F02B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1573671   (410491) от 01.09.2022
 
 VA - Re:Commended - Nu Disco Edition Vol. 17 (2022) CD, Compilation [MP3|320 Kbps] <Funky, Soulful, Nu Disco, Indie Dance>
@@ -584,221 +787,6 @@ VA - Модный Хит В Машину! Русский (2012) [MP3|224 кб/с
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13C1663A789236CD6B83B1B50BCA7765E1FB2212
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 559564   (408365) от 13.10.2012
-
-VA - Хиты в тачку на прокачку! Vol.4 (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408365.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. АнгелиЯ - Душа Устала
-02. Tisha - Любовь
-03. SAZH (С.А.Ж.) - Туда-Назад В Лето (Radio Edit)
-04. Время и Стекло feat. Потап - Слеза
-05. Kamelia - I Don't Care (Radio Edit)
-06. Павла - Будь со мной
-07. А.Р.М.И.Я - Клянусь
-08. Ажур - Summer Love
-09. Тимур Родригез - Я Верю В Твою Любовь
-10. Pet Shop Boys - Winner (Wideboys Radio Edit)(   Читать дальше...   )Жанр: PopПродолжительность: 05:59:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E8C5BAAB14A62273C6802238CCE8D83C47AA3C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948856   (408146) от 22.10.2015
-
-VA - Музыкальное свежье русский выпуск 4 (2015) [MP3|320 кб/с]<Pop, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408146.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ivan Lexx & Katya Tu - Заполняй (03:22)
-02. Open Kids - Не Танцуй! (03:34)
-03. Ева Бушмина - Не Преступление (04:05)
-04. Таня Степанова - Открой Глаза (03:31)(   Читать дальше...   )Жанр: Pop, RapПродолжительность: 01:16:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D0945C75C2067F62DF66C1D67CE8CD881DA0C0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 559158   (408118) от 13.10.2012
-
-VA - Top 100 Самые скачиваемые треки vol.8 (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408118.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Инь - Ян - Oh, Yeah!
- 02. Юлия Волкова - Давай Закрутим Землю
- 03. DJ Sanny J feat. Los Tiburones - Chaka Chaka (Sax Mix)
- 04. Полина Гагарина - Нет
- 05. Tacabro - Ritmo Della Calle (Radio Edit)
- 06. One Republic - Feel Again
- 07. Нюша - Воспоминание (Dj Nejtrino & Dj Baur Radio Remix)
- 08. Dee & Crane - Let the Music Play (Radio Edit)
- 09. Ocean Drive - Revolution (Radio Edit)
- 10. Юлия Войс - Ненавижу Любя(   Читать дальше...   )Жанр: PopПродолжительность: 06:16:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7C148D6BFE6828A897F2CAB69B9D962ABDA5C35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067311   (408026) от 28.10.2016
-
-VA - Vaginal Frictions Magic Love (2016) [MP3|96-320 Kbps] <Downtempo,Sexy, Lounge>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408026.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SexP -  Vaginal Frictions
-02. Orgasmic -  Orgasmic ocean
-03. Rubbings -  Pelvic Rubbings
-04. Sexy -  Eternal Climax(   Читать дальше...   )Жанр: Downtempo,Sexy, LoungeПродолжительность: 03:49:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67424B354C81E6FA40EAE1D98E24A1EC4778061B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252641   (407974) от 06.10.2018
-
-VA - The Official UK Top 40 Singles Chart 05.10.2018 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407974.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calvin Harris & Sam Smith - Promises
-02. Marshmello - Happier (feat. Bastille)
-03. Kanye West & Lil Pump - I Love It
-04. Silk City, Dua Lipa - Electricity (feat. Diplo & Mark Ronson)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:21:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ACAE851A209F19D91FDF5BDDD9A790BF4669AC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252587   (407973) от 06.10.2018
-
-VA - ЕвроХит Топ 40 Europa Plus 05.10.2018 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407973.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Clean Bandit feat. Demi Lovato - Solo 3:41
-02. Calvin Harris & Dua Lipa - One Kiss 3:35
-03. Boris Way feat. Carla Katz - Want You 2:42
-04. Bebe Rexha - Self Control 2:54(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:14:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:003AB3717310F95A66BC7C6FBF7517B9A062B42B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252638   (407817) от 06.10.2018
-
-VA - Громкие новинки месяца Vol.12 (2018) [MP3|320 Kbps] <Pop, Dance, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. MARUV - Black Water
-02. Sophia Somajo, Alan Walker - Diamond Heart
-03. The Prodigy - Light Up the Sky
-04. Muse - Pressure(   Читать дальше...   )Жанр: Pop, Dance, RockПродолжительность: 05:18:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:470B08BE98CE8D2C9B9385742FFD128B1E91FEF0
 ```
 
 https://mybot314.ru/tekegram_catalog/

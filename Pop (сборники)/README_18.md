@@ -1,3 +1,61 @@
+###  Публикация: 1494635   (887707) от 08.09.2021
+
+VA - National Pop Dance Music (Vol.25) (2021) [MP3|320 Kbps] <Pop, Dance, Folk>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_887707.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Giorgio Gaber - Due Ninna Nanna
+002. Lisa Heider - Total Verrueckt
+003. Die Jungen Zellberger - Ein Festival Der Liebe
+004. Michelle - Mein Wunder(   Читать дальше...   )Жанр: Pop, Dance, FolkПродолжительность: 08:38:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0B1C9CE16D7A3808D4E60DDE9FA3754A4974E57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103094   (887639) от 11.02.2017
+
+VA - German Top 100 Single Charts 10.02.2017  [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_887639.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ed Sheeran - Shape of You
+002. Zayn & Taylor Swift - I Don't Wanna Live Forever (Fifty Shades Darker)
+003. Ed Sheeran - Castle on the Hill
+004. The Chainsmokers - Paris(   Читать дальше...   )Жанр: PopПродолжительность: 05:51:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83BB495E365966FF42BEEF20FCD5AA74686BC7F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 994798   (887384) от 09.03.2016
 
 VA - Best hits of 90! Лучшие Хиты 90-х Vol.2 (2016) [MP3|256-320 кб/с] <Pop, Dance>
@@ -684,64 +742,6 @@ VA - Автозвук. Отборный зимний хит. Выпуск № 5 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:02CA6FBA5C50A5F312846407307C5B3C950C2AA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104430   (880179) от 15.02.2017
-
-VA - Полный отрыв выпуск № 8 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880179.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Otto Knows - Not Alone 3:36
-002. Arturro Mass - Город 4:13
-003. The Element - My Kick 2:51
-004. Samsaboy - Наташа Танцуй 3:55(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F84AD85E4FA32C83DF1F9A49AFAC0BFAD9ABFD04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104437   (880170) от 15.02.2017
-
-VA - A Day for Love: Special Valentines Day Selection. Acoustic Versions of Love Songs (2017) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880170.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Teesha - Thinking Out Loud
-02. Mark Bodino - One
-03. The Come Up - I'll Be There for You
-04. Mark Bodino - Wake Me Up When September Ends(   Читать дальше...   )Жанр: PopПродолжительность: 02:10:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C663D72E3B908ACB4D413FF53759D6870F4B20B
 ```
 
 https://mybot314.ru/tekegram_catalog/

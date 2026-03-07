@@ -1,3 +1,90 @@
+###  Публикация: 1198392   (806058) от 12.01.2018
+
+VA - Reggae (2018) [MP3|320 Kbps] <Reggae>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>RnB, Reggae
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_806058.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zanaba – Reggae 2018 3:36
+02. Kingston Kings – Hands In The Air 4:11
+03. Sam Aica – Never 3:40
+04. Steel System – Jamaica Styling 4:09(   Читать дальше...   )Жанр: ReggaeПродолжительность: 01:27:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D782C53456086BC09C3AE91A70779F02DB516BB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505490   (804246) от 27.10.2021
+
+Big Baby Tape & kizaru - BANDANA I (2021) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804246.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. «99 Problems» Big Baby Tape 2:39
+2. «So Icy Nihao» Waves B 2:33
+3. «Big Tymers» Flory 3:11
+4. «Dirrt» Big Baby Tape 2:41(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:36:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A977BC92CCD467B5543F12BF7ECE3E5F9F31DCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505856   (802497) от 28.10.2021
+
+Барбитурный - Ч/Ч (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802497.jpg" />
+</div>
+
+
+###  Подробнее
+
+[4:34] 01. Голова
+[2:48] 02. Вверх ногами
+[3:11] 03. Для пустых залов
+[3:27] 04. Муза(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:24:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB62547A80F23650848D0BAC68D7FA69B2B7E414
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1120394   (801855) от 31.03.2017
 
 50 Cent - Best Of (2017) [MP3|320 Kbps] <Rap, Hip Hop, Gangsta Rap>
@@ -658,93 +745,6 @@ Zambezi - CHIPS (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:420190CAF7ED2EB3935779ADFB71BABBDE0A9D8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511207   (789311) от 20.11.2021
-
-ST1M - Цитрус (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789311.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Цитрус [03:00]
-02. Лимб [03:47]
-03. Карантин (feat. СД) [02:40]
-04. Насквозь [02:38](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:15:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DDDB4DB85C237FEC95D5508A3FF0D0CBF9BDAF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511214   (789310) от 20.11.2021
-
-SQWOZ BAB - FLOWJOB (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789310.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. INTRO [02:03]
-02. FLOWJOB [01:58]
-03. МИКРОЗАЙМ [03:28]
-04. МНОГА ТРОЕК [02:38](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:37:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:436FEA215CD80968C05B7015B6EBE6A0A0B46827
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511206   (789309) от 20.11.2021
-
-Руставели, Nekby - ОКТА (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789309.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Картина мира [02:49]
-02. Голгофа [03:51]
-03. Монархия 2.0 [03:05]
-04. АиД [03:09](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:26:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62D46A0BCDC5A5582826010D7262A87A30BA258E
 ```
 
 https://mybot314.ru/tekegram_catalog/

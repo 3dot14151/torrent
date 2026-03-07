@@ -1,3 +1,264 @@
+###  Публикация: 1854072   (1057219) от 16.02.2026
+
+Wolfchant - Echoes of a Time Once Past (2026) [FLAC|Lossless|WEB-DL|tracks] <Pagan, Folk Metal, Melodic Death, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1057219.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arcades of Time
+02. Under a Twilight Star
+03. Goddess of Fire
+04. Lifeblood(   Читать дальше...   )Жанр: Pagan, Folk Metal, Melodic Death, Power MetalПродолжительность: 00:43:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:260FF9FAC92F9488566C97A3B6C0C0F1C70F4196
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854045   (1057158) от 15.02.2026
+
+Manic Movement - Future Dreaming Self (2001) [FLAC|Lossless|image + .cue] <Melodic Death Metal, Symphonic Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1057158.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreamvolution (01:17)
+02. Slide (03:36)
+03. Mankind's Misanthropic Ambassador (03:43)
+04. Oracle (06:17)(   Читать дальше...   )Жанр: Melodic Death Metal, Symphonic Gothic MetalПродолжительность: 01:09:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBD2E292B1AB13B0581962960EE4ED3FE89B8596
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854064   (1057153) от 15.02.2026
+
+Soldiers of Forgiveness - The Year of Aquarius: Only Poetry Lives Forever (2026) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Heavy, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1057153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dystopian Dreams (02:22)
+02. Interlude (The Poet) (02:38)
+03. The Boy Who Only Wanted to Be a Poet (03:00)
+04. Evil That Men Do (04:28)(   Читать дальше...   )Жанр: Symphonic Heavy, Power MetalПродолжительность: 01:08:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D39AC98114D557359790D84FCE740CB824DF251
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854147   (1057131) от 16.02.2026
+
+Unchosen Ones - Divine Power Flowing (2026) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1057131.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Idols & Kings
+02. The Void
+03. Cursed Without A Cause
+04. Whirligig Saw(   Читать дальше...   )Жанр: Melodic Heavy, Power MetalПродолжительность: 00:43:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7D4D3D1008F85889BBE410F832EBF6047A2F966
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854222   (1057068) от 16.02.2026
+
+Every King Has A Clown - Every King Has A Clown (2026) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1057068.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Crucify Me (04:10)
+ 02 - Cimmerian Nights (03:56)
+ 03 - Victim Of The Night (04:09)
+ 04 - Higher (03:53)(   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 00:45:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:248F6662FC52F78DA2B60B639BC0BBFE5906A955
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1853476   (1057046) от 14.02.2026
+
+Rotting Christ - Aealo (2026) [FLAC|Lossless|WEB-DL|tracks] <Melodic Black Metal, Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1057046.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aealo (Re-Recorded)
+02. Eon Aenaos (Re-Recorded)
+03. Daimonon Vrosis (Re-Recorded)
+04. Noctis Era (Re-Recorded)(   Читать дальше...   )Жанр: Melodic Black Metal, Gothic MetalПродолжительность: 00:50:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50A5301E9CC6C1ABBE49C4C1BC65591790711E5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1853772   (1057044) от 14.02.2026
+
+Perdition Temple - Malign Apotheosis (2025) [FLAC|Lossless|WEB-DL|tracks] <Black, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1057044.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Resurrect Damnation
+02. Kingdoms of the Bloodstained
+03. Purging Conflagration
+04. Death Insurrection(   Читать дальше...   )Жанр: Black, Death MetalПродолжительность: 00:34:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31430C8FB3BCBC06CF70B4564F96D8DD10E58A5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1853535   (1056849) от 13.02.2026
+
+Worm - Necropalace (2026) [FLAC|Lossless|WEB-DL|tracks] <Blackened Death Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056849.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gates to the Shadowzone
+02. Necropalace
+03. Halls of Weeping
+04. The Night Has Fangs(   Читать дальше...   )Жанр: Blackened Death Doom MetalПродолжительность: 01:02:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47323B7F25016544E0154F9F6AF9B9D3F70E5DD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1853566   (1056831) от 13.02.2026
+
+Slaughterday - Dread Emperor (2026) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056831.jpg" />
+</div>
+
+
+###  Подробнее
+
+С шестым полноформатным альбомом «Dread Emperor» SLAUGHTERDAY предлагают всё, в чём они преуспевают, и именно этого их фанаты и хотят от дуэта: идеально исполненный олдскульный дэт-метал с озорным поворотом. От сокрушительных сверхтяжёлых партий, наполненных думом, до продуманных вспышек абсолютной жестокости — этот альбом предлагает всё, о чём может мечтать всё (   Читать дальше...   )01. Enthroned
+02. Obliteration Crusade
+03. Rapture Of Rot
+04. Astral Carnage(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:39:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9B10DB21296F23335BD2F1E63EFBB3A6DD20534
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1853284   (1056366) от 12.02.2026
 
 Greyhawk - Warriors Of Greyhawk (2026) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
@@ -484,267 +745,6 @@ Warkings - Armageddon (2025) [FLAC|Lossless|image + .cue] <Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:066F9FB0E0239D22118394E1DE6ECF9C25283CF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848512   (1052992) от 17.01.2026
-
-Sylosis - Collection (2008 - 2023) 6CD [FLAC|Lossless|tracks + .cue] <Melodic Death Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052992.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sylosis — британская метал-группа из Рединга (Беркшир). Сочетает элементы мелодического дэт-метала, трэш-метала и металкора.Список альбомов:
-2008 - Conclusion Of An Age
-2011 - Edge Of The Earth
-2012 - Monolith(   Читать дальше...   )Жанр: Melodic Death Metal, Thrash MetalПродолжительность: 06:05:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBB01E40738CBFB6D72DE65725DB96054400E7F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848678   (1052938) от 18.01.2026
-
-Painstorm - Fun And Violence (2025) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Warning
-02. Dr. Shiro
-03. Fun and Violence
-04. Anthropophagus(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:29:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:657522DC70EAF73DE382FC28C85D58C521A75749
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848639   (1052860) от 18.01.2026
-
-Kreator - Krushers Of The World (2026) Limited Edition [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052860.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Seven Serpents [4:40]
-02 - Satanic Anarchy [3:34]
-03 - Krushers Of The World [4:21]
-04 - Tranenpalast [4:44](   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:49:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89ACED5B85A57A69FB06D0C1356B5C11481AFD0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848247   (1052840) от 16.01.2026
-
-Murdered - The Brutal Gore Grotesque (2025) [FLAC|Lossless|image + .cue] <Brutal Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052840.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Grotesque Visions
-02. Defiler
-03. Traumatomectomy Disengorge
-04. Infernal Repugnance(   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 00:43:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C17734B2C788A0B19A2116522AF34AD6526ABAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848451   (1052710) от 17.01.2026
-
-Crematory - Illusions (1995) Remastered, 2000, Nuclear Blast [FLAC|Lossless|image + .cue] <Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052710.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reflexionen 01:54
-02. Faces 05:35
-03. Tears Of Time 05:01
-04. My Way 05:02(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:54:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D96BA968F1A40F9DBB80790B934589FC39702F90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847759   (1052331) от 14.01.2026
-
-Cryptosis - Celestial Death (2025) [FLAC|Lossless|image + .cue] <Thrash, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052331.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prologue / Awakening 1:16
-02. Faceless Matter 3:52
-03. Static Horizon 5:10
-04. The Silent Call 5:02(   Читать дальше...   )Жанр: Thrash, Progressive MetalПродолжительность: 00:42:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84448E2293303B8256A415114357E16651C27782
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847789   (1052310) от 14.01.2026
-
-Elbereth's Grace - Where Silence Speaks (2026) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal, Modern Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052310.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Follow the Call (00:38)
- 02 - Lord of Fire (04:26)
- 03 - Rise! (05:06)
- 04 - Banner des Lichts (04:17)(   Читать дальше...   )Жанр: Symphonic Metal, Modern MetalПродолжительность: 00:58:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:512E01C796153D2FE3F73E0723097FDBA9B1E038
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847633   (1052279) от 13.01.2026
-
-N.Y.C. - Built To Destroy (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052279.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heavy As Hell 03:55
-02. Twisted 03:57
-03. United 04:13
-04. Tired Of Smiling 03:50(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:56:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52DF3DDB1CC7097A2106CCAE5A12612305017A12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847557   (1052165) от 12.01.2026
-
-Blackbraid - Blackbraid I (2022) [FLAC|Lossless|image + .cue] <Black Metal, Atmospheric Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052165.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The River Of Time Flows Through Me 6:19
-2. As The Creek Flows Softly By 3:22
-3. Sacandaga 6:48
-4. Barefoot Ghost Dance On Bloodsoaked Soil 6:24(   Читать дальше...   )Жанр: Black Metal, Atmospheric Black MetalПродолжительность: 00:36:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29A321077A1E70F7F4A4CF917FDE94BF26403770
 ```
 
 https://mybot314.ru/tekegram_catalog/

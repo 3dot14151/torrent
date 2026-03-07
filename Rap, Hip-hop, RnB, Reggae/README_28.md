@@ -1,3 +1,90 @@
+###  Публикация: 1425239   (220837) от 21.11.2020
+
+Санчес - Продано. Часть 3. Возрождение (2020) [MP3|320 Kbps] <Hip-Hop, Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_220837.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Неизбежность (Вступление) [00:27]
+02. 220 км (feat. ПИТ Б.О.Р.З. & Виктор) [03:03]
+03. Возрождение (feat. Ramzan/view Point, VA84 & Понка) [03:23]
+04. Я знаю... (feat. Крис & Кислый/МанифестЪ) [06:10](   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 01:08:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F523D95DE2CE112351E5D534BC908BB879BF5936
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1269717   (219860) от 15.12.2018
+
+Denzel Curry - Ta13oo (2018) [FLAC|Lossless|tracks + .cue] <Hip-Hop, Trap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_219860.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Taboo | Ta13oo (3:17)
+02. Black Balloons | 13lack 13alloonz (feat. GoldLink | GoldL1nk & Twelve'len | Twelve'len) (3:30)
+03. Cash Maniac | Cazh Man1ac (feat. Nyyjerya | Nyyjerya) (3:18)
+04. Sumo | Zumo (3:45)(   Читать дальше...   )Производство: Loma Vista – LVR00243Жанр: Hip-Hop, TrapПродолжительность: 00:43:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F960229D0008D7FF7EC1EF50683E1A964B348379
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1343278   (219672) от 05.12.2019
+
+Anacondaz - Мои дети не будут скучать (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_219672.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Мои дети не будут скучать
+2. Пусть они умрут (feat. Noize MC)
+3. Все хорошо (feat. Inice)
+4. Гуд-трип(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:28:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4153DBBB200C5BD29F672F768D468A590E70DD4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1425513   (218930) от 22.11.2020
 
 ЗАМАЙ - Андрей (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -658,90 +745,6 @@ Sam Smith - Gloria (2023) [FLAC|Lossless|tracks + .cue] <Contemporary R&B, Vocal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F4216BA4CF3787BDF69B0C20DFC25B6A0F4FAE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 83256   (200328) от 03.04.2023
-
-Т9 - Вдох - Выдох (2008) [MP3|320 kbps]<Hip-Hop|R`N`B>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200328.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. INTRO
-02. Ода Нашей Любви (Вдох-Выдох)
-03. Кто-то развел мосты
-04. Nockio(   Читать дальше...   )Жанр: Hip-Hop|R`N`BПродолжительность: 01:18:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B4ABBE43016F205B6035C87EE0225E622858F7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626931   (199754) от 16.04.2023
-
-Noize MC - Кооператив «Лебединое озеро» (2023) Single [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199754.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Кооператив «Лебединое озеро»Жанр: Rap, Hip-HopПродолжительность: 00:03:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47BEC50BBA610630B16D92AFBB538334FBFF9CC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639127   (197259) от 11.06.2023
-
-VA - Chillhop Essentials Summer (2023) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Chillhop, Trip Hop, Jazz Fusion>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197259.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Birocratic, Saib, ØDYSSEE – Bonaventura (2:25)
-02. cocabona, Emperose – Lost Woods (3:14)
-03. Mo Anando – In Sequence (2:39)
-04. Misha, Jussi Halme – Soul Lounge (3:29)(   Читать дальше...   )Жанр: Hip-Hop, Chillhop, Trip Hop, Jazz FusionПродолжительность: 01:13:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B7BFD808F60F8BAE8B0637A31BEDDF160EFC49C
 ```
 
 https://mybot314.ru/tekegram_catalog/

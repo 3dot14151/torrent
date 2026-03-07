@@ -1,3 +1,38 @@
+###  Публикация: 508302   (677184) от 11.06.2012
+
+VA - Absolute Rock (2012) [MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_677184.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Coldplay - Paradise
+2. Nickelback - Lullaby
+3. Dead By April - Mystery
+4. Takida - You Learn
+5. Walk Off The Earth - Somebody That I Used To Know
+6. Sons Of Midnight - The Fire
+7. Train - Drive By
+8. Daughtry - Crawling Back To You
+9. The Fray - Heartbeat
+10. Seether - Tonight(   Читать дальше...   )2012Жанр: RockПродолжительность: 01:17:08
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1136057   (677160) от 21.05.2017
 
 The Deep - Psychedelic Moods (1966) Reissue, 2004, Radioactive [MP3|320 Kbps] <Garage, Psychedelic Rock>
@@ -729,34 +764,6 @@ Georgia Satellites - Georgia Satellites (1986) [MP3|320 Kbps] <Southern Rock, Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D9B21A1B534C379FB78C1F97C402F31CFAF29A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225061   (662883) от 13.05.2018
-
-Richie Sambora (Ричи Самбора) - Ballad Of Youth (1991) Single, Mercury [MP3|320 Kbps] <Rock, Blues Rock, Ambient>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662883.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легендарная американская рок–группа BON JOVI - это ни в коем случае не собственность ее фронтмена и человека, подарившего ей свою фамилию, - Джона Бонджови. Это сплоченная команда, в которой каждый имеет право голоса и старается сохранить индивидуальность, несмотря на то, что вот уже около 15 лет ребята делают общее дело. Объективно говоря, в группе два лидера - (   Читать дальше...   )01. Ballad Of Youth 3:56
-02. Wind Cries Mary 5:58
-03. Rest In Peace 3:46Жанр: Rock, Blues Rock, AmbientПродолжительность: 00:13:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:245B8F72A4B6650C6ED9F0B66A7464F44A71930A
 ```
 
 https://mybot314.ru/tekegram_catalog/

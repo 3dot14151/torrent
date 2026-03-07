@@ -1,3 +1,119 @@
+###  Публикация: 1748075   (104596) от 08.09.2024
+
+VA - The Sound Of Summer 2024 [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104596.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meduza - Fire (Official UEFA EURO 2024 Song) (2:48)
+02. Fast Boy - Electricity (2:40)
+03. Asdis - Flashback (2:49)
+04. ClockClock - Love U Again (2:46)(   Читать дальше...   )Жанр: PopПродолжительность: 02:37:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94FFBF59489E986B4AC2FA6435F9411DBDE02622
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1748189   (104544) от 10.09.2024
+
+Sylvester - Live At The Opera House (1979) 2024, Craft Recordings [FLAC|Lossless|WEB-DL|tracks] <Disco, Funk, Rhythm & Blues, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104544.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overture: Grateful / You Make Me Feel (Mighty Real) / Dance (Disco Heat) (Live At The War Memorial Opera House / 1979) [00:03:29]
+02. Body Strong (Live At The War Memorial Opera House / 1979) [00:04:49]
+03. Medley #1: Everything Must Change / You Are My Love (Live At The War Memorial Opera House / 1979) [00:08:55]
+04. Medley #2: Could It Be Magic / A Song For (   Читать дальше...   )Жанр: Disco, Funk, Rhythm & Blues, SoulПродолжительность: 02:07:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F5488320C39D96E31C0089CDDC1403FFAA2B1A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749169   (104526) от 13.09.2024
+
+London Grammar - The Greatest Love (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - House [3:11]
+02 - Fakest Bitch [4:20]
+03 - You And I [5:01]
+04 - LA [4:32](   Читать дальше...   )Жанр: Pop, Indie PopПродолжительность: 00:42:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AAF3C60F48CD06D8AE703CFC4F88895111143F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822800   (104508) от 08.10.2025
+
+Terry Stafford - Suspicion (1994) [WavPack|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_104508.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Suspicion
+02. Margarita
+03. Playing With Fire
+04. Invitation To A Kiss(   Читать дальше...   )Жанр: PopПродолжительность: 00:31:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFB62F2EB23C50E0D632EB7066FE0384FA9C4BC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1749484   (104354) от 14.09.2024
 
 VA - House - Move Your Body - Top Dance (2024) [FLAC|Lossless|WEB-DL|tracks] <Dance, Pop>
@@ -638,130 +754,6 @@ VA - Love Songs Top 100 Box Set 5CD (1995) [FLAC|Lossless]<Pop, Rock>
 08. Simon Garfunkel - The Sound Of Silence 03:05
 09. Toto - Melanie 03:58
 10. Acda en De Munnik - Als Je Bij Me Weggaat 04:04(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 06:29:25
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472139   (83950) от 23.03.2012
-
-Madonna - MDNA (2012) Deluxe Edition [FLAC|Lossless]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_83950.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1
-
-01. Girl Gone Wild (3:43)
-02. Gang Bang (5:26)
-03. I'm Addicted (4:34)
-04. Turn Up The Radio (3:47)
-05. Give Me All Your Luvin' (3:23)
-06. Some Girls (3:54)
-07. Superstar (3:55)
-08. I Don't Give A (4:19)(   Читать дальше...   )Жанр: PopПродолжительность: 01:09:07
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 324775   (82711) от 17.03.2012
-
-Lionel Richie - 2 альбома (2003, 2012) [FLAC|Lossless]<Pop, Soul, R&B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_82711.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы:
-2003 - The Definitive Collection
-2012 - TuskegeeЖанр: Pop, Soul, R&BПродолжительность: 02:46:35
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466229   (81386) от 11.03.2012
-
-Billy Ocean - Suddenly (1984) [FLAC|Lossless]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81386.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Disco, PopПродолжительность: 00:44:54
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 461198   (79641) от 02.03.2012
-
-George Michael - 5 Студийных альбомов (1987 - 2004) /Japan/ [FLAC|Lossless]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_79641.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Patience
-02. Amazing
-03. John And Elvis Are Dead
-04. Cars And Trains
-05. Round Here
-06. Shoot The Dog
-07. My Mother Had A Brother
-08. Flowless (Go To The City)
-09. American Angel
-10. Precious Box(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:47
 
 ## Скачать торент
 ```bash

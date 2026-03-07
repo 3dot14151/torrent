@@ -1,3 +1,61 @@
+###  Публикация: 1374718   (871185) от 11.04.2020
+
+VA - Popular Twerk Party (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871185.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lewis Capaldi - Hold Me While You Wait
+002. Conchita Wurst - To The Beat
+003. Iris Gold Feat. Adian Coker - Slow Down
+004. Stray Kids - Stop(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 09:58:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F821B25E43B8EB31BE7E91399564F3858DE16AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 998246   (870206) от 19.03.2016
+
+VA - Музыка хорошего настроения 4 (2016) [MP3|256 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_870206.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Шахзода Feat. Shoxrux - Ket
+002. Stonebank - All Night
+003. Bahh Tee - Взрослеем
+004. Zhu Feat. Keznamdi & A-Trak - Crazy As It Is(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD0EB92D2C0C9766E758B200A3DE981588499E8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1106896   (870050) от 21.02.2017
 
 VA - Танцевальная вечеринка от Хит FM (2017) [MP3|256 Kbps] <Pop>
@@ -681,64 +739,6 @@ VA - German Top 100 Single Charts 17.04.2020 [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F05E2F667AFD1F7564C8CB337D53DBCC0CAEAEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376569   (858805) от 18.04.2020
-
-VA - Popular Euro Song: Spring Edition (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858805.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Medina - Stгёrre End Os
-002. Harry Styles - Watermelon Sugar
-003. Sandro Nicolas - Running
-004. Yook Sung Jae - Chicken(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 10:15:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C57BD60D6B620D7F5498E2B92A31716AA2AFB9FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109514   (857457) от 28.02.2017
-
-VA - Музыкальное зимнее настроение выпуск № 3 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857457.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Monisha - Брюлли Диванны Автомобилли 3:32
-002. Герр Антон (Herr Anton) - Так Тому И Быть 3:33
-003. Катя Ростовцева - Целуй 3:55
-004. Блокбастер - Лето 3:47(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA0D0595C01578B9AE96F3C386B5EE2ABEEAB461
 ```
 
 https://mybot314.ru/tekegram_catalog/

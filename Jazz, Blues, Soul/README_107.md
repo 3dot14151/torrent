@@ -1,3 +1,235 @@
+###  Публикация: 1502495   (826617) от 15.10.2021
+
+Santana - Blessings and Miracles (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock, Psychedelic Rock, Latin Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_826617.jpg" />
+</div>
+
+
+###  Подробнее
+
+Карлос Сантана анонсировал новый альбом. Двадцать шестой альбом группы виртуоза гитары и классика латино-рока «Blessings and Miracles» выйдет 15 октября. В качестве гостей на альбоме появится много известных музыкантов. Среди них Кирк Хэмметт из Metallica, Стив Уинвуд, Рик Рубин, Крис Стэплтон, Дайан Уоррен, Кори Гловер (Living Colour). Успел поучаствовать в записи (   Читать дальше...   )01. Ghost of Future Pull / New Light (1:25)
+02. Santana Celebration (3:18)
+03. Rumbalero (3:56)
+04. Joy (3:47)(   Читать дальше...   )Жанр: Blues Rock, Psychedelic Rock, Latin RockПродолжительность: 00:56:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E86D49BF838300F99D122BA9F968FB34C26B5AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115353   (826542) от 18.03.2017
+
+Chicken Shack - Stan Would Rather Go Live (2004) Live, 2008, Angel Air Records [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_826542.jpg" />
+</div>
+
+
+###  Подробнее
+
+01| So tell me  (07:19) 
+02| The trill has gone  (11:23) 
+03| Reconsider baby  (05:49) 
+04| I know you know me  (06:41) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:19:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F55C49148EA1747476450899A186FD047E3A88B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115653   (826540) от 18.03.2017
+
+VA - Shrapnel Records Presents: The Best of Modern Blues (2015) [MP3|320 Kbps] <Modern Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_826540.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chris Duarte & Bluestone Co. - Back in Town (04:54)
+02. Leslie West - Whiskey Train (04:20)
+03. Jay Jesse Johnson - Rollin' & Tumblin' (05:38)
+04. Paul Gilbert - Enemies (In Jail) (06:00)(   Читать дальше...   )Жанр: Modern BluesПродолжительность: 01:16:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C9E6D24E5D43E2E499CA7DA4A0CC6C3C92AA532
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115622   (826459) от 18.03.2017
+
+Samantha Fish - Chills & Fever (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_826459.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбом «Chills & Fever» Саманты Фиш. Коллекция из 14 кавер-версий песен отправит поклонников в путешествие к ее раннему творчеству - здесь и рок, и соул, и блюз. Саманта добилась признания не с помощью YouTube (как Ребекка Блэк-стайл) и не благодаря каким-то связям. Саманта Фиш предпочла традиционный, классический способ: она пахала, ночь за ночью играя в дешевых (   Читать дальше...   )01. He Did It (3:00)
+02. Chills & Fever (3:19)
+03. Hello Stranger (4:22)
+04. It's Your Voodoo Working (3:39)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:54:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15EC1686718043221217ED01C4FBEA657F81B460
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115358   (826456) от 18.03.2017
+
+Miles Davis - Kind Of Blue (1962) Remaster, 1987, CBS [FLAC|Lossless|image + .cue] <Modal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_826456.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. So What (9:03)
+02. Freddie Freeloader (9:33)
+03. Blue In Green (5:26)
+04. All Blues (11:31)(   Читать дальше...   )Жанр: ModalПродолжительность: 00:43:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EEB74B7688435C83D15DAF5034F0DF284962C07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381476   (826336) от 07.05.2020
+
+Dakota Staton - Dakota At Storyville 1961 (1991) Collectables [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_826336.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Is You Is, or Is You Ain't My Baby [3:00]
+02. This Is the Beginning of the End [2:35]
+03. Saturday Night (Is the Loneliest Night of the Week) [2:08]
+04. The Show Must Go On [2:48](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:30:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50C28AB048A70CC34FF595064286E06E3FC2974F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381485   (826334) от 07.05.2020
+
+The Dave Brubeck Quartet - Jazz At Oberlin 1953 (2003) Fantasy [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_826334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. These Foolish Things (Remind Me of You) [6:33]
+02. Perdido [7:52]
+03. Stardust [6:30]
+04. The Way You Look Tonight [7:52](   Читать дальше...   )Жанр: Cool, West Coast JazzПродолжительность: 00:37:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D35269B7EF82A14079A0B44471A8BE0D43598043
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381480   (826249) от 07.05.2020
+
+Stan Getz & Charlie Byrd - Jazz Samba 1962 (2013) Analogue Productions [FLAC|Lossless|tracks + .cue] <Bossa Nova, Latin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_826249.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Desafinado [5:52]
+02. Samba Dees Days [3:36]
+03. O Pato [2:35]
+04. Samba Triste [4:47](   Читать дальше...   )Жанр: Bossa Nova, Latin JazzПродолжительность: 00:33:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88904C10CA1495E4789E6967BFEAB1AA3B066CDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1196232   (826034) от 01.01.2018
 
 Maria Jacobs - Lucky Girl (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
@@ -514,238 +746,6 @@ Mildred Bailey - In Love: 1930-e - 1940-e (1998) Simitar [FLAC|Lossless|tracks +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87E91A0EB78E14B2A8D7B749D26CD2D2E721EC6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381762   (824816) от 08.05.2020
-
-Michel Pastre Quartet - Free Swing (2006) Djaz Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Midriff [3:55]
-02. Tulip or Turnip [5:01]
-03. Free Swing [5:17]
-04. Webstering [6:08](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:52:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC8A711BDA993AFF805A5FBE6BC408BBB31167E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381739   (824815) от 08.05.2020
-
-Dakota Staton - Dynamic! 1958 (2006) Capitol Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let Me Off Uptown [2:31]
-02. Night Mist [2:51]
-03. Anything Goes [2:29]
-04. When Sunny Gets Blue [2:51](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:41:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F947CF7467A50D1AE0784C1865353E48254C94E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381727   (824813) от 08.05.2020
-
-Nathalie Soles - Deeper (2007) Milan [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824813.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dodo Bebe [3:37]
-02. I Will Wait for You [3:29]
-03. A Day in the Life of a Fool [3:44]
-04. Tenderly [3:23](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:53:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0C6657C64101301BC0343E249EBAC25D956064B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116174   (824779) от 19.03.2017
-
-Richard Galliano - New Jazz Musette (2017) 2CD [FLAC|Lossless|WEB-DL|tracks] <Jazz, Accordion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824779.jpg" />
-</div>
-
-
-###  Подробнее
-
-Треклист CD1:
-01. A French Touch
-02. Billie
-03. Coloriage(   Читать дальше...   )Жанр: Jazz, Accordion |Продолжительность: 01:25:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D49D05B947200904B8004994F945EDB78ABC5EBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502825   (824741) от 16.10.2021
-
-Mick Clarke - Crazy Arms (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824741.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crazy Arms - 04:09
-02. That's All Right - 03:09
-03. Hi-Heel Sneakers - 04:21
-04. Down the Road Apiece - 03:26(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:00:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E73E48B038DA7A23E28E2E70E3A7488B7DCBC993
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 723111   (824364) от 19.03.2017
-
-James Cotton with  Joe Louis Walker &  Charlie Haden - Deep In The Blues (1996) [FLAC|Lossless]<Harmonica Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824364.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Down At Your Buryin' [04:34.50]
-02. All Walks Of Life [03:36.25]
-03. You Got My Nose Open [04:20.12]
-04. Dealin' With The Devil [03:36.13](   Читать дальше...   )Жанр: Harmonica BluesПродолжительность: 00:57:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C28BF32E778D789C3CB6322B1D9F954D608CE82C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839219   (824127) от 27.11.2025
-
-Coconut Climbers Union - Come around Sunset (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824127.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Silence Blues (3:56)
-02.  Station 13 (4:52)
-03.  A Slight touch of Madness (5:33)
-04.  My Kitchen Blues (4:12)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37948AB8213F17120B55F36B3BC513F60A9D452A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839221   (824029) от 27.11.2025
-
-Elliott Sharp & Terraplane - Livin' Hear (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824029.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  A Jackson (6:13)
-02.  Where the Green Grasses Grow (5:56)
-03.  Three Hours Until Morning (5:44)
-04.  Livin' Here (5:33)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:50:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D4C3904D84922BAD075FF5D85B3D1A29A679BE8
 ```
 
 https://mybot314.ru/tekegram_catalog/

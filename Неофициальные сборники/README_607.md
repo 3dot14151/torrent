@@ -1,3 +1,293 @@
+###  Публикация: 1086760   (148363) от 26.12.2016
+
+VA - Начинаем отмечать! №1 (2016) [MP3|256-320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_148363.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ленинград – Начинаем отмечать (#EDDIESMILE Remix)
+002. Стас Михайлов - Там За Горизонтом
+003. Tiana - Без Лишних Истерик
+004. Анжелика Агурбаш Feat. Арамэ - Было И Прошло(   Читать дальше...   )Жанр: PopПродолжительность: 06:05:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0EA392CA74AB6A52E2345D1B8B2AE8AFABBB0B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271749   (148339) от 24.12.2018
+
+VA - Новогодняя Дискотека Руки Вверх 2019! (2018) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_148339.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Руки Вверх - К чёрту эту гордость
+02. Пацаны - Я не буду писать…
+03. Турбомода - Не люблю
+04. ПОТЕХИН БЭНД - Маски(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:15:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BC2F75F2E2F44D7897452B049781FD99D1635CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271688   (148294) от 24.12.2018
+
+VA - Shazam Хит-парад Russia Top 100 Итоговый 2018 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_148294.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. MARUV & Boosin - Drunk Groove
+002. Tom Walker - Leave a Light On
+003. Dynoro & Gigi D’Agostino - In My Mind
+004. G-Eazy - Him & I (feat. Halsey)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:50:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:122C231D99EF3196B6BA1239DCF52681E04CA78C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434887   (148283) от 26.12.2020
+
+VA - Anjunabeats The Yearbook 2020 (Mixed) (2020) [MP3|320 Kbps] <Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_148283.jpg" />
+</div>
+
+
+###  Подробнее
+
+DISC 1:
+
+01. Jordin Post - New Day (Mixed)
+02. Spada - Part Of Me (Mixed)(   Читать дальше...   )Жанр: DanceПродолжительность: 02:26:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F526FC07406C47CB7A313E513F226AF53BEF08DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519395   (148223) от 24.12.2021
+
+VA - Music for Speed (2021) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_148223.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 220 KID feat. Lany-Stupid Feelings (Jonasu Remix)
+002. About That-Who Let The Dogs Out (feat. Evalina)
+003. ALAMPA-Stand Still
+004. Alan Walker,Imanbek-Sweet Dreams(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 07:34:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0958F5CAEECE2E258453F6ED12386ACA6C00DEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086885   (148206) от 26.12.2016
+
+VA - Acoustic Covers of Love Songs (2016) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_148206.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Josh Franklin – When We Were Young
+ 02. Portland UK – Heart’s on Fire
+ 03. Meg Birch – Heaven
+ 04. Karizma Duo – Photograph(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 00:51:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:496F8FB1F5079A6C4DF1644AB97235EB0555F79F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519433   (148167) от 24.12.2021
+
+VA - Discolandia Party 2 (2021) [MP3|320 Kbps] <Disco, Electro Disco, Remixes>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_148167.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыка в стиле диско никогда не выйдет из моды. Неспроста же многие ди-джеи часто создают ремиксы на популярные хиты диско. Представляем вам мега-сборник таких песен, состоящий из сотни треков диско музыки новой генерации, который несомненно понравится не только молодому поколению, но и позволит вспомнить дискотеки тех лет более зрелым слушателям.001. DJ Ross - Lupin
+002. Natasha Kitty Katt - Edgarrr!
+003. Veno - Rise Am
+004. Reece Johnson - M.A.R.S.(   Читать дальше...   )Жанр: Disco, Electro Disco, RemixesПродолжительность: 08:49:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AFBDE85A28AC79B536F399D9C1EFADA1549B639
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271789   (148015) от 24.12.2018
+
+VA - Club Dance Ambience Vol.169 (2018) [MP3|320 Kbps] <Dance, Club, House>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_148015.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. #2Маши - Мама, я танцую  (DJ Alexander & DJ Alex Work Radio Reboot)
+002. 5&Dime x Teddy Junior feat. Lea Lou - We Are Lovers (Original Mix)
+003. Agua Sin Gas By Antoine Clamaran - Nobody (Original Mix)
+004. Antonia, Erik Frank - Matame  (Asher Remix)(   Читать дальше...   )Жанр: Dance, Club, HouseПродолжительность: 07:32:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CB35E33B7D96FF3AAB8BB33F4871EB9D417CC7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271717   (147990) от 24.12.2018
+
+VA - Nightparty 90-х-Ностальгия (2018) [MP3|256-320 Kbps] <Dance, Euro-house, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_147990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 5ive - Slam Dunk Da Funk
+02. 2 Unlimited - Get Ready For This (Rap)
+03. Technotronic - Get Up! (Before The Night Is Over)
+04. Marky Mark & The Funky Bunch - You Gotta Believe(   Читать дальше...   )Жанр: Dance, Euro-house, ClubПродолжительность: 03:34:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E8A576B911EA8D24AC36D5359330D1FA14E4B93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086794   (147936) от 26.12.2016
+
+VA - Radiohead - Best275z (1993 - 2016) [MP3|320 Kbps] <Alternative Rock, Electronic>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_147936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Karma Police 04:22
+02 Burn The Witch 03:41
+03 Creep 03:56
+04 Reckoner 04:51(   Читать дальше...   )Жанр: Alternative Rock, ElectronicПродолжительность: 02:47:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01368BEDB1A4F423EDE877457101D809FCF800A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 209412   (147929) от 24.12.2018
 
 VA - Дискотека "Белые розы" В Обработке DJ (2010) [MP3|256 kbps]<Disco-Pop>
@@ -455,302 +745,6 @@ VA - Neon Plasma EDM Party (2016) [MP3|320 Kbps] <Electro, Progressive House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E51060758DD3D5970C47B63617D98D5977567298
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087435   (147016) от 27.12.2016
-
-VA - MuviSpace. Christmas Edition (2016) [MP3|320 Kbps] <Spacesynth>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147016.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vanello - Planet X-mas
-02. Szmc - Jingle Bells
-03. Space Project - Alien Rebellion (Christmas Mix)
-04. Neon Dance - Santa Claus is Coming to Town(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 01:04:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59AA02A0AA653E4167AE53A4953657934CAE2EA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969118   (147010) от 27.12.2015
-
-VA - Рок впрок 4 (2015) [MP3|320 кб/с] <Рок, Поп-Рок>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147010.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мара - За мной
-02. J-МОРС - Не край
-03. Ракоший Нелч - Куда уходят кумиры
-04. Pauca Verba - Ничего(   Читать дальше...   )Жанр: Рок, Поп-РокПродолжительность: 03:12:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B881978F63BABC1B15E6431AD5D4C5686DC2D6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434896   (146961) от 26.12.2020
-
-VA - Новинки С Разных Популярных мп3 Сайтов ver. 102 (2020) [MP3|320 Kbps] <Club, Dance, Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146961.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dance:
-01. Ava Max - My Head  My Heart (NitugaL Radio Edit)
-02. Bingo Players & Ida Corr - I Know This Club (Extended Mix)
-03. Bingo Players, Felguk, Fafaq - Devotion (2020 Remix) (Instrumental Mix)(   Читать дальше...   )Жанр: Club, Dance, Disco, Pop, Rap, RnB, RockПродолжительность: 06:24:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:134F0CC423E1D028CEE5B27D5F763E7C7877CEB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969641   (146907) от 27.12.2015
-
-VA - Новогодний танцпол NRJ (2015) [MP3|192-320 кб/с] <Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146907.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dj Antonio Vs. Feder - Goodbye (Buddha Bar Hitup Extended Mix)
-002. Joy Tarantino Ft Eleonoire - All Of That (Jack & Joy Computer Controlled Radio Mix)
-003. MC Zali & DJ HaLF feat. Karina Kari - Этот Новый Год
-004. Optimum Feat. Brianna - Lately Baby (Radio Edit)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 06:34:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:522170601222504935F58DB9502F606BB31EE0FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519662   (146723) от 25.12.2021
-
-VA - Christmas Blues Rock (2021) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146723.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. B.B. King - Merry Christmas Baby (03:57)
-02. Queen - Thank God It's Christmas (04:19)
-03. Joe Bonamassa - Santa Claus Is Back In Town (02:31)
-04. Freddy King - Christmas Tears (02:46)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 01:45:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFB822F11DAE55D1D1DAB00D70B0BAD0BC15126B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271856   (146526) от 25.12.2018
-
-VA - Новогодняя сотка 2019 (2018) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146526.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. #2Маши-Мама, Я Танцую
-002. 5sta Family-Так Бывает II
-003. A-Sen-Губы Любят
-004. Burito-Штрихи(   Читать дальше...   )Жанр: PopПродолжительность: 05:57:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4828DD9F27BD8CF4AB8D3A182AAF052260F30FBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519746   (146491) от 25.12.2021
-
-VA - Русское Радио. Лучшее '2021 (25.12.2021) (2021) [MP3|320 Kbps] <Поп>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146491.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Русское радио» — российская и международная радиостанция, вещающая в некоторых странах СНГ и дальнего зарубежья как международная. Отличается от других подобных станций трансляцией песен на русском языке, хотя есть исключения, где пропорции иностранных и русских слов в песнях могут доходить до соотношения 50/50.001. Кристина Орбакайте - Новый год, Come On
-002. Дмитрий Колдун - Потому что новый год!
-003. Ассорти - Три белых коня (Ayur Tsyrenov Remix)
-004. Саша Круглова - Зима(   Читать дальше...   )Жанр: ПопПродолжительность: 18:41:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:564A8D84F02CF75EAD2C30B8ADB47A5A1DA5B961
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087194   (146416) от 27.12.2016
-
-VA - Romantic Soul RnB (2016) [MP3|320 Kbps] <RnB, Lyric>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146416.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jahkoy Feat. Schoolboy Q - California Heaven (Bay Mix)
-002. Drake - Hotline Bling
-003. Sean Garrett Ft Lil Yachty - Look On Your Face (Clean)
-004. Musiq Soulchild - Who Really Loves You(   Читать дальше...   )Жанр: RnB, LyricПродолжительность: 06:31:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E18048C09F1A3C5C1954CC7F6D38AD1C8062FF68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087417   (146408) от 27.12.2016
-
-VA - Новогодние подарки. Лучшие песни (2016) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146408.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Поющие гитары — Цыганочка
-02. Кристина Збигневская — Пока ты не сказал
-03. Vitas — Без тебя
-04. Владимир Ворон & Галина Пахомова — Вернись, любовь(   Читать дальше...   )Жанр: PopПродолжительность: 02:07:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6C49260C625E652E17309D58C40599E7C6BF088
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 590425   (146322) от 16.12.2012
-
-VA - Cool Chillout: Smooth Lounge Music Served for a Chilled Winter Season (2012) [MP3|320 кб/с]<Smooth Lounge, Chillout, Relax>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Noisy Blue - Eyes On You - Chillout Nightwish Instrumental Mix
-02. Lounge Flight - Summer Cools Down - Whispering Piano Chillout Mix
-03. Lullaby Lounge - Chill Del La Mer - Blank Cafe Relax Mix
-04. Delor - Sensitive Touch - World Famous Island Beach Dub
-05. Sleepingroom Armada - Hope - Easy Erotic Groove Lounge Mix
-06. Skyfall - Particle of Soul
-07. DJ Lounge Del Mar - Ibiza Winter Cafe
-08. 4tunes - October Shades
-09. DJ Chillsurfer - Northern Light Lounge
-10. Rainman - Ridin On a Cloud - Instrumental(   Читать дальше...   )Жанр: Smooth Lounge, Chillout, RelaxПродолжительность: 03:28:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0872D0F740241CB8D727F9380EE33ECC7938D8C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,38 @@
+###  Публикация: 490215   (397662) от 28.10.2012
+
+The Daydream - 10 albums (2001-2012) [MP3|320 кб/с]<New Age, Neoclassical, Instrumental, Relax, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_397662.jpg" />
+</div>
+
+
+###  Подробнее
+
+(3:39) 01. Moonlight Dreams
+(2:07) 02. Shiny Tomorrow
+(3:34) 03. Irony
+(9:35) 04. Rainy Scent
+(4:12) 05. Graduation
+(5:37) 06. For Steve Jobs
+(2:19) 07. Little Smile
+(2:27) 08. So Far Away
+(7:45) 09. Secret Stairs
+(3:28) 10. Nocturne In Autumn(   Читать дальше...   )Жанр: New Age, Neoclassical, Instrumental, Relax, PianoПродолжительность: 01:13:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C771BBAFB7725053B90664EDD81BBC80659635F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1171133   (397607) от 03.10.2017
 
 Fleur (Flёur) - Волшебство (2003) [FLAC|Lossless|tracks] <Folk, Cardiowave>
@@ -751,35 +786,6 @@ Need for Speed Most Wanted  (2012) [MP3|320 кб/с]<Score>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6DF5E9F79599A05B68ADA51F4E4953B90ADBCC67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570387   (389891) от 05.11.2012
-
-Carter Burwell - Seven Psychopaths (Семь психопатов) (2012) [MP3|320 кб/с]<OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389891.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Angel of Death (1:47)
-2. The First Cut Is The Deepest (3:15)
-3. The Quaker (4:01)
-4. Berlioz: Strophes 'Premiers Transports Que Nui N'oblie'Жанр: OSTПродолжительность: 00:57:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC4993B2A16F238A339E2DA37C3669AC94A7B766
 ```
 
 https://mybot314.ru/tekegram_catalog/

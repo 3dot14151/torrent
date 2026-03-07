@@ -1,3 +1,32 @@
+###  Публикация: 1290765   (674334) от 22.03.2019
+
+Tom Russell - October in the Railroad Earth (2019) [FLAC|Lossless|tracks + .cue] <Folk, Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_674334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. October in the Railroad Earth (04:58)
+02. Small Engine Repair (03:50)
+03. T-Bone Steak and Spanish Wine (05:16)
+04. Isadore Gonzalez (03:19)(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:45:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:241C5EE253344BB563B0B0ADBB5DBA216A79792C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290860   (674332) от 22.03.2019
 
 Lullatone - Music For Museum Gift Shops (2019) 2CD [FLAC|Lossless|tracks + .cue] <Ambient, Instrumental, Piano>
@@ -734,35 +763,6 @@ Midori - Soul Healing / The Best of Midori (2016) [FLAC|Lossless|WEB-DL|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CEE3EB6D93A6B94B7D917B6DC87896741D8715DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031371   (668646) от 03.07.2016
-
-VA - Sleep, Rest, Relax (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668646.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Radiance [00:10:20]
-02. Cloud Dancing [00:03:36]
-03. In a New Light [00:06:27]
-04. Sungrass [00:06:32](   Читать дальше...   )Жанр: New AgeПродолжительность: 01:06:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4217E1B9098877B0B02223A7B6FD5E4066CFD368
 ```
 
 https://mybot314.ru/tekegram_catalog/

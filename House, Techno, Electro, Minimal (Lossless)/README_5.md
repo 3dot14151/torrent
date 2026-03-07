@@ -1,3 +1,119 @@
+###  Публикация: 1476307   (1011848) от 10.06.2021
+
+Miguel Migs - Shaping Visions (2021) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Soulful>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011848.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Midnight Memories
+02. Sensations (feat. Andy Allo)
+03. Promises (feat. Lisa Shaw)
+04. Silver Sun (feat. Aya)(   Читать дальше...   )Жанр: Deep House, SoulfulПродолжительность: 01:01:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C534BF69DC2920C7D2135FB32CEB019E5BF3302
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1225748   (1011781) от 10.06.2021
+
+Fluxion - Discography 26 Releases (1999-2020) Chain Reaction, Subwax Bcn, Vibrant Music, Echocord [FLAC|Lossless|tracks+.cue, tracks] <Dub Techno, Minimal, Techno, Dub, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011781.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+01. Prospect I (01:50)
+ 02. Prospect II (11:18)
+ 03. Oblique (11:47)(   Читать дальше...   )Тип издания: CD, WEB, VinylЖанр: Dub Techno, Minimal, Techno, Dub, Ambient •Продолжительность: 22:52:44 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DDC55F7A41C320D3FDD593A7C2DAE6E10419ADA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476822   (1011515) от 12.06.2021
+
+Monolink - Under Darkening Skies (2021) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Deep House, Organic House, Downbeat>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011515.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Laura (7:20)
+ 02. The Prey (4:12)
+ 03. We Don't Sleep (4:59)
+ 04. Harlem River (4:38)(   Читать дальше...   )Жанр: Electronic, Deep House, Organic House, DownbeatПродолжительность: 01:02:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC20D3176EB8CEEDA068FD139A867FECA6A71FB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477014   (1011353) от 13.06.2021
+
+Adam Kroll - Mutants (2021) Subtempo [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Dub, Experimental>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011353.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dark Phoenix (03:50)
+ 02. Nicodemus Pulse (05:28)
+ 03. Good Bye Garbha-Hsien (05:00)
+ 04. Neo (04:18)(   Читать дальше...   )Жанр: Dub Techno, Ambient, Dub, ExperimentalПродолжительность: 00:37:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1B015E2C2227D4A95394FB4900D62E0F763BCD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1477031   (1011349) от 13.06.2021
 
 Doctrina Natura - The Fire Of The Beginning Of Time (2021) Alexandar [FLAC|Lossless|WEB-DL|tracks] <Techno, Acid, Ambient>
@@ -621,119 +737,6 @@ VA - SUMMER HITS 2021 [FLAC|Lossless|WEB-DL|tracks] <Deep House, Future House, D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9C19DABCB9D20651ED2DABFB4B6252692B1EB12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482501   (1007621) от 08.07.2021
-
-Sound Quelle - Trait (2020) [FLAC|Lossless|WEB-DL|tracks] <EDM, Progressive House, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007621.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Heart (4:16)
- 02. Summer Rain (3:56)
- 03. Ah Up (3:20)
- 04. Hung (3:22)(   Читать дальше...   )Жанр: EDM, Progressive House, Deep HouseПродолжительность: 00:56:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F43961E2B41AAB61EB6D34EADBA6FE3C8FBB1AEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482696   (1007459) от 09.07.2021
-
-Robert Hood - The Blueprint EP (2021) Rekids [FLAC|Lossless|WEB-DL|tracks] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chroma Light (05:37)
- 02. The Majestic (Deeper Edit) (06:28)
- 03. The Majestic (06:18)
- 04. Ultrasonic Room (05:44)Жанр: TechnoПродолжительность: 00:24:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAAE47ECF8DF873716C03AADB60F081327315C09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482542   (1007444) от 09.07.2021
-
-VA - Vocal Bliss Lounge (2021) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007444.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. College Of Dreams - Show Me the Love (Chillwave Vocal Mix) (05:03)
-02. Debora Vilchez - The Words You Said (Smooth Vocal Flair Mix) (05:22)
-03. Blue Lagoona - Be As I Am (Soulful Pop Mix) (04:00)
-04. Creamy Dip - Remember (Sweet Soul Vocal Mix) (03:58)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 00:40:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D8D8B8F9C8805319ED198D65CE89778164BFB5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069080   (1006806) от 13.07.2021
-
-Richie Hawtin (Plastikman, F.U.S.E., Concept 1, Circuit Breaker, Forcept 1, Robotman) - Discography (1990-2021) [FLAC|Lossless|tracks+.cue, tracks] <Techno, Minimal, Acid, Experimental, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006806.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SyntaxТип издания: CD, WEB, VinylЖанр: Techno, Minimal, Acid, Experimental, House, Ambient •Продолжительность: 139:57:09 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3CFEED4F9111D1097B5705D4C47102EEEB469B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

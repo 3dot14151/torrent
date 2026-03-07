@@ -1,3 +1,32 @@
+###  Публикация: 1448611   (1030678) от 18.02.2021
+
+VA - Glam Rock 1970 - 1976 (2021) 5CD [MP3|320 Kbps] <Rock, Glam Rock, Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Suzi Quatro - 48 Crash
+02. Gary Glitter - I.O.U.
+03. Alice Cooper - Desperado
+04. Slade - I Won't Let It 'Appen Agen(   Читать дальше...   )Жанр: Rock, Glam Rock, Hard RockПродолжительность: 16:37:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FF32D684EF04594CB843CF965C60760CC24A655
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1449710   (1029520) от 23.02.2021
 
 VA - Hammond Organ in ROCK (2021) [MP3|320 Kbps] <Rock, Hammond>
@@ -713,35 +742,6 @@ Brian Johnson - Brian Johnson & Geordie & AC DC (2007) Compilation, Unofficial R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68E0D20A480B7AC84F66F40390D903D5651DB53B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468945   (1016765) от 10.05.2021
-
-VA - Punk Rock Bulldozer (2CD) (2021) [MP3|320 Kbps] <Punk Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016765.jpg" />
-</div>
-
-
-###  Подробнее
-
-Скандальный имидж, распущенная и зачастую агрессивная манера исполнения - это всё панк рок! Вам предлагается послушать эту музыку на сборнике под наименованием "Punk Rock Bulldozer". Любителей этого жанра порадуют мощные синтезаторные рифы, брей бит, новаторские аранжировки и вокал их исполнителей.CD 01:
-
-001. Daysworth Fighting - Warm Hands, Warm Heart
-002. 999 - Doctor Nick(   Читать дальше...   )Жанр: Punk RockПродолжительность: 11:23:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61586CCDAFFF7B41F35E268DE00C7233D6538AAF
 ```
 
 https://mybot314.ru/tekegram_catalog/

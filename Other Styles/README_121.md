@@ -1,3 +1,32 @@
+###  Публикация: 1070689   (366531) от 07.11.2016
+
+Gustavo Santaolalla - Last of Us (2013) [FLAC|Lossless|tracks + .cue] <Soundtrack, Instrumental, Ambient>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Quarantine Zone (20 Years Later) - [3:40]
+02. The Hour - [1:02]
+03. The Last of Us - [3:04]
+04. Forgotten Memories - [1:08](   Читать дальше...   )Жанр: Soundtrack, Instrumental, AmbientПродолжительность: 00:55:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:685733E4C8001A852F10DF93FDBA6446BCF44DA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1255343   (366232) от 17.10.2018
 
 Howard Shore - Edge of Darkness (2010) [FLAC|Lossless|tracks + .cue] <Score, Modern>
@@ -736,35 +765,6 @@ Angel Olsen - All Mirrors (2019) [FLAC|Lossless|tracks + .cue] <Indie Folk, Dark
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:774461401C84D2746F094EA401E7F88DAC3AB57A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951361   (363067) от 29.10.2015
-
-Govi - The High Road (2015) [FLAC|Lossless]<New Age, New Flamenco>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363067.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Passage To Paradise
-02. The High Road
-03. Almeria
-04. Cabriolet(   Читать дальше...   )Жанр: New Age, New FlamencoПродолжительность: 00:51:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:322F6B260A2CEF84DE8C5DD3C2B4D9D662077936
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,116 @@
+###  Публикация: 1093880   (932272) от 16.01.2017
+
+Red Box - The Circle & The Square (1986) Reissue, 2008, Cherry Pop [APE|Lossless|image + .cue] <Alternative Pop, New Wave, World Music>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_932272.jpg" />
+</div>
+
+
+###  Подробнее
+
+На мой взгляд (и не только) шедевр 80-ых во многом опередивший своё время и, возможно поэтому, недостаточно оцененный современниками.01. For America
+02. Heart Of The Sun
+03. Billy's Line
+04. Bantu(   Читать дальше...   )Жанр: Alternative Pop, New Wave, Choral, Orchestral, Art Rock, World MusicПродолжительность: 01:13:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BBC1C8608F6F00960313B1202057FAADD2B5CAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 629864   (931274) от 13.03.2013
+
+Justin Timberlake - The 20/20 Experience (Deluxe Edition) (2013) [FLAC (tracks+cue)|Lossless]<Pop, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_931274.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, R&BПродолжительность: 01:19:26
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986352   (930872) от 14.02.2016
+
+Whitney - The Greatest Hits (2000) 2CD [FLAC|Lossless|tracks + .cue] <Soul, Disco, RnB/Swing>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_930872.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whitney Houston & George Michael - If I Told You That (4:32)
+02. Fine (3:34)
+03. My Love Is Your Love (4:18)
+04. It's Not Right but It's Okay (4:49)(   Читать дальше...   )Жанр: Soul, Disco, RnB/Swing, Downtempo, Synth-pop, BalladПродолжительность: 02:36:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D97A02BA4BFEC2F6500DA81C3E3A170BF0CE3B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986677   (930626) от 14.02.2016
+
+VA - The Best Of The 80's Volume II (1998) [FLAC|Lossless|tracks + .cue] <Pop Rock, Disco, Soft Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_930626.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adamski - Killer (4:10)
+02. Haircut One Hundred - Love Plus One (3:36)
+03. Fairground Attraction - Perfect (3:36)
+04. Hall & Oates - Maneater (4:28)(   Читать дальше...   )Жанр: Folk Rock, Pop Rock, House, Disco, New Wave, Soft Rock, Synth-popПродолжительность: 01:18:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3782C86B0E5E7ABFB4398F90C1F3E34D0A65303E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1365415   (930571) от 07.03.2020
 
 Dreamcatcher (드림캐쳐) - Dystopia : The Tree of Language (2020) [FLAC|Lossless|tracks + .cue] <KPop, KRock>
@@ -637,120 +750,6 @@ VA - 90s Guitar Pop (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1C841E7E5505FFB12D1BA4E6B35455E50214814
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367101   (918763) от 14.03.2020
-
-VA - 80's Gold (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918763.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tina Turner - Steamy Windows
-02. a-ha - Take On Me
-03. Duran Duran - Hungry Like the Wolf
-04. Stevie Nicks - Rooms On Fire(   Читать дальше...   )Жанр: Pop, Rock, DiscoПродолжительность: 03:28:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C917E68F529BBF5AA7C929B85BC74D24E6AD7B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096832   (917628) от 25.01.2017
-
-Olivia Holt - Olivia (2016) EP [FLAC|Lossless|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917628.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Phoenix (3:20)
-2. Thin AirЖанр: PopПродолжительность: 00:16:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77152A1EBA1ECF13AEC5F57A4CF0D82DA4500659
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366750   (917487) от 15.03.2020
-
-Yumi Zouma ‎ - Willowbank (2017) Japanese Edition [FLAC|Lossless|tracks + .cue] <Dream Pop, Indie, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917487.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Depths, Pt. I (02:50)
-02. Persephone (04:33)
-03. December (03:55)
-04. Half Hour (03:39)(   Читать дальше...   )Жанр: Dream Pop, Indie, ElectronicПродолжительность: 00:49:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1764FAEBD17D4DE7F900014577CAD82B4422E696
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917911   (917388) от 25.01.2017
-
-VA - Pure... Brazil (2010) Box Set, 4CD [FLAC|Track+.cue]<Dance, Pop, Jazz, Rock, Latin>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917388.jpg" />
-</div>
-
-
-###  Подробнее
-
-О бразильских мелодиях многие из нас судят по музыкальному сопровождению бразильских же сериалов. Конечно, это большой пласт музыкальной культуры. Но чтоб убедить всех вас в том, что не только сериалы составляют бразильскую музыкальную культуру предлагаю послушать этот сборник от Sony Music Entertainment. Здесь вы услышите и джазовые интерпретации Maysa и представителей (   Читать дальше...   )01. Gal Costa - Garota De Ipanema (Ao Vivo)  (3:42)
-02. Alcione - Garoto Maroto  (4:03)
-03. Candeia e Yvonne Lara - Sou Mais O Samba  (3:15)
-04. Jacob Do Bandolim - Doce De Coco  (2:52)(   Читать дальше...   )Жанр: Dance, Pop, Jazz, Rock, LatinПродолжительность: 03:28:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58CBBA2BCBF1BF10C317B4600EADD44AD08BAF3E
 ```
 
 https://mybot314.ru/tekegram_catalog/

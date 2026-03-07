@@ -1,3 +1,206 @@
+###  Публикация: 1390471   (782991) от 15.06.2020
+
+VA - Зайцев.нет Лучшие новинки Июня (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782991.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Astrid S - Dance Dance Dance (2:39)
+2. Big Russian Boss & Young P&H - Монстр (2:07)
+3. CYGO - Что потом (2:11)
+4. Noize MC feat. Damilola Karpow - Давай Сбежим (3:51)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:48:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:979901B6B684AFDF40A7E246C4A070D94742D276
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205918   (782967) от 12.02.2018
+
+VA - MonsterJam Eurodance (2018) [MP3|320 Kbps] <Eurodance, Club, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782967.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jenya Alexanov - Trap'n'jazz (Original Mix)
+002. Viktor Astakhov - Dreams Lake (Original Mix)
+003. Selena - Can't Stop the Feeling (Original Mix)
+004. Max Fischer - Brussels (Original Mix)(   Читать дальше...   )Жанр: Eurodance, Club, HouseПродолжительность: 09:53:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DE9822ED986178FC9B8A7E97CD0496B8721718E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390621   (782669) от 16.06.2020
+
+VA - не Громкие новинки недели 71 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782669.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Nemiga - Метро (5:24)
+2. ТвояVina - Безумие (4:28)
+3. Хаким - Молчи (4:25)
+4. Сергей Пискун - Маски Сброшены (4:01)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:50:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AC6D061AF9517F604EEF00FE96DCD079B7965CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206208   (782532) от 13.02.2018
+
+VA - Happy Birthday Fish (2018) [MP3|320 Kbps] <Club, Dance, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782532.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.James Curd & J Dub - Too Cool To Dance
+02..Nora En Pure - Waves (Original Club Mix)
+03.Alex Safa - Come Is It Go (Extended Mix)
+04.Malaa - Notorious(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 04:54:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65E05EA2DF4A246D8C9F227DC47BF90EC125E7F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206125   (782487) от 13.02.2018
+
+VA - Best Hits 80s от ALEXnROCK часть 3 (2018) [MP3|320 Kbps] <Pop, Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Michael Bolton  -  Time, Love And Tenderness  5:30
+02.  Sandra  -  Midnight Man  3:04
+03.  Bad Boys Blue  -  Gimme Gimme Your Lovin  3:50
+04.  Roxette  -  Dangerous  3:49(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 03:27:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAAC9B06FE17B4B2E093F5CEDF39ECEB05403E0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206581   (782115) от 14.02.2018
+
+VA - Europa Plus: ЕвроХит Топ 40 / 09.02. (2018) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Post Malone feat. 21 Savage  -  Rockstar  3:38
+02.  ZAYN feat. Sia  -  Dusk Till Dawn  3:59
+03.  Merk Kremont  -  Sad Story Out Of Luck  3:32
+04.  Imagine Dragons  -  Whatever It Takes  3:21(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:14:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A1C239D8DB37F6A8F7A2778FB65EE1F76EC8DB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206478   (782111) от 14.02.2018
+
+VA - Две Судьбы, Два Голоса (2018) [MP3|256-320 Kbps] <Поп, Рок, Шансон>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782111.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Руки Вверх! & Astero - Когда мы были молодыми
+002. Марина Капуро & Aнсамбль Яблоко - Happy New Year
+003. Руки Вверх vs. Ser Twister - С Новым Годом! (DJ Prezzplay MashUp)
+004. Тараканы! - Stacy Hairy (feat. Иван Глобин & Дарья Глобина)(   Читать дальше...   )Жанр: Поп, Рок, ШансонПродолжительность: 06:58:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E7EF11DDC8D9E5C601026908B7A45C78671DAB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1206341   (781966) от 14.02.2018
 
 Cheb Khaled - Aicha (2017) Remix [MP3|320 Kbps] <Club, Dance>
@@ -540,209 +743,6 @@ VA - Galactic Dream Synthspace Version (2018) [MP3|192-320 Kbps] <Synthspace, Sy
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E77CCE5E7E3714914C58E6597F017F1D5602F9FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209829   (779082) от 28.02.2018
-
-VA - Europa Plus Euro Hit Top-100 Взгляд в прошлое vol.24 (2018) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779082.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Britney Spears Feat Will.i.am - Scream & Shout
-002. Girls Aloud - Something New
-003. Винтаж - Свежая вода (ft. ChinKong)
-004. Nelly Furtado - Waiting for the Night(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:10:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E33FBAC166A69CB3D847555520AB1B12704848DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209960   (778968) от 01.03.2018
-
-VA - NRJ Hot 30 от Радио ENERGY 23.02.2018 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778968.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. MARUV & BOOSIN - Drunk Groove
-02. Post Malone & 21 Savage - Rockstar
-03. Alice Merton - No Roots
-04. Merk & Kremont - Sad Story (Out Of Luck)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:48:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C828DB9D6203A9CC6C560299E8C8243073C55F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210179   (778885) от 01.03.2018
-
-VA - Новинки С Разных Популярных MP3 Сайтов Vol.70 (2018) [MP3|320 Kbps] <Pop, House, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778885.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  2Маши  -  Босая (DOBRYNIN Remix)  3:06
-002.  Dabro  -  Ты меня ждёшь  3:54
-003.  5sta Family  -  Снова вместе (Andy Light  Ramirez Radio Remix)  2:58
-004.  Deep Purple  -  Smoke On The Water (XM & Alexander Holsten Remix)  3:52(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 06:44:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7D991A0D928F0791BE64D32A4F57CD8D940A111
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210519   (778575) от 03.03.2018
-
-VA - Зайцев.Нет: Март (Музыкальные Новинки) (2018) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778575.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Анастасия Спиридонова  -  Прыжок в облака  3:17
-02.  Роман Рябцев  -  Вернуться домой (Radio Version)  4:56
-03.  Дана Соколова и L'One  -  Голос  3:36
-04.  Moby  -  This Wild Darkness  3:21(   Читать дальше...   )Жанр: PopПродолжительность: 02:34:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD1F3246512C3350A703513118F0FE6A23FEEDAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210455   (778574) от 03.03.2018
-
-VA - Top 100 Зайцев.Нет Февраль 2018 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778574.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ SLON & KATYA ft. Роман Василенко - LIFE IS GOOD
-02. Элджей - Минимал
-03. Элджей & Feduk - Розовое вино
-04. Время и Стекло - Тролль(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:44:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:677E18A7D66B612C7613E60464CC9C24CF8BBAD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210742   (778463) от 04.03.2018
-
-VA - The Best World Ballads - 34 (2018) [MP3|320 Kbps] <Pop, Rock, R'n'B>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778463.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Anastacia  -  Not Coming Down  3:22
-002.  The Score  -  Revolution  3:52
-003.  Demi Lovato  -  Cry Baby  3:43
-004.  Chris Rea  -  Nothing Left Behind  5:29(   Читать дальше...   )Жанр: Pop, Rock, Blues, Rap, R'n'BПродолжительность: 16:09:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B09E7D96473C8AA77599C092F81999893825191
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012925   (778383) от 02.05.2016
-
-VA - Awesome 80s Romance (2016) [MP3|320 кб/с] <Pop, Easy Listening, Jazz Vocal>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778383.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Chaka Khan - Through the Fire
-2. Al Jarreau - We're In This Love Together
-3. Chicago - You're the Inspiration
-4. Anita Baker - Sweet Love(   Читать дальше...   )Жанр: Pop, Easy Listening, Jazz VocalПродолжительность: 01:01:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F068B4BC23F0E9A457721DC1F2593AA20F8DC69B
 ```
 
 https://mybot314.ru/tekegram_catalog/

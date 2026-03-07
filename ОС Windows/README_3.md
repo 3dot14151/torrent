@@ -1,3 +1,56 @@
+###  Публикация: 1441568   (1037017) от 23.01.2021
+
+Microsoft Windows 10.0.19042.746 Version 20H2 (Updated January 2021) - Оригинальные образы от Microsoft MSDN [Ru]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037017.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 20H2 Build 19042.746.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:967D6EB1B946C65D1D20A91FC6B2FE2124598DB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617039   (1034985) от 07.03.2023
+
+Microsoft Office 2021 VL Professional Plus / Standard 16.0.16130.20218 RePack by sm2014 [Ru]
+
+>>ОС Windows
+>>Песочница ПО и сборок Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034985.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Office 2021 — новый офисный пакет от корпорации Microsoft, который включает в себя не только передовые функции, которые помогают пользователям работать максимально продуктивно, но и эффективные решения для управления, а также более более комплексный подход к безопасности. По традиции в его состав входят такие приложения как Word, Excel, Visio, PowerPoint, (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F99A8E784F4E63084923BF4CFFF8EF7FCA4901D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1443927   (1034754) от 31.01.2021
 
 Windows 10.0.17763.316 Enterprise LTSC Version 1809 (x64) [v.Special] by YelloSOFT [RU]
@@ -639,61 +692,6 @@ Microsoft Windows 10.0.19042.867 Version 20H2 (Updated March 2021) - Ориги�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC34C8AD0C5FF3E96F780D0965F3032F5A6828EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455663   (1025157) от 21.03.2021
-
-Windows 10 Pro x64 3in1 20H2.19042.867 March 2021 by Generation2 [Multi/Ru]
-
->>ОС Windows
->>Сборки Windows 10
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025157.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка создана на основе оригинального образа Microsoft Windows 10 20H2 x64.
-В один образ объединены три редакции: две с автоактивацией и одна без.
-Интегрированы обновления по март 2021 года, билд повышен до 19042.867.
-Системы абсолютно чистые.(   Читать дальше...   )Язык интерфейса: Русский, ангийский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6F96368DAD13C590342B2D7463130CDF8C6A6C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464065   (1020044) от 20.04.2021
-
-Windows Server, Version 20H2 (10.0.19042.928) (Updated April 2021) - Оригинальные образы от Microsoft MSDN [Ru/En]
-
->>ОС Windows
->>Оригинальные версии Windows Server
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020044.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows Server SAC - канал Semi-Annual Channel идеально подходит для клиентов, быстро внедряющих инновации. Он помогает им начать использовать возможности новой операционной системы раньше. Это касается как приложений, особенно основанных на контейнерах и микрослужбах, так и программного гибридного центра обработки данных. В рамках канала Semi-Annual Channel для (   Читать дальше...   )Язык интерфейса: Английский, Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:173BEDDD40DB2709818A42961CEE0C343900267B
 ```
 
 https://mybot314.ru/tekegram_catalog/

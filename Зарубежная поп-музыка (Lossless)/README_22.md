@@ -1,3 +1,119 @@
+###  Публикация: 1197016   (819051) от 05.01.2018
+
+Betsy - BETSY (2017) [FLAC|Lossless|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819051.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little White Lies (03:25)
+02. Lost & Found (02:57)
+03. Fair (03:33)
+04. Last Time We Danced (03:08)(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F530667DD8B06645B5DF45C8447084A510851DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117249   (818930) от 22.03.2017
+
+VA - Acoustic: The Collection (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_818930.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alanis Morissette - Ironic (Acoustic Version) (3:56)
+02. Coldplay - The Scientist (5:10)
+03. Bruno Mars - Grenade (Acoustic) (4:07)
+04. James Blunt - 1973 (Acoustic) (3:30)(   Читать дальше...   )Жанр: PopПродолжительность: 03:16:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D91BA5E68B9D9B9EF0703A4F8C1CAFA5D82ABAF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196963   (818873) от 05.01.2018
+
+Maroon 5 - Red Pill Blues (2017) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_818873.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Best 4 You
+02. What Lovers Do (Feat. SZA)
+03. Wait
+04. Lips On You(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 01:30:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29881F19FC1D4F153AA678EAB4274FB134410927
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008219   (818093) от 17.04.2016
+
+Paul Handyside - Tide, Timber & Grain (2016) [FLAC|Lossless|tracks] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_818093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flowers Won't Bloom    05:38
+02. Fond Farewell    04:16
+03. Let Me Down Easy    03:52
+04. All Will Be Revealed    03:51(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:41:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:871A7F57B4D6F94E86384CC9D1B24E950851E4BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1008191   (817590) от 17.04.2016
 
 VA - Nostalgie - The Summer Feeling (2015) 5CD [FLAC|Lossless|tracks] <Pop, Dance, Disco>
@@ -630,124 +746,6 @@ Lara Fabian - Papillon(S) (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF53B2CEDBE90ADDE89D98E5DF648BF245332A3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 548435   (805683) от 26.10.2021
-
-Michael Jackson - Bad (1987) 2012, 25th Anniversary Deluxe Edition, 3CD [FLAC|Lossless] <Pop, R&B, Funk, Dance, Rock, Dubstep>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805683.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данный релиз состоит из трёх CD-дисков из нового Коллекционного издания в формате Бокс Сета, состоящего из 3-х СD-дисков (и 1-го DVD, в этой раздаче отсутствует).
-
-Диск 1 - ремастеринговые хиты основного альбома (01. Bad (4:08)
-02. The Way You Make Me Feel (4:59)
-03. Speed Demon (4:05)
-04. Liberian Girl (3:50)(   Читать дальше...   )Жанр: Pop, R&B, Funk, Dance, Rock, DubstepПродолжительность: 03:05:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E82C0398F650ADDF86FE4472D6378CA51BBD37B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009975   (805564) от 23.04.2016
-
-VA - Radio 538 Hitzone 77 (2016) 2CD [FLAC|Lossless|image + .cue] <Top 40, Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805564.jpg" />
-</div>
-
-
-###  Подробнее
-
-Известный Нидерландский лейбл Радио 538 продолжает в этом году свою серию двухдисковым сетом новинок популярной музыки. Довольно регулярно на трекере публикуются эти новинки. Как указано на их сайте все хиты с этих дисков должны пополнить вашу коллекцию.CD1:
-01. Dua Lipa - Be The One  (3:24)
-02. Coldplay -  Hymn For The Weekend  (4:21)
-03. Fifth Harmony feat. Ty Dolla Sign - Work From Home  (3:38)(   Читать дальше...   )Жанр: Top 40, Pop, RockПродолжительность: 02:31:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DD27BB68E39FCFDFCF08699ABE1BFE4DCB98C91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 318570   (805153) от 04.04.2011
-
-Duran Duran - Greatest (1998) [FLAC|Lossless]<Pop, New Wave>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Is There Something I Should Know
-02. The Reflex
-03. A View To A Kill
-04. Ordinary World(   Читать дальше...   )Жанр: Pop, New WaveПродолжительность: 01:18:14
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384151   (804172) от 19.05.2020
-
-VA - Eurovision Song Contest 2020 - A Tribute to the Artists and Songs (2020) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804172.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Arilena Ara - Fall From the Sky (Albania) (3:10)
-02. Athena Manoukian - Chains on You (Armenia) (3:03)
-03. Vincent Bueno - Alive (Austria) (3:03 )(   Читать дальше...   )Жанр: PopПродолжительность: 02:02:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29B76D573A5E63E56ED7961D5CC159C022859A41
 ```
 
 https://mybot314.ru/tekegram_catalog/

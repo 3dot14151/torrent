@@ -1,25 +1,29 @@
-###  Публикация: 1044194   (567465) от 19.08.2016
+###  Публикация: 529062   (569343) от 30.07.2012
 
-VA - Black Hole Trance Music 08-16 (2016) [MP3|320 Kbps] <Trance>
+VA - Global DJ Broadcast Top 20 July (2012) [MP3|320 кб/с]<Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567465.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_569343.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Andy Moor & Michele C.  -  We Can Be Free  6:52
-02. Orkidea  -  Nana (Jerome Isma-Ae Remix)  6:51
-03. Andy Duguid Ft. Chris Severe  -  Breathe  5:14
-04. Venaccio  -  Space Cowboy  6:54(   Читать дальше...   )Жанр: TranceПродолжительность: 02:19:39
+VA - Global DJ Broadcast Top 20 July (2012)
+
+Год: 2012
+Жанр: Trance
+Продолжительность: 02:39:30Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТрек лист:
+01. Markus Schulz Feat. Adina Butar - Caught (Radio Edit) (4:00)(   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:698C6C6584E488058BC841385A17FE4623C3E219
+magnet:?xt=urn:btih:53697628D97E1DEB3F5DA6A8E5776F88037977F0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +31,63 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044390   (567464) от 19.08.2016
+###  Публикация: 1303636   (569340) от 23.05.2019
 
-Jimmy Burns - Back To The Delta (2003) [FLAC|Lossless|image + .cue] <Blues>
+Monster Energy NASCAR Open. Race (2019) DVBRip [H.264/720p-LQ] [hand made 50fps]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_569340.jpg" />
+</div>
+
+
+###  Подробнее
+
+NASCAR Cup Series 2019 - Сезон 2019 года
+Суббота, 18 мая 2019 года. Конкорд (штат Северная Каролина, США).
+Monster Energy NASCAR Open - Отборочная гонка для участия в All-Star Race, для водителей которые не соответствовали критериям гонки всех звезд.
+Дистанция: 75 миль (121 км). 50 кругов(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: АвтоспортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:08:57
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 529229   (569337) от 30.07.2012
+
+VA - Crucial Acoustic Blues (2007) [MP3|320 кб/с]<Blues>
 
 >>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567464.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_569337.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Back To The Delta    04:13
-02. Stop The Train    04:56
-03. Red Hot Mama   03:54
-04. Stranded In Clarksdale    04:04(   Читать дальше...   )Жанр: BluesПродолжительность: 01:07:20.61
+01. Buddy Guy  & Junior Wells - High Heel Sneakers (4:57)
+02. Lonnie Mack with Stevie Ray Vaughan - Oreo Cookie Blues (4:52)
+ 03. Carey&Lurrie Bell - Stop Running'Round (4:24)
+ 04. Steady Rollin' Bob Margolin with Nappy Brown - Downin The Alley (4:17)
+ 05. Saffire - The Uppity `Blues Women - Sloppy Drunk (3:09)
+ 06. Koko Taylor with Keb'Mo' - The Man Next Door (5:14)
+ 07. John Jackson - Railroad Bill (4:02)
+ 08. Johny Winter - Evil On My Mind (2:21)
+ 09. Cephas & Wiggins - Trouble In Mind (3:07)
+ 10. Sonny (   Читать дальше...   )Жанр: BluesПродолжительность: 00:50:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:452BCFE4E3D4174B1798CB97DA27756A32012CFA
+magnet:?xt=urn:btih:BB1F1E85F288731D282B6D8A7BE093747D62BD9E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,396 +95,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044302   (567463) от 19.08.2016
+###  Публикация: 1234405   (569336) от 06.07.2018
 
-VA - Running Beats 11 - Musik Zum Laufen (Inkl 5 KM & 10 KM Mix) (2016) [MP3|250~294 Kbps] <House, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567463.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Mix  -  5 KM Power-Lauf  30:24
-02. DJ Mix  -  10 KM Power-Lauf  1:00:10
-03. Nora En Pure  -  On the Beach (Short Edit)  3:31
-04. Milk & Sugar with Barbara Tucker  -  My Lovin (Mat.Joe Radio Edit)  3:41(   Читать дальше...   )Жанр: House, ProgressiveПродолжительность: 03:24:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:148E53C470B57F901BA176CF6C1124CE38F8CE18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044394   (567462) от 19.08.2016
-
-Jimmy Burns - It Ain't Right (2015) [FLAC|Lossless|tracks + .cue] <Modern Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567462.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Big Money Problem (3:30)
-02. Will I Ever Find Somebody (4:01)
-03. Snaggletooth Mule (3:59)
-04. Long As You're Mine (3:51)(   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 00:58:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C226D3DE8BFED70B843F5D7D99B1A31EF8919F02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044230   (567461) от 19.08.2016
-
-Amon Ra - We Never Said Good-Bye (2015) [FLAC|Lossless|image + .cue] <Neo Progressive>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567461.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Master of Strings (5:34)
-02. Time Will Come to Your Rescue (9:33)
-03. The Long Dark Road (4:55)
-04. Where When and Why (6:33)(   Читать дальше...   )Жанр: Neo ProgressiveПродолжительность: 01:11:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C332F2C8BBB525D002E6A011F42D10BF1B68D7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044206   (567460) от 19.08.2016
-
-Fatal Embrace - Slaughter To Survive (2015) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567460.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Upcoming Cruelty (Intro) 01:23
-02. Revelation 04:42
-03. Hellhounds 04:13
-04. Dungeons of Dread 04:06(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:47:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:867D584F94B7137F4DC83F064A0A5EFFA2793E93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044176   (567459) от 19.08.2016
-
-В теме. Сирийский передел (18.08.2016) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567459.jpg" />
-</div>
-
-
-###  Подробнее
-
-"В теме": Сергей Воронин – о гражданской войне в Сирии. Как Сирия стала важнейшим стратегическим объектом для целого ряда стран, рассказал политолог и ведущий программы "В теме" Сергей Воронин.Телекомпания: Москва 24Жанр: ДокументальныйПродолжительность: 00:26:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44B3E7AA76AF85FA4D38F7228B1D2408300FA5DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043596   (567458) от 19.08.2016
-
-Софья и Наталья Самуиловы | Отцовский крест (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567458.jpg" />
-</div>
-
-
-###  Подробнее
-
-В воспоминаниях сестер Софьи и Натальи Самуиловых о дореволюционном детстве, о любимом отце – провинциальном священнике Сергии, впоследствии погибшем в заключении, звучит живой отголосок ушедшей эпохи. Судьба семьи Самуиловых неразрывно переплелась с трагической судьбой страны в XX веке. Перенося читателя в российскую глубинку 1910–1930-х годов, авторы раскрывают (   Читать дальше...   )Жанр: духовная прозаПродолжительность: 32:16:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23C2000FEC2D169AD47EF51573EB94E83285942A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044186   (567457) от 19.08.2016
-
-VA - Летний Заводной Музон 9 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567457.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Френды - Смотри Как Я Танцую
-002. Fallulah - Vandalain
-003. Денис Барканов - Доченька
-004. Drowning Pool - Push(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2DD0F3D2C6D7A72B23418ED97403E9F74EBBB78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044241   (567456) от 19.08.2016
-
-Dan Patlansky - Introvertigo (2016) [FLAC|Lossless|tracks + .cue] <Modern Electric Blues, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567456.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Run
-02. Poor Old John
-03. Sonova Faith
-04. Loosen Up The Grip(   Читать дальше...   )Жанр: Modern Electric Blues, Blues RockПродолжительность: 00:35:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:990FAD046DD45D0B77FDA7DC839DF7EB10EC5B46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044315   (567455) от 19.08.2016
-
-VA - DJ Club Charts (2016.2) (2016) [MP3|251~278 Kbps] <House, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567455.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Various artists  -  DJ Club Charts 2016.2 - The Mix, Pt. 1  1:04:39
-02. Various artists  -  DJ Club Charts 2016.2 - The Mix, Pt. 2  1:07:02
-03. Robin Schulz feat. Akon  -  Heatwave (Remady Remix)  3:47
-04. R3HAB & Quintino  -  Freak (Sam Feldt Remix Edit)  3:17(   Читать дальше...   )Жанр: House, ProgressiveПродолжительность: 04:42:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC3F1EB8754553C09B228F8B269FEC2D38990794
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044216   (567454) от 19.08.2016
-
-VA - Ultimate Vocal Trance Anthems (2016) [MP3|320 Kbps] <Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567454.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kaimo K & Sarah Russell  -  Why Can't You Love Me (Edit)  4:05
-02. Cold Rush & Elles De Graaf  -  Daydreamer (Alan Morris Radio Edit)  4:19
-03. Alex Ender & Jo Cartwright  -  Trembling Sadness (Edit)  3:04
-04. Chris Metcalfe & Sue Mclaren  -  Stardust (Edit)  3:51(   Читать дальше...   )Жанр: TranceПродолжительность: 02:28:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A30BC9661DD9C193D0535F1B88E9CA003F33390
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043947   (567453) от 19.08.2016
-
-VA - Хитовые Летние Песни 8 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567453.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Axero Feat. Tau - What For
-002. Эмма М - Душа
-003. John Newman Feat. Charlie Wilson - Tiring Game
-004. Зелим Бакаев - Иллюзия(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3FBCA7A7DF56C1CABD996D92BDDA5BFE0C055EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304051   (567452) от 24.05.2019
-
-Rymden - Reflections & Odysseys (2019) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Piano Trio>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567452.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reflections (1:10)
-02. The Odyssey (6:03)
-03. The Peacemaker (0:38)
-04. Pitter-Patter (5:15)(   Читать дальше...   )Жанр: Contemporary Jazz, Piano TrioПродолжительность: 00:47:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E87693D2DA3431104C3471841EDC35A33ED50D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304138   (567451) от 24.05.2019
-
-Lance Richards - Friends (2019) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567451.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Grudge 04:41
-02. Lay Down And Love Me 04:29
-03. Whose Heart Here Is Breaking 04:11
-04. Coming Home 04:05(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ADC0A9F87E3F1221FF85E32B55ECED88ACE0C87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304049   (567450) от 24.05.2019
-
-Общество памяти игумении Таисии (изд.) | Молитвы и наставления подвижников благочестия (2004) [PDF, DJVU]
+Николай Коняев | Дальний приход. Рассказы о Церкви [Сборник] (2013) [FB2, PDF]
 
 >>Разное (категория книг)
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567450.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_569336.jpg" />
 </div>
 
 
 ###  Подробнее
 
-...Любовь к Богу, выражающаяся прежде всего в молитве пламенной и постоянной, в поставлении храма Святой Троице в сердце нашем и в предстоянии пред Его престолом, как горящая лампадка, с краткой, но частой молитовкой, стараясь ею наполнять день и ночь, когда не спишь. Тогда станет понятно слово апостола Петра древним христианам: вы «сами, как живые камни, устрояйте (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+В юности душа живёт, не отдавая никому отчёта в своих желаниях и грехах. Что, например, страшного в том, чтобы мальчишке разорить птичье гнездо и украсть птенца? Кажется, что игра не причинит никому вреда, и даже если птенец умрёт, всё в итоге исправится каким-то волшебным образом.
+
+В рассказе известного православного писателя Николая Коняева действительно происходит (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:54A18175234B790B238A209E187D1764D6A4CF0E
+magnet:?xt=urn:btih:0C6332D454C13F84C352E2081F5BE6FEEA609358
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -453,26 +123,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303717   (567449) от 24.05.2019
+###  Публикация: 1303835   (569334) от 23.05.2019
 
-MRUKS - MRUKS REMIXES (2019) [FLAC|Lossless|WEB-DL|tracks] <Funky, Retrowave>
+А. В. Фомин (сост.) | О жизни вечной на том свете в райских обителях (2011) [DJVU]
 
->>Electronic
->>Synthpop, New Wave (Lossless)
+>>Разное (категория книг)
+>>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567449.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_569334.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. SKURM - Baa (Long Away) (MRUKS Remix)
-02. SKURM - VIT16 (MRUKS Remix)Жанр: Funky, RetrowaveПродолжительность: 00:06:39
+Как рассказать о тех небесных обителях, куда призывает Господь всех любящих Его? Придет время — сам увидишь. Что еще тебе сказать, да и как сказать тебе?.. Ведь на человеческом языке нет тех слов, которые могли бы передать, что там совершается; ведь на земле и красок-то тех нет...
+
+Книга о жизни вечной на том свете в райских обителях, с чудесными описаниями святыми (   Читать дальше...   )Жанр: ПравославиеФормат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:44CA597B385026B2585231EF1E6B1995B8ADDE7D
+magnet:?xt=urn:btih:04BFF393A8CDAB0785DA39AAB16E830A0C28E52E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -480,28 +151,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304055   (567448) от 24.05.2019
+###  Публикация: 529156   (569331) от 30.07.2012
 
-Silverstein - Redux: The First 10 Years (2019) [FLAC|Lossless|tracks + .cue] <Rock, Post-Hardcore>
+Журнал | Автопанорама №7 (июль) [2012] [PDF]
 
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Автомобили
+>>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567448.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_569331.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Smashed Into Pieces (3:40)
-02. Smile In Your Sleep (3:16)
-03. American Dream (3:10)
-04. Bleeds No More (3:16)(   Читать дальше...   )Жанр: Rock, Post-HardcoreПродолжительность: 00:43:39
+На страницах журнала вы найдете эксклюзивные тесты самых знаменитых автомобилей планеты, потребительские тесты наиболее популярных моделей, обзоры предложений тюнинговых компаний, новинки техники, статьи по истории автомобиля, материалы о ремонте и сервисном обслуживании, а также самую полную информацию о ценах на автомобили, услуги и запчасти в автосалонах и сервисных центрах.Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8371420F0F3FCD77789D0AEB8AE55E1333842919
+magnet:?xt=urn:btih:FAA2926822DD02B8DA9AD3F03AA47DF2DA0444C1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -509,28 +177,51 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304179   (567447) от 24.05.2019
+###  Публикация: 1234271   (569330) от 06.07.2018
 
-Футбол. Чемпионат Европы 2020. Отборочный турнир. 2-й тур. День 1-й. Обзор матчей (2019) IPTVRip [H.264/1080p-LQ]
+Роман Ильин | Поэтический огонек [сборник поэзии] (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_569330.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стихи Романа Ильина, вошедшие в состав одного из сборников поэзии "Поэтический огонек".Жанр: ПоэзияПродолжительность: 00:04:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92AF7D2FF456B2DE167C53964F6F52789563EE99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303923   (569327) от 23.05.2019
+
+Mozilla Thunderbird 60.7.0 Portable by PortableApps [Ru]
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567447.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_569327.jpg" />
 </div>
 
 
 ###  Подробнее
 
-24 марта 2019
-Чемпионат Европы 2020. Отборочный турнир.
-Обзор матчей 2-го тура.
-День 1-йТелекомпания: Матч! Футбол 1 HDЖанр: Телепередача, СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:29:12
+Thunderbird — это бесплатная почтовая программа, лёгкая в установке и настройке — и имеющая множество великолепных возможностей! Поддерживает протоколы SMTP, POP3, IMAP и RSS, имеет встроенный HTML редактор, который создает довольно компактный код, что в свою очередь уменьшает итоговый размер отправляемых писем в несколько раз. Поддерживает всевозможные кодировки, (   Читать дальше...   )Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F522B3C7F1877E5A9C2DEB2DAF6A47E05CC35C66
+magnet:?xt=urn:btih:16D5A9DD9630E31D72262813F9DE0AF3B552EB76
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -538,28 +229,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304107   (567446) от 24.05.2019
+###  Публикация: 1234580   (569324) от 06.07.2018
 
-Jimmy Smith - 5 Original Albums (1959 - 1965) 5CD, Universal, 2018 [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz, Organ Jazz>
+Steve Gadd - Band (2018) BFM Jazz [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Crossover Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567446.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_569324.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD1 - Home Cookin':
-01. See See Rider [6:36]
-02. Sugar Hill [5:20]
-03. I Got A Woman [3:56](   Читать дальше...   )Жанр: Hard Bop, Soul Jazz, Organ JazzПродолжительность: 03:11:17
+01. I Know, But Tell Me Again [4:51]
+02. Auckland By Numbers [5:20]
+03. Where's Earth? [4:15]
+04. Foameopathy [6:37](   Читать дальше...   )Жанр: Jazz Fusion, Crossover JazzПродолжительность: 00:55:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6DA43395BDEC44137663CCB2FF45A35DC70EAEB4
+magnet:?xt=urn:btih:C642EA206D05A2F79EC45D144F8DD74FB8370873
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -567,28 +258,359 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304037   (567445) от 24.05.2019
+###  Публикация: 1304025   (569321) от 23.05.2019
 
-Com Truise - Persuasion System (2019) [FLAC|Lossless|tracks + .cue] <Electronic, Synthpop>
+Формула 1. Сезон 2019. 6-й Этап. Гран-при Монако. Свободная практика 2 (23.05.2019) IPTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_569321.jpg" />
+</div>
+
+
+###  Подробнее
+
+23 мая 2019 года, четверг. 16:00 МСК
+70-й сезон Формулы-1 2019 года
+6-й Этап. Гран-при Монако. Монте-Карло (Монако)
+Свободная практика 2(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:38:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0888F5EFD562D9DBD456A4897740A562041B7683
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234674   (569319) от 06.07.2018
+
+VA - Uplifting Moments Vol. 1 (2018) [MP3|320 Kbps] <Trance>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_569319.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Digital Rush - Everglow (Radio Edit)
+02. Carl Daylim - My Last Hope (Michael Milov Edit)
+03. Hiromori Aso - Blink Dagger (Radio Edit)
+04. Junior feat. Ghaith Elhorr - She Breaks The World (Radio Edit)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:39:20
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303907   (569315) от 23.05.2019
+
+The Strumbellas - Rattlesnake (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_569315.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Salvation
+02. I’ll Wait
+03. One Hand Up
+04. Running Scared (Desert Song)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:32:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD1014575D2A67C1C736D76818C075BEAE296432
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234417   (569314) от 06.07.2018
+
+П. Троицкий | Афонские встречи. Святая Гора глазами современного русского паломника (2015) [FB2, PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_569314.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автор книги — наш современник — Павел Троицкий (диакон Пётр Пахомов). Он более десяти раз был на Афоне, много путешествовал, посещая монастыри и скиты, беседуя с монахами. Эта книга с большим количеством фотографий — описание его впечатлений, увлекательные рассказы о наиболее ярких страницах истории Афона, о тайнах и легендах Святой Горы, о великих старцах прошлого (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FA6912AE0819A1944AA7C9294222F447B1EEA9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234660   (569310) от 06.07.2018
+
+Driftmoon - Invictus (2018) [MP3|320 Kbps] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_569310.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Driftmoon – The Message (Prologue) (Original Mix)
+02. Driftmoon – Homines Novi Classis (Original Mix)
+03. Eco & Driftmoon – They'll Never Find Us (Original Mix)
+04. The Thrillseekers & Driftmoon – What Remains Hidden (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:21:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02330D8E3BE404A0BEBC8E0BF11D94D1FAF0062A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303833   (569308) от 23.05.2019
+
+Myrath - Shehili (2019) Japanese Edition [MP3|320 kbps] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_569308.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Asl (01:09)
+02. Born to Survive (03:34)
+03. You've Lost Yourself (04:52)
+04. Dance (03:47)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:52:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9882D21488EE59E86A23461CC759D84AF793E26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 529374   (569306) от 30.07.2012
+
+Журнал | Discovery №8 (август) [2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_569306.jpg" />
+</div>
+
+
+###  Подробнее
+
+Любое открытие, совершаемое в процессе эволюции, меняет мир и придает принципиально новое направление развитию общества. Таким открытиям и посвящен ежемесячный журнал DISCOVERY, в фокусе внимания которого одновременно находятся человек и Вселенная.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B96A8B317CB33D5764E622CAF67FDF82144EC92D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303803   (569304) от 23.05.2019
+
+Сандра Сиснерос | Дом на Манго-стрит (2019) [FB2]
+
+>>Художественная литература
+>>Современная поэзия и проза
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_569304.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что делает нас такими, какие мы есть? Окружение? Но если оно тебе совсем не нравится, можно ли из него вырваться? Что для этого требуется?
+Чикаго, бедный иммигрантский район, конец ХХ века. Эсперанса стыдится дома на Манго-стрит, в котором живет со своей огромной шумной семьей, она мечтает скорее вырасти, сбежать из родного города и стать писательницей. Эсперанса (   Читать дальше...   )Жанр: Легкая проза, Современная зарубежная литератураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7391534108301E829378B42707F0A2D491C704E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234587   (569302) от 06.07.2018
+
+Display Driver Uninstaller 17.0.8.9 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_569302.jpg" />
+</div>
+
+
+###  Подробнее
+
+Display Driver Uninstaller это утилита удаления драйверов, которая поможет вам полностью удалить драйверы видеокарты AMD / NVIDIA / Intel из системы, не оставляя кучу ненужных файлов (включая ключи реестра, папки и файлы). DDU предназначен для использования в случаях, когда стандартными способами драйвера не удаляются, или когда нужно тщательно удалить драйверы видеокарты. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2040386687DFB6E39BC5777B8990A3D3CB3A5D3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234552   (569296) от 06.07.2018
+
+Piper - Piper (1977) Reissue, 1990, A&M Records [MP3|320 Kbps] <Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_569296.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Out Of Control
+2. Whatcha Gonna Do
+3. The Road
+4. Sail Away(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:38:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FC60EE3372F37273D996830F992D46CE349BDEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 529102   (569294) от 30.07.2012
+
+Журнал | Playboy [Netherlands] №8 (2012) [PDF]
+
+>>Журналы
+>>Мужские журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_569294.jpg" />
+</div>
+
+
+###  Подробнее
+
+Playboy — легендарный журнал для мужчин, основанный в 1953 году Хью Хефнером и его коллегами, выросший в настоящую империю Playboy Enterprises, влияние которой распространяется на все области медиа. Playboy — один из самых известных в мире брендов.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AA38BF469FCC017E95CB48539EEAE443F7EDB4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303755   (569290) от 23.05.2019
+
+Amadeus Pro 2.6 (2152) [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_569290.jpg" />
+</div>
+
+
+###  Подробнее
+
+Amadeus Pro - многотрековый музыкальный редактор, который будет интересен как любителям, так и профессионалам. Приложение поддерживает работу с несколькими звуковыми дорожками, каждую из которых можно редактировать абсолютно независимо от других - изменять ее уровень громкости, накладывать различные фильтры, вставлять дополнительные фрагменты и т.д. Помимо этого (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.05.2019Разработчик: HairerSoftПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский, Немецкий, Итальянский, Французский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF015F0373E186A114AB55C32CD776629A71B3B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234540   (569288) от 06.07.2018
+
+VA - Sports Music City Edition (2018) [MP3|320 Kbps] <Minimal, Tech House>
 
 >>Electronic
->>Synthpop, New Wave (Lossless)
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567445.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_569288.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Worldline
-02. Persuasion System
-03. Gaussian
-04. Ultrafiche Of You(   Читать дальше...   )Жанр: Electronic, SynthpopПродолжительность: 00:33:14
+01. Dayana - Camuto 03:10
+02. Cymbal - Dation 03:10
+03. Corteza - Scent 03:10
+04. Clickbank - Eternal 03:10(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 01:34:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BCF9725313F5A17976848C17EC59C8A1583077E0
+magnet:?xt=urn:btih:D2200930CE7F1FC47445D3CA4350CA81F941ACA8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -596,28 +618,33 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304186   (567444) от 24.05.2019
+###  Публикация: 528714   (569287) от 30.07.2012
 
-Футбол. Чемпионат Европы 2020. Отборочный турнир. 2-й тур. День 2-й. Обзор матчей (2019) IPTVRip [H.264/1080p-LQ]
+Изморозь - Зигомёд (2012) [MP3|320 кб/с]<Pagan, Folk, Black Metal>
 
->>
->>
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_567444.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_569287.jpg" />
 </div>
 
 
 ###  Подробнее
 
-25 марта 2019
-Чемпионат Европы 2020. Отборочный турнир.
-Обзор матчей 2-го тура.
-День 2-йТелекомпания: Матч! Футбол 1 HDЖанр: Телепередача, СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:31:46
+1. Ведьма (03:48)
+2. Зловещий Ветер	(04:07)
+3. Сокровища Богов (04:45)
+4. Казачья (03:49)
+5. Угорай	 (03:24)
+6. Нечистый Круг (04:19)
+7. Владыка Моря (03:53)
+8. Упырь-град	(03:47)
+9. Званый Ужас (02:32)Жанр: Pagan, Folk, Black MetalПродолжительность: 00:34:28
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:634ECEE461B7B05AD29FD1D6202AF2475BB8D485
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -625,25 +652,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304026   (567443) от 24.05.2019
+###  Публикация: 1303830   (569284) от 23.05.2019
 
-Э.А. Гранстрем | Вдоль полярных окраин России. Путешествие Норденшельда вокруг Европы и Азии в 1878-1880 гг (1898) [PDF]
+Джонатан Оксье | Ночной садовник (2019) [FB2]
 
->>
->>
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_567443.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_569284.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Эта иллюстрированная книга Эдуарда Андреевича Гранстрема (1843–1918 гг.), русского писателя, автора популярных книг для юношества, рассказывает о первом успешном плавании по Северному морскому пути, которое совершил финский географ и исследователь Арктики Нильс Адольф Эрик Норденшельд (1832–1901 гг.) на пароходе "Вега" в 1878–1879 гг. Предположение о возможности (   Читать дальше...   )Жанр: ИсторияФормат: PDF
+Кип и Молли бегут из Ирландии в поисках лучшей жизни. В дороге они теряют родителей.
+Ради еды и крыши над головой они поступают на службу в мрачное поместье Виндзоров. Все местные жители сторонятся этого ужасного места.
+Полуразрушенный особняк стоит в тени огромного зловещего дерева. А обитатели поместья всегда бледны и болеют. Ночью поместье посещает высокий гость (   Читать дальше...   )Жанр: Детские детективы, Зарубежные детские книги, МистикаФормат: FB2
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:151C34817B1DC2AFEF1508785F7BB714917728A9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -651,25 +680,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234750   (567442) от 07.07.2018
+###  Публикация: 1234599   (569283) от 06.07.2018
 
-Ashampoo Burning Studio 19.0.2.6 RePack (& Portable) by TryRooM [Multi/Ru]
+Rigos - Водитель Катафалка (2018) [MP3|320 Kbps] <Rap, Hip-hop>
 
->>
->>
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_567442.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_569283.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ashampoo Burning Studio - это всё то, о чём Вы просили. Откройте простейший способ достичь профессиональных результатов с чрезвычайно интуитивной, компактной, ещё более мощной программой для записи. Видео DVD с полностью анимированными меню, музыкальные CD с собственными обложками, защищённые паролем резервные копии данных и многое другое всего в паре кликов от Вас. (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
+01. Стартер
+02. Сникеры и камуфляж
+03. Жизнь непредсказуема
+04. Аниме(   Читать дальше...   )Жанр: Rap, Hip-hopПродолжительность: 00:55:17
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:50BDA123CDBEDBBD772FE5C1A9F5C2CEB6E39042
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -677,51 +709,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234826   (567441) от 07.07.2018
+###  Публикация: 1234629   (569279) от 06.07.2018
 
-Положитесь на Пита / Lean on Pete  (2017) BDRemux [H.264/1080p] [EN / EN, Sp Sub]
+Где Кайра? / Where Is Kyra? (2017) WEBRip [MVO] [AD]
 
->>
->>
+>>Остальное
+>>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_567441.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_569279.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Одинокий подросток Чарли в компании украденной лошади отправляется на поиски своей последней родственницы - давно пропавшей тети. Его ждет опасное и печальное путешествие на пути к простой мечте о доме.Производство: Великобритания / BFI Film Fund, Bureau, The, Film4Жанр: драма, приключенияРежиссер: Эндрю ХэйАктеры: Стив Бушеми, Клоэ Севиньи, Стив Зан, Томас Манн, Трэвис Фиммел, Айанна Беркшир, Фрэнк Галлегос, Роберт Дж. Олин, Джозеф Бертот, Джулия Прад’хомме, Дэна Милликэн, Джастин Рэйн, Чарли Пламмер, Джейсон Раус, Сюзанн Стокер, П.И. ИнгрэмПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, испанскиеПродолжительность: 02:01:59
+Кроткая скрытная Кайра начинает увядать после смерти матери. Когда она все больше отдаляется от людей и замыкается в себе, женщина решает предпринять последнюю отчаянную попытку, чтобы её не выселили. Кроме того, она находит утешение в другой одинокой душе — Даге, от которого она изначально пытается скрыть свое бедственное положение, но Кайра медленно вплетает его (   Читать дальше...   )Производство: Великобритания, США / Big Indie Pictures, Killer Films, Little MinxЖанр: ДрамаРежиссер: Эндрю ДосунмуАктеры: Мишель Пфайффер, Кифер Сазерленд, Сюзанн Шеперд, Сэм Робардс, Брэдли У. Андерсон, Селия Ау, МаамеЯа Боафо, Хорхе Чапа, Элизабет ЭвансПеревод: Двуголосый закадровый, любительский (HiWay Grope)Субтитры: отсутствуютПродолжительность: 01:39:39Реклама: аудио, видео и текстовые вставки рекалмы
 
 ## Скачать торент
 ```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234739   (567440) от 07.07.2018
-
-BBC. Земля: Один потрясающий день / Earth: One Amazing Day (2017) UHD BDRemux [H.265/2160p] [4K, HDR, Dolby Vision, 10-bit]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_567440.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один обыкновенный и впечатляющий день из жизни разных представителей дикой природы: от неприметных насекомых до царственных хищников. Чем занимаются от рассвета до заката жители джунглей и ледников, морей и пустынь? Они выходят на охоту, борются за выживание, растят детенышей и втягиваются в круговорот удивительных приключений.Производство: Великобритания, BBC Earth Film ProductionsЖанр: Документальный, научно-популярный, семейныйРежиссер: Ричард Дэйл, Фань Лисинь, Питер ВебберПеревод: Дублированный (Николай Дроздов) (Лицензия BD RUS)Субтитры: Русские, английскиеПродолжительность: 01:33:44
-
-## Скачать торент
-```bash
-нет
+magnet:?xt=urn:btih:FE17A33C81DB0373D09E54E51B85DDEE6CCD9A5A
 ```
 
 https://mybot314.ru/tekegram_catalog/

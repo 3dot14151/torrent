@@ -1,3 +1,32 @@
+###  Публикация: 1148160   (604203) от 05.07.2017
+
+Wolfgang Amadeus Mozart - Le Nozze di Figaro - (Безумный день, или Женитьба Фигаро) (2003)(2CD) [FLAC|Lossless|image + .cue] <Opera, Classical>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604203.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Overture 04:22
+ACT 1
+02 Cinque ... dieci .... venti (Figaro/Susanna) 02:48
+03 Se a caso madama Figaro (Figaro/Susanna) 02:28(   Читать дальше...   )Жанр: Opera, ClassicalПродолжительность: 02:34:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34BD4D5CD4E4503B66AAA03E60A417549054221F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1297266   (604055) от 22.04.2019
 
 Ludovico Einaudi - Elements (The Remixes) (2016) Decca Records [FLAC|Lossless|WEB-DL|tracks] <Electronic, Modern Classical>
@@ -719,35 +748,6 @@ Salvatore Accardo, Orchestra da Camera Italiana - Vivaldi: The Four Seasons / Ba
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA2E8A51AFAEB99DB8CD78400BCE190A57510AD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549408   (593318) от 07.05.2022
-
-Vikingur Olafsson - Mozart & Contemporaries: Galuppi, C.P.E. Bach, Cimarosa, Haydn (2021) [FLAC|Lossless|image + .cue] <Classical>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593318.jpg" />
-</div>
-
-
-###  Подробнее
-
-Baldassare Galuppi
-01. Piano Sonata No. 9 in F minor - Andante spiritoso
-Wolfgang Amadeus Mozart
-02. Rondo in F major, K 494(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:24:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE201550A3E8B14D216219925895CA73FF6BEB94
 ```
 
 https://mybot314.ru/tekegram_catalog/

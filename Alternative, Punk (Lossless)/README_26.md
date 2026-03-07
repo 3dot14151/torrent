@@ -1,3 +1,32 @@
+###  Публикация: 1294587   (628487) от 08.04.2019
+
+Sleeper - The Modern Age (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paradise Waiting (03:23)
+02. Look at You Now (04:08)
+03. The Sun Also Rises (03:39)
+04. Dig (02:50)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:36:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EFE26517F026A5E2D3F1F2217F94F7487B49A13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1294545   (628481) от 08.04.2019
 
 Lucy Rose - 7 releases (2012 - 2019) [FLAC|Lossless|tracks + .cue] <Indie Pop, Indie Rock, Singer-Songwriter>
@@ -715,35 +744,6 @@ For The Fallen Dreams - Six (2018) Rise Records [FLAC|Lossless|tracks + .cue] <A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9DFD2352771657E5620CB9F31DA17789AD7D664
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231779   (603697) от 20.06.2018
-
-The White Stripes - Icky Thump (2007) [FLAC|Lossless|tracks + .cue] <Blues Rock, Garage Rock, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603697.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Icky Thump (4:15)
- 02. You Don't Know What Love Is (You Just Do as You're Told) (3:54)
- 03. 300 M.P.H. Torrential Outpour Blues (5:29)
- 04. Conquest (2:48)(   Читать дальше...   )Жанр: Blues Rock, Garage Rock, Indie RockПродолжительность: 00:48:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E4176810F10A77CFB894CAFC3D5B75B8C97F1F7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1624526   (242092) от 06.04.2023
+
+L'One - Дом (2023) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_242092.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Я готов ко всему
+2. Летать
+3. Она одна
+4. Верну до темноты(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:45:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19C1E3C94C6D4E4C5B1EB20E514E48022F5C58BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1372032   (242064) от 03.04.2020
 
 ГАМОРА - THE BAD (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -716,35 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3F1A066A30E1E480B4BE48A22FF07E46628D188
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513197   (225258) от 28.11.2021
-
-ATL - Радио Апокалипсис (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225258.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 66.6 FM [02:01]
-02. RESET [02:35]
-03. Ящик [03:28]
-04. Behemoth [02:35](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:57:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7851187BAFED7D613BE6FF9FB633B69AA407C89C
 ```
 
 https://mybot314.ru/tekegram_catalog/

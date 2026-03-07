@@ -1,3 +1,32 @@
+###  Публикация: 177414   (720743) от 04.08.2020
+
+Santana - The Best Instrumentals (1995) [APE|Lossless|tracks] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720743.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Samba Pa Ti (C. Santana) (04:36)
+02. Aqua Marine (D. C. Santana - A. Pasqua) (05:31)
+03. Bella (C. Santana - C. Thompson - S. Crew) (04:31)
+04. Flor D'luna (Moonflower) (T. Coaster). (04:50)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:01:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F359BDA10C8070A374BF5CD13AADE38F1EF364D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 199459   (720740) от 04.08.2020
 
 VA - Ballroom Nights vol.1-2 (4 CD) (2006, 2009) [MP3|256, 320 kbps] <Dance>
@@ -713,35 +742,6 @@ Hide-Hide - Реминисценции звука (2011) [FLAC|Lossless|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EEDE42E8FB539B717D53359163659F7FDD1A2922
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531465   (718719) от 17.02.2022
-
-The Native American Chanters - Native American Chants & Dances - The Native American Chanters (2008) [MP3|320 Kbps] <Native American, New Age, World>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718719.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Circle Of Fire (04:59)
- 02. Counterclockwise Circle Of Dance (05:38)
- 03. Return From River Island (06:09)
- 04. Dance Of The Warrior (05:57)(   Читать дальше...   )Жанр: Native American, New Age, WorldПродолжительность: 00:59:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F19B7D047E3F75E5CF7EC742116A97521996F116
 ```
 
 https://mybot314.ru/tekegram_catalog/

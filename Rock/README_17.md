@@ -1,3 +1,38 @@
+###  Публикация: 310242   (837381) от 18.03.2011
+
+Panic At The Disco - Vices And Virtues (2011) [MP3|192-320 kbps]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_837381.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Ballad Of Mona Lisa [03:46]
+02. Let's Kill Tonight [03:33]
+03. Hurricane [04:25]
+04. Memories [03:25]
+05. Trade Mistakes [03:36]
+06. Ready To Go (Get Me Out Of My Mind) [03:37]
+07. Always [02:33]
+08. The Calendar [04:43]
+09. Sarah Smiles [03:33]
+10. Nearly Witches (Ever Since We Met…) [04:16]Жанр: RockПродолжительность: 00:37:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEE0CA3E9DF728D989424A351639C5DB9A6D1E9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1380125   (836383) от 01.05.2020
 
 The Apples In Stereo - 7 Albums (1995-2010) Collection [MP3|320 Kbps] <Rock, Indie Rock>
@@ -714,35 +749,6 @@ Nicolette Larson - In The Nick Of Time (1979) Warner Bros. Records, HS 3370, US 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BEFF1BAEE365D351091A2A0DA6B5C749A6F4349B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196292   (825989) от 01.01.2018
-
-Nicolette Larson - The Very Best Of Nicolette Larson (1999) Compilation [MP3|320 Kbps] <Country Rock, Pop Rock, Ballad>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825989.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lotta Love 3:12
-02. Rhumba Girl 3:50
-03. Give A Little 2:57
-04. Angels Rejoiced 2:27(   Читать дальше...   )Жанр: Country Rock, Pop Rock, BalladПродолжительность: 00:56:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77D86CB0AAF57111974132CEEFF2808D26911A59
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1314024   (517024) от 16.07.2019
+
+Michael J. Burkard - Solar Symphony (2017) [MP3|320 Kbps] <Classical>
+
+>>Классика
+>>Классика (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_517024.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Countdown
+ 02. Mercury
+ 03. Venus
+ 04. Earth(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:01:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61D91BF07B0825EC02FC3F91759611360C662880
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 535240   (516566) от 16.08.2012
 
 VA - Sony Classical - Great Performances [1903-1998] (1999) 4CD BoxSet[FLAC|Lossless]<Classical>
@@ -767,41 +796,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:524E889584FB56201094796405FE04DDB610E737
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 542415   (495106) от 05.09.2012
-
-Murray Perahia with ASMF Plays Bach Concertos (2011) [FLAC|Lossless]<Classical>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495106.jpg" />
-</div>
-
-
-###  Подробнее
-
-Concerto for flute, violin, harpsichord, BWV 1044 [21:29]
-1    I. Allegro
-2    II. Adagio ma non tanto e dolce
-3    III. Tempo di Alla breve
-Brandenburg Concerto No 5, BWV 1050 [21:18]
-4    I. Allegro
-5    II. Affetuoso
-6    III. Allegro
-Italian Concerto, BWV 971 [12:34]
-7    I. Allegro(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:55:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21672605765FFFBB58181BBEA5B545C4214843BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

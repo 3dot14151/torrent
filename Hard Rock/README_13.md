@@ -1,3 +1,32 @@
+###  Публикация: 1034913   (632589) от 14.07.2016
+
+Third World War - Third World War 2 (1973) 2001, TW Records [MP3|320 Kbps] <Hard Rock, Blues Rock, Rock & Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_632589.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Yobo
+2. Urban Rock
+3. Coshing Old Lady Blues
+4. Rat Crawl(   Читать дальше...   )Жанр: Hard Rock, Blues Rock, Rock & RollПродолжительность: 00:35:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B128984139F6CEF1C8844882DB61C7F87BD63441
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1034911   (632588) от 14.07.2016
 
 Third World War - Third World War (1971) 2001, TW Records [MP3|320 Kbps] <Hard Rock, Rock & Roll, Psychedelic Rock>
@@ -743,35 +772,6 @@ Count Markus Cross - Possessed (2015) [MP3|320 кб/с]<Progressive, Hard & Heav
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76C504E9062D7E5EDA63A03A7F5D6F26315BED45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910741   (620524) от 21.06.2015
-
-The Agony - Dirty And Dangerous (2015) [MP3|320 кб/с]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620524.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let's Get Wasted (02:38)
-02. T.W.S. (Dirty And Dangerous Version) (04:11)
-03. Impossible (03:49)
-04. Give It To Me (Dirty And Dangerous Version) (03:49)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8036C02CAE0C44C7B8AC895734D02A00DFB673B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

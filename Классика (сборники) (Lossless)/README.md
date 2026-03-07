@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1857102   (1059372) от 04.03.2026
+
+VA - Wake Up Music (2026) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1059372.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Katerina Modina - Spiegel im Spiegel (Version for Cello and Piano) (9:24)
+02. Sergey Bryukhno - Dans la lumière I. Modéré et calme (1:26)
+03. Katya Kramer-Lapin - 3 Gymnopédies No. 1, Lent et douloureux (2:36)
+04. Sergey Bryukhno - Two Flows Become One (2:01)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:50:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1614B8521548C5E84275AE56A09E20E6E15943B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1437110   (1042242) от 04.01.2021
 
 VA - Relaxing 2021 [FLAC|Lossless|WEB-DL|tracks] <Classical>
@@ -733,35 +762,6 @@ VA - Палитра Классики (2003) S&V #12/2003 [FLAC|Lossless|tracks +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8706293DCDBBEE1BCFD57332CA3095DFB0617886
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990847   (902255) от 01.03.2016
-
-Mozart - Very Best Of Mozart (2005) 2CDs [FLAC|Lossless|image + .cue] <Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902255.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Serenade No.13 'Eine kleine Nachtmusik': Allegro (6:06)
-02. Horn Concerto No.4: Rondo: Allegro vivace (3:38)
-03. Cosi fan tutte: Soave sia il vento (3:14)
-04. Violin Sonata K.378: Andantino (6:39)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:18:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:850C71C5F79BB18112821266393013E2668CB8E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

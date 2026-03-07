@@ -1,3 +1,90 @@
+###  Публикация: 1376211   (860491) от 17.04.2020
+
+RAM (Грязный Рамирес) - SADEASTWOOD (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_860491.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Импульс [01:41]
+02. Black Hawk (feat. RAYBAX) [03:46]
+03. Грязь [03:10]
+04. Секта [02:28](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:41:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E84D5D97543E38C5FBE5DEFEC4777C0FA3B08DCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376432   (860490) от 17.04.2020
+
+R.A. The Rugged Man - All My Heroes Are Dead (2020) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_860490.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All My Heroes Are Dead (The Introduction) (2:33)
+02. Legendary Loser (4:21)
+03. Golden Oldies (feat. Slug of Atmosphere and Eamon) (3:32)
+04. Wondering (How To Believe) (feat. David Myles) (4:01)(   Читать дальше...   )Производство: Nature SoundsЖанр: Hip-HopПродолжительность: 01:16:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:384A7678FA9080AAB0B729D5C47608E757D1BDBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376338   (860373) от 17.04.2020
+
+Shabazz Palaces - The Don Of Diamond Dreams (2020) [MP3|320 Kbps] <Abstract Hip-Hop, Experimental>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_860373.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Portal North: Panthera [00:18]
+02. Ad Ventures [04:42]
+03. Fast Learner (feat. Purple Tape Nate) [05:36]
+04. Wet [03:20](   Читать дальше...   )Жанр: Abstract Hip-Hop, ExperimentalПродолжительность: 00:42:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:148D420983509EF30206EE9A535F334261A74751
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1376223   (860368) от 17.04.2020
 
 Jah Khalib - 911 (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -656,91 +743,6 @@ Krec - Обелиск16 (2017) [MP3|320 Kbps] <Rap, Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E619D5DDE8E5719274C2C2ACA1F5DF9AAF28943
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379459   (839458) от 29.04.2020
-
-Злой Дух - Неизданное (2020) [MP3|320 Kbps] <Hip-Hop, Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839458.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Настоящий хип-хоп (feat. Винт, Тonn Рavloff, Mad Max, MC Mix, Shotgun, DIME, Гек, Money Mike, Jeeep, MD & C Павлов, Maestro A-Sid, Серж, Папа Гусь, Про100Фрол, Скаля, Хром, AL Solo, Варчун, Sir-J, Мук, МС Деловой, Lenin, Карандаш, ШЕFF, DJ La) [17:25]
-02. К солнцу (feat. Каста)Жанр: Hip-Hop, RapПродолжительность: 04:06:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28699A0E1F738C1D0DE9617402874BA8F848EBFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379920   (836392) от 01.05.2020
-
-Lord - Перемены (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ни шагу назад [03:07]
-02. Перемены [03:21]
-03. Я не согласен [03:30]
-04. Только у Бога власть [03:34](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:17:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD271ABC4F4A736ABD4134A4A1EBD17BF5189FB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380129   (836096) от 01.05.2020
-
-Xzibit - Greatest Hits (2009) Compilation [FLAC|Lossless|tracks + .cue] <Hip-Hop, Gangsta Rap, Thug Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836096.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paparazzi (3:55)
- 02. The Foundation (3:55)
- 03. Enemies & Friends (4:01)
- 04. What U See Is What U Get (Explicit Version) (5:11)(   Читать дальше...   )Жанр: Hip-Hop, Gangsta Rap, Thug RapПродолжительность: 00:55:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A62ADA6B15F16B94F2A0EDB0CDB73E29F7D27DD7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,180 @@
+###  Публикация: 1350668   (1002912) от 07.01.2020
+
+Ray Conniff - Laughter in the Rain & Love Will Keep Us Together (2017) 1975 [DTS 4.0 CD-DA|44.1/16|image+.cue|SACD] <Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002912.jpg" />
+</div>
+
+
+###  Подробнее
+
+Laughter In The Rain (1975)
+
+01. Laughter in the Rain (Sedaka; Cody)
+02. I Honestly Love You (Allen; Barry)(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 01:08:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5D9AE82F682A1C1D911C50097499386D40B139B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351125   (1002667) от 08.01.2020
+
+Ray Conniff - Theme From S.W.A.T. & Send In The Clowns (2017) 1976 [DTS 4.0 CD-DA|44.1/16|image+.cue|SACD] <Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002667.jpg" />
+</div>
+
+
+###  Подробнее
+
+Theme From S.W.A.T. (1976)
+
+01. Police Story
+02. Happy Days(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 01:05:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78D1FDABEC9FD7DFD8732CC2D313A47CBD3E9A4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351039   (1002642) от 08.01.2020
+
+Ray Conniff - Alone Again & Love Theme From The Godfather (2017) 1972 [DTS 4.0 CD-DA|44.1/16|image+.cue|SACD] <Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002642.jpg" />
+</div>
+
+
+###  Подробнее
+
+Alone Again (Naturally) (1972)
+
+01. Alone Again (Naturally) (O’Sullivan)
+02. Song Sung Blue (Diamond)(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 00:56:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69BEFAFCD6451B4575263D134505AF8C71239710
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488224   (1001742) от 12.08.2021
+
+Jon & Vangelis - The Best Of (1993) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Electronic, Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001742.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tracklist
+A1 I'll Find My Way Home
+A2 Italian Song
+A3 And When The Night Comes(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 00:44:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F40978C9707A4FF25CDC49EFAB29533FEA6CBB31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 597511   (1000318) от 02.01.2013
+
+Fleetwood Mac – Rumours (1976) /2011 Remaster/ [DST 2.0, 5.1 1bit/2822,4kHz |SACD-R]<Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000318.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Second Hand News (2:46)
+02. Dreams (4:18)
+03. Never Going Back Again (2:04)
+04. Don't Stop (3:13)
+05. Go Your Own Way (3:43)
+06. Silver Springs (4:33)
+07. The Chain (4:28)
+08. You Make Loving Fun (3:34)
+09. I Don't Want To Know (3:14)
+10. Oh Daddy (3:56)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:44:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D33CEC6B18D9E7CB77D10DE0ABD2D8637627322B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600572   (998808) от 08.01.2013
+
+Ария - 3 магнитоальбома (1986-1987) [FLAC 2.0 24/48|tracks (MBRip)]<Hard Rock, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998808.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Hard Rock, Heavy MetalПродолжительность: 00:43:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B425FAEE41CF5FDE429FC176AA2755AD8CE431AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 600384   (998771) от 08.01.2013
 
 The Cranberries - 5 альбомов (1993-1999, 2012) [FLAC 2.0 24/192 |image + .cue, tracks (Vinyl-Rip)]<Alternative Rock>
@@ -654,190 +831,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB102A62C4041A392FCCDD6360768FBC5D1F4E57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 607563   (993977) от 24.01.2013
-
-ДДТ - Актриса Весна (1992) [FLAC 2.0 24/192|image + .cue (Vinyl-Rip)]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993977.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Дождь 5:16
-A2. В Последнюю Осень 5:02
-A3. Фома 7:02
-A4. Родина 4:44
-B1. Храм 5:23
-B2. Что Такое Осень 4:58
-B3. Ночь 5:16
-B4. Актриса Весна 5:46Жанр: RockПродолжительность: 00:43:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EAF502A58B10900F96ACBAC8C0CE6A03C7720AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 606677   (993836) от 24.01.2013
-
-Mylene Farmer - Monkey me (2012) [LPCM 2.0 24/96 |Blu-ray] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Blu-ray Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993836.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopКачество: Blu-rayПродолжительность: 00:53:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F982FDF929B743B82BDEF607D190D7F91334B550
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 608562   (992496) от 26.01.2013
-
-Nirvana - 5 альбомов (Японские прессы) (1996, 2007) [FLAC 2.0 24/192|tracks (Vinyl-Rip)]<Grunge>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992496.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. About A Girl 3:40
-A2. Come As You Are 4:14
-A3. Jesus Doesn't Want Me For A Sunbeam 4:38
-A4. The Man Who Sold The World 4:21
-A5. Pennyroyal Tea 3:41
-A6. Dumb 2:53
-A7. Polly 3:16
-B1. On A Plain 3:45
-B2. Something In The Way 4:02
-B3. Plateau 3:38(   Читать дальше...   )Жанр: GrungeПродолжительность: 00:54:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60606D67144207DB7E92DDB1A76DB43F321DC14A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 609730   (991978) от 27.01.2013
-
-Ozzy Osbourne - Down To Earth (2001)  [FLAC 2.0 24/192 | image (Vinyl-Rip)]<Rock, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991978.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Gets Me Through [05:05]
-A2. Facing Hell [04:26]
-A3. Dreamer [04:45]
-A4. No Easy Way Out [05:06]
-A5. That I Never Had [04:23]
-A6. You Know... (Part 1) [01:07]
-B1. Junkie [04:19]
-B2. Running Out Of Time [05:06]
-B3. Black Illusion [04:21]
-B4. Alive [04:54](   Читать дальше...   )Жанр: Rock, Heavy MetalПродолжительность: 00:48:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F38DFD1F80C422A7348C4BA05E17948BE0E20998
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 692153   (987892) от 22.01.2020
-
-Ganymed - Takes You Higher (1978) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Space Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987892.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Disco, Space RockПродолжительность: 00:44:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CD221706D5CE2DBD3A7C14822756D2C650B7812
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 708517   (987882) от 22.01.2020
-
-James Gang - Miami (1974) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Classic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987882.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Cruisin' Down The Highway [3:20]
-A2. Do It [3:39]
-A3. Wildfire [3:31]
-A4. Sleepwalker [3:59](   Читать дальше...   )Жанр: Classic RockФормат: Vinyl, LP, AlbumПродолжительность: 00:32:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9376BEAE5A29C18B47CE25A6EFCFE5EABF9CD87B
 ```
 
 https://mybot314.ru/tekegram_catalog/

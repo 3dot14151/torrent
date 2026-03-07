@@ -1,25 +1,22 @@
-###  Публикация: 1277956   (774318) от 23.01.2019
+###  Публикация: 1212303   (776052) от 11.03.2018
 
-Turbonegro - RockNRoll Machine (2018) [FLAC|Lossless|tracks + .cue] <Deathrock, Rock & Roll, Pop Punk>
+Обои - Desktop Wallpapers Full HD. Part (149) [JPG]
 
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774318.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776052.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Suite: The Rock And Roll Machine Part 1: Chrome Ozone Creation (02:00)
-02. Part II: Well Hello (01:54)
-03. Part III: RockNRoll Machine (03:41)
-04. Hurry Up & Die (03:27)(   Читать дальше...   )Жанр: Deathrock, Rock & Roll, Pop PunkПродолжительность: 00:38:59
+Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D69CA7950CD546E06E0D363902AF2CE71DCE62B9
+magnet:?xt=urn:btih:61505555A4E34849810F80EA4022C0750D776A51
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,110 +24,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278088   (774317) от 23.01.2019
+###  Публикация: 1212272   (776051) от 11.03.2018
 
-Роман Ильин | Скобы. 2014 – конец 2018 (2017) [PDF]
-
->>Художественная литература
->>Современная поэзия и проза
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774317.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник стихов тульского поэта Ильина Романа "Скобы 2014 - конец 2018" - продолжение серии сборников стихов, написанных за период с 2013 по 2018 года. Охват тем данного сборника более узок, чем прежних "Скоб" и вращается в основном вокруг личных жизней автора и некогда приближенных к нему людей. Естественно, в иносказательной форме. Тематика касается (   Читать дальше...   )Жанр: ПоэзияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5402163498E5A75E49550BE89EBCB4EC903D0B90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277817   (774316) от 23.01.2019
-
-Meta 1.9 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774316.jpg" />
-</div>
-
-
-###  Подробнее
-
-Meta поможет Вам управлять постоянно растущей коллекцией цифровой музыки.
-С Meta вы можете легко редактировать информацию, такую как автор песни, название, альбом, обложки альбома и т.д. Он поддерживает редактирование большинства аудио форматов, такие как MP3, MP4, M4A, FLAC, OGG, OGA, SPX, WAV, AIFF, и разнообразие форматов метаданных, включая ID3v1, ID3v2.3, ID3v2.4, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.01.2019Разработчик: Benjamin JaegerПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский, Французский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40804088C15668AC5957C58CC5354870C88E3489
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278012   (774315) от 23.01.2019
-
-VA - Tea Leaves (2019) Compiled by DJ V ++ [FLAC|Lossless|WEB-DL|tracks] <Downtempo, ChillOut, Lounge, Electronica>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774315.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eguana - Spacewalk (Original Mix) 8:00
-02. Blue Lotus - In The Fog (Original Mix) 6:27
-03. Sasha Malkovich - Spring (Original Mix) 4:49
-04. Kayatma & Julya Ruurman - Drevo (Original Mix) 7:45(   Читать дальше...   )Жанр: Downtempo, ChillOut, Lounge, ElectronicaПродолжительность: 01:57:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:510067ABFA62D1878CAB7BB5140775A2C0D75ECE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277998   (774314) от 23.01.2019
-
-VA - Symptom Of Nature (2019) [MP3|320 Kbps] <Goa Trance, Psychedelic>
+VA - Declaration Of Love: Pop Rock ballads (2018) [MP3|320 Kbps] <Pop Rock>
 
 >>Неофициальные сборники
->>Electronic (сборники)
+>>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774314.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776051.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Acidprojekt - Selenophile
-002. Breaker - Data Party
-003. Creationforce - Mantra (Remastered)
-004. Creationforce - Reality(   Читать дальше...   )Жанр: Goa Trance, PsychedelicПродолжительность: 12:11:20
+001. Destiny's Child - Cater 2 U
+002. George Michael - Careless Whisper
+003. Whitney Houston - I Will Always Love You
+004. Foreigner - I Want To Know What Love Is(   Читать дальше...   )Жанр: Pop RockПродолжительность: 09:00:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D871E4A640D98D20C5C1ACF898C7738AB422F764
+magnet:?xt=urn:btih:A3F1D231238B1AF73304266CF473CA680D0CA9CC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -138,28 +53,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278002   (774313) от 23.01.2019
+###  Публикация: 1212449   (776050) от 11.03.2018
 
-French Revolution - Fantasia (1988) Virgin Scandinavia AB [FLAC|Lossless|tracks + .cue] <Synthpop, New Wave, 80s>
+Николай Леонов, Алексей Макеев | Свой среди больных (2018) [FB2]
 
->>Архив торрентов
->>Архив Музыки
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774313.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776050.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. This Is Not The End (4:25)
- 02. Alien Too (Fallin') (4:54)
- 03. Moscow And Washington (3:25)
- 04. 14th Of July 1789 (3:19)(   Читать дальше...   )Жанр: Synthpop, New Wave, 80sПродолжительность: 00:38:49
+Странные дела творятся в одной из средних школ. Пропали ученики – старшеклассница Лада и еще несколько ребят. Одному из парней удалось позвонить из некоего лечебного центра, занимающегося проблемами онкологии. Чтобы проверить подозрительное заведение, туда под видом привилегированного больного ложится полковник Крячко, а полковник Гуров постоянно держит с ним связь. (   Читать дальше...   )Жанр: Современные детективыФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8A7E6BCCC3A7284AA36C955F8B92CB577D4DD0D4
+magnet:?xt=urn:btih:532E5F8706D1605936E5A22955E59F55C8C1FCA5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -167,28 +79,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277987   (774312) от 23.01.2019
+###  Публикация: 1212438   (776049) от 11.03.2018
 
-VA - Vocal Dance Vol. 5 (2019) [MP3|320 Kbps] <Trance>
+VA - Танцевальная весна (2018) [MP3|320 Kbps] <Pop, Dance>
 
->>Electronic
->>Trance
+>>Неофициальные сборники
+>>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774312.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776049.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Betsie Larkin - Unite (Omnia Extended Remix)
-02. Christina Novelli - Carousel (Ruslan Radriges Extended Remix)
-03. FEEL feat. Diana Leah - One Last Time (Vadim Bonkrashkov Remix)
-04. Gamma - Every Goodbye (NoMosk Extended Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:17:31
+01. VANLAV feat. Derek Joel — Poison
+02. Kadebostany — Save Me (Guillaume de Kadebostany Remix)
+03. Sherrie Sherrie, The Ware feat. Nina — Nana Song (DJ Antonio & DJ Renat Remix)
+04. Family Man — Fallin' Down(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:45:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C32EC58DB1E6E21D696F68E8B3D011E9A73400C9
+magnet:?xt=urn:btih:D90395D22813BA0760DAB157655796FF00F16A87
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -196,28 +108,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277953   (774311) от 23.01.2019
+###  Публикация: 1212266   (776048) от 11.03.2018
 
-VA - Ibiza Winter Island 2019 (2018) The Deep-House Edition [MP3|320 Kbps] <Deep House>
+Форма воды / The Shape of Water (2017) BDRip [576p] iPad
 
->>Electronic
->>House
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774311.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776048.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Deep Progression-Rome (5th Avenue Mix)
-02. Ernst Bentley-Get It Now (Original Mix)
-03. Club Elite-Fujinami (Red Motel Deep Mix)
-04. One Light Project-Fashion Show (Original Mix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:21:58
+Действие разворачивается в 1963 году. Главная героиня — немая уборщица в научной лаборатории. В стенах секретного учреждения идёт работа по изучению отловленного человека-амфибии. Женщина влюбляется в мутанта и помогает ему бежать…Производство: СШАЖанр: Фэнтези, драмаРежиссер: Гильермо дель ТороАктеры: Салли Хокинс, Майкл Шеннон, Ричард Дженкинс, Октавия Спенсер, Майкл Стулбарг, Даг Джонс, Дэвид Хьюлетт, Ник Сирси, Стюарт Арнотт, Найджел БеннеттПеревод: Дублированный (iTunes)Субтитры: Русские форсированные,  Английские форсированные,  Украинские форсированные,  Русские,  Английские,  УкраинскиеПродолжительность: 02:03:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D414E6E94A7DCCFD4DA4F4AF8BDD43CF60EE2075
+magnet:?xt=urn:btih:4E7EA64D7F6BAC74B0363A658703ACB650FDF764
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -225,28 +134,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277924   (774310) от 23.01.2019
+###  Публикация: 1212289   (776047) от 11.03.2018
 
-VA - Space Oddities (2016) Studio Ganaro (1972-1982) [MP3|320 Kbps] <Electronic, Disco>
+Я.И. Перельман | Занимательная физика. Книга первая (1922) [DJVU]
 
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774310.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776047.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Roger Roger, Nino Nardini - Expectation (1:55)
-02. Cecil Leuter - Pop Electronique No. 1 (2:27)
-03. Roger Roger - Sound Industrial No. 2 (2:03)
-04. Eddie Warner - Shut Up (2:26)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:35:45
+В этой книге составитель стремится не столько сообщить новые знания, сколько оживить и освежить те простейшие сведения по физике, которые уже приобретены читателем. Цель книги - возбудить деятельность научного воображения, приучить читателя мыслить в духе физики и развить привычку к разностороннему применению своих знаний. Поэтому в «Занимательной Физике» отводится (   Читать дальше...   )Жанр: Познавательная литератураФормат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:616F253B6D87E50FD3696D0F5BBA33BC01723BDD
+magnet:?xt=urn:btih:B23D910E066E65CF398140E7DDA7B5F9CD223210
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -254,28 +160,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278115   (774309) от 23.01.2019
+###  Публикация: 1212465   (776046) от 11.03.2018
 
-Roger Molls - Melography (2019) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Instrumental Hip-Hop, Breakbeat>
+Владимир Колычев | Правильная девчонка (2018) [FB2]
 
->>Архив торрентов
->>Архив Музыки
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774309.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776046.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Night is Here (5:41)
-02. F*ck the Industry (feat. Slik Jack) (5:58)
-03. House of Fools (feat. Ptates) (3:58)
-04. Moonshine (3:23)(   Читать дальше...   )Производство: DLoaw & Co.Жанр: Hip-Hop, Instrumental Hip-Hop, Breakbeat, Downtempo, Trip HopПродолжительность: 00:53:33
+Студентку Вику мучают сомнения: как выбрать спутника жизни и не ошибиться. Один – положительный и надежный, другой – обеспеченный и перспективный, третий – отчаянный и фартовый. Есть и четвертый, и пятый… Вика решает довериться судьбе. Пусть претенденты сами разберутся, кто из них достоин ее руки. Только никак не думала девушка, что поднявшийся вихрь страстей вовлечет (   Читать дальше...   )Жанр: Остросюжетные любовные романы, Современные детективыФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A1D39260FC9BBC8394B91CEE6AFB5DBF612570C4
+magnet:?xt=urn:btih:809CD8FE075ABCFB076FB6B47728C04DBD2DCE22
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -283,28 +186,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278030   (774308) от 23.01.2019
+###  Публикация: 1212384   (776045) от 11.03.2018
 
-AKB - Rhythmic Feet (1979) LP [MP3|320 Kbps] <Electronic, Funk, Disco>
+Вероника Ягушинская | Любовь по-драконьи (2017) [FB2]
 
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774308.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776045.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Stand Up - Sit Down (8:13)
-02. We Got Rhythmic Feet (8:31)
-03. When We're Alone (4:12)
-04. Goin' Downtown (5:21)(   Читать дальше...   )Жанр: Electronic, Soul, DiscoПродолжительность: 00:34:30
+Самые разные переселенцы живут в моем мире. Кто-то становится магом, кто-то находит свою судьбу, ну а мне досталась Аленка. И это имя точно когда-нибудь станет у нас нарицательным. Я, как ее куратор в период адаптации, вынуждена оберегать переселенку от неприятностей и разгребать все проблемы, свалившиеся нам на голову по ее вине. Вот и сейчас Аленка решила «бить (   Читать дальше...   )Жанр: Боевое фэнтези, Героическое фэнтези, ПопаданцыФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0667FAC545A17658C4496E8F48660D9DBAB38DC8
+magnet:?xt=urn:btih:380770B6F0F98C9279EEBE771972B0EA042FE701
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -312,25 +212,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277878   (774307) от 23.01.2019
+###  Публикация: 1212271   (776044) от 11.03.2018
 
-Photo Supreme 4.3.2.1901 RePack (& Portable) by elchupacabra [Multi/Ru]
+Duplicate File Detective 6.1.67 Enterprise [En/Ua]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774307.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776044.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Photo Supreme - вспомогательная программа для владельцев цифровых фотокамер. Самый мощный и удобный каталогизатор изображений. С помощью Photo Supreme можно импортировать изображения с цифровых камер, просматривать, создавать каталоги, архивировать, редактировать, распечатывать, отсылать по электронной почте, создавать слайд-шоу, публиковать изображения в Интернете, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+Программа Duplicate File Detective, используя современную технологию анализа содержимого файла, помогает выполнить поиск дубликатов файлов в папках на жестких дисках, съемных устройствах хранения и даже на сетевых ресурсах. Затем быстро и безопасно переместить, архивировать или удалить найденные дубликаты. Поиск и удаление дублирующихся файлов - не просто освобождение (   Читать дальше...   )Язык интерфейса: Английский, украинский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DB09805D03241B28A423B53FB92ED9C16C1F4018
+magnet:?xt=urn:btih:C2FCF0399C3E4C8C9CBC6239B5B88599C01724CC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -338,342 +238,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278028   (774306) от 23.01.2019
+###  Публикация: 1212371   (776043) от 11.03.2018
 
-Road of Kicks - Before the Stone (2019) [MP3|320 Kbps] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774306.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дебютный альбом итальянцев базирующихся в Австралии, что сказалось на музыкальной составляющей альбома, ИМХО.01. Double Fire
-02. Genuine Times
-03. 24 Spindle Jenny
-04. Midnight Knockers(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:32:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFC3E36916A6FFA82DEEC2299C93E7F72C005BC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277945   (774305) от 23.01.2019
-
-В. И. Громов, П. Тарасов-Родионов | Расследование хищений и злоупотреблений в торговом аппарате (1934) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774305.jpg" />
-</div>
-
-
-###  Подробнее
-
-Борьба с хищениями и злоупотреблениями в системе потребительской кооперации и предприятиях государственной торговой сети является на данном этапе социалистического строительства одной из важнейших задач всех органов власти в том числе и органов юстиции, которые, должны заострить свое особенное внимание на борьбе с этими социально-опасными явлениями.
-
-В настоящей (   Читать дальше...   )Жанр: История, политология, экономика, правоведениеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EDEEE5B8AF1A54E6A27B233ED5D4008A853AE47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277543   (774304) от 23.01.2019
-
-The 69 Eyes - Devils (2004) [FLAC|Lossless|tracks + .cue] <Gothic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774304.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Devils (3:53)
-02.Feel Berlin (4:10)
-03.Nothing On You (4:11)
-04.Sister Of Charity (5:05)(   Читать дальше...   )Жанр: Gothic RockПродолжительность: 00:42:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:780A090C343289371BE43B98370B74FEE23444F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278001   (774303) от 23.01.2019
-
-Miles Davis - Bitches Brew Live (1969, 1970) 2011, Legacy Recordings [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Jazz-Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774303.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miles Runs The Voodoo Down [10:27]
-02. Sanctuary [3:59]
-03. It’s About That Time/The Theme [9:45]
-04. Directions [7:31](   Читать дальше...   )Жанр: Jazz Fusion, Jazz-RockПродолжительность: 00:59:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:855995F1D73E28CAF573097667DD6F9BD6E64803
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212833   (774301) от 14.03.2018
-
-Boris Zhivago - Memories (2018) [FLAC|Lossless|tracks + .cue] <Italo-Disco, Synth-pop, Hi NRG>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Memoires (5:29)
-02. Love Is A Memory Away (7:56)
-03. Russian Fantasy (5:25)
-04. The Girl That Saved My Life (7:02)(   Читать дальше...   )Жанр: Italo-Disco, Synth-pop, Hi-NRGПродолжительность: 01:18:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70C69CD6906618A660241219EB1064C24B128A04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212877   (774300) от 14.03.2018
-
-Huey Lewis And The News - 10 Albums, 1 Compilation (1980-2010) CD [MP3|320 Kbps] <Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774300.jpg" />
-</div>
-
-
-###  Подробнее
-
-Huey Lewis and the News (чит. Хьюи Льюис энд зе Ньюз) - американская рок-группа, чью музыку относят к направлениям рок, blue-eyed soul и блюз-рок. Образована в 1979 году. Их мировой хит № 1 «The Power of Love» стал главным треком популярного фильма «Назад в будущее» и был номинирован на премию «Оскар» в категории «Лучшая песня для фильма». В мире продано более 30 (   Читать дальше...   )Список альбомов:
-1980 - Huey Lewis And The News
-1982 - Picture This
-1983 - Sports(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 08:20:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E860ECFD2A4D769D8BE02696416C3FEC5B421552
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212311   (774299) от 14.03.2018
-
-VA - Relaxation Collection 2 - Cool Breeze (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774299.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sailing Away-Govi
-02. Pastel Footprints-Thierry David
-03. Cry for Love-Omar Akram
-04. Don Juan-Johannes Linstead(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:04:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37553E1FD91D672DC0C2B7F49066A7317F3A15E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212310   (774298) от 14.03.2018
-
-VA - Relaxation Collection 1 - Mirror Pond (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774298.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Blue Light (05:04)
-02. The Sound of Still Water (04:02)
-03. The Silence of Knowing (04:32)
-04. My Life (05:03)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:02:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D286382D4177725F8497F7D5011DE499D711037E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212896   (774297) от 14.03.2018
-
-ExpanDrive 6.1.12 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774297.jpg" />
-</div>
-
-
-###  Подробнее
-
-Работа с удалёнными данными всё чаще встречается в нашей жизни. Домашняя локальная сеть, Dropbox. Все эти вещи для многих давно стали привычны. Разработчики софта рады предложить нам множество программ, которые должны помочь привести к общему виду все эти носители и облачные сервисы.
-
-Эта программа позволяет монтировать удалённые хранилища информации (FTP, WebDAV, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.03.2018Разработчик: ExpanDrive, Inc.Поддерживаемая ОС: OS X 10.6 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD71DFB7B0A9CE41155FFEAC1BB8341A844131BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213040   (774296) от 14.03.2018
-
-VA - Jazz Covers of Pop Songs Album (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774296.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Somebody to Love - Meg Birch 3:40
-02. I’m Not in Love - Olivia Keast 2:51
-03. Lovely Day - Nora & Will 3:44
-04. Sweet Dreams (Are Made of This) - Talisha Karrer 2:36(   Читать дальше...   )Жанр: JazzПродолжительность: 00:44:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6F37F54B957FD2AB2D98B5F9699B0EB7DFF2FB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212015   (774295) от 14.03.2018
-
-Билл Най | Неотрицаемое. Наш мир и теория эволюции (2016) [FB2]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774295.jpg" />
-</div>
-
-
-###  Подробнее
-
-Билл Най - инженер, телеведущий популярных научных передач ("Билл Най - научный парень") и директор Планетарного общества, занимающегося исследованиями в области астрономии и освоения космоса, а также популяризации науки. В своей книге об эволюции он увлекательно, с юмором, рассказывает о происхождении жизни, появлении новых видов, о дарвиновской теории (   Читать дальше...   )Жанр: Естествознание, История естественных наукПеревод: А.С. ЛоскутоваФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4BADF7E15036A6F2B4B3D9436653AE35AE7896C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212905   (774294) от 14.03.2018
-
-VA - Beautiful Songs For You Vol.16 (Compiled by Виктор31Rus & Людмила Light) (2018) [MP3|320 Kbps] <Romantic Ballads>
+VA - Beautiful Songs For You Vol.12  (2018) Compiled by Виктор31Rus & Людмила Light [MP3|320 Kbps] <Romantic Ballads>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774294.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776043.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Michael Learns To Rock  -  I Still Carry On  4:36
-02.  Toni Braxton  -  I Wanna Be (Your Baby)  3:48
-03.  Julio Iglesias  -  Abrazame  3:38
-04.  Sarah Connor  -  I'm Gonna Find You  4:47(   Читать дальше...   )Жанр: Romantic BalladsПродолжительность: 04:42:39
+01.  Berlin  -  Take My Breath Away  4:12
+02.  Lionel Richie  -  Easy  4:16
+03.  Rod Stewart  -  I Don't Want To Talk About It  4:51
+04.  Vaya Con Dios  -  Ain't No Love In The Heart Of The City  3:10(   Читать дальше...   )Жанр: Romantic BalladsПродолжительность: 04:50:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:483114FF9C1DC540F97295E8F92AE17FA731BA70
+magnet:?xt=urn:btih:16F2FA9FFA2DB62276E05223EDAD2C52300F4FE8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -681,31 +267,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212878   (774293) от 14.03.2018
+###  Публикация: 1212293   (776042) от 11.03.2018
 
-Whitesnake - The Purple Tour '2015 (2018) DVD5 [Custom]
+Я.И. Перельман | Занимательная механика (1948) [DJVU]
 
->>Театр и Музыкальное видео
->>Концерты (DVD)
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774293.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776042.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Видеоверсия выступления Whitesnake в рамках The Purple Tour в декабре 2015г.
-Состав:
-David Coverdale - vocals;
-Reb Beach - guitar;(   Читать дальше...   )01.Intro
-02.Burn
-03.Bad Boys
-04.Love Ain't No Stranger(   Читать дальше...   )Производство: Rhino Records/A Warner Music Group CompanyЖанр: RockРежиссер: Tyler BournsАктеры: WhitesnakeПеревод: ОтсутствуетСубтитры: отсутствуютПродолжительность: 01:20:35
+Хотя вопросам механики отведено немало страниц в обеих книгах «Занимательной физики», я счел полезным посвятить механике отдельную книгу, написанную в той же манере.
+«Занимательная механика» считает нецелесообразным знакомить читателя с последними достижениями науки, пока не выяснены первые ее основы...Жанр: Познавательная литератураФормат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0EACCB6AD1330A5CE256428116432656EA48EC5F
+magnet:?xt=urn:btih:BF33C107FBB6132DDE4E32C04B2D01CAE63BCF35
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -713,27 +294,402 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212855   (774292) от 14.03.2018
+###  Публикация: 1212122   (776041) от 11.03.2018
 
-Векторный клипарт - Fotolia - Collection of multicolored rainbow flyer background is colors vector image [EPS, AI]
+Желтый роллс-ройс / The Yellow Rolls-Royce (1964) WEB-DLRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776041.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм представляет собой трилогию, состоящую из трех трогательных и тонких новелл о любви и расставании. Звеном, объединяющим три, различных по своей форме и содержанию, истории становится блестящий автомобиль – «роллс-ройс» желтого цвета.
+ Свой, наполненный смыслом, путь роллс-ройс начинает из гаража дипломата из Англии, после чего попадает к новым владельцам. Обладателем (   Читать дальше...   )Производство: Великобритания. De Grunwald Productions, Metro-Goldwyn-MayerЖанр: Комедия, Мелодрама, ДрамаРежиссер: Энтони ЭсквитАктеры: Ингрид Бергман, Рекс Харрисон, Ширли МакЛейн, Жанна Моро, Джордж К. Скотт, Омар Шариф, Ален Делон, Арт Карни, Джойс Гренфелл, Эдмунд Пурдом, Майкл Хордерн, Лэнс Персивал и др.Перевод: Многоголосый закадровыйСубтитры: Английские, французскиеПродолжительность: 02:02:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECEFF3C3D29F13F53E5CA2C78BA92C01897BBE1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212415   (776040) от 11.03.2018
+
+Angel Forrest - Electric Love (2018) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776040.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All The Way 04:33
+02. Spoil Me Up 06:17
+03. Piece of My Heart 04:18
+04. Walkin' Blues 07:26(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 01:36:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEB906C5DE6609F622ED9BF24F146CB878C766A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212298   (776039) от 11.03.2018
+
+Векторный клипарт - Cute cartoon pig vector [EPS]
 
 >>Материалы для мультимедиа и дизайна
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774292.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776039.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Векторный клипарт для дизайна.
-Цветной брызги букет из красок
-25 EPS, AI + previewФормат: EPS, AI
+Симпатичные мультяшные свинки
+12 EPS + previewФормат: EPS
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1921AA6BDE6ABAD0556286C720E8833699419D5D
+magnet:?xt=urn:btih:CB9135B85A23A267954DDEEAFABBBB0735980CE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014788   (776038) от 08.05.2016
+
+Octodad: Dadliest Catch (2014) [Ru/Multi] (1.2.17060) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776038.jpg" />
+</div>
+
+
+###  Подробнее
+
+Octodad: Dadliest Catch — это игра о разрушении, хитрости и отцовстве. Игроку предстоит управлять Осьмипапой, проворным осьминогом, притворяющимся человеком. Жизнь Осьмипапы проходит в постоянной борьбе, в которой ему приходится справляться с повседневными задачами при помощи своих бескостных щупалец, держа при этом свою осминожью сущность втайне от своей человеческой (   Читать дальше...   )Тип издания: RepackРазработчик: Young HorsesЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7607BEEF5F611513FD3160C046AFE5E19B03F05D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014349   (776037) от 08.05.2016
+
+Товарищи полицейские (Криминальная полиция) (2011) HDTVRip (серий 1-32 из 32)
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776037.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главные герои сериала - современные сотрудники МУРа. Они мало чем отличаются от всех нас. У них тоже есть семьи, прошлое, планы на будущее, свои слабости, привычки, достоинства и недостатки. Но эти люди каждый день выходят на борьбу с преступностью. Их мир перевернут. В нем приключения – рутина, а обыденность – долгожданная передышка. Они так же страдают, теряют (   Читать дальше...   )Производство: Россия / ООО "ТелеРоман" по заказу Первого каналаЖанр: Детектив, КриминалРежиссер: Юрий Музыка, Юрий ХарнасАктеры: Владислав Дёмин, Анжелина Карелина, Алексей Осипов, Егор Баринов, Татьяна Орлова, Владислав Резник, Алексей Демидов, Сергей Сосновский, Светлана Свибильская, Геннадий Матвеев и др...Продолжительность: ~ 00:52:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:321B81E6A6B2D0EEA88825EF54421C1B7AABE331
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014441   (776036) от 08.05.2016
+
+VA - BRAVO Hits 93 (2016) [FLAC|Lossless|WEB-DL|tracks] <Top 40, Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776036.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meghan Trainor - No (3:34)
+02. Era Istrefi - Bonbon (2:46)
+03. Sia feat. Sean Paul - Cheap Thrills (3:43)
+04. Fifth Harmony feat. Ty Dolla $ign - Work From Home (3:36)(   Читать дальше...   )Жанр: Top 40, Pop Compilation, Pop, Rock, Electronic, Dance, Indie Pop, Europop, R&B, Hip Hop, Pop Rap, House, Euro House, Deep House, Electro, Synthpop, Pop Rock, Indie RockПродолжительность: 02:34:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:060DEAF290E2D5B8B91E29138FB3BDD5FA3D51FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014749   (776035) от 08.05.2016
+
+AIMP 4.02 Build 1717 Final + Portable DC 08.05.2016 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776035.jpg" />
+</div>
+
+
+###  Подробнее
+
+AIMP – проигрыватель, включающий в себя множество дополнительных модулей: CD-Ripper, Tag Editor, Audio-player, аудио конвертер, запись аудио и дисков с данными и т.д. Воспроизводит множество аудиоформатов, включая WAV, MP3, MP2, MP1, OGG, WMA, UMX, не нуждаясь в дополнительных кодеках. Имеет стильный многоязычный интерфейс.Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3781AF3331BF6CB580EFFDCAE1D96527E21A30F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014815   (776034) от 08.05.2016
+
+Маршрут построен  (2016) WEB-DLRip [576p] iPad
+
+>>Аудио и Видео
+>>Отечественное видео для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776034.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прошлой весной произошло страшное преступление — в результате ссоры муж убил жену, расчленил труп и спрятал в багажнике их автомобиля. Несмотря на попытки отвести от себя подозрение, убийца вскоре был арестован полицией. Андрей и Оля — семейная пара. Андрей покупает подозрительно дешевый автомобиль в хорошем состоянии. Тем же вечером, взяв свою пятилетнюю дочь, они (   Читать дальше...   )Производство: РоссияЖанр: Ужасы, триллерРежиссер: Олег АсадулинАктеры: Светлана Устинова, Павел Чинарёв, Виталия Корниенко, Кристина Шаповалова, Сергей Сафронов, Илья Сафронов, Андрей Сафронов, Диана Мелисон, Александр ЦёмаПеревод: Не требуетсяСубтитры: НетПродолжительность: 01:21:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBBACFA789B564AB99A7B3B029A8A01C724E2A54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014889   (776033) от 08.05.2016
+
+Проекты - VideoHive - High Speed Logo [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776033.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для демонстрации логотипа и слогана.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4FB8BF887F0925FE5AF814220E687255EF08C0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014863   (776032) от 08.05.2016
+
+Проекты - Vintage Romantic Titles Pack [AEP]
+
+>>Проекты
+>>Свадебные и романтические (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776032.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания 10 различных романтических заголовков. Можно использовать для свадебного видео, семейного архива слайд-шоу, фото портфолио, ретро этикетки для Lovestory и многое другое. Используйте его как кредиты в вашем фильме история путешествия, или настройте его в своем собственном стиле.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D67AEB6B400B6E2565DEFADFAEC2EAE105635A31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014555   (776031) от 08.05.2016
+
+Второй брак (2015) SATRip [H.264] (1-4 серии из 4)
+
+>>Отечественные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776031.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настя Окунева приезжает в Москву и получает работу в крупной строительной компании, которой руководит подруга ее покойной матери Кира Георгиевна. Но наладившаяся жизнь в столице ставится под вопрос, когда Кира Георгиевна скоропостижно умирает. Управление компанией переходит к ее сыну Глебу – холостому и привлекательному молодому человеку. Неожиданно для Насти он (   Читать дальше...   )Производство: Россия, «Марс Медиа» и «Компания Парк синема»Жанр: МелодрамаРежиссер: Олег МассарыгинАктеры: Маргарита Адаева, Иван Жидков, Лариса Домаскина, Натали Старынкевич, Виталий Кудрявцев, Александр Бобров , Сергей Стёпин, Ангелина Притуманова, Дарья ИвановаПродолжительность: ~00:44:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:536453DBA024AF408E276CEEAFD4954A230D8267
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013866   (776030) от 08.05.2016
+
+Старое ружьё (2014) WEB-DLRip (серии 1-4 из 4)
+
+>>Архив торрентов
+>>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776030.jpg" />
+</div>
+
+
+###  Подробнее
+
+1941 год. Петр — простой учитель в маленькой деревне. Он считает себя вне политики и уверен: если вести себя тихо и не перечить властям, тебя не тронут. Но вскоре все меняется. После ожесточенного боя Красная армия отступает, и в село приходят немцы. Оккупанты вводят комендантский час, оружие и боеприпасы приказано сдать под угрозой расстрела. А потом в семье Петра (   Читать дальше...   )Производство: Россия / "Марс Медиа Энтертейнмент"Жанр: военный, драмаРежиссер: Кирилл БелевичАктеры: Тимофей Трибунцев, Ирина Пегова, Добрыня Белевич-Оболенский, Николай Козак, Юрий Ицков, Туре Рифенштейн, Ёшуа Гроте, Джулиан Мау, Фитц ван Том, Бастиан Зирих, Александр Денисов и др.Продолжительность: ~00:50:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB16629FD5108C74F1CB05584A32323E69999433
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014632   (776029) от 08.05.2016
+
+Обои - Super mix wallpapers Set.102-105 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776029.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия качественных обоев на различную тематику для Вашего рабочего стола.
+В данный пак вошли выпуски 102-105.Формат: JPGРазрешение файлов: 1920x1080 - 3840x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E4C87C498BE3CFC685D08F5B113FB0F0993CEBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014805   (776028) от 08.05.2016
+
+Andre Gagnon - Les Chemins Ombrages (2010) [FLAC|Lossless|tracks] <Classical, Modern>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pensees fugitives    04:19
+02. Voiles    04:14
+03. Dimanches nostalgie    03:21
+04. En do majeur    04:44(   Читать дальше...   )Жанр: Classical, ModernПродолжительность: 00:45:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1240A0143A6C81E79D3AE749961C16E3AD43C8AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014468   (776027) от 08.05.2016
+
+Рыболовные расследования с братьями Щербаковыми (2015) WEBRip
+
+>>Спорт и активный отдых
+>>Рыбалка и Охота
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776027.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сколько рыбаков, столько мнений. Какие из них – правда, а какие – вымысел, покажет только реальный эксперимент. В программе «Рыболовные расследования» их будет немало. В конце каждого выпуска на основе неопровержимых фактов, полученных опытным путём, будет дана оценка – насколько правдиво то или иное суждение о рыбалке. Ведущие проекта - звёзды рыболовного мира Владимир (   Читать дальше...   )Жанр: Документальный, рыбалка
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:293C71742F1CD5875401F8BBF5CF121C5277411B
 ```
 
 https://mybot314.ru/tekegram_catalog/

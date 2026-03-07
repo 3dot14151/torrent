@@ -1,3 +1,206 @@
+###  Публикация: 1839687   (1046866) от 30.11.2025
+
+VA - National Pop Dance Music Vol.126 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046866.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Tomorrow - Love Language (02:58)
+ 002. Ulker Gulumser - Bize Ne Oldu Boyle (02:50)
+ 003. Tim Campbell - Strange (03:20)
+ 004. Auzaye - Tears Hes Going To Hold (03:00)(   Читать дальше...   )Жанр: Pop, Folk, DanceПродолжительность: 12:57:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B22F13AD8C61004B1BD362B4AA8882F640CEAE1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839694   (1046851) от 30.11.2025
+
+VA - Winter Dance Floor Show (2025) [MP3|320 Kbps] <Pop, Rock, Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046851.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sheppard - Good Time (02:53)
+ 002. Fletcher - Good Girl (03:20)
+ 003. Walk Alone - My Empty Soul (02:08)
+ 004. Dhektron - Drift Away (03:40)(   Читать дальше...   )Жанр: Pop, Rock, DiscoПродолжительность: 12:03:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35DD323EFCFCC1E3C67BEF934014565C272D9230
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839700   (1046849) от 30.11.2025
+
+VA - Neon Heartbeats (2025) [MP3|320 Kbps] <Synthpop, Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046849.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Fever Ray - I'm Not Done (04:40)
+ 002. Tiscore - Nur Der Rave (02:32)
+ 003. Mari Kattman - Typical Girl (03:43)
+ 004. Aureon - Mirrorphase (03:47)(   Читать дальше...   )Жанр: Synthpop, Pop, DanceПродолжительность: 10:17:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D658C0E7E80FD27D1EEE186E09472648234E63DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839724   (1046821) от 30.11.2025
+
+Elise - Favorites Collection (2025) [MP3|320 Kbps] <Vocal, Easy listening, AI>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046821.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Reste Près De Moi
+ 02 - Disparu
+ 03 - Larmes Et Lumières
+ 04 - Là-Bas(   Читать дальше...   )Жанр: Vocal, Easy listening, French Deep House, AIПродолжительность: 01:07:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D69C3BD190D3E928334E2A0AB8ADD72E6AA72E72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839721   (1046819) от 30.11.2025
+
+VA - Erotic Lounge Collection Part 3 (2025) [MP3|320 Kbps] <Vocal, Easy listening, AI>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046819.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Aria Black - Still Here in the Quiet
+02 - L’amour Fané - Sous Ma Peau
+03 - Aria Black - Two Fires, One Heart
+04 - L’amour Fané - Si Tu Vis Mieux Sans Moi(   Читать дальше...   )Жанр: Vocal, Easy listening, AIПродолжительность: 00:23:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA3D2FDFBF9E80EB32EF0CFE5D6F03EAE4129AAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839842   (1046746) от 01.12.2025
+
+VA - Pop Radiomania (2025) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046746.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dj Lion's - 1M80 Minimum (02:58)
+ 002. Niexshadow - All I Got Was Goodbye (02:21)
+ 003. Kimbai - Contre Moi (02:38)
+ 004. Ren Avisse - Hot Tea (02:52)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 11:45:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6F3B91085863E96BD3BFA98431328602F475757
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839600   (1046719) от 29.11.2025
+
+VA - ЕвроХит Топ 40 Europa Plus 28.11.2025 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046719.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. HUNTRX, EJAE, AUDREY NUNA, Rei Ami, KPop Demon Hunters Cast - Golden (3:14)
+02. Ravyn Lenae - Love Me Not (3:33)
+03. Sombr - 12 to 12 (4:03)
+04. Sabrina Carpenter - Tears (2:40)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:59:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB21FB8104F840561A8184670FACCC9A84F0D1E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1603433   (1045743) от 09.01.2023
 
 VA - New Years Eve Ultimate House Party (2022) [MP3|320 Kbps] <Club, Progressive, Afro House, Groove>
@@ -542,209 +745,6 @@ VA - Music News vol.241 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC077C321A3B2A69F6650A923EBC6775811BE656
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608014   (1043496) от 31.01.2023
-
-VA - Музыка для машины Vol.3 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043496.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angel  - Не Пиши Мне (03:08)
-02. T1one  - Увела (03:13)
-03. Anouk Feat. & Emma Heesters - Met Jou Kan Ik Het Aan (04:03)
-04. Dimitri Vegas & Like Mike Feat. & Ne-Yo - Higher Place (Ayur Tsyrenov Dfm Remix) (03:25)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:52:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:812E4EBCC0D58AB6301E2AFF3A0FC6BE8BEF927B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608576   (1043488) от 31.01.2023
-
-VA - Дискотека 2023 Dance Club Vol. 215 (2023) от NNNB [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043488.jpg" />
-</div>
-
-
-###  Подробнее
-
-part 1:
-001. Edine - Do You Have A Problem (2:23)
-002. Avec Toi - Parade of planets (2:44)
-003. Beneath My Shade - Back To You (2:36)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 10:22:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20CCCCCCB2CD9BD32554983FD58728DE37045DF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609226   (1043336) от 02.02.2023
-
-VA - Music News vol.242 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043336.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Eva feat. Samar - Habibi (02:47)
- 002. Alex M feat. Richard Reynolds - Cyprus (02:52)
- 003. Alyun - Callie (Cry About It) (04:08)
- 004. Anait - Сны (03:10)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:35:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F10A95FA578451A86C2E50DC5497E9B39B6846B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609021   (1043312) от 02.02.2023
-
-VA - Europa Plus: ЕвроХит Топ 40 20.01 (2023) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043312.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Future X - This Kind Of Love (02:51)
-02. David Guetta & Bebe Rexha  - I'm Good (Blue) (02:55)
-03. Ava Max - Million Dollar Baby (03:04)
-04. Robin Schulz & David Guetta -  On Repeat (03:10)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:59:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6D249B60A9757E31C186FEA1A35C29F119079E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609764   (1043159) от 04.02.2023
-
-VA - Ethnic House Selections (2023) [MP3|320 Kbps] <House, Electro, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043159.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Caitlin - Freaks & Misfits
-002. Musiq Mo - Humanoids Dance
-003. Dany Cohiba - Alma Andina
-004. Deephonix Crew - Sthandwa Se Nhliziyo Yam(   Читать дальше...   )Жанр: House, Electro, DanceПродолжительность: 10:13:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3BD4309049269C293FCCD19D4630B8CB5FB56C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609684   (1043139) от 04.02.2023
-
-VA - Музыка для машины Vol.5 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Маракеш  - Молодой, Горячий (02:51)
-02. Rita Ora  - You Only Love Me (02:29)
-03. Андрей Картавцев  - Моя Любовь-Это Ты (04:02)
-04. Ольга Шультайс  - Happy End (03:20)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:34:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A28079DDB36B1B2A2A316A4A480E69398B9BEC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609810   (1042901) от 05.02.2023
-
-VA - Музыка для машины Vol.6 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042901.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Staffорд63  - Царица (Vlasovrmx Remix) (02:54)
-02. Анора  - Mi Amore (03:23)
-03. Coyote Island Feat. & Abitemi - Quarantine (02:34)
-04. Muffin Feat. & Kevin Aveiro - Hold On To Me (03:04)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:39:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C3B1444F831D43F6C5E5185C52B3E13CF0BB4DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

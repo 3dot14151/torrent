@@ -1,3 +1,32 @@
+###  Публикация: 996346   (881167) от 13.03.2016
+
+Agrelia's Castle - Elders and Ancestors (2015) [MP3|320 кб/с] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_881167.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elders and Ancestors
+02. Adrift
+03. Breathe
+04. Spirit Dreaming(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:06:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F68A97102CF5E3CD03987A8EC40BCAF96547C4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 996376   (881068) от 13.03.2016
 
 VA - All Music Of The World, A Collection Of Ambient Music Remixed With Native Sound (2001) 3CD [MP3|320 кб/с] <World Music, Native, Ethno>
@@ -719,35 +748,6 @@ VA - The Da Vinci Mysteries (2006) [FLAC|Lossless|tracks + .cue] <Gregorian, New
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1EE40006D68CF45C3C624E6F82D01F32B1D5F090
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106399   (873528) от 19.02.2017
-
-VA - The Da Vinci Mysteries (2006) [MP3|320 Kbps] <Gregorian, New Age, Enigmatic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873528.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kelly O'Neill – Mystic Dream
-02. Emerald Singers – Adiemus
-03. Massini – Mystera
-04. Tranceparence – Sadeness Part I(   Читать дальше...   )Жанр: Gregorian, New Age, EnigmaticПродолжительность: 00:56:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBB555B577F6B06ADCA9F1C2E6BF07BA448AE93E
 ```
 
 https://mybot314.ru/tekegram_catalog/

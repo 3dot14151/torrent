@@ -1,3 +1,61 @@
+###  Публикация: 1825720   (151694) от 17.10.2025
+
+Romantic Dreams - Favorites Collection Part 5 (2025) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Sunoai>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_151694.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Your Soul
+ 02 - Start Again
+ 03 - Butterflies Inside My Heart
+ 04 - Inhale the Future, Exhale the Past(   Читать дальше...   )Жанр: Italodisco, Italodance, Eurodisco, Eurodance, SunoaiПродолжительность: 00:31:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99B790363D0F8A37EBE709B10DF968A2DD38F1C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271191   (151435) от 22.12.2018
+
+VA - Русское радио Хит-парад Золотой граммофон 21.12.2018 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_151435.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Денис Клявер - Когда ты станешь большим
+02. #2Маши - Босая
+03. Руки Вверх - К Черту Эту Гордость
+04. Ирина Дубцова - Факт(   Читать дальше...   )Жанр: PopПродолжительность: 01:08:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAD6F8601A6B7688561CE87C298F35E178B798A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1825915   (150732) от 18.10.2025
 
 VA - Осень на Love Radio (2025) [MP3|320 Kbps] <Pop, Dance>
@@ -687,64 +745,6 @@ VA - Отрывайся с лучшими хитами. Сборник № 6 (20
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8974FB51499C83116B4A02B064F67D40FBCE530
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087263   (145334) от 28.12.2016
-
-VA - Танцевальная зима. Выпуск № 2 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145334.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Pitbull Feat. Steven A. Clark & Ape Drums - Can't Have 3:37
-002.Far East Movement Feat. Yoonmirae & Autolaser - Fighter 4:14
-003.Яна Батаева - Мы Уйдем Вдвоем 3:06
-004.Костя Кирьянов - Под Этим Дождем 3:12(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B8D85AAA771B664F6233D8608E8D41D9FB73DED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087305   (145321) от 28.12.2016
-
-VA - Музыкальный заряд Выпуск № 10 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145321.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Нужный Ритм - Незабываемая 3:12
-002.Ласковый Шепот - Не Говори Мне 4:47
-003.Guenta K & Andy Ztoned - Be La La 3:33
-004.Beyonce - Formation 3:26(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D513A21F4018016C7F944738859A266A3B76612
 ```
 
 https://mybot314.ru/tekegram_catalog/

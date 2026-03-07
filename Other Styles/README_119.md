@@ -1,3 +1,32 @@
+###  Публикация: 1253547   (381762) от 10.10.2018
+
+Constance Demby - Skies Above Skies (1978) [FLAC|Lossless|tracks + .cue] <NewAge>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_381762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Om Mani Padme Hum (09:58)
+02. Endless (08:59)
+03. Peace of God (11:55)
+04. El Mie (08:10)(   Читать дальше...   )Жанр: NewAgeПродолжительность: 00:58:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EABAFEE5B7AD9561BDA8B0F0FA4C03507C42668
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1253560   (381760) от 10.10.2018
 
 Constance Demby - Sunborne (1980) [FLAC|Lossless|tracks + .cue] <NewAge>
@@ -710,35 +739,6 @@ Hans Zimmer - Themyscira (OST from Wonder Woman 1984) (2020) [FLAC 2.0|44/24|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53DB8C43649B8E8FC708AEB152763C3EAD698447
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414580   (376166) от 12.10.2020
-
-Carpenter Brut - Blood Machines / Кровь машин (Original Motion Picture Soundtrack) (2020) [FLAC|Lossless|WEB-DL|tracks]<Darkwave, Synthwave, Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376166.jpg" />
-</div>
-
-
-###  Подробнее
-
-[01:36] 01. Intro
-[03:21] 02. Blood Machines Theme
-[03:19] 03. Attack Of The Amazons
-[02:24] 04. The Ceremony(   Читать дальше...   )Жанр: Darkwave, Synthwave, SoundtrackПродолжительность: 00:35:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CBDA0513D4AC097AB948B8BFEA3FA0A597CF52D
 ```
 
 https://mybot314.ru/tekegram_catalog/

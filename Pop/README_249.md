@@ -1,3 +1,206 @@
+###  Публикация: 1186729   (283898) от 26.11.2017
+
+Yello - Live In Berlin (2017) [MP3|320 Kbps] <Pop, Synth-pop, Future Jazz>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_283898.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Magma (Live In Berlin) 3:58
+02.  Do It (Live In Berlin) 4:31
+03.  The Evening's Young (Live In Berlin) 4:03
+04.  Limbo (Live In Berlin) 4:57(   Читать дальше...   )Жанр: Pop, Synth-pop, Future JazzПродолжительность: 01:36:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:810D2A0C3D7CE326AF2ECAC12791C3F913B09565
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186339   (283891) от 26.11.2017
+
+Boney M. - Super Special Album (1979) LP, Compilation [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_283891.jpg" />
+</div>
+
+
+###  Подробнее
+
+Качественно сделанный японскими почитателями и производителями сборник.01. Rasputin (4:47)
+02. Voodoonight (3:32)
+03. Dancing In The Streets (3:58)
+04. Rivers Of Babylon (4:27)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:50:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E57A0C181FB826278F1CFB598B263499DFB5942
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 964055   (283785) от 10.12.2015
+
+Винтаж - Микки. Альтернатива (2014) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_283785.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Микки
+02. Амстердам feat. Владимир Пресняков
+03. Мальчик
+04. Стерео(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D08B429DDE29DF81A0DFB63E777BC6E024A578F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 964042   (283784) от 10.12.2015
+
+Sarah Brightman - The Trees They Grow So High (1998) [FLAC|image + .cue]<Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_283784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Early One Morning
+02. Come You Not from Newcastle? (Hullah's Song Book) (English)
+03. Sweet Polly Oliver (Old English Tune)
+04. The Trees They Grow So High (Somerset folksong)(   Читать дальше...   )Жанр: VocalПродолжительность: 00:52:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC52421A9036360E6D1275C9E53F0EB65DCBCFA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 964265   (283653) от 10.12.2015
+
+Bebe Rexha - I Don't Wanna Grow Up (2015) EP [OGG|489-533 кб/с]<Power Pop, Electropop, EDM>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_283653.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Don't Wanna Grow Up
+02. Sweet Beginnings
+03. I'm Gonna Show You Crazy
+04. Pray(   Читать дальше...   )Жанр: Power Pop, Electropop, EDMПродолжительность: 00:18:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73D234CB842383F9A68FEC0F72E6A4D3099125B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264051   (282876) от 22.11.2018
+
+VA - Acoustic Winter (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Folk, Acoustic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_282876.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tori Amos - Winter (Edit Version)
+02. Marc Cohn - Perfect Love (Remastered)
+03. Peter Cincotti - Goodbye Philadelphia (Radio Edit)
+04. Tanita Tikaram - Cathedral Song(   Читать дальше...   )Жанр: Pop, Folk, AcousticПродолжительность: 01:33:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4328B58EBB29BD1283C549ECFAC20163D704A5FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081650   (282810) от 10.12.2016
+
+Tiziano Ferro - Il Mestiere Della Vita (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_282810.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Epic 2:55
+02. "Solo" e solo una parola 3:42
+03. Il mestiere della vita 3:18
+04. Valore assoluto 3:48(   Читать дальше...   )Жанр: PopПродолжительность: 00:46:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65CBB07BF7D9133897A7F67E15E781BBD9B2CAD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1187248   (282539) от 27.11.2017
 
 Miss Li - A Woman's Guide to Survival (2017) [MP3|320 Kbps] <Indie Rock, Pop>
@@ -540,210 +743,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:39004209C83CB62F37CCAEB436C2EDCED4DF0358
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264387   (281074) от 23.11.2018
-
-Анжелика Варум - На паузу (2018) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281074.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Девочки умеют
-2. Когда-нибудь
-3. Минус 20
-4. Касайся(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB90C4C04284FF2A0ECDE8FF9754429748185FB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1082026   (280761) от 11.12.2016
-
-Witch Queen - Witch Queen (1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco, Pop-Rock>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280761.jpg" />
-</div>
-
-
-###  Подробнее
-
-Студийная группа, собранная Gino Soccio и его сопродюсером - Peter Alves.
-Включены две кавер-диско-версии классических рок-песен: "Free" - "All Right Now" (1970)  и  "T. Rex" - "Get It On" (1971).01. Witch Queen  (6:27)
-02. All Right Now  (9:46)
-03. Bang A Gong  (9:49)
-04. Got The Time  (6:46)Жанр: Electronic, Funk-Soul, Disco, Pop-RockПродолжительность: 00:32:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFB08AFAD1F810257FED7D6CE0DF471B9CF7268A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187420   (280451) от 28.11.2017
-
-VA - The Pop Years 1980-1983 (2009) 4CD [MP3|320 Kbps] <Pop, Rock, R&B>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280451.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Electric Light Orchestra - All Over the World (4:04)
-02. Hall & Oates - Kiss on My List (4:23)
-03. Tom Browne - Funkin' for Jamaica (3:28)
-04. Earth, Wind & Fire - Let Me Talk (4:10)(   Читать дальше...   )Жанр: Pop, Rock, R&BПродолжительность: 05:01:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14CD7579F4F7B5B7531E499FAE9DE7C49165DBCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081830   (280415) от 11.12.2016
-
-Modern Tracking - Disco Figter (2016) [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280415.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Нетающий лёд (Disco Figter Version)
-02. Огромный мир (Disco Edit)
-03. Танцы ярких улиц (Bright Remix)
-04. Экипаж (Disco House Edit)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:18:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0D397279701B981BAFEA509D3614A56099CB84E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264713   (279571) от 24.11.2018
-
-VA - Hands up Party Dance Selection, Vol. 2 (2018) [MP3|320 Kbps] <Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279571.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Tht feat. Auzern - Open Up the Dancefloor (Dj Gollum Remix)
-02. Nigel Hard - Superstar (Jinpachi Futushimo Hands Up Remix)
-03. Tomtrax and Orca - Break It Up (Radio Mix)
-04. FluxStyle feat. Alex Twist - Die besten Partys (The Suspect Remix)(   Читать дальше...   )Жанр: DanceПродолжительность: 04:08:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD580E3DE92631BD179FB122604DC84F3584489E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264560   (279519) от 24.11.2018
-
-VA - Hot Party Winter 2019 (2018) [MP3|320 Kbps] <Dance, Lunapop, Indie, Neo Soul>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279519.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shawn Mendes - Lost In Japan
-02. LSD - Thunderclouds
-03. Celestal feat. Rachel Pearl, Grynn - Old School Romance
-04. Silk City - Electricity(   Читать дальше...   )Жанр: Dance, Lunapop, Indie, Neo SoulПродолжительность: 02:25:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A50EEE2E620982FF0469A784C20DDC6EE8D84CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264677   (279517) от 24.11.2018
-
-Zapp - 4 Albums (1980-1985) [MP3|320 Kbps] <Electronic, Funk/Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279517.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-1980 - Zapp
-1982 - Zapp II
-1983 - Zapp III(   Читать дальше...   )Жанр: Electronic, Funk/Soul, DiscoПродолжительность: 02:43:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:155EAC160B3EFF7B6E36E8EE9D8E1CC76A3996A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

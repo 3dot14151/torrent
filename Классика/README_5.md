@@ -1,3 +1,32 @@
+###  Публикация: 984702   (938597) от 09.02.2016
+
+Strato-Vani - Ballroom 1 (2015) [MP3|320 кб/с] <Classical, Pop>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_938597.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tanze mit mir in den morgen (Tango 32 BPM) (2:54)
+02. Hemelsblauw (Rumba 25 BPM) (3:28)
+03. Help Yourself (Samba 50 BPM) (2:46)
+04. You Are My Sunshine (Quickstep 50 BPM) (2:34)(   Читать дальше...   )Жанр: Classical, PopПродолжительность: 00:51:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18AAC15412C21ED54877DB4A1EBC0EE520156870
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 984770   (938263) от 09.02.2016
 
 Khatia Buniatishvili - Kaleidoscope - Mussorgsky, Ravel, Stravinsky (2016) [MP3|320 кб/с] <Classical, Piano>
@@ -723,35 +752,6 @@ Jennifer Thomas - Winter Symphony (2015) [FLAC|Lossless|tracks] <Instrumental, C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:563E2E08A4C3041E4387B647FF1C4278341CBFDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992247   (902424) от 01.03.2016
-
-Montserrat Caballe - Caballe and Friends (1997) [FLAC|Lossless|image + .cue] <Classical, Opera>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902424.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Caballe / Je Veux vivre dans le reve (3:51)
-02. Caballe / Questo cor ben lo comprende (3:08)
-03. Caballe, Carreras / Ah, quegli occhi... Mia gelosa! (5:55)
-04. Caballe / Spargi d'amore pianto (4:30)(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 01:17:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35897A2798BB4141522F2542559C74C728BDFAE2
 ```
 
 https://mybot314.ru/tekegram_catalog/

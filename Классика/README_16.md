@@ -1,3 +1,32 @@
+###  Публикация: 1196603   (820518) от 04.01.2018
+
+New London Chorale - The Classic Christmas Collection (1998) [MP3|320 Kbps] <Сrossover Classical>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_820518.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. For unto us
+02. Stille Nacht
+03. Winter wonderland
+04. Oh Tannenbaum(   Читать дальше...   )Жанр: Сrossover Classical, TraditionalПродолжительность: 00:54:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FE8BB8DBE8E017327D03BDE6F8E065ECE4B6D7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 880887   (820472) от 27.03.2015
 
 Arnold Schoenberg - Gurrelieder [2 SACDs] (2007) [DSD 5.1, 2.0 1bit/2822,4kHz | SACD-R] [FLAC|Lossless]<Classical - Vocal>
@@ -717,35 +746,6 @@ Secret Garden - Sacred Night - The Christmas Album (2021) [FLAC|Lossless|WEB-DL|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3AF41F5D9431AB4158D8A139996E05BC8BC73A8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506102   (800830) от 30.10.2021
-
-VA - Best of Classical Music (2021) [FLAC|Lossless|WEB-DL|tracks] <Classical, Instrumental>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800830.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. London Philharmonic Choir - Carmina Burana, Fortuna Imperatrix Mundi No. 1, O Fortuna (2:42)
-02. London Philharmonic Orchestra - Orchestral Suite No. 3 in D Major, BWV 1068 II. Air (4:14)
-03. Finghin Collins - Piano Sonata No. 14 in C-Sharp Minor, Op. 27 No. 2 Moonlight I. Adagio sostenuto (5:36)
-04. SWR Symphony Orchestra - Symphony No. 41 in C Major, K. 551 (   Читать дальше...   )Жанр: Classical, InstrumentalПродолжительность: 08:20:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CE039306EA458C00B994C0AA3F6865201229F5A
 ```
 
 https://mybot314.ru/tekegram_catalog/

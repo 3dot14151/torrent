@@ -1,54 +1,25 @@
-###  Публикация: 1788872   (68435) от 01.04.2025
+###  Публикация: 1785200   (69452) от 14.03.2025
 
-Nightwish - Amaranth (2007) (Single) [FLAC|24/192|image + .cue|Vinyl-Rip] <Symphonic Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68435.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Amaranth (03:54)
-02 - Reach (Amaranth Demo Version) (03:53)
-03 - Eva (Orchestral Version) (04:26)
-04 - While Your Lips Are Still Red (Theme From The Movie "LIEKSA !") (04:19)(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:24:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD26508BD3B166C56CEE4EAE2D3AE3280554D78D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788830   (68434) от 01.04.2025
-
-Unleash The Archers - Phantoma (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Power Metal>
+Dark Horizon - 9 Ways To Salvation (2025) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68434.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69452.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Human Era 5:41
-02. Ph4/nto-ma 6:30
-03. Buried In Code 3:40
-04. The Collective 5:54(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:02:01
+01. Parasite 04:00
+02. Crazy 03:54
+03. I Won't Let You Down 04:18
+04. Waiting 04:13(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:42:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9207B07BFEE27B96DC81C865D62F46712AFCA8B9
+magnet:?xt=urn:btih:21635C789FA7E94070CB5C8CB1E58ED82E98FA5B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +27,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788901   (68433) от 01.04.2025
+###  Публикация: 1785009   (69451) от 14.03.2025
 
-Neverlove - Nu Glam (2025) [MP3|320 Kbps] <Alternative Rock, Alternative Mrtal>
+Евгений Жигилий | Мастер звонка (2023) [MP3, Евгений Жигилий]
 
->>Rock, Alternative, Punk, Metal
->>Русский рок
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68433.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69451.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Neverlove - BLACK STAR [00:02:46]
-02. Neverlove - Дьявол [00:03:35]
-03. Neverlove, pokaliena - Запомнят такими [00:02:53]
-04. Neverlove, Йорш - На заводе [00:03:56](   Читать дальше...   )Жанр: Alternative Rock, Alternative MrtalПродолжительность: 00:32:53
+Эта книга поможет вам стать настоящим мастером телефонного общения. В ней вы найдете систему для работы с разными видами звонков: входящими, исходящими, горячими и холодными. Освоите массу разнообразных приемов ведения диалога и работу с возражениями, рассмотрите более 100 сценариев для различных ситуаций продаж по телефону. Это полный арсенал инструментов для реального (   Читать дальше...   )Жанр: БизнесИздательство: МИФПродолжительность: 09:45:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A758C4D022D8B5A22EBF3777CEE94586B1284B8B
+magnet:?xt=urn:btih:F1413FC6437084B6747196749BC1157A7DBA56DB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +53,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788903   (68432) от 01.04.2025
+###  Публикация: 1784991   (69450) от 14.03.2025
 
-Jessy Mach - Dice of doom (2025) [MP3|320 Kbps] <Synthwave, Synthpop>
+ALT Linux 8 СП C9F1 [i686, amd64] 6xDVD
 
->>Electronic
->>Synthpop, New Wave
+>>Linux, Unix и другие ОС
+>>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68432.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69450.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. The last game night [00:03:42]
-2. Trial by steel [00:03:52]
-3. The roll of fate [00:04:01]
-4. Barbarian's awakening [00:03:56](   Читать дальше...   )Жанр: 80s, Dreamwave, Synthwave, Retrowave, Synthpop, DarkSynth, Nu-Disco, OutrunПродолжительность: 00:28:19
+«Альт СП» («Альт 8 СП») — дистрибутив операционной системы для серверов и рабочих станций со встроенными программными средствами защиты информации, сертифицированный ФСТЭК России (обозначение программного изделия — ЛКНВ.11100-01).
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:27938133854CD2AE0D9D8D74F1D2613515AEFBDA
+magnet:?xt=urn:btih:62356DD536E9D9FE217E6F52CBD40D16F3373E6A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +79,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788958   (68431) от 01.04.2025
+###  Публикация: 1784975   (69449) от 14.03.2025
 
-Hitman Blues Band - Calling Long Distance (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+Дети шпионов 2: Остров несбывшихся надежд / Spy Kids 2: Island of Lost Dreams (2002) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68431.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69449.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Calling Long Distance (4:53)
-02.  Edge of the Bed (3:47)
-03.  Blood Alley (3:32)
-04.  Folsom Prison Blues (5:38)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:48:23
+Кармен и Джуни стали профессиональными агентами Организации Супершпионов, но теперь у них появились конкуренты — Гэри и Герти Гигглзы, дети нового директора ОС Донагана Гигглза. Они выполняют задания исключительно ради собственно работы, а на семейные отношения им наплевать. Примечательно то, что Гэри нравится Кармен. На новом задании им поручили найти прибор под (   Читать дальше...   )Производство: США / Dimension Films, Troublemaker StudiosЖанр: фантастика, боевик, комедия, приключения, семейныйРежиссер: Роберт РодригесАктеры: Антонио Бандерас, Карла Гуджино, Алекса ПенаВега, Дэрил Сабара, Стив Бушеми, Майк Джадж, Дэнни Трехо, Чич Марин, Мэтью О’Лири, Эмили ОсментПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: Русский, АнглийскийСубтитры: русские, английскиеПродолжительность: 01:40:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E0E64967296B3A663D193B039BCEE567F76E2EF2
+magnet:?xt=urn:btih:AA812A881CC4AF3BFCDC28101C713F907CD680CD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,166 +105,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788906   (68430) от 01.04.2025
+###  Публикация: 1785046   (69448) от 14.03.2025
 
-Outlasted - Universal Human Desire (2025) [MP3|320 Kbps] <Melodic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Weight Of The World
-02. Save Your Love
-03. Tonight
-04. Lost Without You(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:43:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EFE32D406DB17BBB6F6E11F3182B71C88697460
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788754   (68429) от 01.04.2025
-
-Маленькая Сибирь / Pikku-Siperia (2025) WEBRip [H.264/1080p] [DVO] [AD]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68429.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пастор начинает сомневаться в своей вере, когда на его маленький финский город падает метеорит, который порождает суматоху и привлекает преступников.
-Действие разворачивается в вымышленной финской деревушке Хурмеваара, затерянной в заснеженных просторах недалеко от российской границы. Метеорит оказывается ценным объектом, который может изменить будущее умирающего (   Читать дальше...   )Производство: Финляндия / Bufo, SF StudiosЖанр: триллер, драма, комедияРежиссер: Доме КарукоскиАктеры: Руне Темте, Малла Малмиваара, Томми Корпела, Ээро Ритала, Йенни Банерджи, Мартти Суосало, Хаймон Мария Буттингер, Янне Хюютияйнен, Севери Сааринен, Амира Халифа и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:47:18Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788904   (68428) от 01.04.2025
-
-Aya - hexed! (2025) [MP3|320 Kbps] <Electronic, Footwork, Grime, Techno>
-
->>Electronic
->>Techno, Electro, Minimal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68428.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I am the pipe I hit myself with [00:02:25]
-02. off to the ESSO [00:03:30]
-03. the names of Faggot Chav boys [00:02:30]
-04. heat death [00:03:51](   Читать дальше...   )Жанр: Electronic, Footwork, Grime, TechnoПродолжительность: 00:33:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2B9771EC627B9F71307BF6B60646AE0B90F4763
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788759   (68427) от 01.04.2025
-
-VA - 25 Years Of Anjuna Mixed By Nourey (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68427.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1 (01:08:27)
-01. Nourey – Intro (25 Years Of Anjunabeats)Жанр: Trance, Progressive, ElectronicПродолжительность: 03:44:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:517831B7439EAE7965AD24335D6D9CFBC8E84FAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788953   (68426) от 01.04.2025
-
-Blut Reaktor - Plastic Bitch (2025) [MP3|320 Kbps] <Dark Electro, Electro-Industrial>
-
->>Electronic
->>Industrial, EBM, Dark Electro
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68426.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Blut Reaktor; Cruxx - Dead Inside [00:03:50]
-02 - Blut Reaktor; Cruxx - Demise [00:03:34]
-03 - Blut Reaktor; Cruxx - Fear Campaign [00:03:50]
-04 - Blut Reaktor; Those Things Silver - Femme Fatale [00:03:50](   Читать дальше...   )Жанр: Dark Electro, Electro-IndustrialПродолжительность: 00:54:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:677C4C5BCD58933236C54FF8AEBCF3AD8CD89542
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788949   (68425) от 01.04.2025
-
-Пресеты - Hunter LaShea Photography - THE WEDDING COLLECTION [XMP]
+Растровый клипарт - Creative Fabrica - Marble Clipart Free [DXF, EPS, JPG, PNG, SVG]
 
 >>Материалы для мультимедиа и дизайна
->>Дополнения
+>>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68425.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69448.jpg" />
 </div>
 
 
 ###  Подробнее
 
-От автора: "Если вы фотограф, который хочет поднять свои галереи на новый уровень, эта коллекция создана для вас! Если вы любите теплые тона + яркие белые цвета и ищете универсальный пакет пресетов, то вам сюда! При разработке этого пакета я учитывал каждый момент и ситуацию с освещением, которая случается в течение дня. Будь то плохо освещенный номер для новобрачных (   Читать дальше...   )Формат: XMP
+Бесплатный клипарт под мрамор в разных форматах с дополнениями.Формат: DXF, EPS, JPG, PNG, SVGРазрешение файлов: 5950 x 5950
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:45955894A27025F90F90F8CB8C52072223272DA7
+magnet:?xt=urn:btih:FC0668FD0AE968C01233DB54364A527EB8EEF242
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -310,25 +131,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788820   (68424) от 01.04.2025
+###  Публикация: 1784985   (69447) от 14.03.2025
 
-Журнал | Наша история №4 (70) (апрель 2025) [PDF]
+3D сцены - Fab - Eastern Iceland Landscape [UASSET, UPROJECT, UMAP]
 
->>Журналы
->>Другие журналы
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68424.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69447.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Тайны государства в журнале "Наша история". Необычная трактовка известных событий. Самые скандальные события прошлого. Журнал рассказывает об оригинальных версиях, казалось бы, хорошо известных событий мировой истории, делает попытки восполнить пробелы в биографиях великих людей, а также повествует об исторических загадках, которые пока не сумели разгадать (   Читать дальше...   )Жанр: ИсторияИздательство: Александр ИоффеФормат: PDFКачество: Обработанный скан
+Восточная Исландия.Формат: UASSET, UPROJECT, UMAP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7063D32F468D38A841CD05CA764B2A0BD25E485A
+magnet:?xt=urn:btih:4CA68126EF1A28A5EBC905D560C94DB74365D8EE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -336,78 +157,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788880   (68423) от 01.04.2025
+###  Публикация: 1784599   (69446) от 14.03.2025
 
-Thunderbolt Fantasy: Touri-ken Yuuki 2 | Thunderbolt Fantasy: Sword Seekers 2 | Грозовая фантазия 2 [2018, TV, 13 из 13] BDRip 1080p HEVC 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68423.jpg" />
-</div>
-
-
-###  Подробнее
-
-Остановив вторжение демонов в реальный мир, Що Фу Кан решил отдохнуть от своих приключений. С письмом-рекомендацией от Тан Хи он отправился в крепость Сен Чин Дзё, надеясь хотя бы временно спрятать Свиток Волшебных Мечей. Но стоило ему избавиться от своей ноши, как выяснилось, что за каждым его шагом наблюдали. Один из самых опасных противников Кацу Эраку, Королева (   Читать дальше...   )Производство: Thunderbolt Fantasy ProjectЖанр: приключения, фэнтезиРежиссер: Хуан ЦянхуаПеревод: Lionard & AiwidanЯзык озвучки: японскийСубтитры: русские, английскиеПродолжительность: 13 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC33026C640C02D4CABE0213C03D6B59FCA1F7BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788809   (68422) от 01.04.2025
-
-Дженсен Фрэнсис Э., Эми Эллис Натт | Мозг подростка. Спасительные рекомендации нейробиолога для родителей тинейджеров (2024) [MP3, Валерия Савельева]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68422.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга была написана как ответ на многочисленные вопросы, полученные профессором Фрэнсис Э. Дженсен от родителей, учителей и даже от подростков. Все они хотели поделиться своими историями, спросить что-то и попытаться понять, как помочь их детям – или самим себе – пройти этот волнующий, но сложный переходный период.
-Цель книги – дать практические советы родителям, (   Читать дальше...   )Жанр: Воспитание детей, Детская психологияИздательство: ЭксмоПродолжительность: 11:20:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBC5F9773F1D440133A2BA438645F7D19A0D0EB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788888   (68421) от 01.04.2025
-
-Крестовые походы / The Crusades (1935) BDRip [H.264] [MVO]
+Обезьяний дядюшка / The Monkey's Uncle (1965) WEB-DLRip [H.264]
 
 >>Классика кино и Старые фильмы до 90-х
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68421.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69446.jpg" />
 </div>
 
 
 ###  Подробнее
 
-По мотивам жизни английского короля Ричарда I во время Третьего крестового похода и его брака с Беренгарией Наваррской... Иерусалим захвачен войском Саладина, владыки Сирии и Египта. Отшельник из Иерусалима прибывает в Европу и начинает собирать поддержку для крестового похода, убеждая нескольких европейских правителей отправиться в Иерусалим, чтобы вернуть Святой (   Читать дальше...   )Производство: США / Paramount PicturesЖанр: драма, приключения, военный, историяРежиссер: Сесил Блаунт Де МилльАктеры: Лоретта Янг, Генри Уилкоксон, Иэн Кит, С. Обри Смит, Кэтрин Де Милль, Джозеф Шилдкраут, Алан Хэйл, Си. Генри Гордон, Джордж Барбье, Монтагю Лав, Рамсэй Хилл, Ламсден Хэйр, Морис Мерфи, Уильям Фарнум, Хобарт БосвортПеревод: профессиональный многоголосый (Светла)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 02:05:42
+Колледжский вундеркинд Мерлин Джонс изобретает метод продвинутого обучения шимпанзе, затем создаёт летательный аппарат собственного дизайна, и в конце концов устраивает в студенческом городке настоящий бедлам.Производство: США / Walt Disney ProductionsЖанр: фантастика, комедия, семейныйРежиссер: Роберт СтивенсонАктеры: Томми Кирк, Аннетт Фаничелло, Леон Эймс, Артур О’Коннелл, Фрэнк Фейлен, Леон Тейлор, Норман Грабовски, Шерил Миллер, Конни Гилкрайст, Алан ХьюитПеревод: Дублированный (СВ-Дубль по заказу ВГТРК 1995 г.)Язык озвучки: русский, английскийСубтитры: английские (SDH)Продолжительность: 01:31:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0AC013FA97024B17D5E9591C2980BDE9DC2D67E0
+magnet:?xt=urn:btih:7874D20BBFC897B930F512382AF91E5122B442B6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -415,27 +183,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727558   (68420) от 01.04.2025
+###  Публикация: 1785079   (69445) от 14.03.2025
 
-Aeonian Sorrow - Studio Albums (4 releases) (2018-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Gothic/Doom/Death Metal>
+Вежливый Отказ - Не о том речь (2025) [FLAC|Lossless|image + .cue] <Jazz-Rock>
 
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68420.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69445.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Aeonian Sorrow - международная мелодик-дум-метал/фунерал-дум группа, сформирована певицей и автором песен Гого Мелоне в сентябре 2015 года.2018 - Into The Eternity A Moment We Are
-2020 - A Life Without (EP)
-2023 - KataraЖанр: Gothic/Doom/Death MetalПродолжительность: 02:59:43
+01. На смерть Царя Ирода 2
+02. На смерть Царя Ирода 1
+03. Анаэробика
+04. Ция(   Читать дальше...   )Жанр: Jazz-RockПродолжительность: 00:53:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BBC99651D76B408754434EA309F642C11CC108EB
+magnet:?xt=urn:btih:9A3A4CD4DCE555D96F228602B4302B5ADDF0460B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -443,28 +212,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788894   (68419) от 01.04.2025
+###  Публикация: 1785056   (69444) от 14.03.2025
 
-Occult - The Enemy Within (1996) Reissue, 2016, Cosmic Key Creations [FLAC|24/192|image + .cue|Vinyl-Rip] <Death, Thrash Metal>
+Eisbrecher - Kaltfront°! (2025) [FLAC|Lossless|image + .cue] <Hard Rock, Goth Rock>
 
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68419.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69444.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Souls
-A2 Inquistion Of The Holy
-A3 Crossing The Boundaries (Of Life And Death)
-A4 Selfbetrayel(   Читать дальше...   )Жанр: Death, Thrash MetalПродолжительность: 00:39:19
+01. Minus 90 Grad 01:32
+02. Everything is wunderbar 03:29
+03. Kaltfront 04:16
+04. Auf die Zunge (feat. Schattenmann) 03:41(   Читать дальше...   )Жанр: Hard Rock, Goth RockПродолжительность: 00:51:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:84A798D0A79E7DFD2E82C5AB7B8BFE9F680A6644
+magnet:?xt=urn:btih:AEF088C2C08D7E6ECB7037224C8B1C2441C15B8A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -472,28 +241,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788839   (68418) от 01.04.2025
+###  Публикация: 1785031   (69443) от 14.03.2025
 
-Katatonia - For Funerals to Come... (1995) EP, Reissue, 2011, Peaceville [FLAC|24/96|image + .cue|Vinyl-Rip] <Doom, Death Metal, Gothic, Alternative, Progressive Rock, Metal>
+Фоны - Hassas Arts - Creative Fabrica - Watercolor Backgrounds Bundle Pack [JPG, PNG, PDF]
 
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68418.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69443.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Funeral Wedding
-A2 Shades Of Emerald Fields
-A3 For Funerals To Come...
-A4 Epistel(   Читать дальше...   )Жанр: Doom, Death Metal, Gothic, Alternative, Progressive Rock, MetalПродолжительность: 00:33:53
+Бесплатные фоны в разных форматах.
+Разработчик: Hassas ArtsФормат: JPG, PNG, PDFРазрешение файлов: 2000 x 2000
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A551BE8AFBFD6489BCCC7F1B25AE91BEFB1532FE
+magnet:?xt=urn:btih:70329F856F36786D31828F83B0D94A1D65CDF965
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -501,28 +268,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788929   (68417) от 01.04.2025
+###  Публикация: 1784928   (69442) от 14.03.2025
 
-Blues Mucus - Blandad Kompost (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+Час дьявола / The Devil's Hour (2024) WEBRip (сезон 2, серии 1-5 из 5) ViruseProject [AD]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Зарубежные сериалы
+>>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68417.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69442.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Djävulsblues (4:16)
-02.  Allt Du Tycker Om (Det Hatar Jag) (5:49)
-03.  One More For The Road (6:05)
-04.  Koprofagi (3:57)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:49
+В центре истории — две Люси: работница службы опеки и другая Люси, в жизни которой поменяли одно ключевое событие детства. У неё другая жизнь, фрагменты которой приходили ей каждую ночь в кошмарных видениях. В один момент жизни Люси из разных миров пересекутся, а Айзек с Гидеоном сыграют в этом не последнюю роль.Производство: Великобритания / Hartswood FilmsЖанр: триллер, драма, детективРежиссер: Johnny Allan, Isabelle SiebАктеры: Джессика Рэйн, Питер Капальди, Никеш Пател, Бенжамин Чиверс, Рианнон Харпер-Рафферти, Алекс Фернс, Мира Сьял, Барбара Мартен, Рози Джонс, Фил Данстер и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~01:10:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:356ACB27117306E3BB46173E9FC5819DFA7C0E7A
+magnet:?xt=urn:btih:22FAFE178928C9CA0A61FBFF2C15B09B29AA7639
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -530,28 +294,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788923   (68416) от 01.04.2025
+###  Публикация: 1785208   (69441) от 14.03.2025
 
-3rd Call Men - Introducing (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+KORG - multi/poly native 1.0.3 Standalone, VSTi 3, AAX (x64) [En]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68416.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69441.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Open all night (3:06)
-02.  Mr.Kicks (3:54)
-03.  Walk all day (3:19)
-04.  King Freddie (2:53)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:23:59
+Вдохновленный легендарным KORG Mono/Poly, новый синтезатор аналогового моделирования KORG multi/poly обеспечивает захватывающие аналоговое звучание в сочетании с необычайной цифровой мощностью и гибкостью. Он уже получил признание как один из лучших синтезаторов года.Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D72FA067AFC203E7F4DDB4260395C51541EE6D23
+magnet:?xt=urn:btih:3C69782745E3ACEA962D890DE4AE00A8129B75C7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -559,28 +320,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788928   (68415) от 01.04.2025
+###  Публикация: 1785037   (69440) от 14.03.2025
 
-Between the Lines (Norway) - Back to the Blues EP (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+Фоны - Artnoy - Creative Fabrica - Digital Paper Marble Wave Background [JPG]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68415.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69440.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Back to the Blues (5:18)
-02.  Morning Song (4:33)
-03.  Hit by a Blues Train (4:01)
-04.  Keep It Real (4:10)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:21:14
+Бесплатные фоны под мрамор с дополнениями.
+Разработчик: ArtnoyФормат: JPGРазрешение файлов: 3600 x 3600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:613EBF41C97AE748E931B711C49ABA00016B6AF2
+magnet:?xt=urn:btih:FF3478A43D0B13C8BAEE7FD6FCE80915265E295F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -588,28 +347,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788935   (68414) от 01.04.2025
+###  Публикация: 1784976   (69439) от 14.03.2025
 
-Cisco Herzhaft - Roots & B4 (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+Дети шпионов 3: Игра окончена (2003) / Spy Kids 3-D: Game Over (2003) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68414.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69439.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Just One More Day (3:39)
-02.  Handworking Blues n°2 (4:08)
-03.  Step it up and Go (3:03)
-04.  Good Imitation of the Blues (4:11)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:20
+Несовершеннолетние агенты Джуни и Кармен Кортез отправляются на выполнение нового задания. На этот раз их ждёт путешествие по виртуальному миру 3-D видеоигры, разработанной для того, чтобы существа, населяющие её, явились в реальный мир.
+
+Дочь шпионов Кармен попалась в сети компьютерной игры, созданной зловещим Мастером Игрушек. Теперь её брат должен спасти сестру, (   Читать дальше...   )Производство: США / Dimension Films, Troublemaker Studios, Los Hooligans ProductionsЖанр: фантастика, боевик, комедия, приключения, семейныйРежиссер: Роберт РодригесАктеры: Дэрил Сабара, Алекса ПенаВега, Рикардо Монтальбан, Сильвестр Сталлоне, Райан Пинкстон, Роберт Вито, Бобби Эднер, Кортни Джайнс, Сальма Хайек, Майк ДжаджПеревод: Дублированный (Мосфильм-Мастер)Язык озвучки: Русский, АнглийскийСубтитры: русские, английскиеПродолжительность: 01:22:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8709CA2F6F433D3C29575ECC8FACF88826FF6D6D
+magnet:?xt=urn:btih:12AF4CD62B6C3BC772F953D1998BEBB614939F7B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -617,28 +375,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788936   (68413) от 01.04.2025
+###  Публикация: 1785040   (69438) от 14.03.2025
 
-Delta Cream - El Desierto (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+Александр Маршал - Коротко о разном (2025) [MP3|320 Kbps] <Pop>
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Pop
+>>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68413.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69438.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Boogie Woogie Man (3:13)
-02.  Ledbetter (4:14)
-03.  Lost in the Rain (7:05)
-04.  Railway Rhythm (3:41)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:25
+1. Целители покинутых сердец
+2. Андрейка
+3. Афганская история
+4. Встреча(   Читать дальше...   )Жанр: PopПродолжительность: 00:54:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:06B2D6722EA3F9B51EE9271F330938F96A5B4344
+magnet:?xt=urn:btih:7E946346F5F1F01BABE9CCE35EFFAF9F5EAB8A68
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -646,28 +404,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788933   (68412) от 01.04.2025
+###  Публикация: 1785170   (69437) от 14.03.2025
 
-Bob Corritore - Doin' The Shout (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+Атомные часы - время ntp v2.1.7 Mod by Alex.Strannik [Ru/Multi]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Программы, Игры и прочее
+>>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68412.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69437.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Thornetta Davis - Say Baby Say (3:25)
-02.  Oscar Wilson - Woman Wanted (3:17)
-03.  Nora Jean - Doin' The Shout! (4:35)
-04.  Duke Robillard - I Guess I'm A Fool (4:14)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:46
+Сверхточные часы для вашего устройства. Берёт данные с интернет-сервиса. В наличии виджет и немалое количество настроек. Вы когда-нибудь хотели узнать точное время, чтобы отпраздновать чей-то день рождения или Новый год? Или просто синхронизировать часы? AtomicClock обеспечивает точное время с серверов NTP, которые получают время непосредственно с атомных часов!Тип издания: PremiumРелиз состоялся: 11.03.2025Разработчик: Timo PartlПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F8E4A154089E5FFE02326A6804399E7FC2E17F9C
+magnet:?xt=urn:btih:18BC5D8CB2B2BA578F233857F035C2FD3407DC36
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -675,28 +430,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788941   (68411) от 01.04.2025
+###  Публикация: 1785197   (69436) от 14.03.2025
 
-Derek Mc Gowan - Live at Matts (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+Karen Cheryl - Étonnamment Romantique - Best Of (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68411.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69436.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Fake Alien (3:57)
-02.  One Way Ticket (4:38)
-03.  Love Song (4:24)
-04.  Rusty Goldmines (3:53)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:58:32
+01. La marche des machos (04:17)
+ 02. Chante pour nous Mama (03:17)
+ 03. Les nouveaux romantiques (03:23)
+ 04. Oh ! Cheri Cheri... (03:31)(   Читать дальше...   )Жанр: PopПродолжительность: 03:50:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CBB4A68053143D46F887D2415ED602667C2766EA
+magnet:?xt=urn:btih:7F12DA0D204D0FAB0E1E3340AD33033CDB9B7409
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -704,28 +459,240 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788947   (68410) от 01.04.2025
+###  Публикация: 1785102   (69435) от 14.03.2025
 
-Eddie B - No Record for My Good (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+Old World (2022) [Ru/Multi] (1.0.76630/dlc) Repack seleZen
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68410.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69435.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  For My Good (4:16)
-02.  I Am (3:54)
-03.  Jesus My King (5:00)
-04.  King of Kings (3:49)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:46:09
+Old World - это историческая стратегия, в которой вы управляете империей на протяжении нескольких поколений. Удастся ли вам оставить после себя великое наследие в эпоху великих царей и цариц? Заключайте браки ради политической выгоды, растите наследников и выстраивайте отношения со знатными семьями вашего царства. Ибо в жестоком, неумолимом мире монархов нет ничего (   Читать дальше...   )Тип издания: RepackРазработчик: Mohawk GamesЖанр: Стратегия, ИсторическаяЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8C6D64C00D8BB3BF08C261E729ABA9B9C6AFBC29
+magnet:?xt=urn:btih:F819F47CFAE810C0A9087DA7DFDE9315080F9020
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785184   (69434) от 14.03.2025
+
+3D сцены - Fab - Dwarven Dungeons Environment ( Throne Room Dungeon Dwarf Dungeon Dungeon 3D ) [UASSET, UMAPG]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69434.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dwarven Dungeon Environment с 102 уникальными сетками. Включает все представленные ассеты и ассеты высокого качества. Имеет хороший уровень детализации и оптимизирован для игровых проектов.Формат: UASSET, UMAP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52CB31689A25B69886E5AD63915D043444364C55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785187   (69433) от 14.03.2025
+
+Шрифты - MyFonts - Palo [TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69433.jpg" />
+</div>
+
+
+###  Подробнее
+
+Palo — это система служебных шрифтов из 72 стилей, построенная вокруг 4 ширин и 9 толщин, а также соответствующих курсивов.
+
+Кириллица не поддерживается.Формат: TTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38EDB7433FC15BCCF6ECBA5982178B0FB38897DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785014   (69432) от 14.03.2025
+
+Журнал | Дачный клуб №1 (166) (январь 2025) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69432.jpg" />
+</div>
+
+
+###  Подробнее
+
+В журнале «Дачный клуб» собрана яркая и наглядная информация о том, как ухаживать за садом, огородом, цветником, раскрываются хитрости ландшафтного дизайна, даются оригинальные рецепты блюд из урожая. Уникальный опыт российских дачников, яркие иллюстрации, вопросы читателей, рекомендации специалистов.Жанр: Дом, сад, огород, дачаИздательство: ООО "Город Медиа Софт"Формат: PDFКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D945E3BFCAD7D97A40A586BB3773377C6CBBB4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785178   (69430) от 14.03.2025
+
+Когда народы сражаются / Wenn Volker streiten (1915) WEBRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69430.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр фильма определен как военный. Формально это так, но по сути фильм пацифистский. История проста. Анри Туссен из Франции и Фредерик Фабер из Германии - хорошие друзья. Тем более Анри влюблен в сестру Фредерика, Лизу. Но вот начинается война. Анри присоединяется к французской армии, а Фредерик добровольно вступает в немецкую армию. И теперь старые друзья - враги. (   Читать дальше...   )Производство: Германия / ApolloЖанр: короткометражный, военный, драма, немое киноРежиссер: Рино ЛюпоАктеры: нет сведенийПеревод: немой с интертитрамиСубтитры: голландские (интертитры), русскиеПродолжительность: 00:37:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C776E8BC91DB7F39C99F45C2D06ABE324399C730
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784978   (69429) от 14.03.2025
+
+Шрифты - Creative Market - Atega - Stylish Luxury Logo Font - 290828702 [OTF, TTF, WOFF, WOFF2]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69429.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представляем Atega, шрифт, воплощающий суть современной роскоши и вневременной элегантности.
+
+Кириллица не поддерживается.Формат: OTF, TTF, WOFF, WOFF2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCFBB66C19711950CB19E2426AF13C727F1FDA34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785017   (69428) от 14.03.2025
+
+Журнал | Дачный клуб №2 (167) (февраль 2025) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69428.jpg" />
+</div>
+
+
+###  Подробнее
+
+В журнале «Дачный клуб» собрана яркая и наглядная информация о том, как ухаживать за садом, огородом, цветником, раскрываются хитрости ландшафтного дизайна, даются оригинальные рецепты блюд из урожая. Уникальный опыт российских дачников, яркие иллюстрации, вопросы читателей, рекомендации специалистов.Жанр: Дом, сад, огород, дачаИздательство: ООО "Город Медиа Софт"Формат: PDFКачество: Необработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:181383798F5E1681B35DFCF914DA5AC697ECA6BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785071   (69426) от 14.03.2025
+
+Mancol - First Look (2024) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69426.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Space And Time (Extended Edit) (5:32)
+02. Oh My Lady (Long Edit) (7:26)
+03. Angel Of Love (Extended Edit) (5:46)
+04. Open Eyes (Extended Edit) (5:08)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:17:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E84D1C7977744D973ED1C6A71086C8657F80B1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785087   (69425) от 14.03.2025
+
+Девочка и слон (1969) DVDRip [H.264]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_69425.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мультипликационный фильм по мотивам рассказа Александра Ивановича Куприна о больной девочке, к которой по назначению врача привели настоящего живого слона из зверинца. После встречи и чаепития со слоном девочка выздоровела.Производство: СССР / СоюзмультфильмЖанр: Мультфильм, рисованный, короткометражный, детский, экранизацияРежиссер: Леонид АмальрикСубтитры: отсутствуютПродолжительность: 00:18:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64BFFBCA2BD1CDC127F253699FCF735EB1C1A7B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,235 @@
+###  Публикация: 1012919   (778395) от 02.05.2016
+
+Ping Machine - Easy Listening (2016) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778395.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kodama (10:01)
+02. Fevrier (17:30)
+03. Pong (9:18)
+04. Alors, Chut... (Live, Bonustrack) (13:04)Жанр: JazzПродолжительность: 00:49:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECCAB6EFECEB4087B6BBF1F392DF0A39D976E4E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012830   (778390) от 02.05.2016
+
+Jack McDuff - The Honeydripper (1961) Remaster, 2006, Prestige[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778390.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Whap! [04:27]
+ 02.I Want A Little Girl [06:48]
+ 03.The Honeydripper [08:15]
+ 04.Dink's Blues [08:00](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 00:37:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:788938C93DFE449CAA8C3786DB42C9082BA621BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210950   (778275) от 05.03.2018
+
+Billy Eckstine - Mr. B. and the Band: The Savoy Sessions (1945 - 1947) 1995, Savoy Records [FLAC|Lossless|image + .cue] <Vocal Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778275.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lonesome Lover Blues [02:46]
+02. A Cottage for Sale [02:15]
+03. I Love the Rhythm in a Riff [02:18]
+04. Last Night [02:59](   Читать дальше...   )Жанр: Vocal Jazz, Big BandПродолжительность: 01:18:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B116111826B8DBA8DE6889F959BB3F55D21C383E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210957   (778273) от 05.03.2018
+
+Terry Gibbs - A Jazz Band Ball, Second Set (1957) 1998, V.S.O.P. Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778273.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Dipsy Doodle [03:34]
+02. Where Or When [03:45]
+03. I'm Getting Sentimental Over You [04:02]
+04. Hollywood Blues [04:59](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:40:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F39B8D78837C089C3A8AF37084AC27D4796F2D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211007   (778270) от 05.03.2018
+
+Curtis Fuller - Smokin' (1972) 2017, Solid Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Smokin' [11:36]
+02. Jacque's Groove [06:17]
+03. Sop City [08:10]
+04. People, Places & Things [07:27](   Читать дальше...   )Жанр: Hard Bop, Jazz FusionПродолжительность: 00:41:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B3715C66D917DC192E3BC39A758F1297B081E59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210960   (778269) от 05.03.2018
+
+Curtis Fuller - Crankin' (1971) 2017, Solid Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778269.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crankin' [07:10]
+02. Maze [11:30]
+03. Black Bath [09:54]
+04. Ballade [05:08](   Читать дальше...   )Жанр: Hard Bop, Jazz FusionПродолжительность: 00:39:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1CBE8411C0D2E0CD19271D4A782DD6B24FB8D99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013235   (778004) от 03.05.2016
+
+Rein de Graaff Quintet - New York Jazz (1979) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778004.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Fifty Six [03:57]
+ 02.A Monk's Dream [10:08]
+ 03.Wail [03:27]
+ 04.Solar [05:49](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:36:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24575AD6D649FA87F42A65973235200802294518
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013196   (777998) от 03.05.2016
+
+VA - Jazz Olympics (2009) AMG Records[FLAC|Lossless|image + .cue] <Post-Bop, Big Band, Smooth Jazz, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Toots Thielemans - Best of Yourself [05:22]
+02.David Linx & Brussels Jazz Orchestra - Fraternity [05:02]
+03.Philip Catherine - Friendship [04:04]
+04.Nathalie Loriers Trio - Confidence [05:24](   Читать дальше...   )Жанр: Post-Bop, Big Band, Smooth Jazz, Vocal JazzПродолжительность: 00:45:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D48741503701EAB4470CB85304BF430E5FEFFBE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1012995   (777996) от 03.05.2016
 
 Bruno Muller - Inner Back Home (2016) [FLAC|Lossless|image + .cue] <Fusion>
@@ -513,238 +745,6 @@ John Coltrane featuring Pharoah Sanders - Live In Seattle (1965) 2011, Verve[FLA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EBD10D40883594C1236C6E9847BE8E402607B7F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013769   (777326) от 05.05.2016
-
-Late Night Union - Connections (2016) [MP3|320 кб/с] <Blues, Instrumental>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777326.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mountain
-02. Life On Hold
-03. Drinking
-04. Beautiful Eyes(   Читать дальше...   )Жанр: Blues, InstrumentalПродолжительность: 00:46:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66994179E991444C17C79480A0FF216A7D6394DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211635   (777286) от 08.03.2018
-
-Michel Donato - Maree Bass...e (1995) Label Bleu [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777286.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bleu sur le vif [03:31]
-02. Not Yet [06:22]
-03. Good Morning [05:06]
-04. Very Early [05:17](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:44:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2220F82861173742E67C1D76FD779DF83A207E8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211633   (777285) от 08.03.2018
-
-Brother Jack McDuff - Hot Barbeque & Live! (1963, 1965) 1993, BGP Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777285.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hot Barbeque [03:00]
-02. The Party's Over [06:53]
-03. Briar Patch [02:57]
-04. Hippy Dip [06:28](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 01:11:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:592A9BFBEA088E5938B5D2F61496AB59B863B662
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211645   (777284) от 08.03.2018
-
-Thomas Morris - 1923 - 1927 (1995) Classics [FLAC|Lossless|tracks + .cue] <Early Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777284.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. E Flat Blues No. 2 [03:15]
-02. Original Charleston Strut [02:50]
-03. Lonesome Journey Blues [02:53]
-04. When The Jazz Band Starts To Play [02:29](   Читать дальше...   )Жанр: Early Jazz, Big BandПродолжительность: 01:06:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFEF21C921FDEBE0CB076BAA58FCFF31B052E350
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211638   (777281) от 08.03.2018
-
-Jazz Orchestra Of The Concertgebouw (2000) RN Discs [FLAC|Lossless|image + .cue] <Big Band, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777281.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Upper Manhattan Medical Group (B. Strayhorn) [07:09]
-02. Rumbone (M. Mengelberg) [06:52]
-03. All The Things You Are (J. Kern) [06:43]
-04. Reach For The Rose (Toon Roos) [08:30](   Читать дальше...   )Жанр: Big Band, Mainstream JazzПродолжительность: 01:06:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77D69972B98BF94598B549474041BDDF7B7C80B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211648   (777240) от 08.03.2018
-
-Reloaded - My Longest Mile (2018) [MP3|320 Kbps] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777240.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bigger balls (02:53)
-02. Saturday night diva (03:51)
-03. My longest mile (05:58)
-04. Devil's kiss (03:06)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEB3E2325BAC9DA4D6D17196ED9E644B201B5EBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013991   (776970) от 06.05.2016
-
-Fred Hersch - Solo (2015) Palmetto Records[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776970.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Olha Maria - O Grande Amor [12:40]
- 02.Caravan [07:43]
- 03.Pastorale [08:51]
- 04.Whirl [07:58](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:00:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDA2651C64C823CE4E0F04C60DD3C2EFD9451AFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013980   (776967) от 06.05.2016
-
-Moacir Santos - Maestro (1972) Remaster, 2012, EMI Music[FLAC|Lossless|tracks + .cue] <Latin Jazz, World Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776967.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Monologue [01:04]
- 02.Nana [04:28]
- 03.Bluishmen [04:53]
- 04.Luanne [03:01](   Читать дальше...   )Жанр: Latin Jazz, World FusionПродолжительность: 00:36:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15325739E5AC39C6AF9AFC9AA84BF31EE6AD971F
 ```
 
 https://mybot314.ru/tekegram_catalog/

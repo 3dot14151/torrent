@@ -1,3 +1,32 @@
+###  Публикация: 1288699   (686470) от 16.03.2019
+
+VSOP - Vienna Symphonic Orchestra Project (1986) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686470.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Rock Me Amadeus / The Classic Touch
+02.	Kyrie
+03.	Brothers In Arms
+04.	St. Elmo´s Fire(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:47:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D6B40AB761E450F541AC3E363C7F8CD6574474A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1288923   (686469) от 16.03.2019
 
 VSOP (Vienna Symphonic Orchestra Project) - Classic & Rock - Die Neue Dimension (1988) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
@@ -735,35 +764,6 @@ Alex Vanderberg (Van Der Berg)  Orquestra - Music To Make Love (1991) [MP3|160 �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EEC3ACBD1B743FB8334BCE8674E719ED7618F0DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289569   (681977) от 18.03.2019
-
-James Last - Jahrhundert Melodien (1982) [FLAC|Lossless|image + .cue] <Pop, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681977.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La vie en rose
-02. Spanish Eyes
-03. Lili Marleen
-04. Überall blühen Rosen (L'important C'est La Rose)(   Читать дальше...   )Жанр: Pop, Easy ListeningПродолжительность: 00:47:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1165663E6D27AEA2DD574138A609AB9962CAD25
 ```
 
 https://mybot314.ru/tekegram_catalog/

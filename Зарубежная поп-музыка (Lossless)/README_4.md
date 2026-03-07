@@ -1,3 +1,119 @@
+###  Публикация: 1448036   (1031155) от 16.02.2021
+
+Boy George And Culture Club - Life (2018) [FLAC|Lossless|tracks + .cue] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. God & Love (04:13)
+02. Bad Blood (03:25)
+03. Human Zoo (03:21)
+04. Let Somebody Love You (03:45)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:43:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6A8C74B0118E2051662109B6C17F48229142E33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447995   (1031129) от 16.02.2021
+
+VA - Новорічні та Різдвяні пісні 2018 (Ukrainian Folk Songs) (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Folk>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Діля, Astarta, Edwin - Різдвяна (02:58)
+02. Наталка Карпа - Різдвяна ніч (02:53)
+03. Віктор Павлік - Добрий вечір тобі (03:36)
+04. Go-A, Katya Chilly - Щедрий вечір (03:03)(   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 01:04:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60DABD2B964BFC813B92D8DAC31382905A08E644
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621338   (1030970) от 25.03.2023
+
+Meg Myers - TZIA (2023) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Female Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030970.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. CHILDREN OF LIGHT II (3:45)
+02. A NEW SOCIETY (3:42)
+03. HTIS (feat. Luna Shadows & Carmen Vandenberg) (3:15)
+04. ME (2:41)(   Читать дальше...   )Жанр: Indie Pop, Female VocalПродолжительность: 00:50:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59F0381B76B9A8E3D3CE4DCE40B8D4ABC5D27816
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448368   (1030934) от 17.02.2021
+
+Helene Segara - Romance (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, French pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030934.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. L'amour est un soleil
+02. La vie avec toi
+03. Vivre
+04. Parlez moi de nous(   Читать дальше...   )Жанр: Pop, French popПродолжительность: 00:22:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7FB9B3F85386E8C0A0A3F302000366B62128DC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1448467   (1030930) от 17.02.2021
 
 Tindersticks - Distractions (2021) [FLAC|Lossless|tracks] <Pop Rock>
@@ -628,122 +744,6 @@ Umberto Tozzi – Seine Grossten Erfolge (1990) [FLAC|Lossless|tracks + .cue]<Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4EFDD15A3D9A7928B4EC0FFD63E493CA42D432D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455924   (1025429) от 20.03.2021
-
-Madonna - Bedtime Story (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bedtime Story (Edit)
-02. Bedtime Story (Junior's Wet Dream Mix)
-03. Bedtime Story (Junior's Dreamy Drum Dub)
-04. Survival(   Читать дальше...   )Жанр: PopПродолжительность: 01:40:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1BDD443A26A71C6E9C3F436D839DF9B540F0561
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456054   (1025293) от 21.03.2021
-
-Justin Bieber - Justice (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025293.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2 Much (2:33)
-02. Deserve You (3:07)
-03. As I Am (2:54)
-04. Off My Face (2:36)(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E40DE24B616C2610728496B89BB0301B4DEA0BEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456070   (1025292) от 21.03.2021
-
-VA - Classic Pop Covers (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025292.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Talisha Karrer - One (Acoustic) (04:05)
-02. Shannon & Keast - Love Story (Acoustic) (03:55)
-03. John Burnsby - I’m a Believer (Acoustic) (03:00)
-04. Karizma Duo - Everybody Wants to Rule the World (Acoustic) (02:30)(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05A3FA6253F4BDCA5586FEC69EC4D6FA16C050DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456584   (1024937) от 23.03.2021
-
-Stan Van Samang - Feel The Power (2021) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024937.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. River Of Life [00:03:01]
-02. Little Bits [00:06:05]
-03. Goodbye [00:09:43]
-04. This Is Not Our Time [00:05:50](   Читать дальше...   )Жанр: PopПродолжительность: 01:19:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B4B10F456952354089B53EF3E76D0F34D0DB80B
 ```
 
 https://mybot314.ru/tekegram_catalog/

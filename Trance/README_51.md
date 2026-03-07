@@ -1,3 +1,90 @@
+###  Публикация: 1516936   (164435) от 13.12.2021
+
+VA - FSOE 700 - Rise Up (Mixed by Fuenka & Paul Denton) (2021) [MP3|320 Kbps] <Trance, Progressive House>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_164435.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ANUQRAM - Brume (Extended Mix) (7:20)
+02. Juan Pablo Torrez, Gux Jimenez & Luli Diaz - Let Me Love You (Extended Mix) (7:44)
+03. Leghet - Ascenso (Extended Mix) (6:21)
+04. Paul Thomas, Fuenka & Schieber - Noir (Extended Mix) (6:12)(   Читать дальше...   )Жанр: Trance, Progressive HouseПродолжительность: 06:16:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:937490DAD0D0164C14AD174C63D6A61786682B70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516939   (164345) от 13.12.2021
+
+VA - Techno Club Vol. 64 (Mixed by Talla 2XLC, Alessandra Roncone & Madwave) (2021) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_164345.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Talla 2XLC & Clara Yates - Shadow Left Behind (Extended Mix) (6:19)
+02. Hemstock & Mercurial Virus - Tibira (Extended Mix) (6:11)
+03. Ruben De Ronde & That Girl - Lose Yourself (Jimmy Chou Extended Mix) (6:24)
+04. BiXX & Eryon Stocker - Petrichor Effect (Extended Mix) (7:29)(   Читать дальше...   )Жанр: TranceПродолжительность: 09:57:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:682D3C08FD4CDF3D67E7D7AC9D4EC5F36B9236C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598050   (164226) от 17.12.2022
+
+VA - The Best Of Suanda Dark 2022 [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_164226.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tonerush - Tyrant (Extended Mix) (5:38)
+02. Miroslav Vrlik & Dave Steward - Answers (Extended Mix) (5:58)
+03. Inrayzex - Asteroid (Extended Mix) (6:03)
+04. Christopher Corrigan - Stochastic (Extended Mix) (6:24)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:25:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1548AF5FBF32FBBC69544F9FE8A326F7A4B059D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1517438   (162917) от 15.12.2021
 
 VA - Black Hole Trance Music 12-21 (2021) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -656,93 +743,6 @@ VA - Rising Sun Wonders (2025) [MP3|320 Kbps] <Progressive House, Melodic House 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E93D9B1A714E9C23971B62F22B11CB8FE7531E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677460   (150536) от 18.11.2023
-
-VA - Black Hole Trance Music 11-23 (2023) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150536.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Emma Hewitt & Roman Messer - FALLEN (Extended Mix) [6:02]
-02. Christina Novelli & Sarah De Warren - Leaving Me (Extended Mix) [5:37]
-03. Richard Durand & D72 - Raise Yourself (Extended Mix) [5:43]
-04. Sam Allan & Sarah De Warren - Sunrise (Extended Mix) [4:37](   Читать дальше...   )Жанр: TranceПродолжительность: 02:41:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9400EE96110E597697B7C27ED9DC20A0B2AC740
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519546   (148535) от 24.12.2021
-
-VA - Vocal Trance 2022 (2021) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aurosonic Sarah Lynn - Onyx (4:05)
-02. Cathy Burton Omnia - Hearts Connected (Costa Remix) (3:40)
-03. Costa Jessie Lee Thetford - Distant World (3:30)
-04. Frainbreeze Shannon Hurley - Calling Your Name (3:45)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:09:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3D6EEF10D3F5840C7F304448121F0246BA03CAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271873   (147601) от 25.12.2018
-
-VA - Markus Schulz - Global DJ Broadcast Top 20: December (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147601.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Markus Schulz - The Awakening (Extended Mix)
-02. Johan Gielen - Sunshine State (Extended Mix)
-03. Moogwai - Viola (Driftmoon & Robert Nickson Present Astrosphere Extended Remix)
-04. Cosmic Gate & Jason Ross - Awaken (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:23:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F72476E98EE0E35BC43B6B3AF4C0AE8392B57D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

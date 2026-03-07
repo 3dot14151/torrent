@@ -1,3 +1,119 @@
+###  Публикация: 68682   (916839) от 15.03.2020
+
+Scatman John - Scatman's World (1995) [FLAC|Lossless|image + .cue] <Euro House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_916839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome To Scatland (0:51)
+02. Scatman's World (3:42)
+03. Only You (3:44)
+04. Quiet Desperation (3:54)(   Читать дальше...   )Жанр: Euro HouseПродолжительность: 00:48:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB42BCBDEEB53DD33490F6C9DEF1D26BF6DDFB28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 757583   (916153) от 17.02.2014
+
+Conforce - Kinetic Image (2013) Delsin [FLAC|Lossless]<Techno, Experimental>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_916153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Excess Mortality (06:19)
+ 02. Spatiotemporal (07:28)
+ 03. Temporary Reversals (07:09)
+ 04. Semantic Fields (05:03)(   Читать дальше...   )Жанр: Techno, ExperimentalПродолжительность: 01:03:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12F5AE66EFC36171275BC1D5B4828A4DE70FEE17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097248   (914987) от 26.01.2017
+
+Vitalic - Voyager (2017) [FLAC|Lossless|WEB-DL|tracks] <Electro House, Nu-Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_914987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. El Viaje
+02. Waiting For The Stars (Feat. David Shaw)
+03. Levitation
+04. Hans Is Driving (Feat. Miss Kittin)(   Читать дальше...   )Жанр: Electro House, Nu-DiscoПродолжительность: 00:41:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CA3914D231B456B983C8CEFD0ED20139B426AB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1491122   (914055) от 23.08.2021
+
+MMYYLO - Venamy (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Techno, Electro, Dark Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_914055.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Venamy (6:28)
+02. Inurhead (6:07)
+03. Emergencies (6:43)
+04. Venamy (Tronik Youth Remix) (5:59)(   Читать дальше...   )Жанр: Techno, Electro, Dark DiscoПродолжительность: 00:38:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3057932F8B29C4ABD6170333827930C0B273FA94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 990168   (913677) от 24.02.2016
 
 Modjo - Modjo (2001) Compilation, 2CD [FLAC|Lossless|tracks + .cue] <House, Disco>
@@ -611,119 +727,6 @@ HVL | Kaiji | Kiyadama - Discography 23 Releases (2013-2021) Rough House Rosie [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3FA8D8C64CB3D80EAA601044B4E580E679DCB58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 289686   (906872) от 07.02.2011
-
-VA - Космонавт и Спутники - Наверх (2010) [FLAC|Lossless]<Progressive House, Progressive Breaks>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906872.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Жанр: Progressive House, Progressive BreaksПродолжительность: 01:19:53
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991475   (906056) от 28.02.2016
-
-VA - Live In Montreal (Mixed By John Digweed) (2016) [FLAC|Lossless|WEB-DL|tracks|image] <Downtempo, Deep House, Tech House, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906056.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Continuous Dj Mix 1 (72:12)
-02. Continuous Dj Mix 2 (77:06)
-03. Continuous Dj Mix 3 (72:35)
-04. Continuous Dj Mix 4 (78:25)(   Читать дальше...   )Жанр: Downtempo, Deep House, Tech House, TechnoПродолжительность: 16:37:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C0A9B5E70A6AF1B1C464176CCD2AF356DDDC699
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991711   (905905) от 28.02.2016
-
-Scooter - Ace (2016) [FLAC|Lossless|image + .cue] <Techno, Hardstyle, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905905.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ace
-02. Oi
-03. Mary Got No Lamb
-04. Riot(   Читать дальше...   )Жанр: Techno, Hardstyle, DanceПродолжительность: 00:48:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A94C942E39AFBE3F25234D49F444FA232D9106E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991831   (904228) от 29.02.2016
-
-VA - Klubb House 2006 (2006) [FLAC|Lossless|tracks + .cue] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904228.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I.N.G. - Pussy Pussy (Dj E-Maxx remix) (4:16)
-02. Master Guys - Rocking (Original Club Mix) (6:46)
-03. Gambus & Alvard - Don't Fade (Club Cut) (3:54)
-04. Puncher - Dance Mf Club Extended (6:56)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:16:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72871E309313454A596EC5CA6E56A15924FA0028
 ```
 
 https://mybot314.ru/tekegram_catalog/

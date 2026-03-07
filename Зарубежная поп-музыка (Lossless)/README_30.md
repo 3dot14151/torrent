@@ -1,3 +1,116 @@
+###  Публикация: 1282409   (745313) от 12.02.2019
+
+Nelly Furtado - The Best Of Nelly Furtado (2010) Geffen Records [FLAC|Lossless|tracks + .cue] <Electronic, Pop, RnB, Latin>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Like A Bird (4:04)
+ 02. Turn Off The Light (4:36)
+ 03. Shit On The Radio (Remember The Days) (3:55)
+ 04. Fotografia (Duet with Juanes) (4:01)(   Читать дальше...   )Жанр: Electronic, Pop, RnB, LatinПродолжительность: 01:14:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7E2830D38029B2D85427AE890679B20A1B295DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282494   (745255) от 12.02.2019
+
+Demis Roussos - 20 Golden Hits (1995) Unofficial Release [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745255.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. From Souvenirs to Souvenirs
+02. Goodbye My Love Goodbye
+03. My Friend the Wind
+04. Rain and Tears(   Читать дальше...   )Жанр: PopПродолжительность: 01:10:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC6C92E0EE8F88D5033BFE004CC510540848BF3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 665484   (744215) от 06.06.2013
+
+Lenka - Shadows (2013) [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_744215.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:41:19
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282763   (743737) от 13.02.2019
+
+VA - Sanremo 2019: 69° Festival Della Canzone Italiana [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743737.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1:
+1. Loredana Bertè – Cosa Ti Aspetti Da Me (04:44)
+2. Ultimo – I Tuoi Particolari
+3. Patty Pravo & Briga – Un Pò Come Nella Vita (03:24)(   Читать дальше...   )Жанр: PopПродолжительность: 01:24:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7519C599B532E53EB0F4A616F566079B5F26A187
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1020928   (743708) от 27.05.2016
 
 Kristian Leontiou - Some Day Soon (2004) [FLAC|Lossless|tracks + .cue] <Pop>
@@ -630,120 +743,6 @@ Alekseev (Никита Алексеев) - 2 Альбома (2017 - 2019) [FLAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85ABAF18A145648F034AF33BD609E10E5E4D05A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 787181   (736673) от 17.05.2014
-
-VA - Pure... 60s (2012) Box Set, 4 CD [FLAC|Lossless]<Pop, Rock, Soft Rock, Pop-Roc>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736673.jpg" />
-</div>
-
-
-###  Подробнее
-
-Постепенно пополняется наша коллекция Pure... от Sony.
-Подоспели и 60-е годы. Этот щедрый набор с четырьмя дисками вобрал в себя почти 70 оригинальных записей хитов 60-х, включая песни Боба Дилана, Byrds, Элвиса Пресли и Джонни Кэша. Хотя, на мой взгляд, коллекция достаточно эклектичная, тем не менее, охватывая огромный пласт песен 60-х, она, бесспорно, даст представление (   Читать дальше...   )01. Bob Dylan - I Want You  (3:07)
-02. Van Morrison - Brown Eyed Girl  (3:03)
-03. Roy Orbison - Oh Pretty Woman  (2:58)
-04. Elvis Presley - Suspicious Minds  (4:34)(   Читать дальше...   )Жанр: Pop, Rock, Soft Rock, Pop-RocПродолжительность: 03:30:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D67AEC948C2DC63165A041FD5F3D995F3E054CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398138   (736657) от 24.07.2020
-
-Les Humphries Singers - Mexico (1972) 2011, Warner [FLAC|Lossless|tracks + .cue] <Soft Rock, Pop Rock, Gospel>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736657.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Old Time Religion - 3:19
-2. Malaika - 2:10
-3. Lovely Day - 3:24
-4. She's Really Something Else - 2:39(   Читать дальше...   )Жанр: Soft Rock, Pop Rock, GospelПродолжительность: 00:39:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28F95D0594EFE9AC16302BABB64FEAF16EF399CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527670   (736386) от 29.01.2022
-
-Secret Service - Jane (2022) Single [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736386.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. JaneЖанр: PopПродолжительность: 00:03:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17FF3E3C0578ED321C7466BDAC9ACC66CBB1CCAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527652   (735873) от 30.01.2022
-
-Cats on Trees - Neon (2019) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735873.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Keep on Dancing (3:17)
- 02. Lion (2:25)
- 03. If You Feel(3:07)
- 04. Mama Said (3:23)(   Читать дальше...   )Жанр: Indie Pop, Pop-RockПродолжительность: 00:57:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3ABC5FB0CA207DBFA484DB18FC7A8B567866ED7C
 ```
 
 https://mybot314.ru/tekegram_catalog/

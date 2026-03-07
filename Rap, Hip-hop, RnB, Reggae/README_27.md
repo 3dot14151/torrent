@@ -1,3 +1,90 @@
+###  Публикация: 1629139   (238283) от 26.04.2023
+
+Lloyd Banks - The Course of the Inevitable 3: Pieces of My Pain (2023) [MP3|192 Kbps] <Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_238283.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pieces of My Pain
+02. Onyx AMG
+03. Money Machine
+04. Cliffhanger(   Читать дальше...   )Жанр: Hip-HopПродолжительность: 00:53:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78B02CCB8721FCA99685FD3A09A4233E1BD2B10D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1460060   (235342) от 04.04.2021
+
+Sagath - Necrotica 2 (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_235342.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вторая часть (Intro) [02:04]
+02. Это мой крест [03:12]
+03. Существо [02:53]
+04. Ведьмин дом [03:31](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:42:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E009CC5E228AFF422365D23233ED1D6A3DBBC40C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459751   (235307) от 04.04.2021
+
+Kussani - жизнь наоборот (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_235307.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. огонь по своим [03:21]
+02. роскошное захолустье [02:49]
+03. вопрос наизнанку [02:34]
+04. сомнительный опыт [03:46](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:14:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB8E234166E17A6BC086036C8B3F9FA7BC7D6337
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1634186   (233523) от 19.05.2023
 
 25/17 - Двадцать лет на волне (2023) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -664,93 +751,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:813BB3BB4589F2A6BB254982495D5AA10630B22F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425239   (220837) от 21.11.2020
-
-Санчес - Продано. Часть 3. Возрождение (2020) [MP3|320 Kbps] <Hip-Hop, Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220837.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Неизбежность (Вступление) [00:27]
-02. 220 км (feat. ПИТ Б.О.Р.З. & Виктор) [03:03]
-03. Возрождение (feat. Ramzan/view Point, VA84 & Понка) [03:23]
-04. Я знаю... (feat. Крис & Кислый/МанифестЪ) [06:10](   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 01:08:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F523D95DE2CE112351E5D534BC908BB879BF5936
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269717   (219860) от 15.12.2018
-
-Denzel Curry - Ta13oo (2018) [FLAC|Lossless|tracks + .cue] <Hip-Hop, Trap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219860.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Taboo | Ta13oo (3:17)
-02. Black Balloons | 13lack 13alloonz (feat. GoldLink | GoldL1nk & Twelve'len | Twelve'len) (3:30)
-03. Cash Maniac | Cazh Man1ac (feat. Nyyjerya | Nyyjerya) (3:18)
-04. Sumo | Zumo (3:45)(   Читать дальше...   )Производство: Loma Vista – LVR00243Жанр: Hip-Hop, TrapПродолжительность: 00:43:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F960229D0008D7FF7EC1EF50683E1A964B348379
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343278   (219672) от 05.12.2019
-
-Anacondaz - Мои дети не будут скучать (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219672.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Мои дети не будут скучать
-2. Пусть они умрут (feat. Noize MC)
-3. Все хорошо (feat. Inice)
-4. Гуд-трип(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:28:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4153DBBB200C5BD29F672F768D468A590E70DD4D
 ```
 
 https://mybot314.ru/tekegram_catalog/

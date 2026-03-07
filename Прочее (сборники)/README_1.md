@@ -1,3 +1,206 @@
+###  Публикация: 1845086   (1050785) от 02.01.2026
+
+Ai - No name compilation part 36 Slow Pop Rock Ballad (2025) [MP3|320 Kbps] <Slow Pop Rock Ballad, Soulful Female Vocal, Soul Fusion, Ai>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050785.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - If I Knew How to Hold You
+02 - While I Was Still Yours
+03 - We Chose to Stay Burning
+04 - Don’t Say You’re Sorry Now(   Читать дальше...   )Жанр: Slow Pop Rock Ballad, Soulful Female Vocal, Soul Fusion, AiПродолжительность: 01:24:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55EBC9ED2E2734DE9BF0B357853706520B272F37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1844460   (1050426) от 28.12.2025
+
+AI - Russian Covers Part 3 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050426.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Я Замерзаю (Nada - San Remo 1969)
+02 - Падам Падам   (Русский Кавер)
+03 - The Last of Us Take on Me (Русский Кавер)
+04 - Песня О Погоде(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 00:22:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1ACF12F338525BEEB239283734B7F32B1372395B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1844725   (1050420) от 28.12.2025
+
+Richard Marx - Collection от ALEXnROCK (2025) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050420.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда то, в середине 90х, когда я был юн и беспечен, у меня была девушка — первая настоящая любовь. Она была значительно старше и мудрее меня. Ей очень нравилось творчество Richard Marx. У неё дома был проигрыватель ВЕГА 109 и пласты с альбомами Repeat Offender 1989 года и Rush Street 1991. И по прошествии лет, есть что вспомнить под эту музыку. Очень красивая и (   Читать дальше...   )001. Should've Known Better
+002. Don't Mean Nothing
+003. Endless Summer Nights
+004. Lonely Heart(   Читать дальше...   )Жанр: RockПродолжительность: 08:59:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:216FFD40B1BA273BFD8180D889C72145FDF5AC85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1844855   (1050415) от 28.12.2025
+
+VA - No name compilation part 34 Electronic, Vocal, Other, Ai (2025) [MP3|320 Kbps] <Electronic, Vocal, Other, Ai>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Smtve - I Have Everything Now Except
+02 - Riltim - Retona
+03 - Smtve - Let You Down
+04 - Smtve - Heart is Gone(   Читать дальше...   )Жанр: Electronic, Vocal, Other, AiПродолжительность: 00:35:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F147EB64E9995505E1DF7C410220E4C069C0683
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1844857   (1050414) от 28.12.2025
+
+VA - No name compilation part 35 Electronic, Vocal, Other (2025) [MP3|320 Kbps] <Electronic, Vocal, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050414.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Sergey Chekalin - New Year's Greetings for 2026!!!
+02 - Bad Boys Blue & Jk Sax - You're Woman (Saxophone Remix)
+03 - Smtve - Send My Love
+04 - Dj Calma - December(   Читать дальше...   )Жанр: Electronic, Vocal, OtherПродолжительность: 01:02:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A2EF3A81B2CA950D39FE3D6FF05B5C639EBAE6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1844326   (1050411) от 28.12.2025
+
+VA - No name compilation part 33 Electronic Deep Chill House Other (2025) [MP3|320 Kbps] <Electronic Deep Chill House Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050411.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Stive Morgan - On Thin Ice
+02 - Sardø - Corazón Sin Fronteras
+03 - Reteox - Faded Years
+04 - Echønova - Forgive Me(   Читать дальше...   )Жанр: Electronic Deep Chill House OtherПродолжительность: 00:56:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F00658652469EA6E355AFD5DB39DA6A68470CCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1844729   (1050242) от 27.12.2025
+
+VA - ЕвроХит Топ 40 Europa Plus 26.12.2025 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. RAYE - WHERE IS MY HUSBAND! (3:16)
+02. Sabrina Carpenter - Tears (2:40)
+02. sombr - 12 to 12 (4:03)
+04. Ravyn Lenae - Love Me Not (3:33)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE4321B881A160A1291079E75031225E15E5BD02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1844360   (1049992) от 26.12.2025
 
 Chris Rea - This is Chris Rea (2025) [MP3|320 Kbps] <Blues, Rock, Pop>
@@ -542,209 +745,6 @@ VA - National Pop Dance Music Vol.125 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:844CF3F451F7DC66793C31D9209794E50DFBAF2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839687   (1046866) от 30.11.2025
-
-VA - National Pop Dance Music Vol.126 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046866.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Tomorrow - Love Language (02:58)
- 002. Ulker Gulumser - Bize Ne Oldu Boyle (02:50)
- 003. Tim Campbell - Strange (03:20)
- 004. Auzaye - Tears Hes Going To Hold (03:00)(   Читать дальше...   )Жанр: Pop, Folk, DanceПродолжительность: 12:57:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B22F13AD8C61004B1BD362B4AA8882F640CEAE1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839694   (1046851) от 30.11.2025
-
-VA - Winter Dance Floor Show (2025) [MP3|320 Kbps] <Pop, Rock, Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046851.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sheppard - Good Time (02:53)
- 002. Fletcher - Good Girl (03:20)
- 003. Walk Alone - My Empty Soul (02:08)
- 004. Dhektron - Drift Away (03:40)(   Читать дальше...   )Жанр: Pop, Rock, DiscoПродолжительность: 12:03:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35DD323EFCFCC1E3C67BEF934014565C272D9230
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839700   (1046849) от 30.11.2025
-
-VA - Neon Heartbeats (2025) [MP3|320 Kbps] <Synthpop, Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046849.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Fever Ray - I'm Not Done (04:40)
- 002. Tiscore - Nur Der Rave (02:32)
- 003. Mari Kattman - Typical Girl (03:43)
- 004. Aureon - Mirrorphase (03:47)(   Читать дальше...   )Жанр: Synthpop, Pop, DanceПродолжительность: 10:17:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D658C0E7E80FD27D1EEE186E09472648234E63DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839724   (1046821) от 30.11.2025
-
-Elise - Favorites Collection (2025) [MP3|320 Kbps] <Vocal, Easy listening, AI>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Reste Près De Moi
- 02 - Disparu
- 03 - Larmes Et Lumières
- 04 - Là-Bas(   Читать дальше...   )Жанр: Vocal, Easy listening, French Deep House, AIПродолжительность: 01:07:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D69C3BD190D3E928334E2A0AB8ADD72E6AA72E72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839721   (1046819) от 30.11.2025
-
-VA - Erotic Lounge Collection Part 3 (2025) [MP3|320 Kbps] <Vocal, Easy listening, AI>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046819.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Aria Black - Still Here in the Quiet
-02 - L’amour Fané - Sous Ma Peau
-03 - Aria Black - Two Fires, One Heart
-04 - L’amour Fané - Si Tu Vis Mieux Sans Moi(   Читать дальше...   )Жанр: Vocal, Easy listening, AIПродолжительность: 00:23:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA3D2FDFBF9E80EB32EF0CFE5D6F03EAE4129AAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839842   (1046746) от 01.12.2025
-
-VA - Pop Radiomania (2025) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046746.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dj Lion's - 1M80 Minimum (02:58)
- 002. Niexshadow - All I Got Was Goodbye (02:21)
- 003. Kimbai - Contre Moi (02:38)
- 004. Ren Avisse - Hot Tea (02:52)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 11:45:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6F3B91085863E96BD3BFA98431328602F475757
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839600   (1046719) от 29.11.2025
-
-VA - ЕвроХит Топ 40 Europa Plus 28.11.2025 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046719.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. HUNTRX, EJAE, AUDREY NUNA, Rei Ami, KPop Demon Hunters Cast - Golden (3:14)
-02. Ravyn Lenae - Love Me Not (3:33)
-03. Sombr - 12 to 12 (4:03)
-04. Sabrina Carpenter - Tears (2:40)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:59:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB21FB8104F840561A8184670FACCC9A84F0D1E4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1062009   (443890) от 12.10.2016
+
+Проекты - VideoHive - Modern Opener - 17241697 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_443890.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания слайдшоу. Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84722265C825D9B99F0AEE15BC3A0EA74CD87CCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1062203   (443763) от 12.10.2016
 
 Проекты - Проект ProShow Producer - Autumn [PSH]
@@ -653,32 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7BDC582B2D765D866A206114659D0649415F9428
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164844   (436452) от 11.09.2017
-
-Проекты - VideoHive - Superhero Opener - 20254989 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436452.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания эпического интро в стиле комиксов.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39FF642B29666CDB560029DD7195382DFCB03B54
 ```
 
 https://mybot314.ru/tekegram_catalog/

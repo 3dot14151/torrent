@@ -1,3 +1,308 @@
+###  Публикация: 1178556   (355777) от 28.10.2017
+
+VA - По волне моей памяти Том 19 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Ретро, Советская эстрада>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_355777.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Алла Пугачёва - Паромщик 3:40
+02.  Владимир Маркин - Сиреневый туман 3:33
+03.  Максим Леонидов - Не дай ему уйти 3:12
+04.  Юрий Антонов - Зеркало 3:44(   Читать дальше...   )Жанр: Поп, Ретро, Советская эстрадаПродолжительность: 02:16:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4127E42D480F2F3F5451843E3706394F599A5458
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1178366   (355776) от 28.10.2017
+
+VA - По волне моей памяти: Том 18 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Ретро, Советская эстрада>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_355776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Игорь Саруханов - Лодочка 4:30
+02.  Владимир Маркин - Колокола 4:14
+03.  Юрий Антонов - Я не жалею ни о чем 3:59
+04.  Таня Буланова - Колыбельная 4:00(   Читать дальше...   )Жанр: Поп, Ретро, Советская эстрадаПродолжительность: 02:23:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58F9480B31116D7C56BCE898B898DD2B518E92D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 952425   (355723) от 01.11.2015
+
+VA - За рулем по дороге домой время Шансона (2015) [MP3|256 кб/с]<Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_355723.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Даниил Сорокин - Береги Ее
+02. Игорь Мешкой - Украду Тебя
+03. Анатолий Корж - Славянки
+04. Алексей Плотников - Давай, гульнем с тобою до утра(   Читать дальше...   )Жанр: ШансонПродолжительность: 05:59:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A5A7F0BFF32D37236669E7A7F39787152FE9BA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 952284   (355457) от 01.11.2015
+
+Seryoga (Серёга) - FightClub99 (2015) [MP3|320 кб/с]<Rap, Hip-hop>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_355457.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 50 Оттенков Серого (03:32)
+02. Killing Me Softly (04:13)
+03. Боржоми (03:17)
+04. В теме (03:41)(   Читать дальше...   )Жанр: Rap, Hip-hopПродолжительность: 00:35:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1572D08D042DA70C001E6885756513906E9A0346
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 543677   (355271) от 20.11.2012
+
+VA - Hip Guide... (2012) [MP3|320 кб/с]<Lounge, Chill Out, Downtempo>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_355271.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Watch It Wash Over — DJ Ideal
+02. Eight Way Path — Gateway
+03. Under Darkness — Xed
+04. Only the Truth — Lee Masters
+05. Terminus Nord — Thomas Le Head
+06. Mind Games — Jon Rushi
+07. Enlightenment — Navigator
+08. My Willing Embrace — Mae Hong
+09. Po Sang Long — Showtime MCs
+10. In Time We Grow — Monica Alvern(   Читать дальше...   )01. Wahid Yom - Akram Mahboub
+02. Marhaba Ab - Amir DJ
+03. Ismi Fantastic - Zaki D
+04. Ithnan Wadi - Anwar Murad
+05. Jameel Arouosa - Baba Elektronik
+06. Akht Samah - DJ Fantastic & The Hakim Allstars
+07. Shukran - Golden Project
+08. Qamar Hafla - Kamal & Fadil
+09. Sseif Kittar - Nasim Ral
+10. Salam - Cheb Bin Hassan(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:34:13
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1178561   (355124) от 28.10.2017
+
+VA - Deep House Desire Vol.2 (2017) [MP3|320 Kbps] <Deep House, Nu Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_355124.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ariana Grande - Into You
+02. Pyperb - Waiting For A Girl (Original Mix)
+03. Iceleak feat. Karl Michael - Don't Leave Me (Extended Mix)
+04. Gosha, DJ Aristocrat - French Kiss(   Читать дальше...   )Жанр: Deep House, Nu DiscoПродолжительность: 08:07:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:741F0A17D6796C55E67F1899D16DA0F75BFA3CC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072248   (355019) от 12.11.2016
+
+VA - Deep Temptation: House Party (2016) [MP3|320 Kbps] <House, Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_355019.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dominique Dalamont - Summer Night (Summertime Mix) 5:31
+002. Jon Cage - On Top Of The World 3:14
+003. Tommie Woods - House Organ 5:21
+004. Deep Night Beats - Night Beats (Deep Loop Mix) 5:23(   Читать дальше...   )Жанр: House, Deep House, ElectroПродолжительность: 10:52:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86079397B917B619FD675AF5FDF94F235B9ADB26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 952420   (354913) от 01.11.2015
+
+VA - The Best Dance Hits Of 90's-3 (2015) [MP3|320 кб/с]<Pop, Eurodance, House,Techno, Trance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_354913.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Heath Hunter-Revolution In Paradise 3:29
+002 No Mercy-Missing 3:59
+003 Carrapicho-Tic Tic Tac 3:35
+004 Culture Beat-Got To Get It 5:21(   Читать дальше...   )Жанр: Pop, Eurodance, House,Techno, TranceПродолжительность: 16:54:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CAE1231B4BE28895BA1568413926FAAA2EE6FFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072224   (354877) от 12.11.2016
+
+VA - The Best - In Music We Trust  Vol.11 (2016) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_354877.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bart Claessen - Fonky Flanger (Original Mix) 4:54
+02. Calvin Harris & Florence Welch ft. Sini - Sweet Jack (Herbee Mashup) 3:28
+03. ATB - Flash X (James Egbert Remix) 4:41
+04. Rimsky - Korolev (Extended Mix) 4:30(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 06:04:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:962A640A10EE716F45DAFB97BB23B194FF9EF842
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072004   (354784) от 12.11.2016
+
+VA - Zwei Tage Dubstep: Chart DE (2016) [MP3|320 Kbps] <Dubstep, Drumm And Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_354784.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Technimatic - Leave It Unsaid
+002. Monty - Breath In the Frequencies
+003. 3D Stas - 404 Keeps Me Alive
+004. 1.8.7. Deathstep - Cataclysm(   Читать дальше...   )Жанр: Dubstep, Drumm And BassПродолжительность: 14:39:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAB9981D62873FD1A204514FFA5226A4DACA701D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1072165   (354693) от 12.11.2016
 
 VA - Regular Spectr Electronic Top 100 (2016) [MP3|320 Kbps] <House, Future House, Stadium Trance, Bigroom, Club, Dance>
@@ -461,292 +766,6 @@ VA - Музыка в дорогу: Приятного полёта (2019) [MP3|3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EDDA12DE09D4D205A76D42726E441D9A43594098
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256536   (353868) от 22.10.2018
-
-VA - Parametric Tech House (2018) [MP3|320 Kbps] <Tech House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353868.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Big Bunny - Astonishing
-002. Adicted - Dream Machine (Original Mix)
-003. Waganetka - Of Millions
-004. Terranova - Underverse(   Читать дальше...   )Жанр: Tech House, ElectroПродолжительность: 11:02:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC539D5CEF855E939A226D8A62D9E2D1730C67EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256406   (353713) от 22.10.2018
-
-Александр Галич - Галичу-100 лет. Мои самые любимые песни (2CD) (Бутлег) (2018) Self-made Records [MP3|320 Kbps] <Авторская песня>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353713.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-История о том, как Клим Петрович выступал на митинге в защиту мира (03:32)
-02-История о том, как Клим Петрович, укачивая своего племянника, Клавкиного сына Семёна, неожиданно для самого себя сочинил научно-фантастический рассказ (02:09)
-03-История о том, как Клим Петрович добивался, чтоб его цеху присвоили звание «Цеха коммунистического труда», и, не добившись (   Читать дальше...   )Жанр: Авторская песняПродолжительность: 02:02:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0C46EF31E5F4964DDBDCB6154A397DE9173FCD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1178643   (353707) от 29.10.2017
-
-VA - Record Super Chart #509 (2017) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353707.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  CamelPhat & Elderbrook - Cola (Denis First Remix) 2:30
-02.  Malaa - Notorious 3:58
-03.  Mari Ferrari feat. Miss Mary - Maria Maria 3:31
-04.  Hardwell & KSHMR - Power 4:33(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:55:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D69C2946CC0FF47069796E3C87FB363DE06404A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1178715   (353689) от 29.10.2017
-
-VA - По волне моей памяти: Том 21 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Ретро, Советская эстрада>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353689.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Дмитрий Маликов - До завтра 3:52
-02.  Женя Белоусов - Девчонка-девчоночка 4:50
-03.  Юрий Антонов - Долгожданный самолёт 5:05
-04.  Таня Буланова - Синее море 3:44(   Читать дальше...   )Жанр: Поп, Ретро, Советская эстрадаПродолжительность: 02:30:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01A5313893F89172CEB1CCA1141213C63BB67FA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417625   (353671) от 22.10.2020
-
-VA - EDC Funky House (2020) [MP3|320 Kbps] <Disco, Funky House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353671.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 1950 - Sushi Slide
-002. Softmal & Llolita - Dance Machine (Original Mix)
-003. Daniel Steinberg - Why Do You Hate Me
-004. Llolita - Say Say (Extended Mix)(   Читать дальше...   )Жанр: Disco, Funky HouseПродолжительность: 08:38:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBB9F421724EF809A996DD63EB162AE29D54638C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952687   (353666) от 02.11.2015
-
-VA - Winter Xmas Deluxe Holiday Edition Smooth Lounge and selected Chillout Cafe Moods (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353666.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. St. Anna of Bavaria - Holy Christmas Bells - German Christmas Market Romantic Mix
-02. Water on Mars - Biscaya - Realaxing Beach Moments remix
-03. Esteban Nouve - Cookies and Cream - Xmas Pearl Cafe House Mix
-04. Grag the Crack - Cool Down Moment - Pilates vs. Yoga Buddha Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:55:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6417C809A7FF89A2165B89B1437CC11FC2910D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952890   (353665) от 02.11.2015
-
-VA - Deep Chill Vol 1 Finest In Ambient Chill Out and Lounge for Best Relaxation (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353665.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soul Diver - Deeper than Deep - Pure Chill Mix
-02. Coastline - Adriatic Sea - DJ Lounge Del Mar vs. Milews Ambience Mix
-03. Lullaby Lounge - Chill De La Mer - Blank Guitar Cafe Relax Mix
-04. Terrace Chillerz - Breathing - Ibiza Beachclub Vocal Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:09:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB4647E808D333EEC5A856F7D2689AA71DAC13D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952754   (353663) от 02.11.2015
-
-VA - Autumn Hits Vol.2 (2015) [MP3|320 кб/с]<Club, Dance, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353663.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Francis Mercier, 1waytkt feat. Cassandra Kubinski - Oceans Away (Original Mix) (03:50)
-02. DJ Dnk - Sunday Morning (Radio Edit) (02:59)
-03. Hailee Steinfeld - Love myself (Kue remix) (06:13)
-04. Iio - Rapture (Different Guys & Dima Flash 2k15 Remix) (05:14)(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 06:23:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA898533C1BBBEF6B7B2AD9F6999F70100995F8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256584   (353571) от 22.10.2018
-
-Tears for Fears - Shout (2017) Remix [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353571.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Shout ★ DJ SAVIN Remix ★ Radio VersionЖанр: Deep HouseПродолжительность: 00:03:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7E093320320B51C6391CA314CEAA2966A131F98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256506   (353569) от 22.10.2018
-
-VA - Club Dance Ambience Vol.166 (2018) [MP3|320 Kbps] <Dance, Club, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353569.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. AC_DC - Highway to Hell (Deni Knight Remix)
-002. Adri Block & Kiki Doll - We Are The Party People (Block & Crown Club Mix)
-003. Agemlo - You Dont Know (Arefiev Remix)
-004. Alakin Kirill  - Hammer  (Original mix)(   Читать дальше...   )Жанр: Dance, Club, HouseПродолжительность: 07:44:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA6FB9F88E8529655530BBF3BA7DDFAB2D9C2277
 ```
 
 https://mybot314.ru/tekegram_catalog/

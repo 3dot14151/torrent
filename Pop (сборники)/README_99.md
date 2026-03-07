@@ -1,3 +1,61 @@
+###  Публикация: 1182857   (312074) от 12.11.2017
+
+VA - Unknown 80's (part IX) (2017) [MP3|320 Kbps] <Electronic Pop Rock, Synthpop, New Wave>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_312074.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frozen Ghost - Beware The Masque - 1987
+02. Peter Murphy - Cuts You Up - 1989
+03. The Pursuit Of Happiness - I'm An Adult Now - 1988
+04. Noiseworks - Love Somebody - 1987(   Читать дальше...   )Жанр: Electronic Pop Rock, Synthpop, New WaveПродолжительность: 01:27:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A7E1F1F53460AC4BF2F2A34ECC64E5702B9A777
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1076506   (312043) от 26.11.2016
+
+VA - German Top 50 Official Dance Charts 25.11. (2016) [MP3|256 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_312043.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.David Guetta, Chris Willis & Cedric Gervais - Would I Lie To You 3:18
+02.Calvin Harris - My Way 3:39
+03.Bob Sinclar & Daddy's Groove - Burning 2:51
+04.Galantis & Hook N Sling - Love On Me 3:26(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:02:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A1A91A609D41B43866E782DA90EFD9D351552A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1076491   (312027) от 26.11.2016
 
 VA - Любимая волна на Europa Plus 10 (2016) [MP3|256 Kbps] <Pop>
@@ -687,64 +745,6 @@ VA - Exotic Of Disco: The Best Of Summer (2019) [MP3|320 Kbps] <Disco, Eurodisco
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18AE5CB5AFB4B4D4323AB1DCF893D21DDAD1E8E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261539   (303101) от 11.11.2018
-
-VA - MuviDance Russian Party Vol.2 (2018) [MP3|320 Kbps] <Dance, Disco, Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303101.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Русский Размер - Было и прошло (04:49)
-02. Александр Каштанов - Нет не верю я (03:22)
-03. Анжела Бабич - Свет в окне (Remix) (04:04)
-04. Вояж - Ты для него (уже не значишь ничего) (04:20)(   Читать дальше...   )Жанр: Dance, Euro House, Disco, PopПродолжительность: 01:20:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2071B15003EA8F22EB0E9B71AD388D33D5C06B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333445   (302579) от 25.10.2019
-
-VA - Club Night Rider (2019) [MP3|320 Kbps] <Dance, Pop, Electro, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302579.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bob Sinclar - Love Is The Answer
-002. Iag & Omoc - True Lie
-003. Alec Fury - Masterpiece Of Deception
-004. Fungist - Hello(   Читать дальше...   )Жанр: Dance, Pop, Electro, DiscoПродолжительность: 12:35:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9D45B40B691055668A64B02AE54C0A28542D936
 ```
 
 https://mybot314.ru/tekegram_catalog/

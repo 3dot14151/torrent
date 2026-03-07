@@ -1,3 +1,116 @@
+###  Публикация: 1664206   (185972) от 25.09.2023
+
+Helena Hauff - fabric presents Helena Hauff (Mixed) (2023) [FLAC|Lossless|WEB-DL|tracks] <Electro, Techno, Industrial, House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_185972.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turn Your Sights Inward (Mixed) [00:02:36]
+02. Sunken Park (Mixed) [00:04:02]
+03. Data Transfer (Mixed) [00:05:09]
+04. Machine Conflict (Mixed) [00:03:59](   Читать дальше...   )Жанр: Electro, Techno, Industrial, HouseПродолжительность: 01:17:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2134F425FF7BA0EFF9DC42D58E7119880EC541A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664478   (185448) от 26.09.2023
+
+Autograf - Affirmations (2023) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <House, Progressive House, Melodic House & Techno, Dance, Electronic>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_185448.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: House, Progressive House, Melodic House & Techno, Dance, ElectronicПродолжительность: 2 CD, 01:35:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4673D521FABA45DDB62C24BBF066AF715BAD6A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1663898   (184472) от 27.09.2023
+
+David Guetta - 7 (2018) 3CD, Anniversary Edition, 2023, Parlophone UK [FLAC|Lossless|WEB-DL|tracks] <Synth-pop, Deep House, Reggaeton>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_184472.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+CD-01
+CD-02
+CD-03Жанр: Dance-pop, Electro House, Tropical House, House, Chiptune, Electro, Synth-pop, Deep House, Reggaeton, Trap, Tech House, Deep TechnoПродолжительность: 3CD, 02:10:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66808E80BB056D655B777B9AB027A616A25D1C23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1592028   (184361) от 21.11.2022
+
+Paul Sabin - STALK 2 (ORIGINAL SERIES SOUNDTRACK) (2021) [FLAC|Lossless|tracks] <Techno, Deep Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_184361.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Open 03:41
+02. The White Duke 06:52
+03. Dump 04:45
+04. Free Party 05:30(   Читать дальше...   )Жанр: Techno, Deep TechnoПродолжительность: 01:08:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82886C5E1C6C1E3BBF3DB1DD50E54198273038F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1592244   (184333) от 21.11.2022
 
 Purple Disco Machine - Club Exotica (2021) [FLAC|Lossless|WEB-DL|tracks] <EDM, Nu Disco, Club House>
@@ -615,119 +728,6 @@ Leama & Moor - Distance Between Us (2006) Single [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE4FA3C58809532FBDE26F492D96EB0A79A015AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516274   (166961) от 10.12.2021
-
-Gui Boratto - Pentagram (2018) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Techno, Minimal, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Walker (3:10)
- 02. The Black Bookshelf (3:43)
- 03. Overload (feat Luciana Villanova) (5:08)
- 04. Forgotten (3:54)(   Читать дальше...   )Жанр: Tech House, Techno, Minimal, AmbientПродолжительность: 00:57:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:511386E27D28934D9BBA23799C784A61D6D08349
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516192   (166845) от 10.12.2021
-
-VA - Armada Music 2022 (2021) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166845.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tinlicker, Helsloot - Because You Move Me (03:16)
-02. Kidnap, Leo Stannard - Moments (Ben Bohmer & Nils Hoffmann Remix) (04:10)
-03. Loud Luxury, Thutmose - Red Handed (02:51)
-04. Armin van Buuren, Davina Michelle - Hold On (03:28)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 03:22:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2B7585A722C47AE20EF12D115AAAC600103635D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597402   (166683) от 14.12.2022
-
-VA - Anjunadeep The Remixes 2022 (2022) Mixed [FLAC|Lossless|WEB-DL|tracks] <Melodic House & Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166683.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  OLAN -  Wake And Return (Little Dragon Remix Mixed)  (5:10)
-02.  Lakou Mizik, Joseph Ray -  Ogou (Pran Ka Mwen) (Martin Roth Remix Mixed)  (4:16)
-03.  Marsh, Sun Ra -  Another Planet (LeSonic Remix Mixed)  (5:15)
-04.  Luttrell -  More Than Human (Antic Remix Mixed)  (4:39)(   Читать дальше...   )Жанр: Melodic House & TechnoПродолжительность: 01:41:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44A831B79CA90A4C871AB96C99F7CA98D16B6681
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671497   (166142) от 31.10.2023
-
-Miss Jane feat. Miichii - It's A Fine Day (2023) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166142.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 It's A Fine Day (2023 original mix) (6:59)Жанр: Deep House, Progressive HouseПродолжительность: 00:06:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16E020D298B9AAB3114086B4A0C01802BEF7448B
 ```
 
 https://mybot314.ru/tekegram_catalog/

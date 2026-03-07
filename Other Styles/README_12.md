@@ -1,3 +1,32 @@
+###  Публикация: 1357457   (974336) от 03.02.2020
+
+VA - Mystic Spirits vol. 3, 2CD (2001) [FLAC|Lossless|image + .cue] <Folk, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_974336.jpg" />
+</div>
+
+
+###  Подробнее
+
+2-1 –Delerium Silence (Album Version - Edit) 4:07
+2-2 –Oliver Shanti & Friends Sacral Nirvana (Radio Edit) 5:55
+2-3 –Steve McDonald Soldier's Lament 4:54
+2-4 –Rednex The Spirit Of The Hawk (F.A.F. Radio Mix) 4:02(   Читать дальше...   )Жанр: Folk, AmbientПродолжительность: 02:32:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57FD464C36681C1CBF217544BE2A5FFFD89BC4C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 616844   (973413) от 11.02.2013
 
 VA - Песни нашего кино. Коллекция от Ридерз Дайджест (5CD) (2011) [MP3|320 кб/с]<поп>
@@ -724,35 +753,6 @@ VA - Birds of Prey / Хищные птицы (Потрясающая истор�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:311378A72E690E63E71DF6D75707451E779CD6A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 663203   (968921) от 13.01.2014
-
-Московская оперетта - Граф Орлов (2013) [MP3|192 кб/с]<Мюзикл>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968921.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Увертюра (Оркестр)
-02 - Ливорно (Андрей Белявский, Александр Маракулин, Сергей Ли)
-03 - Красотка (Александр Постоленко)
-04 - Чужая страна (Андрей Белявский)(   Читать дальше...   )Жанр: МюзиклПродолжительность: 01:43:06
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

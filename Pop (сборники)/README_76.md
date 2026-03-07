@@ -1,3 +1,61 @@
+###  Публикация: 1404201   (494707) от 24.08.2020
+
+Сборник - Вспоминая СССР. Любимые песни 4 (1980-1989) MP3 от DON Music, 2020 [MP3|320 Kbps] <Ретро>
+
+>>След.
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_494707.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Машина времени - Поворот (1980)
+002. Алла Пугачева - Звездное лето (1980)
+003. Тынис Мяги - Олимпиада-80 (1980)
+004. Верасы - Белый парус (1980)(   Читать дальше...   )Жанр: РетроПродолжительность: 56:35:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAB3DED570B79D540F3B83C9233463C6CA7E69F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243368   (494103) от 26.08.2018
+
+VA - Dance Club 2018.03 (2018) [MP3|320 Kbps] <Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_494103.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. El Profesor - Bella Ciao (Hugel Remix) (2:45)
+02. Axwell /\ Ingrosso, ROMANS, Axel Hedfors, Sebastian Ingrosso - Dancing Alone (4:13)
+03. Jonas Blue, Jack & Jack - Rise (3:12)
+04. Kygo, Imagine Dragons - Born To Be Yours (3:13)(   Читать дальше...   )Жанр: DanceПродолжительность: 01:57:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2773E574E016F92C797C15531693622D57F37600
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1158284   (493318) от 15.08.2017
 
 VA - 200 Хитов Солнечного Лета (2017) [MP3|256-320 Kbps] <Pop>
@@ -752,70 +810,6 @@ VA - Попсовый Мега Хит (2012) [MP3|256 кб/с]<Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB8D2D18A21BBBEB6A144A18E709D3A787DF70DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 545580   (483011) от 11.09.2012
-
-VA - Teenage Idols (1955-1969) (2001) 4CD BoxSet[MP3|320 кб/с]<Pop, Rock, Oldes, Retro>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483011.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frankie Lymon - Little Bitty Pretty One -1958 [02:40]
-02. Del Shannon - Keep Searchin' (We'll Follow The Sun) -1964 [02:10]
-03. Fabian - I'm Gonna Sit Right Down And Write Myself A Letter -1960 [01:53]
-04. Tommy Sands - Teenage Crush -1957 [02:21]
-05. Johnny Rivers - Memphis -1964 [02:31]
-06. Jan & Dean - The Little Old Lady From Pasadena -1964 [02:42]
-07. The Beach Boys - Surfin' U.S.A. -1963 [02:28]
-08. Bobby Freeman - Do You Wanna Dance -1958 [02:36]
-09. Craig Douglas - Only Sixteen -1959 [02:13]
-10. Bobby Darin - 18 Yellow Roses -1963 [02:17](   Читать дальше...   )Жанр: Pop, Rock, Oldes, RetroПродолжительность: 00:58:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:348E61FB8BF48B5A4BD949FE68D7214CE2B396AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405541   (482724) от 30.08.2020
-
-VA - Shazam Хит-парад Russia Top 100 Август (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482724.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bastard! - F..k That (3:38)
-002. Dabro - Юность (3:39)
-003. Dj Smash and Poёt - Беги (3:06)
-004. Isyan Tetick ft. Camila Bennetta - Patlamaya Devam (2:50)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:02:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0872BF663C48151F10F2D4D126A45053F9D7318
 ```
 
 https://mybot314.ru/tekegram_catalog/

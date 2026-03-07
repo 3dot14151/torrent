@@ -1,3 +1,32 @@
+###  Публикация: 993731   (893820) от 06.03.2016
+
+Netrebko, Quasthoff, Terfel, Garanca, Pape. - The Mozart Album (2006) [FLAC|Lossless|image + .cue] <Classical, Opera>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Le nozze di Figaro, K. 492: 'Giunse alfin il momento' - 'Deh vieni non tardar' (3:32)
+02.  Le nozze di Figaro, K. 492: 'Hai gia vinta la causa' - 'Vedro mentr'io sospiro' (4:53)
+03.  La clemenza di Tito, K. 621: 'Parto, ma tu ben mio' (6:42)
+04.  Don Giovanni, ossia Il dissoluto punito, K. 527: 'Madamina, il catalogo e que... (5:59)(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 00:59:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3FF29EECCE2FCD7D5825515A6A45A3E76770DA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 993599   (893796) от 06.03.2016
 
 Dvorak - Rusalka (Fleming, Czech Philharmonic Orchestra, dir.Mackerras) (1998) 3 CD [APE|Lossless|image + .cue] <Classical, Opera>
@@ -715,35 +744,6 @@ Klara Min - Scriabin: Piano Works (2016) [FLAC|Lossless|WEB-DL|tracks] <Classica
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FBF9F47DACE6C74D65514BBC6B0F7DB29DCFA720
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995262   (886125) от 10.03.2016
-
-Sviatoslav Richter - Beethoven Piano Sonatas № 8, 23, 8 Bagatelles, Choral Fantasy (Melodiya Edition Vol.2) (2003) [FLAC|Lossless|image + .cue] <Classical, Chamber Music>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886125.jpg" />
-</div>
-
-
-###  Подробнее
-
-Соната для фортепиано №8 до минор соч.13 "Патетическая"
-01. Piano Sonata No.8 in C minor, Op.13 - Grave, Allegro di molto e con brio
-02. Piano Sonata No.8 in C minor, Op.13 - Adagio cantabile
-03. Piano Sonata No.8 in C minor, Op.13 - AllegroЖанр: Classical, Chamber MusicПродолжительность: 01:19:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEF3529563D9C8E6561DC057CF8E93D56C0328FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

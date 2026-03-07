@@ -1,3 +1,29 @@
+###  Публикация: 342986   (473527) от 05.09.2018
+
+С.В.Рахманинов - Полное собрание сочинений 31CD (2009, Brilliant Classics) [MP3|320 kbps]<Classical>
+
+>>Классика
+>>Полные собрания сочинений
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_473527.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Classical |Продолжительность: 33:39:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AB106B8022455F5FCF6E16FBBABF665526ED173
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 547622   (471087) от 16.09.2012
 
 VA - Новая и Старая Классика (2012) [MP3|320 кб/с]<Нео классика, Классика в современной обработке, Инструментальная музыка>
@@ -728,35 +754,6 @@ Schubert - The Complete Impromptus, Moments Musicaux (Alfred Brendel) (2CDs) (19
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C0A29B9840F120BA6253F5FEF00EEE0E4312B5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247404   (452643) от 15.09.2018
-
-Chris Snelling - Piano Dreams (2018) [FLAC|Lossless|WEB-DL|tracks] <Classical, Piano>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452643.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Only a Dream
-02 For Stormboy
-03 Pebbles
-04 The Light She Brings(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 00:30:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A274C95ED4B8A452FC02CDB01AC43BDC4CB694A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,235 @@
+###  Публикация: 1436317   (137607) от 31.12.2020
+
+Sonny Rollins - 3 Essential Albums (1958 - 1966) 3CD, 2017, Universal [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_137607.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Sonny Rollins And The Big Brass:
+01. Grand Street [6:08]
+02. Far Out East [4:34]
+03. Who Cares [4:00](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:12:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3607ACDF488415F201CBC8980B6A84DD90A96382
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436328   (137074) от 31.12.2020
+
+Federico Conti & The Modern Organ Trio - Hammond-Ology (2020) [MP3|320 Kbps] <Jazz Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_137074.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Captain Jack (dedicated to Jack McDuff) (05:17)
+ 02. Shirley My Dear (07:35)
+ 03. Conti - Jazzy Sunday (06:45)
+ 04. Black Nile (06:22)(   Читать дальше...   )Жанр: Jazz RockПродолжительность: 00:54:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58579EC832BF17AEDC0D7DE732AA0D3354C3EFC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1825000   (136860) от 16.10.2025
+
+Bruce Wojick & The Struggle - The Hard Way (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_136860.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  More Time (3:57)
+02.  Louder Than Concorde (4:41)
+03.  Cryin' Shame (4:36)
+04.  1983 (3:23)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C6EAC55867DEEBCFE6C13E207A154E0B9A3FE1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1825001   (136859) от 16.10.2025
+
+Carlos Casciaroli - Dark Blues Ritual (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_136859.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ashes and Whispers (3:09)
+02.  Blood Moon Chant (5:05)
+03.  Salt and Bone (3:14)
+04.  Echoes in the Dust (3:54)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:48:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDC571E0CF14F4A6FE34680D4E40E89BE056723C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1825002   (136856) от 16.10.2025
+
+Connor Selby - The Truth Comes Out Eventually (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_136856.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Someone (5:02)
+02.  All Out Of Luck (3:55)
+03.  The Truth Comes Out Eventually (5:47)
+04.  (I Am) Who I Am (4:01)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16928BBA8B36CBE039081BEFCE254D708D935FEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1825008   (136854) от 16.10.2025
+
+Family Company - Pieces Of Us (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_136854.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  By Our Self (Just Us) (3:05)
+02.  Pieces Of Us (4:20)
+03.  Need Ya Loven (3:58)
+04.  I Believe In Humanity (3:25)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 00:44:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:215B3E4E9C10E7E5CBD54764E13B41A533F4DDF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1825013   (136852) от 16.10.2025
+
+James Bratton - Imagination (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth Jazz, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_136852.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Imagination (3:48)
+02.  Just Lovin You (3:55)
+03.  I'm a Dreamer (3:31)
+04.  Under the Midnight Sky (4:26)(   Читать дальше...   )Жанр: Smooth Jazz, Vocal JazzПродолжительность: 00:39:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C82F93415B98D7D23EB14FE4123A8DB3653C0EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1825017   (136849) от 16.10.2025
+
+Jimmy Burns & Soul Message Band - Full Circle (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_136849.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Express Yourself (4:19)
+02.  World of Trouble (6:29)
+03.  I Really Love You (4:29)
+04.  Ain't That Funk For You (5:21)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 00:49:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:597D9457FC4A9DEEACF5A43F4E067721D7A180FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1825021   (136848) от 16.10.2025
 
 Johnnie Johnson - I'm Just Johnnie (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
@@ -575,260 +807,6 @@ Demetrius Nabors - A Journey Within Part 1 (2011) [FLAC|Lossless]<Smooth Jazz>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593315   (135437) от 23.12.2012
-
-Dado Moroni Trio - Shapes (2011) [FLAC|Lossless]<Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_135437.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ballade Pour Gianni
-02. Brother Alfred
-03. Desafinado
-04. The Duck And The Duchess
-05. Love Dance
-06. F.B.S.
-07. For The Time Being
-08. Shark Attack
-09. Here's To LifeЖанр: Post-BopПродолжительность: 01:04:14
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593308   (135428) от 23.12.2012
-
-Shirley Johnson - 2 альбома (2002, 2009) [MP3|320 кб/с]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_135428.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-
-2002 - Killer Diller
-
-2009 - Blues Attack
-
-(   Читать дальше...   )Жанр: BluesПродолжительность: 02:07:13
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593275   (135415) от 23.12.2012
-
-Dan Patlansky - Move my Soul (2009) [APE|Lossless]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_135415.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jump on
-02. Why?
-03. Big things going down
-04. Insufficient man
-05. Peace of Eden II
-06. Move my soul
-07. You upset me
-08. Come & play
-09. Luka
-10. Lord you are beautiful(   Читать дальше...   )Жанр: BluesПродолжительность: 01:10:14
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593311   (135401) от 23.12.2012
-
-Don Grusin & Bill Sharpe - Trans Atlantica (2012) [FLAC|Lossless]<Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_135401.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The London Tube
-02. Exotic Boulevard
-03. Down At St Catherine's
-04. War Zone
-05. Chance Encounters
-06. Night Train To Paris
-07. Un Vuelo
-08. Slow Breeze
-09. Mole Trap Cool
-10. After Hours(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:57:38
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593020   (135374) от 23.12.2012
-
-Zora Young - 4 Альбома (2000 - 2009) [MP3|320 кб/с]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_135374.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-
-2000 - Learned My Lesson
-2005 - Tore Up from the Floor Up
-2009 - The French Connection
-2009 - SunnylandЖанр: Blues |Продолжительность: 04:22:12
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679688   (135357) от 26.11.2023
-
-Pat Martino - Consciousness (1974) 1999, Sony Music [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135357.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Impressions [4:38]
-02. Consciousness [11:56]
-03. Passata on Guitar [2:52]
-04. Along Came Betty [5:24](   Читать дальше...   )Жанр: Jazz Fusion, Post-BopПродолжительность: 00:44:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:369AE7301F921E6A0A277A5E764B68003B48B713
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679525   (135333) от 26.11.2023
-
-Jorg (Jörg) Danielsen - Foolin’ Around (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135333.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. She Wants to Dance (4:48)
-02. Jd Boogie (4:26)
-03. I’ll Be Your Doctor (3:55)
-04. What a Time (6:17)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:15:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B69FDE73416C8C77040A96F08E2DAF4CB3131EC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679557   (135327) от 26.11.2023
-
-Tyrone Cotton - Man Like Me (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135327.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Across the Water (3:35)
-02. Slow Drag (3:12)
-03. Standing Rag (4:01)
-04. Go Back (4:19)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:31:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67094D6A55EC9F6635AB86F4099FBA678F417762
 ```
 
 https://mybot314.ru/tekegram_catalog/

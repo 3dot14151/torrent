@@ -1,3 +1,179 @@
+###  Публикация: 1656257   (203527) от 29.08.2023
+
+Legion of the Damned (f.k.a. Occult) - Studio Albums (12 releases) (1994-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Death/Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_203527.jpg" />
+</div>
+
+
+###  Подробнее
+
+Legion of the Damned — голландская трэш-метал/дэт-метал группа. Была основана в 1992 году как Occult, в 2005 году сменила название на Legion of the Damned.2005 - Malevolent Rapture - In Memory Of
+2007 - Sons Of The Jackal
+2008 - Feel The Blade
+2008 - Cult Of The DeadЖанр: Death/Thrash MetalПродолжительность: 09:12:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A62A075CEA9CE6CBD4D5123F025155C00852838
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1656345   (203370) от 30.08.2023
+
+Turbo - Heavy Waters (1985) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock, Classic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_203370.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Heavy Waters
+A2 House Of The End Of The Road
+A3 Get That Beat
+A4 Wake Me(   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 00:36:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23F2395F15CECEDD3EC5C0D21159D9AC9E6F83E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1656497   (203349) от 30.08.2023
+
+Haggard - Studio Albums (3 releases) (2000-2008) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Classical/Orchestral/Symphonic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_203349.jpg" />
+</div>
+
+
+###  Подробнее
+
+Haggard — немецкий музыкальный проект, исполняющий симфонический метал. Основан в 1989 году гитаристом, вокалистом и композитором Азизом Нассери, который является автором всей музыки и текстов Haggard. Группа фактически представляет собой оркестр, состоящий из множества музыкантов, играющих на разных инструментах, характерных как для рока, так и для классической (   Читать дальше...   )2000 - Awaking the Centuries
+2004 - Eppur Si Muove
+2008 - Tales of IthiriaЖанр: Classical/Orchestral/Symphonic MetalПродолжительность: 02:28:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:797F95D5B116B6390A84A57163CE1955E99D3179
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1656552   (203173) от 31.08.2023
+
+Cliff Richard/Клифф Ричард - Лучшие Песни Клиффа Ричарда (1977) [FLAC|24/96|image + .cue|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_203173.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Как Только Ты Ушла • The Minute You're Gone
+A2 Честное Слово • On My Word
+A3 Когда Тебя Нет Со Мной • The Time In Between
+A4 Отпусти Меня • Wind Me Up (Let Me Go)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:38:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E61452C9C6E7AEF199D480DD15A53C0FC43247D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1656575   (203055) от 31.08.2023
+
+Puhdys - Puhdys Live (1979) [FLAC|24/192|image + .cue|Vinyl-Rip] <Rock & Roll, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_203055.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Sturmvogel
+A2 Perlenfischer
+A3 Sterne Verspaten Sich Nie
+B1 Ikarus II(   Читать дальше...   )Жанр: Rock & Roll, Pop RockПродолжительность: 01:20:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE1CF28EF9E05935C863CA97D823895B01242E12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510172   (202566) от 19.02.2023
+
+Bob Dylan - Biograph (1985) compilation 1961-1981 5LPs [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock, Folk Rock, Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_202566.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side One:
+01. Lay, Lady, Lay
+02. Baby, Let Me Follow You Down
+03. If Not For You(   Читать дальше...   )Side One:
+01. Romance In Durango (Live)
+02. Señor (Tales Of Yankee Power)
+03. Gotta Serve Somebody(   Читать дальше...   )Жанр: Rock, Folk Rock, Blues RockПродолжительность: 03:28:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4837B27E6E20DF1EAA4CDD7435D9AAA3AED3CEAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1614917   (202370) от 23.02.2023
 
 Демонстрационный диск DTS 5.1 CD-Audio #13 (2023) [DTS 5.1 CD-DA|44.1/16|image+.cue] <Pop, Rock, Electronic...>
@@ -574,180 +750,6 @@ A4 Попытай Счастья В Любви (Taking A Chance Of Love)(   Чи
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F4910120AA499928A0AF10C8DFF008F5891F23D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633584   (198446) от 15.05.2023
-
-Whitesnake - Come An' Get It (1981) Japanese Edition, Reissue, 2010, Sunburst, SHM-SACD [DSD64 2.0|1bit/2822,4kHz|SACD-R] <Hard Rock, Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198446.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come An' Get It 03:58
-02. Hot Stuff 03:22
-03. Don't Break My Heart Again 04:03
-04. Lonely Days, Lonely Nights 04:16(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:40:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A11E7372CCDD148AA3F440945F3F4712DC9356CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633782   (198325) от 18.05.2023
-
-Стерео-Тест (Вега, г. Бердск) (1976) Мелодия СССР [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Samplers, Technical>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198325.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 В. Людвиковский - Пояснительный Текст ("Манекены")
-A2 Unknown Artist - Проверка Правильности Сторон
-A3 Unknown Artist - Проверка Баланса Громкоговорителей ("Жизнь Артиста")
-A4 Unknown Artist - Проверка Фазировки Громкоговорителей(   Читать дальше...   )Жанр: Field Recording, TechnicalПродолжительность: 00:45:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9AEBBB675182BD613560CC91DA1226EA4FA1A9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634912   (198090) от 23.05.2023
-
-Bee Gees - E•S•P (1987)  [DSD64 2.0|1bit/2822,4kHz|SACD-R] <Pop, Rock>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198090.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. E-S-P
-02. You Win Again
-03. Live Or Die (Hold Me Like A Child)
-04. Giving Up The Ghost(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:47:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2AD1240B120E83B0E37B1F82754EF1F572375C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634710   (198089) от 21.05.2023
-
-Pink Floyd - The Dark Side of the Moon (1973) 50th Anniversary 2023 remaster [DTS-ES Discrete 6.1 CD-DA|44.1/24|image+.cue|BD-Audio] <Psychedelic Rock, Prog Rock>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198089.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ну вот, дождались. Очередное, приуроченное к 50-летию выхода, переиздание Луны в просто-таки роскошном бокс-сете. На этот раз Джеймс Гатри сделал атмос-микс, который присутствует на одном из аудио-блюров этого набора. Из образа этого блюра (спасибо01.    Speak To Me    01:11
-02.    Breathe    02:48
-03.    On The Run    03:35
-04.    Time    07:03(   Читать дальше...   )Жанр: progressive rockПродолжительность: 00:42:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8CA5B44C4134E6536BCC69FBFA10293B09AD8C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 843120   (198016) от 23.05.2023
-
-James Last - The James Last Album (1971) [FLAC 2.0 24/192|image+.cue (Vinyl-Rip)]<Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_198016.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 A Man And A Woman
-A2 Wheels
-A3 My Bonnie
-A4 Montego Bay(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:142276DB4C98E42D32D55206876FF2255603C103
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635611   (197985) от 26.05.2023
-
-Mike Oldfield - Tubular Bells (50th Anniversary Edition) (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197985.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tubular Bells (Pt. I) (25:29)
-02. Tubular Bells (Pt. II) (23:21)
-03. Tubular Bells 4 Intro (Demo / 2017) (8:33)
-04. Tubular Bells / In Dulci Jubilo (London 2012 Olympics Opening Ceremony) (11:24)(   Читать дальше...   )Жанр: PopПродолжительность: 02:20:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77DDAFB6792A2F2587D9ECED213EC1413D541C15
 ```
 
 https://mybot314.ru/tekegram_catalog/

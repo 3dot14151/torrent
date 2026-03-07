@@ -1,3 +1,32 @@
+###  Публикация: 1409405   (447488) от 16.09.2020
+
+Mythos - 3 Albums (1978-1980) Reissue CD [MP3|320 Kbps] <Electronic, Krautrock, Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_447488.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа Mythos образована в 1969 году в Берлине, Германия. В раздаче представлены альбомы одной направленности, соответствующей указанному жанру.Список альбомов:
+1978 - Strange Guys (R-CD 1997)
+1979 - Concrete City (R-CD 1999)
+1980 - Quasar (R-CD 2012)(   Читать дальше...   )Жанр: Electronic, Krautrock, Prog RockПродолжительность: 02:00:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D61EFEB394E6EABDCE5AC746BF3C7506B52C952E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1409396   (447483) от 16.09.2020
 
 Gazpacho - Fireworker (2020) [MP3|320 Kbps] <Progressive Rock, Atmospheric Rock>
@@ -748,35 +777,6 @@ CD 01:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9CAD40573BD71E874352EBF825BEA5B245672925
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062624   (438869) от 14.10.2016
-
-Валентин Стрыкало - Развлечение (2016) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438869.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ускользает
-02. О брат
-03. 92
-04. Решится само собой(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA206099F98A7D2C6317CC973E95BC5ACE7D494F
 ```
 
 https://mybot314.ru/tekegram_catalog/

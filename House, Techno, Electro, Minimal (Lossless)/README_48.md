@@ -1,3 +1,116 @@
+###  Публикация: 1331769   (320881) от 17.10.2019
+
+SCSI-9 - Squares And Circles LP (2019) [FLAC|Lossless|WEB|tracks] <Deep House , Tech House , Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_320881.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Rush (08:02)
+02. You & Me (07:42)
+03. Get Some Lfo (07:41)
+04. Stairs & Stars (07:35)(   Читать дальше...   )Жанр: Deep House , Tech House , MinimalПродолжительность: 01:01:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:543849064A47E93E71200DDEC73316E2D1DD1F91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1331752   (320647) от 17.10.2019
+
+VA - Sunset At Stonehenge (Mixed by Paul Oakenfold) (2019) [FLAC|Lossless|tracks|CD|scene] <Deep House, Progressive House, Classical>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_320647.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. U2 - Love Is All We Have Left (2:37)
+02. The Grid - Floatation (Subsonic Grid Mix) (5:56)
+03. Empire Of The Sun - We Are The People (3:54)
+04. Clarian - Kill For Love (5:50)(   Читать дальше...   )Жанр: Progressive House, Deep House, ClassicalПродолжительность: 01:19:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3093D36389794DDEBA383666E2263E919943369
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 263088   (320501) от 29.11.2010
+
+Penner & Muder - Same Monkeys Different Zoo (2010) [FLAC|Lossless]<Tech House, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_320501.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Жанр: Tech House, Deep HouseПродолжительность: 01:10:25
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421509   (319811) от 04.11.2020
+
+Jose Vizcaino - Transitions (2020) Seven Villas [FLAC|Lossless|WEB-DL|tracks] <Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_319811.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Atras (06:38)
+ 02. Graffiti (06:32)
+ 03. Road Trip (06:58)
+ 04. Transitions (06:21)Жанр: Deep HouseПродолжительность: 00:26:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3494A6AA7CBB6C39F2DD1D7A5F56AFDB37D41CCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1182063   (319425) от 09.11.2017
 
 VA - Roger Shah presents High Noon At Salinas - Beach Grooves Vol 1 (2017) [FLAC|Lossless|tracks] <House, Progressive House,Deep House>
@@ -620,119 +733,6 @@ VA - Club Sounds The Ultimate Club Dance Collection Vol.83 (2017) [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE956F578BEEBFA4EA716CAB0424CFBB6C98153B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078280   (302842) от 30.11.2016
-
-Rrose / Orphx - Summer Solstice Edition EP (2016) [FLAC|Lossless|WEB-DL|24Bit|tracks] <Techno, IDM, Electro>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302842.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Emboli (07:41)
-02. Aurora (10:17)Жанр: Techno, IDM, ElectroПродолжительность: 00:17:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2421CC70206E74774D176F3AC759736B41707991
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261887   (301292) от 12.11.2018
-
-MacroVision - Skyroom (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301292.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skyroom (Rework)   (08:15)
-02. Glow (Original Mix)  (10:52)
-03. Pollux (Original Mix) (09:38)Жанр: Progressive HouseПродолжительность: 00:28:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35FE9B7D6FD8B362EBEFBCAC9DF65673CF0C4055
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261709   (301279) от 12.11.2018
-
-Paolo Lucchi - The Dawn Sessions (2018) Cold Tear Records [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301279.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Episode 1 (07:10)
- 02. Episode 2 (06:14)
- 03. Episode 3 (07:09)
- 04. Episode 4 (07:42)Жанр: Dub Techno, Ambient, TechnoПродолжительность: 00:28:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4764E68BC5BAB61565BFAA513F70AAA14447CC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385530   (299790) от 13.11.2020
-
-VA - Steyoyoke Paradigm, Vol. 01-08 (2017-2020) Steyoyoke Recordings [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Techno, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299790.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whirl & Another Mind - Bewitch (06:55)
- 02. Jecksel - Hopeless (07:25)
- 03. Soul Button & Monarke - Pantheon (07:17)
- 04. Modeplex - Jupiter (Strinner Remix) (07:49)(   Читать дальше...   )Жанр: Progressive House/Techno/Tech HouseПродолжительность: 15:26:41 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D7B2CA366196E24C3AD326BA1680C4F56525F16
 ```
 
 https://mybot314.ru/tekegram_catalog/

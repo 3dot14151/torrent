@@ -1,3 +1,33 @@
+###  Публикация: 523107   (618536) от 15.07.2012
+
+Antonio Vivaldi - Shades of Red - Concertos & Sonatas for Recoder & Strings - Matthias Maute, Rebel / Jorg-Michel Schwarz (2005) [FLAC|Lossless]<Classical, Chamber Music,  Concert, Symph ...
+
+>>Классика
+>>Концерты (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618536.jpg" />
+</div>
+
+
+###  Подробнее
+
+Piccolo (Flautino) Concerto, for piccolo (or recorder/flute), strings & continuo in C major, RV 443
+01. Allegro    (03:28)
+02. Cadenza    (01:07)
+03. Largo    (02:59)
+04. Allegro molto (02:49)Жанр: Classical, Chamber Music,  Concert, Symphonies, Sonatas, Trio-sonatasПродолжительность: 01:05:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE4D36B8049DA231F1BFC4683D844F5E28D053B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 911471   (617679) от 22.06.2015
 
 Johann Sebastian Bach - Cafe Zimmermann vol. I-VI, autentic, 6CD (2001-2011) [WavPack|ISO.wv]<Classical>
@@ -735,35 +765,6 @@ Danzi - Der Berggeist, Oder Schicksal und Treue (2013) [FLAC|Lossless|tracks + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:616728C9DE0C66BAAF390C57C64F92A1AA6AD3C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148160   (604203) от 05.07.2017
-
-Wolfgang Amadeus Mozart - Le Nozze di Figaro - (Безумный день, или Женитьба Фигаро) (2003)(2CD) [FLAC|Lossless|image + .cue] <Opera, Classical>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604203.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Overture 04:22
-ACT 1
-02 Cinque ... dieci .... venti (Figaro/Susanna) 02:48
-03 Se a caso madama Figaro (Figaro/Susanna) 02:28(   Читать дальше...   )Жанр: Opera, ClassicalПродолжительность: 02:34:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34BD4D5CD4E4503B66AAA03E60A417549054221F
 ```
 
 https://mybot314.ru/tekegram_catalog/

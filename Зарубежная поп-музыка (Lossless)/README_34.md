@@ -1,3 +1,119 @@
+###  Публикация: 1025062   (711961) от 11.06.2016
+
+Linda Jo Rizzo - Fly Me High (The Album) (2015) [FLAC|Lossless|tracks] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fly Me High    07:20
+02. There's A Fire    05:37
+03. Only One Night    07:34
+04. Heartflash    05:58(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:14:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92F51BA05FA39EAD68408DDC0CED4B23B1A0B64E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286623   (711183) от 03.03.2019
+
+Kenny Rogers - Ruby Don't Take Your Love To Town (Unknown) Compilation [FLAC|Lossless|image + .cue] <Pop, World, Country>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711183.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Ruby Don't Take Your Love To Town
+2.	For The Good Times
+3.	A Stranger In My Place
+4.	Rueben James(   Читать дальше...   )Жанр: Pop, Folk, CountryПродолжительность: 01:01:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:427446A97558438509E862F7F615CA0C50956269
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286516   (711146) от 03.03.2019
+
+The Seekers - The Very Best Of The Seekers (1997) [FLAC|Lossless|image + .cue] <Pop, Folk, Country>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711146.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	I'll Never Find Another You
+2.	A World Of Our Own
+3.	The Carnival Is Over
+4.	Someday One Day(   Читать дальше...   )Жанр: Pop, Folk, OldiesПродолжительность: 01:03:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12ECD5D82EABFA3ADC437E696AF707AFEC95CB7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286630   (711013) от 03.03.2019
+
+ZAYN - Icarus Falls (2018) 2CD [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711013.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good Guy (02:34)
+02. You Wish You Knew (03:25)
+03. Sour Diesel (04:03)
+04. Satisfaction (03:28)(   Читать дальше...   )Жанр: PopПродолжительность: 01:36:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCE98794F52443CDC8DE4D3BA8602A9FA117FF65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1131057   (710397) от 04.05.2017
 
 Blondie - Pollinator (2017) [FLAC|Lossless|tracks] <Pop Rock, Post Punk, New Wave>
@@ -626,122 +742,6 @@ GASHI - 1984 (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Retrowave>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD4152E0C04EEB19134D5C87D22FA3245535BF74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287686   (701639) от 08.03.2019
-
-Cyndi Lauper - Time After Time (The Cyndi Lauper Collection) (2009) [FLAC|Lossless|tracks + .cue] <Pop Rock, Post-Punk, Folk>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701639.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Girls Just Want To Have Fun (3:57)
- 02. Time After Time (4:01)
- 03. True Colors (3:47)
- 04. I Drove All Night (4:13)(   Читать дальше...   )Жанр: Pop Rock, Post-Punk, FolkПродолжительность: 00:59:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:357ED8B4C5A90B5AAAA921C1D45E779B6EAA0E35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 895299   (701015) от 05.05.2015
-
-Lara Fabian - Essential (2015) [FLAC|Lossless]<Pop, Classical Crossover>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701015.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Voce
-02. Tu t’en vas
-03. Tout
-04. Je t’aime(   Читать дальше...   )Жанр: Pop, Classical CrossoverПродолжительность: 01:11:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5558150FCD5F39D76529CFE0FE42D5BB35A1D857
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027127   (699963) от 17.06.2016
-
-VA - 100% Hits Vol. 1 (2016) Box Set [FLAC|Lossless|tracks + .cue] <Pop, Electronic, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699963.jpg" />
-</div>
-
-
-###  Подробнее
-
-Редко выходят такие хорошо сбалансированные сборники. Каждый найдет в нём треки по своему вкусу. Все три жанра, вынесенные в заголовок оформления раздачи реально соответствуют содержанию. Слушайте в удовольствие...01. Charlie Puth - One Call Away  (3:10)
-02. Twenty One Pilots - Stressed Out  (3:22)
-03. Kiiara - Gold  (3:39)
-04. Rudimental feat. Ed Sheeran - Lay It All On Me  (3:31)(   Читать дальше...   )Жанр: Pop, Electronic, DanceПродолжительность: 01:10:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E43E1F2E32F0B59314AA36FA1C783FA2826A3E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287886   (699631) от 09.03.2019
-
-Demis Roussos - Forever And Ever (2002) 3CD [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699631.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-01. My Friend the Wind
-02. Lovely Lady of Arcadia
-03. Summerwine(   Читать дальше...   )Жанр: PopПродолжительность: 02:45:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBD6A7F12DDEA3D930E4338BB9B89E697CD10A29
 ```
 
 https://mybot314.ru/tekegram_catalog/

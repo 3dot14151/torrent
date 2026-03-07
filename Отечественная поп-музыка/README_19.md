@@ -1,3 +1,32 @@
+###  Публикация: 951377   (362935) от 29.10.2015
+
+Сергей Лазарев - The Best (2015) English Edition [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_362935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Breaking Away
+ 02. In My Lonely Life
+ 03. 7 Wonders
+ 04. Take It Off(   Читать дальше...   )Жанр: PopПродолжительность: 01:48:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A391C7DC68FFF2A8BC6DBDB99B5C9BD7FF9D4ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1177005   (362442) от 25.10.2017
 
 Русский размер (Размер Project) - 21 альбом (1995 - 2012) [MP3|320 Kbps] <Рор, Dance>
@@ -712,35 +741,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4DFFE7851253305F440B4B4C59B29785B9B9B4CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419892   (335478) от 30.10.2020
-
-Стас Михайлов - Шестое чувство (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335478.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Не отпускай
-2. Я тебя люблю
-3. Шестое чувство
-4. Доченька(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D67D76E7F54B264EC33C22E14121ED070AC04C4F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1205577   (783152) от 11.02.2018
+
+Teruo Yoda and Moody Kings - The Season Of Love (1968) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip]  <Easy Listening, Instrumental>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783152.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Koi No Kisetsu (3:23)
+ 02. Yuzuki (2:25)
+ 03. Shinjuku Sodachi (2:57)
+ 04. Hoshi O Minaide (2:28)(   Читать дальше...   )Жанр: Easy Listening, InstrumentalПродолжительность: 00:38:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8BB63C9B9B6E6158E22B89E710F00C29593D927
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377963   (781360) от 19.06.2020
+
+Robert Plant - Digging Deep (2020) [DSD 128|tracks|Vinyl-Rip] <Pop/Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781360.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burning Down One Side (3:55)
+ 02. Like I've Never Been Gone (5:58)
+ 03. Big Log (5:07)
+ 04. In The Mood (5:21)(   Читать дальше...   )Жанр: Pop/RockПродолжительность: 01:17:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88D7BEDC507C9AD409BF258406862B15A172F150
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207556   (780371) от 19.02.2018
+
+Demis Roussos - 5 Albums (1971-1978) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop, Folk>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780371.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fire And Ice 
+A1 Fire And Ice
+A2 She Came Up From The Nort
+A3 Good Days Have Gone(   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 03:30:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE47DCD164DDA7F43736DEFB744B22B3844689A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207999   (780193) от 20.02.2018
+
+Queen - The Game (1980) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780193.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Play The Game (3:30)
+02. Dragon Attack (4:19)
+03. Another One Bites The Dust (3:34)
+04. Need Your Loving Tonight (2:49)(   Читать дальше...   )Производство: EMI Records - EMA 795Жанр: RockПродолжительность: 00:35:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:917FEFB453720A6BF0F4E87012394F4F45DA796B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207147   (780176) от 20.02.2018
+
+Lindsey Stirling - Brave Enough (2016) [FLAC 2.0|192/24|image+cue|Vinyl-Rip] <Modern Classical, Dance-pop, Dubstep>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780176.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Lost Girls
+2. Brave Enough
+3. The Arena
+4. The Phoenix(   Читать дальше...   )Жанр: Modern Classical, Dance-pop, DubstepПродолжительность: 00:55:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB9E73B1F759B061B09727E85848AA367F1C36DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208378   (779760) от 23.02.2018
+
+Within Temptation - Hydra (2014) [FLAC 2.0|192/24|image + cue|Vinyl-Rip] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_779760.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let Us Burn
+02. Dangerous (feat. Howard Jones)
+03. And We Run (Feat. Xzibit)
+04. Paradise (What About Us?) (feat. Tarja)(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8404BFE1F2EAC5D41638FAB2B010C58864E49E66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1208159   (779755) от 23.02.2018
 
 Lindsey Stirling - Shatter Me (2014) [FLAC 2.0|192/24|image + cue|Vinyl-Rip] <Dubstep, Modern Classical>
@@ -571,181 +745,6 @@ B Ribbons Of Blue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17032F2F3921B09E6FE8487BD89DEF10377ABBDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017139   (763133) от 16.05.2016
-
-Marsyas - Pieces Of Favour (1983) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Folk Rock, Acoustic>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763133.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1	The Last Moment (Na Poslední Chvíli)
-A2	Early Evening Blues (Blues Navečer)
-A3	Gold And Diamonds (Zlato A Stříbro)
-A4	From The Beginning(   Читать дальше...   )Жанр: Folk Rock, AcousticПродолжительность: 00:40:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BE2B58A0091EC59AE800ED616BBD1FF06EB039D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016861   (763023) от 16.05.2016
-
-Deodato (Деодато) - Best Of Deodato (Лучшие произведения Деодато) (1985) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Fusion>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763023.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Так Говорил Заратустра (Also Sprach Zarathustra)
-A2 Прелюдия к Послеполуденному Отдыху Фавна (Prelude To Afternoon Of A Faun)
-A3 Ночи в Белом Атласе (Nights In White Satin)
-B1 Голубая Распсодия (Rhapsody In Blue)(   Читать дальше...   )Жанр: Jazz, FusionПродолжительность: 00:39:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D32EB551C11BCBD0C36EF22552F589383F76074B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394645   (762289) от 06.07.2020
-
-Fonograf - FG-4 (1976) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop Roc>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762289.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Prelude
-A2 Co-Ordinates
-A3 Bright Sky
-A4 FG-4(   Читать дальше...   )Жанр: Pop RocПродолжительность: 00:45:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64ACA1696805481EE1B2777631F7653EDB5CF05B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279981   (760422) от 03.02.2019
-
-Rush - 2112 (2012) 1976 [FLAC 5.1|96/24|tracks|Lossless|DVD-Audio] <Hard Rock, Prog Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760422.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I. Overture (04:34)
-02. II. The Temples of Syrinx (02:12)
-03. III. Discovery (03:31)
-04. IV. Presentation (03:42)(   Читать дальше...   )Жанр: Hard Rock, Prog RockПродолжительность: 00:38:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:587279EA375FC12967CCED75CC7B983A7B8D065B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522251   (760227) от 06.01.2022
-
-The Mavericks - The Mavericks (2003) [DTS 5.1 CD-Audio|44.1/16|image+.cue|DVD-Audio] <Rock, Country>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760227.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Mavericks ("Индивидуалисты") - американская нео-кантри-группа, появившаяся в 1989 г. в Майами. В период с 1991 по 2003 год записали шесть студийных альбомов, 14 синглов попали в чарты Биллборд. Самой успешной была композиция "All You Ever Do Is Bring Me Down" 1996 года, совместно с аккордеонистом Flaco Хименесом.
-В Англии наиболее известен (   Читать дальше...   )01. I Want to Know
-02. In My Dreams
-03. Shine Your Light
-04. I'm Wondering(   Читать дальше...   )Жанр: Folk, World, CountryПродолжительность: 00:44:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5C69CEABF82C3580A5261EC1FDE127F30EAE7D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522078   (759783) от 06.01.2022
-
-VA - The Absolute Sound (2017) [DSD64 2.0|1bit/2822,4kHz |SACD-R]<Classical>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Por Una Cabeza (03:27) - Semmy Stahlhammer
-02. Mozart: Le Nozze Di Figaro - Voi Che Sapete (02:57) - Elisabeth Schwarzkopf
-03. Feet Of A Dancer (04:22) - Charlie McGettigan
-04. Amico Mio (04:27) - Sara Indrio(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:58:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C41DC17063CE65A38AA207995FF4729EAD837E8F
 ```
 
 https://mybot314.ru/tekegram_catalog/

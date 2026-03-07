@@ -1,3 +1,32 @@
+###  Публикация: 1051578   (532693) от 11.09.2016
+
+VA - Cafe Deluxe Chillout Nu Ibiza Lounge (2016) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_532693.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jean Mare - To the Balearic and Back (Lounge Flight Mix) [04:19]
+02. Soundset City - From Bar to Bar (Cafe Lounge Groove Mix) [05:10]
+03. Bernon - Into the Blue (Vocal Guitar Del Mar Mix) [04:43]
+04. Dave Neville - Funny Sky (Cosmic Space Mix) [05:48](   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 02:10:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4EE3ABEC954C417DBD6E020CAC2B986CB75AFA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1156624   (527011) от 08.08.2017
 
 Sol8 - Newborn Planet (2017) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Breaks, Chillout>
@@ -727,35 +756,6 @@ Podval Capella - Classic (2018) [FLAC|Lossless|WEB-DL|tracks] <Trip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4ACED7AFC4D8912BDF29D89B2BC38DDA7D7459C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404382   (483545) от 30.08.2020
-
-Podval Capella - Resonance (2017) [FLAC|Lossless|WEB-DL|tracks] <Trip-Hop>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483545.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Instinct
-02. Sirius
-03. Reason
-04. Nova(   Читать дальше...   )Жанр: Trip-HopПродолжительность: 00:53:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7003BEBEEAB632662C1DAC33B400CD7253D3500F
 ```
 
 https://mybot314.ru/tekegram_catalog/

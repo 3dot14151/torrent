@@ -1,3 +1,29 @@
+###  Публикация: 1237682   (550561) от 25.07.2018
+
+Обои - Desktop Wallpapers Full HD. Part (236) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550561.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:577AFFD07B385125218787CCC10CFDFE09A9F3B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1237677   (550550) от 25.07.2018
 
 Обои - Desktop Wallpapers (4K) Ultra HD. Part (157) [JPG]
@@ -643,32 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:645558EA55D711BFDAA6A2C1412509E5251EEFD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238945   (543716) от 02.08.2018
-
-Картинки - Wallpaper pack - Abstraction 32 [JPG, PNG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543716.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка обоев на тему абстрактная графикаФормат: JPG, PNGРазрешение файлов: 1920x1080-3840x2400
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A374F98E60FA32D7E599EA747AC8DD104788038
 ```
 
 https://mybot314.ru/tekegram_catalog/

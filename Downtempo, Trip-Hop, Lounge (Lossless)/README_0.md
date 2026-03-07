@@ -1,3 +1,32 @@
+###  Публикация: 1848762   (1052855) от 18.01.2026
+
+VA - Relaxing Background Music for Spa & Lounge (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052855.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Klasse XXI - Journey to You (04:16)
+ 02 - Elan Vital - Still Horizons (04:22)
+ 03 - Azulejo - Urban Drift (04:19)
+ 04 - The Foxtrot Effect - Echoes of Dusk (04:19)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:48:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C1E39CF36C88FE26445AC77BBA25092E3B4CD13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1847293   (1051862) от 11.01.2026
 
 VA - Chillout Reflections: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -716,35 +745,6 @@ VA - White January: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Bal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6B8C9B0503CC915E002E06DDD4E57C84CB64938
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605934   (1044729) от 19.01.2023
-
-VA - A Quiet Healing: Body & Mind Relaxing Playlist (2023) [FLAC|Lossless|WEB-DL|tracks] <Easy Listening, Lounge, Chill Out>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044729.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kool&Klean - River Flows in You (04:37)
-02. Chillaxing Jazz Kollektion - Evening Sun (05:24)
-03. Konstantin Klashtorni - Humble and Kind (04:06)
-04. Chillaxonic - Aurora (05:13)(   Читать дальше...   )Жанр: Easy Listening, Lounge, Chill OutПродолжительность: 02:26:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAD50B0FBABDCB00CA7D0C01C1D37B9E6CC74EB2
 ```
 
 https://mybot314.ru/tekegram_catalog/

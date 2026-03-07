@@ -1,3 +1,32 @@
+###  Публикация: 1223769   (671516) от 06.05.2018
+
+VA - Angelica (1997) Compilation [FLAC|Lossless|image + .cue] <Rock, Crossover Classical, Vocal>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_671516.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. O Mio Babbino Caro
+2. Jesu, Joy Of Man's Desiring
+3. Un Bel Di
+4. Der Holle Rache (Queen Of The Night)(   Читать дальше...   )Жанр: Rock, Crossover Classical, VocalПродолжительность: 00:47:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B27C176A1C2C442C7A47A348E28ED8A385839E6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1223424   (671515) от 06.05.2018
 
 The New London Chorale - The Classic Christmas Collection (1998) [FLAC|Lossless|image + .cue] <Сrossover Classical, Traditional>
@@ -740,41 +769,6 @@ Concerto for 2 pianos & orchestra in E flat major ("Concerto No. 10"), K. 365 (K
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93062EAE09A915FC69D476BF2897D1B3AE080A90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517350   (647280) от 01.07.2012
-
-Mirusia - Always and Forever (2010) [FLAC|Lossless]<Classical>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647280.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Schubert: Ave Maria   [04:45]
-02. R. M. Sherman, R. B. Sherman: Feed the birds (from Mary Poppins) [02:57]
-03. F. Pascal: Botany Bay [04:05]
-04. Saint-Preux: Concerto pour une voix [03:37]
-05. Grieg: Solveig's Song (from Peer Gynt) [04:03]
-06. Mozart: Porgi Amor (from Le Nozze di Figaro) [04:30]
-07. G. B. Martini: Plaisir d'amour (duet met Monarcha Carmen) [04:32]
-08. Franck: Panis Angelicus [04:13]
-09. F. Schröder: Dancing through the skies [03:14]
-10. A.L. Webber: Memory (from Cats) [03:54](   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:56:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA435659C4A7F950949878D196D2BCF9219D9BC6
 ```
 
 https://mybot314.ru/tekegram_catalog/

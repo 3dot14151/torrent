@@ -1,3 +1,32 @@
+###  Публикация: 954929   (337358) от 09.11.2015
+
+we.own.the.sky - Earths Collide (2015) [OGG| 429-502 кб/с]<Experimental Instrumental Post Metal, Post Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_337358.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. УВБ-76
+02. Transmissions Of Static
+03. Muzzle
+04. Penny For Your Thoughts(   Читать дальше...   )Жанр: Experimental Instrumental Post Metal, Post RockПродолжительность: 00:54:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF7A271877FC477564394BE55ADA1629222674D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 955109   (337357) от 09.11.2015
 
 VA - Southern Rock Christmas (2015) [MP3|320 кб/с]<Christmas, Southern Rock, Blues Rock, Country Rock>
@@ -716,35 +745,6 @@ Zdob Si Zdub - Белое вино / Красное вино (2010) [MP3|320 к�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23DF8FE3893658DFFE9225E0D0F5D40C4BA0B75D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580741   (329984) от 02.10.2022
-
-Def Leppard - London To Vegas (2020) (4 CD) [OGG Vorbis|484 Kbps] <Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329984.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Die Hard The Hunter
-02. Animal
-03. Excitable
-04. Foolin.(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 03:50:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:339783475BE2C91BF8CD2BB00A6541178AA79824
 ```
 
 https://mybot314.ru/tekegram_catalog/

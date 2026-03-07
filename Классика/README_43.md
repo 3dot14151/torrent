@@ -1,3 +1,32 @@
+###  Публикация: 1338552   (266082) от 19.11.2019
+
+Peter Hahn & Anna Maria Kaufmann - CD2 Opera (2010) [FLAC|Lossless|image + .cue] <Opera>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_266082.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Hahn & Anna Maria Kaufmann - Wiener Blut (2:31)
+02. Peter Hahn & Anna Maria Kaufmann - Mikado (2:55)
+03. Peter Hahn & Anna Maria Kaufmann - Carrambolina, Carramboletta (2:40)
+04. Peter Hahn & Anna Maria Kaufmann - Ich Sing Mein Lied Im Regen Und Schnee (6:24)(   Читать дальше...   )Жанр: OperaПродолжительность: 00:51:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0D2286440289180143CAD47942E280B5BDE279B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 68523   (265538) от 07.12.2018
 
 Vanessa Mae - The Violin Player [1995][APE]
@@ -773,41 +802,6 @@ Kammer Sieben – Unfinished Movies (2007) [FLAC|Lossless] <Apocalyptic Folk, Ne
 08. Tripod (03:25)
 09. Dismembered Memories (06:09)
 10. Blood (04:45)(   Читать дальше...   )2007Жанр: Apocalyptic Folk, Neoclassical, Martial IndustrialФормат: CD, Album, Limited EditionПродолжительность: 01:11:53
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 494957   (251122) от 11.05.2012
-
-Svarrogh / Defile Des Ames / Arnica – South European Folk Compendium (2009) [FLAC|Lossless] <Dark Ambient, Neoclassical, Neofolk>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_251122.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Défilé Des Âmes - The Banner of Vanity (15:05)
-02. Svarrogh - The Wheel of Dazhbog (07:33)
-03. Àrnica - Lligueu les Besties (05:36)
-04. Àrnica - Marxa dels Camperols (02:42)
-05. Svarrogh - Life Water Krynitsa (05:55)
-06. Àrnica - Dona que Plora (04:31)
-07. Àrnica - Falc en Alt (03:41)
-08. Svarrogh - Yarilo's Return (05:48)
-09. Défilé Des Âmes - Ordo ab Chao (05:06)
-10. Àrnica - Darrer Ale (04:05)2009Жанр: Dark Ambient, Neoclassical, NeofolkФормат: CDПродолжительность: 01:00:07
 
 ## Скачать торент
 ```bash

@@ -1,3 +1,206 @@
+###  Публикация: 956264   (331068) от 13.11.2015
+
+VA - Hot Charts Известных радиостанций Октябрь (2015) [MP3|160-320 кб/с]<House, Dance, Indie, R&B>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_331068.jpg" />
+</div>
+
+
+###  Подробнее
+
+Европа Плюс Еврохит Top 40
+01. Calvin Harris & Disciples - How Deep Is Your Love
+02. Dimitri Vegas & Like Mike Feat. Ne-Yo - Higher Place
+03. Imany Vs Filatov & Karas - Don't Be So Shy(   Читать дальше...   )Жанр: House, Dance, Indie, R&BПродолжительность: 08:04:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9D4C4FFD21D5DADDD71C07A6287E26BB98435B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580380   (330660) от 01.10.2022
+
+VA - Disco Remix Club & Dance Ritmos (2022) CD, Compilation [MP3|320 Kbps] <Club, Funky, Indie Dance, Nu Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_330660.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Z.A.A.R. - Keep Pushing
+02. Xela Nitarab - Mr. Right Now (Radio Mix)
+03. Xavi Pinos - Free Of Love (Radio-Edit)
+04. Vicky Ace - Moonlight And Sunshine (Radio Edit)(   Читать дальше...   )Жанр: Club, Funky, Indie Dance, Nu DiscoПродолжительность: 04:52:16 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1138E5911C02040582479E7FF07E064EA347195
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 956292   (330152) от 14.11.2015
+
+VA - Car Audio. Великолепный сборник. Крутые мощные басы (2015) [MP3|320 кб/с]<Deep, House, G-House, Nu Disco, Indie, Trap, Dubstep, Progressive, Trance, Techno, Tech>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_330152.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2night, 2907 - Stronger (Original Mix)
+02. 40 Thieves, Qzen - Dont Turn It Off (Greg Wilson Edit)
+03. Ace Ventura - Brave New World (Original Mix)
+04. 4U - Day Started (Original Mix)(   Читать дальше...   )Жанр: Deep, House, G-House, Nu Disco, Indie, Trap, Dubstep, Progressive, Trance, Techno, TechПродолжительность: 19:37:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53797ED06EB369F34E13C11FBB86E7B18738D54A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 841618   (329887) от 16.11.2014
+
+VA - My Favourite Hits of 1989 (12CD) (2014) [MP3|320 кб/с]<Disco, Pop, Synth pop, New wave, Pop rock, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_329887.jpg" />
+</div>
+
+
+###  Подробнее
+
+184. The Rolling Stones - Hearts For Sale
+185. Hubert Kah - Midnight Sun
+186. Bob Dylan - What Was It You Wanted
+187. Cher - You Wouldn't Know Love(   Читать дальше...   )Жанр: Disco, Pop, Synth pop, New age, Pop rock, RockПродолжительность: 01:12:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D2AC17991FEFB1ACF54F4472CEBB37F3DE66D58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580660   (329760) от 02.10.2022
+
+VA - В машине с музыкой Vol.306 (2022) MP3 [320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_329760.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lx24  - Шаг Вперёд Два Назад (02:55) 2022
+02. Melih Aydogan Feat. & Tanel - Ты Такая (02:25) 2022
+03. Lost Kings Feat. & Kiddo Ai - Save Me (03:08) 2022
+04. Dj. Smash Feat. & Nivesta - Позвони (03:00) 2022(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:33:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:758B6336D539AC1AEEA537326E17C308EE7CEDA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 956935   (329412) от 15.11.2015
+
+VA - Lounge Selection - The 50 Best Hits (2015) [MP3|320 кб/с]<Electronic, Downtempo, Trip-hop, Future Jazz, Deep House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_329412.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jungle – Drops
+02. Brigitte – Ma Benz
+03. Bonobo – First Fires (feat. Grey Reverend)
+04. Cocoon – American Boy(   Читать дальше...   )Жанр: Electronic, Downtempo, Trip-hop, Future Jazz, Deep HouseПродолжительность: 03:36:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F01DC351F31BD0B20F94F98B3959F9701F1CE36E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 956861   (329367) от 15.11.2015
+
+VA - Italo Disco Hits Vol.8 (2015) [MP3|320 кб/с]<Italo Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_329367.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Key West - Jesahel (04:59)
+02. Roger Meno - What My Heart Wanna Say (03:53)
+03. Johnny M5 - Moscow Nights (Maxi Version) (05:58)
+04. Lala - Johnny Johnny (Radio Version) (03:27)(   Читать дальше...   )Жанр: Italo DiscoПродолжительность: 04:50:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9956E11CFB057E5E097B38EE42F0540CA3626331
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 842094   (329219) от 17.11.2014
 
 VA - The Official UK Top 40 Singles Chart (16-11-2014) [MP3|320 кб/с]<Pop, Dance, Rock, R&B, Other>
@@ -544,211 +747,6 @@ VA - Music News vol.45 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5B7B3A5D17777318A1A1ED0ECCAEF6BDAF406A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958954   (321842) от 22.11.2015
-
-VA - Passion City Angel: 100 Mega Dance Hit (2015) [MP3|320 кб/с]<Dance, Club, Pop, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321842.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. DJ Klinx - Passion (Radio Mix)
-002. Ed Sheeran - Photograph
-003. AURORA - Half the World Away
-004. Jamie Lawson - Wasn't Expecting That(   Читать дальше...   )Жанр: Dance, Club, Pop, HouseПродолжительность: 08:07:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5711ADCD49CE7FB4A6A094D4589870AFD8F00404
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958708   (321624) от 22.11.2015
-
-VA - My Favourite Hits of 1961 (4CD) (2015) [MP3|320 кб/с]<Easy Listening, Jazz, Rhythm & Blues, Pop Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321624.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bobby Rydell - Sway (02:23)
-02. The Shadows - Find Me A Golden Street (02:49)
-03. Del Shannon - Runaway (02:18)
-04. Ben E. King - Stand By Me (02:52)(   Читать дальше...   )Жанр: Easy Listening, Jazz, Rhythm & Blues, Pop RockПродолжительность: 04:43:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A593BBA054E8A0EB0231B80E2BCBFB69EAA2F18F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 844153   (321483) от 24.11.2014
-
-VA - The Official UK Top 40 Singles Chart (23-11-2014) [MP3|320 кб/с]<Pop, Dance, Rock, R&B, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321483.jpg" />
-</div>
-
-
-###  Подробнее
-
-Публикую очередной традиционный UK Singles Chart  - официальный хит-парад синглов Великобритании, отсортированных по результатам продаж за неделю.
-Все изменения по сравнению с прошлым чатом Вы можете сами посмотреть здесь или под спойлером NEW.
-Во все треки вшиты обложки альбомов.01. Band Aid 30 - Do They Know It's Christmas? (2014)  (3:49)
-02. Clean Bandit & Jess Glynne - Real Love  (3:40)
-03. Olly Murs Feat Travie McCoy - Wrapped Up  (3:06)
-04. Ed Sheeran - Thinking Out Loud  (4:42)(   Читать дальше...   )Жанр: Pop, Dance, Rock, R&B, OtherПродолжительность: 02:28:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E30E6C3B9A2B9BB00387FAF91D0FD9F34B4403E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420953   (321419) от 03.11.2020
-
-VA - Громкие новинки Ноября (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321419.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. #2Маши - Мы переживём всё (3:17)
-02. 2517 - Снег (4:10)
-03. 5sta family - Эгоистка (3:04)
-04. Al Fakher - Девочка VIP (2:14)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:02:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8778FCCF86278CD042683EE1BC4A03F5BF8C32CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259368   (321387) от 03.11.2018
-
-VA - The Official UK Top 40 Singles Chart 02.11.2018 (2018) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321387.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lady Gaga & Bradley Cooper - Shallow
-02. Little Mix - Woman Like Me (feat. Nicki Minaj)
-03. Calvin Harris & Sam Smith - Promises
-04. Dave, Fredo - Funky Friday(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:14:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64D7809DC8D5B89E55545D208D8362F244D40AAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075394   (321294) от 22.11.2016
-
-VA - State Of House Club Mix (2016) [MP3|320 Kbps] <Club House, Dance, Electro>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321294.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kahwe - Patterns
-002. Simon Hardy - Mambo
-003. Mambo Brothers - Momento
-004. Illyus & Barrientos - Strings(   Читать дальше...   )Жанр: Club House, Dance, ElectroПродолжительность: 09:33:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80984DA2B6FB79829F02A8AE1102755FE80E55CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259330   (321267) от 03.11.2018
-
-VA - ЕвроХит Топ 40 Europa Plus 02.11.2018 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321267.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Imagine Dragons - Natural 3:09
-02. KAZKA - Плакала 3:45
-03. Dynoro & Gigi D'Agostino - In My Mind 3:05
-04. Rompasso - Ignis 3:32(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:13:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC60856CCA602A12CC2FBB62022D22B9E542EE18
 ```
 
 https://mybot314.ru/tekegram_catalog/

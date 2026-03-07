@@ -1,3 +1,119 @@
+###  Публикация: 1835294   (250972) от 05.11.2025
+
+Kristian Torgalsen - 2 Albums (2023-2025) [FLAC 24/44.1, FLAC 24/96|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_250972.jpg" />
+</div>
+
+
+###  Подробнее
+
+00. Get your mind straight [00:03:14]
+00. I figured it out [00:03:58]
+00. Normal world [00:03:48]
+00. Why the hell should I care [00:02:40](   Читать дальше...   )Жанр: PopПродолжительность: 2 CD, 01:13:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3414CDB0D79E5DFC88426208B4A141C15EC9B121
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1835394   (250966) от 05.11.2025
+
+Mylene Farmer - 86-97 Mylene Farmer (2025) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_250966.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Maman a tort (nouvelle version)
+02. Plus Grandir
+03. Libertine(   Читать дальше...   )Жанр: PopПродолжительность: 02:00:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9679A37459452FA883F08E3F35EEF3DA940A6B9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1835365   (250936) от 06.11.2025
+
+VA - 70s Rewind (Warner Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_250936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fleetwood Mac - Dreams (2018 Remaster) (4:17)
+02. Frankie Valli & The Four Seasons - December, 1963 (Oh What a Night!) (3:21)
+03. Racey - Boy Oh Boy (2:53)
+04. Tina Turner - Sometimes When We Touch (3:59)(   Читать дальше...   )Жанр: PopПродолжительность: 05:05:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECCAEAE156F971E95586DADEB2B9410B21A7F48B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1835443   (250850) от 06.11.2025
+
+VA - 00s Rewind (Warner Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_250850.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bruno Mars - Nothin’ on You (4:28)
+02. Coldplay - Viva La Vida (4:02)
+03. Gorillaz - Feel Good Inc (3:42)
+04. Daniel Powter - Bad Day (3:55)(   Читать дальше...   )Жанр: PopПродолжительность: 04:27:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62AC1E791B143414FFD888B3E5638127DB9F9127
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1835068   (250587) от 05.11.2025
 
 VA - 80s Rewind (Warner Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -632,122 +748,6 @@ Shakin' Stevens - Re-Set (2023) [FLAC|Lossless|image + .cue] <Pop-Rock, Rock 'N'
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:96185A536A4FBD8977601E659501A3635F8A9B10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622661   (244188) от 29.03.2023
-
-VA - All 00s (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance, Rock, RnB>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244188.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lady Gaga - Just Dance                                  [04:04]
-  02. Gwen Stefani - The Sweet Escape                         [04:06]
-  03. Mary J. Blige - Family Affair                           [04:27]
-  04. Maroon 5 - This Love                                    [03:25](   Читать дальше...   )Жанр: Pop, Dance, Rock, RnBПродолжительность: 03:30:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FA7699E2E59A408DD29DF1145907177A97A425A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622656   (244180) от 29.03.2023
-
-VA - Mega Hits 2011 (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244180.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Avicii - Levels (Radio Edit)                                                [03:21]
-  02. Katy Perry - Firework                                                       [03:47]
-  03. The Black Eyed Peas - Just Can't Get Enough                                 [03:39]
-  04. Taio Cruz - Hangover                                                        [04:04](   Читать дальше...   )Жанр: PopПродолжительность: 03:18:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC4598A7EBB9B4A050FCA06C5DB78CEB84E94329
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623521   (243367) от 02.04.2023
-
-VA - Summer Hits 2023 (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243367.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Katrina And The Waves - Walking On Sunshine                          [03:41]
-  02. Olivia Rodrigo - good 4 u                                            [02:58]
-  03. Lana Del Rey - Summertime Sadness                                    [04:23]
-  04. The Black Eyed Peas - I Gotta Feeling                                [04:49](   Читать дальше...   )Жанр: PopПродолжительность: 01:39:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B9C19C6C6E4CD19F5932436CF7DAB33F5575086
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352548   (243188) от 15.01.2020
-
-The Vision Mastermixers - The Immaculate Mix (1997) [FLAC|Lossless|image + .cue] <Synth-pop, Cover, Medley>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243188.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	The Immaculate Mix	7:08
-1.a	Vogue. Written-By – Madonna, Shep Pettibone
-1.b	Open Your Heart. Written-By – Cole, Madonna, Rafelson
-1.c	Into The Groove. Written-By – Madonna, Bray(   Читать дальше...   )Жанр: House, Synth-pop, Cover, MedleyПродолжительность: 00:39:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38226C571C61ECC217A2C40B6AF1F34CF6480D57
 ```
 
 https://mybot314.ru/tekegram_catalog/

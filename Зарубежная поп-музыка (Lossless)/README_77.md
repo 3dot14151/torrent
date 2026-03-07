@@ -1,3 +1,119 @@
+###  Публикация: 1587126   (193221) от 29.10.2022
+
+PG Roxette (Per Gessle & Roxette) - Pop-Up Dynamo! (2022) 3CD [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_193221.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Per Gessle Talks P-UD! - Album title (1:01)
+02. Per Gessle Talks P-UD! - Background #1 (0:50)
+03. Per Gessle Talks P-UD! - Background #2 (0:46)
+04. Per Gessle Talks P-UD! - Background #3 (0:44)(   Читать дальше...   )Жанр: Pop, Pop-Rock |Продолжительность: 00:27:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76E1DCEEFDB8D173D0B15E057FB45C1550707E71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657251   (193026) от 02.09.2023
+
+Supermax - Types Of Skin (1980) Remastered, 2005, CD-Maximum [FLAC|Lossless|tracks + .cue]<Electronic, Pop, Funk, Reggae>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_193026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hollywood
+02. Hotline
+03. Raindance
+04. In The Middle Of The Night(   Читать дальше...   )Жанр: Electronic, Pop, Funk, ReggaeПродолжительность: 01:19:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68D183ED1F81CDC6ADD651BABA86296046C89A29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657425   (192741) от 03.09.2023
+
+Fernando Express - Der schonste Tanz mit dir (2023) [FLAC|Lossless|WEB-DL|tracks] <Dance Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_192741.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - La Paloma Blue
+02 - Griechischer Sommer
+03 - Von Baden-Baden bis Berlin
+04 - Sonnenanbeter(   Читать дальше...   )Жанр: Dance PopПродолжительность: 00:47:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFF3BCAC314BEF03FF688DCDB8FDCD60F0E2DDD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657609   (192247) от 05.09.2023
+
+Debbie Gibson - Body Mind Soul (1993) Deluxe Edition, 2023, Warner Music Group - X5 Music Group [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_192247.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love or Money [00:04:06]
+02. Do You Have It in Your Heart? [00:04:45]
+03. Free Me [00:04:27]
+04. Shock Your Mama [00:04:07](   Читать дальше...   )Жанр: PopПродолжительность: 02:02:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18F3C429014CC3A202F78FE14F521B19ACCF1196
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1587803   (192022) от 02.11.2022
 
 VA - NOW That's What I Call Music! 113 (2022) 2CD [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Dance>
@@ -624,122 +740,6 @@ Tokio Hotel - 2001 (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0CF07BABD54AE5093CA5F8555D22F46566FC5A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426608   (185354) от 26.11.2020
-
-The Common Linnets - The Hits (2020) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_185354.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  In Your Eyes  03:25
-02.  We Don't Make The Wind Blow  03:36
-03.  Hungry Hands  03:52
-04.  Soho Waltz  04:29(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A14201D9E5761278F563E0E7C01215214FB685CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426854   (185304) от 26.11.2020
-
-VA - Relax Fall 2020 [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_185304.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calum Scott - Dancing On My Own (4:18)
-02. Rhys Lewis - Better Than Today (3:50)
-03. Kwamie Liv - 17 (3:33)
-04. Conan Gray - Heather (3:18)(   Читать дальше...   )Жанр: PopПродолжительность: 01:57:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCBFB0EF18ADE487D536D2811411D54E85B03B49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427091   (184212) от 27.11.2020
-
-VA - Pop Legends (All Time Pop Classics) (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_184212.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kylie Minogue - Spinning Around (03:26)
-02. All Saints - Never Ever (06:27)
-03. Duran Duran - Ordinary World (04:37)
-04. Tina Turner - What's Love Got to Do with It (2015 Remaster) (03:50)(   Читать дальше...   )Жанр: PopПродолжительность: 01:30:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68E041D0982996B5721181C70F95D6DC7A41A2FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665025   (183845) от 28.09.2023
-
-Ed Sheeran - Autumn Variations (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_183845.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Magical (3:14)
-02. England (3:47)
-03. Amazing (4:06)
-04. Plastic Bag (3:50)(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3D497BAD6A50017149481879B3F358571C8DDE6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,35 @@
+###  Публикация: 492009   (246489) от 04.05.2012
+
+Cawatana - 4 albums (2003-2010) [mp3|192-320 kbps] <Neofolk, Apocalyptic Folk, Neoclassical>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_246489.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Live Silently (04:00)
+02. Regret (04:37)
+03. The Purpose (04:32)
+04. In The Final Hour (04:55)
+05. Sacrifice In Vain (02:28)
+06. Over Stray Thoughts (03:42)
+07. Unburied Hopes (04:14)2003-2010Жанр: Neofolk, Apocalyptic Folk, NeoclassicalПродолжительность: 00:28:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85008F1DD00A0DA3C38DBE9D3C1697E53E98C429
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 491661   (246380) от 03.05.2012
 
 Bain Wolfkind (+ Novo Homo) - 7 albums (2004-2012) [mp3|192-320 kbps] <Dark Folk, Blues, Alternative Rock>
@@ -718,35 +750,6 @@ Teodor Wolgers - Dialogues (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Film So
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72C09B453C00DAF1B43B3BB42E52AE528F34DCEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636437   (240763) от 30.05.2023
-
-Shirley Collins - Archangel Hill (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Folk, Americana>
-
->>Other Styles
->>Folk (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240763.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fare Thee Well My Dearest Dear (3:17)
-02. Lost in a Wood (3:00)
-03. The Captain with the Whiskers (2:47)
-04. June Apple (1:53)(   Читать дальше...   )Жанр: Folk, AmericanaПродолжительность: 00:38:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4150BBA32A7376A834E1C4FB9C22BEED1145D6F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

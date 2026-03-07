@@ -1,3 +1,119 @@
+###  Публикация: 1099151   (906642) от 31.01.2017
+
+Marian Hill - Sway (2015) EP [FLAC|Lossless|tracks] <Alternative Pop, Electronic, Minimalist>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_906642.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Time
+02. Got It
+03. Lips
+04. Wasted(   Читать дальше...   )Жанр: Alternative Pop, Electronic, Minimalist, R&B, Synthpop, Nu JazzПродолжительность: 00:23:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:746AF6D4FA19065AE847CC95BB6B1835BE9E9DB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990804   (906194) от 28.02.2016
+
+VA - Discoradio Collection Vol.3 (2004) 2CD Compilation [FLAC|Lossless|tracks + .cue] <Synthpop, Pop, Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_906194.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Banderas - This Is Your Life (4:39)
+02. Tina Charles - I Love To Love (3:02)
+03. Londonbeat - I've Been Thinking About You (3:50)
+04. Greg Kihn - Jeopardy (3:49)(   Читать дальше...   )Жанр: Synthpop, Pop, Pop-RockПродолжительность: 02:32:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE6E4B507FADE3769A951B7627F05A9965C25164
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991533   (905899) от 28.02.2016
+
+Ace Of Base - Singles Of The 90s (1999) [FLAC|Lossless|image + .cue] <Europop, Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_905899.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. C'est La Vie (Always 21) (03:27)
+02. The Sign (03:09)
+03. Beautiful Life (03:40)
+04. Hallo Hallo (02:52)(   Читать дальше...   )Жанр: Europop, EurodanceПродолжительность: 00:59:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72626313AC56A72D34F836114A6DCB12363FB941
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1491963   (905376) от 28.08.2021
+
+Mylene Farmer - Plus grandir: Best Of 1986-1996 (2021) 2CD [FLAC|Lossless|tracks + .cue] <Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_905376.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Plus Grandir [04:04]
+02. Libertine [03:29]
+03. Tristana [04:35]
+04. Sans Contrefaçon [03:50](   Читать дальше...   )Жанр: Synth-popПродолжительность: 01:39:5
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B23CED892C4ED9D54622C2104FF8A0B94F4B6AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1322757   (905359) от 28.08.2021
 
 Tracey Thorn - Full Studio Discography (1982-2018) [FLAC|Lossless|tracks + .cue] <Pop, Trip Hop, House, Acoustic, Ballad>
@@ -627,120 +743,6 @@ BRAVO Hits представляет собой серию музыкальных
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:493ACA5319E6FD657CF87B541AB2622C45FD2522
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494018   (890494) от 06.09.2021
-
-ABBA - Still Have Faith In You, Don't Shut Me Down (2021) [FLAC 2.0|96/24|tracks|WEB-DL] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890494.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Still Have Faith In You (05:11)
- 02. Don't Shut Me Down (03:59)Жанр: PopПродолжительность: 09:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74D202BFC3CA63B24B9E865904AA04B456B851F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 640070   (890268) от 05.04.2013
-
-Alizee - 5 (2013) [FLAC|Lossless]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890268.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Cause De L’automne (03:55)
- 02. 10 Ans (03:01)
- 03. Je Veux Bien (03:39)
- 04. Mon Chevalier (03:04)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FF3FFD0C4EE5A3F313CD433B321CBB538A1AA82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994661   (889825) от 08.03.2016
-
-The Twins - Hold On To Your Dreams (1987) Remastered, 2003, Passion Factory Records [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Euro Disco, New Wave>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_889825.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hold on to your dreams
-02. Love can change it all
-03. Time will tell
-04. What do you live for(   Читать дальше...   )Жанр: Synthpop, Euro Disco, New WaveПродолжительность: 00:58:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5FCE22047611FD339D924FA0CD41B7CCC8CD4D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994600   (889795) от 08.03.2016
-
-Wax - A Hundred Thousand In Fresh Notes (1989) [FLAC|Lossless|WEB-DL|tracks] <New Wave, Pop Rock, Synth Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_889795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anchors Aweigh
-02. Wherever You Are
-03. Railroad To Heaven
-04. He Said She Said(   Читать дальше...   )Жанр: New Wave, Pop Rock, Synth PopПродолжительность: 00:44:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A05454FFACBD57D6531A0E40B432E8E8C5EFDB23
 ```
 
 https://mybot314.ru/tekegram_catalog/

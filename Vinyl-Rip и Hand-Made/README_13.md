@@ -1,3 +1,177 @@
+###  Публикация: 1274259   (794133) от 06.01.2019
+
+Pete Seeger - Waist Deep In The Big Muddy And Other Love Songs (1993) 1967 [FLAC 2.0|48/24|image+.cue|MC-Rip] <Folk>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794133.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Oh Yes I'd Climb (The Highest Mountain Just For You)
+A2 Seek And You Shall Find
+A3 The Sinking Of The Reuben James
+A4 Waist Deep In The Big Muddy(   Читать дальше...   )Жанр: FolkПродолжительность: 00:47:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C26BC584BA47B69EE368832E6EF611C4C2D147F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123383   (792403) от 07.04.2017
+
+The Alan Parsons Project - Vulture Culture (1984) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792403.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Let's Talk About Me (4:33)
+A2. Separate Lives (4:32)
+A3. Days Are Numbers (The Traveller) (4:56)
+A4. Sooner Or Later (4:25)(   Читать дальше...   )Производство: Arista - 206 577Жанр: Progressive RockПродолжительность: 00:37:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA32A8782BAB0FA456CFD2F447A6D73301B9257E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510148   (791953) от 15.11.2021
+
+ABBA - Voyage (2021) [WavPack 2.0|32/192|image + .cue|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791953.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Still Have Faith In You (5:09)
+02. When You Danced With Me (2:51)
+03. Little Things (3:09)
+04. Don't Shut Me Down (3:56)(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE53AF75DA6560AE91499E8166AC24BC6F283FC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510163   (791928) от 15.11.2021
+
+Moby - Reprise (2021) [WavPack 2.0|32/192|image + .cue|Vinyl-Rip] <Downtempo, Electronic, Orchestral>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791928.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everloving
+02. Natural Blues (with Gregory Porter and Amythyst Kiah)
+03. Go
+04. Porcelain (with Jim James)(   Читать дальше...   )Жанр: Downtempo, Electronic, OrchestralПродолжительность: 01:10:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73D656F1944EBED68A845F91F95F65ABEF25BD27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510156   (791882) от 15.11.2021
+
+The Prodigy - The Fat Of The Land (2012) 2LP Reissue [FLAC 2.0|24/192|image +.cue|Vinyl-Rip] <Breakbeat>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791882.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Smack My Bitch Up (05:43)
+A2. Breathe (05:36)
+B1. Diesel Power (04:17)
+B2. Funky Shit (05:23)(   Читать дальше...   )Жанр: BreakbeatПродолжительность: 00:56:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:782AF8D99A0F7D8CA2F55BDE1BC1800BE8963D27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387269   (791768) от 01.06.2020
+
+Diana Krall - All For You (A Dedication to the Nat King Cole Trio) (1996) 2016 [DSD 128|tracks|Vinyl-Rip] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791768.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm an Errand Girl for Rhythm (2:55)
+ 02. Gee Baby, Ain't I Good to You (4:07)
+ 03. You Call It Madness (4:36)
+ 04. Frim Fram Sauce (5:01)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:54:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F168EFECC63290A2C66FD7EE949660AA2BB0E0B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1275130   (791112) от 10.01.2019
 
 Squeeze - East Side Story (1981) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Alternative Rock, New Wave, Pop Rock>
@@ -571,180 +745,6 @@ A3 Good Days Have Gone(   Читать дальше...   )Жанр: Pop, FolkП�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE47DCD164DDA7F43736DEFB744B22B3844689A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207999   (780193) от 20.02.2018
-
-Queen - The Game (1980) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780193.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Play The Game (3:30)
-02. Dragon Attack (4:19)
-03. Another One Bites The Dust (3:34)
-04. Need Your Loving Tonight (2:49)(   Читать дальше...   )Производство: EMI Records - EMA 795Жанр: RockПродолжительность: 00:35:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:917FEFB453720A6BF0F4E87012394F4F45DA796B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207147   (780176) от 20.02.2018
-
-Lindsey Stirling - Brave Enough (2016) [FLAC 2.0|192/24|image+cue|Vinyl-Rip] <Modern Classical, Dance-pop, Dubstep>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780176.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Lost Girls
-2. Brave Enough
-3. The Arena
-4. The Phoenix(   Читать дальше...   )Жанр: Modern Classical, Dance-pop, DubstepПродолжительность: 00:55:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB9E73B1F759B061B09727E85848AA367F1C36DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208378   (779760) от 23.02.2018
-
-Within Temptation - Hydra (2014) [FLAC 2.0|192/24|image + cue|Vinyl-Rip] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let Us Burn
-02. Dangerous (feat. Howard Jones)
-03. And We Run (Feat. Xzibit)
-04. Paradise (What About Us?) (feat. Tarja)(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8404BFE1F2EAC5D41638FAB2B010C58864E49E66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208159   (779755) от 23.02.2018
-
-Lindsey Stirling - Shatter Me (2014) [FLAC 2.0|192/24|image + cue|Vinyl-Rip] <Dubstep, Modern Classical>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779755.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Beyond The Veil
-2. Mirror Haus
-3. V-Pop
-4. Shatter Me (feat. Lzzy Hale)(   Читать дальше...   )Жанр: Dubstep, Modern ClassicalПродолжительность: 00:47:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B90C59C319DD4A7CA29272EDF7F763173D0ACD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208156   (779729) от 23.02.2018
-
-Imagine Dragons - Night Visions (2012) [FLAC 2.0|192/24|image + cue|Vinyl-Rip] <Rock, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779729.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Radioactive
-2. Tiptoe
-3. It's Time
-4. Demons(   Читать дальше...   )Жанр: Rock/PopПродолжительность: 00:44:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A5388CE1B361B85EDF1692D9AC925DA26CFDB4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210826   (778426) от 04.03.2018
-
-Pink Floyd - The Dark Side Of The Moon (1973) Repress, 1974, Harvest [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Psychedelic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778426.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Speak To Me (1:08)
-02. Breathe (In The Air) (2:49)
-03. On The Run (3:44)
-04. Time (6:56)(   Читать дальше...   )Производство: EMI Records / Harvest - EMS-80324Жанр: Psychedelic RockПродолжительность: 00:42:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3165A902D9E0EAA39B5C3CCCA330F85F1C9CD7DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

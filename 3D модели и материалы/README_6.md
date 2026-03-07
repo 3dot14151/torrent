@@ -1,3 +1,81 @@
+###  Публикация: 1370703   (894806) от 28.03.2020
+
+3D модели - TurboSquid - Maserati Levante S Q4 GranSport 2019 - 1341071 [V-Ray|*.max, 3DS, C4D, FBX, OBJ, XSI, MB, LWO]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_894806.jpg" />
+</div>
+
+
+###  Подробнее
+
+3d модель автомобиля марки  MaseratiФормат: V-Ray|*.max, 3DS, C4D, FBX, OBJ, XSI, MB, LWO
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39D77D7D70B9BFE210DEC31D9A09B93F1F69AB7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370813   (894801) от 28.03.2020
+
+3D модели - Hum3D - Peterbilt 340 Dump Truck 2009 [Scanline|Mental Ray|V-Ray|*.max, C4D, FBX, OBJ, 3DS, LWO, STL, MB]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_894801.jpg" />
+</div>
+
+
+###  Подробнее
+
+3d модель автомобиля марки PeterbiltФормат: Scanline|Mental Ray|V-Ray|*.max, C4D, FBX, OBJ, 3DS, LWO, STL, MB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75C1CC9C38A5CE73FE8D2823926C02E1AE3F7097
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370679   (894776) от 28.03.2020
+
+3D модели - 3DExport - Kitbash268 piece - part-1 - 130648 [MAX, FBX, OBJ, STL]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_894776.jpg" />
+</div>
+
+
+###  Подробнее
+
+Высокие и низкополигональные элементы для ZBrush кистей - 268 штукФормат: MAX, FBX, OBJ, STL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:050500EBC2BC281C9188727E12E24E66B8F941E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1370822   (893284) от 29.03.2020
 
 3D модели - Hum3D - Peterbilt 362 Tractor Truck 2002 [Scanline|Mental Ray|V-Ray|*.max, C4D, FBX, OBJ, 3DS, LWO, STL, MB]
@@ -591,84 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:023D721F38B4EC01F8B9A2F8471B44FC34A04BB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495107   (884222) от 10.09.2021
-
-3D модели - Hum3D - McLaren Elva 2021 [V-Ray|*.max, FBX, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884222.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиль марки McLaren.Формат: V-Ray|*.max, FBX, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:376B51BC8026869BABA85839A1942E7D33B3AA77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495269   (882239) от 11.09.2021
-
-3D модели - CGTrader - Ferrari J50 2017 [V-Ray|*.max, 3DS, C4D, FBX, LWO, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882239.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиль марки Ferrari.Формат: V-Ray|*.max, 3DS, C4D, FBX, LWO, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3684DF4BC47A2A2112F9045F7907AA17CB94B0EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373239   (881444) от 05.04.2020
-
-3D модели - Unity Asset Store - PRO Military: Customizable FPS Character - 125288 [UNITYPACKAGE]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881444.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полностью анимированный персонаж FPS с настраиваемыми руками, оружием и текстурами.Формат: UNITYPACKAGE
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA5AFBC0043647C4C31C06ACD090277D2C6D28A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

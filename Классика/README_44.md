@@ -1,3 +1,38 @@
+###  Публикация: 494957   (251122) от 11.05.2012
+
+Svarrogh / Defile Des Ames / Arnica – South European Folk Compendium (2009) [FLAC|Lossless] <Dark Ambient, Neoclassical, Neofolk>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_251122.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Défilé Des Âmes - The Banner of Vanity (15:05)
+02. Svarrogh - The Wheel of Dazhbog (07:33)
+03. Àrnica - Lligueu les Besties (05:36)
+04. Àrnica - Marxa dels Camperols (02:42)
+05. Svarrogh - Life Water Krynitsa (05:55)
+06. Àrnica - Dona que Plora (04:31)
+07. Àrnica - Falc en Alt (03:41)
+08. Svarrogh - Yarilo's Return (05:48)
+09. Défilé Des Âmes - Ordo ab Chao (05:06)
+10. Àrnica - Darrer Ale (04:05)2009Жанр: Dark Ambient, Neoclassical, NeofolkФормат: CDПродолжительность: 01:00:07
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1620194   (249458) от 19.03.2023
 
 Violina Petrychenko - Mrii: Ukrainian Hope (2023) [FLAC|Lossless|WEB-DL|tracks] <Classical>
@@ -722,33 +757,6 @@ Rick Wakeman - Christmas Portraits (2019) [FLAC 2.0|44.1/24|tracks|WEB-DL]<Class
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D78648C6F69A0D70C4392FF31D64FD91588E90A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991943   (225025) от 01.12.2019
-
-Heinali - Sway, sway (2013) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Modern Classical>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225025.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sway, sway (04:54)
-02. Little by Little (04:04)Жанр: Modern ClassicalПродолжительность: 00:08:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4073FD229DAD8C53B74E154D040914C0D5CE79A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

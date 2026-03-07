@@ -1,3 +1,177 @@
+###  Публикация: 1840951   (1047681) от 08.12.2025
+
+Senpais - Studio Albums (4 releases) (2020-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047681.jpg" />
+</div>
+
+
+###  Подробнее
+
+Senpais - метал-группа из Берлина, Германия, основана в 2018 году.2020 - Senpais
+2022 - Embers of Eternity (EP)
+2023 - Pandemonium (EP)
+2025 - By All MeansЖанр: Melodic Death MetalПродолжительность: 02:08:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EFD1645E841C43834A15436BEC27010E06FA8CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1840956   (1047680) от 08.12.2025
+
+Triskelyon - Studio Albums (3 releases) (2022-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047680.jpg" />
+</div>
+
+
+###  Подробнее
+
+Triskelyon - канадский трэш-метал проект, созданный Джеффом Уэйем в 2021 году..
+2022 - Downfall
+2023 - Artificial Insanity
+2025 - Maelstrom Of ChaosЖанр: Thrash MetalПродолжительность: 02:07:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E2E72718F04AF5F4B10DD6D78519948A4406ADE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1840349   (1047282) от 04.12.2025
+
+VA - Believe In Music. 20 Original Hits 20 Original Stars (1972) Series: 20 Original Hits 20 Original Stars [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1047282.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Faces - Stay With Me
+A2 O'Jays - Backstabbers
+A3 Free - All Right Now
+A4 Roxy Music– - Virginia Plain(   Читать дальше...   )Жанр: PopПродолжительность: 01:06:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D61527BFC57E760905C31509384B215484223971
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1840151   (1047159) от 03.12.2025
+
+VA - Britain's Hot 12 (Vocal), Vol. 6 (1971) Series: Britain's Hot 12 [[FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1047159.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Ted Pelkins - Another Time, Another Place
+A2 Sweet Cream - I Believe (In Love)
+A3 Ted Jenniff - Maggie May
+A4 Street Crew - Tweedle Dee - Tweedle Dum(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:39:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDAE29039F315E65988930F0E8E29278EC37262D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1840150   (1047157) от 04.12.2025
+
+VA - Britain's Hot 12. Vocal (1970) Series: Britain's Hot 12 [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1047157.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 E. K. Boone - Raindrops Keep Fallin' On My Head
+A2 Firerain - Young, Gifted And Black
+A3 The Olympics - Come And Get It
+A4 Danny Field's Corp. - I Can't Tell The Bottom From The Topa(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:35:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC382EC4BAA9CAAB71E519D9524506861127FA39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1840145   (1047156) от 04.12.2025
+
+Broken Fate - Studio Albums (5 releases) (2015-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1047156.jpg" />
+</div>
+
+
+###  Подробнее
+
+Broken Fate - швейцарская метал-группа из Цюриха, основана в 2007 году.2015 - The Bridge Between
+2018 - Reborn
+2021 - C-Digital Session 2020
+2023 - Fighters & DreamersЖанр: Melodic Death/Thrash MetalПродолжительность: 04:26:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80A6B6526201B19774B6DFD568231E390DF2CEDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1839985   (1046930) от 02.12.2025
 
 Nailed to Obscurity - Studio Albums (5 releases) (2007-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Doom/Death Metal>
@@ -565,177 +739,6 @@ Emmanuelle (1976)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C26D469545BC210F9F1A51E40372F367AEDA6796
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611393   (1041300) от 11.02.2023
-
-Sarah Brightman - La Luna (2000) 2004 [DTS 5.1 CD-DA|44.1/16|image+.cue|SACD] <Electronic, Rock, Pop, Classical>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041300.jpg" />
-</div>
-
-
-###  Подробнее
-
-La Luna — седьмой альбом, записанный английской певицей Сарой Брайтман в 2000 году. Он был выпущен по лицензии Nemo Studios для Angel Records. Альбом сочетает в себе произведения классиков и современных композиторов. По данным Nielsen SoundScan, это 17-й самый продаваемый классический альбом 2000-х годов в США, и второй самый продаваемый альбом Брайтман в стране (   Читать дальше...   )Жанр: Modern Classical, Soft Rock, Synth-popПродолжительность: 00:58:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A39A0BC2295997A54F4B033F836122FBA9B15FAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438477   (1041029) от 08.01.2021
-
-Bachman-Turner Overdrive - The Best Of B.T.O. (1998?) [DTS 4.0 CD-DA|44.1/16|.wav+.cue|unofficial] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041029.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Roll On Down The Highway
-02 - Hey You
-03 - Lookin' Out For #1
-04 - Gimme Your Money Please(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7237123425A467C44A294782B28AE399FF76601F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611888   (1040558) от 14.02.2023
-
-Karel Gott/Карел Готт - Stori/Рассказы (1982) [FLAC 2.0|192/24|image+.cue] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040558.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Тарантелла • La Danza
-A2 Леди Карнавал • Lady Carneval
-A3 Конец Птичьих Арий • Konec Ptacich Arii (Z Filmu ''My, Ztraceny Holky'')
-A4 До Ре Ми Ля • Do Re Mi La(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A065670089BA3C270CD0C8D8545F0B707EC4AB60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611646   (1040512) от 14.02.2023
-
-Tom Jones - This Is Tom Jones (1969) [FLAC 2.0|192/24|image+.cue] <Lounge, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040512.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Fly Me To The Moon (In Other Words)
-A2 Little Green Apples
-A3 Wichita Lineman
-A4 (Sitting On) The Dock Of The Bay(   Читать дальше...   )Жанр: Lounge, Pop RockПродолжительность: 00:41:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:940B4EA19BA495BA8D9C3CB20E6DB82AB6DA766C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611464   (1040510) от 14.02.2023
-
-3 Inches of Blood - Studio Albums (6 releases) (2001 - 2012) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Power/Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040510.jpg" />
-</div>
-
-
-###  Подробнее
-
-3 Inches of Blood — рок-группа из Канады. Главной отличительной чертой группы является наличие двух вокалистов: Кэма Пайпса с его пронзительным фальцетом и Джеми Хупера с агрессивным скримингом.2001 - Sect of The White Worm (EP)
-2002 - Battlecry Under a Winter Sun
-2004 - Advance and Vanquish
-2007 - Fire Up The BladesЖанр: Power/Heavy Metal, Thrash MetalПродолжительность: 04:58:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD3654D172170AF48F6FC9169C4425D801B3CBDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439273   (1040039) от 12.01.2021
-
-VA - Лауреаты Фестиваля «Весенние Ритмы Тбилиси-80» (1981) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Jazz Rock, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040039.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Машина Времени - Хрустальный Город
-A2 Машина Времени - Снег
-A3 Автограф - Ирландия. Ольстер
-A4 Лабиринт - Из Композиции «Сакартвело»(   Читать дальше...   )Жанр: Jazz Rock, Pop RockПродолжительность: 01:16:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:106756CF4651A459CFE50AFD256ECA59293C0D68
 ```
 
 https://mybot314.ru/tekegram_catalog/

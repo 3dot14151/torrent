@@ -1,3 +1,67 @@
+###  Публикация: 490368   (129747) от 01.05.2012
+
+VA - Офигенное Радио (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129747.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Martin Silence Feat. Kika - Me And You
+002 Авраам Руссо - Нелюбимая
+003 Freaky Boys - Take Me Away (Extended Mix)
+004 Dan Balan - Люби
+005 Professor Green Feat. Emeli Sande - Read All About It (Cahill Dub Mix)
+006 Дилайс - Нежно-Нежно
+007 Grooves Featflip Da Scrip - Make Noize (Club Mix)
+008 Бурановские Бабушки - Party
+009 Silent Circle - 1 More Night
+010 Nity feat. DJ Vestero - Улыбнись2012Жанр: PopПродолжительность: 06:31:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:895CDA71D4DCCA649394CA92CDC7624D4949F515
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525468   (129291) от 21.01.2022
+
+VA - Fresh & Chill (2022) [MP3|320 Kbps] <Pop, Chillout>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_129291.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ber, Charlie Oriain - Meant To Be (2:46)
+02. Jenna Raine - see you later (ten years) (3:08)
+03. Alec Benjamin - Older (3:12)
+04. Will Linley - miss me (when you're gone) (3:06)(   Читать дальше...   )Жанр: Pop, ChilloutПродолжительность: 04:45:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3EB8DFB4E417C328FE501F0AD88BF8DDEFCFFDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 488989   (129098) от 27.04.2012
 
 VA - Моя Прекрасная Леди (2012) [MP3|256 кб/с]<Pop>
@@ -699,64 +763,6 @@ VA - Dario Caminita: Classic Revibes Collection Vol. 03 (2021) [MP3|320 Kbps] <D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8FF7551008F6289A5413BB7E96282340348D1B9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718365   (110677) от 28.04.2024
-
-VA - Dario Caminita: Classic Revibes Collection Vol. 01 (2021) [MP3|320 Kbps] <Disco, Dance, Hi-NRG>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110677.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sylvester - You Make Me Feel (Dario Caminita Revibe) (5:19)
-02. Earth, Wind & Fire - September (Dario Caminita Revibe) (5:00)
-03. Bee Gees - You Should Be Dancing (Dario Caminita Revibe) (5:08)
-04. Kool & The Gang - Celebration (Dario Caminita Revibe) (4:56)(   Читать дальше...   )Жанр: Disco, Dance, Hi-NRGПродолжительность: 01:53:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD8151E2DA0873F4BDD1EE1668C0DBFCD0BD10E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718587   (110659) от 28.04.2024
-
-VA - Dario Caminita: Classic Revibes Collection Vol. 02 (2021) [MP3|320 Kbps] <Disco, Dance, Hi-NRG>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110659.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Barry White - You're The First, The Last, My Everything (Dario Caminita Revibe) (6:29)
-02. The Trammps - Disco Inferno (Dario Caminita Revibe) (6:27)
-03. Bee Gees - Night Fever (Dario Caminita Revibe) (4:49)
-04. Michael Jackson - Don't Stop 'til You Get Enough (Dario Caminita Revibe) (6:06)(   Читать дальше...   )Жанр: Disco, Dance, Hi-NRGПродолжительность: 01:58:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E253834986C6ACF5ECD67C2FA1A4118AB1F6A3F
 ```
 
 https://mybot314.ru/tekegram_catalog/

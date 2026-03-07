@@ -1,3 +1,88 @@
+###  Публикация: 618517   (968675) от 15.02.2013
+
+N'Klabe ft. Yomo - Me Gustas Muchisimo (2013) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_968675.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: LatinПродолжительность: 00:04:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:289B34E5CE01357B8D0936E76AC5C76908B5A93F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 976607   (968530) от 18.01.2016
+
+Depeche Mode – The Best Of Videos (Volume 1) (2007) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_968530.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Best Of Videos of Depeche Mode 1980-200601. Just Can't Get Enough	3:41
+02. Everything Counts	        3:59
+03. People Are People	        3:40
+04. Master And Servant	        3:50(   Читать дальше...   )Жанр: Synth-popПеревод: ОтсутствуетПродолжительность: 01:35:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF4AB89B9327DC65F4F3CBEBDF64F97845AF32DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 618324   (968241) от 15.02.2013
+
+Легенды Ретро FM (2012) TV, CamRip [Полная версия] H.264
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_968241.jpg" />
+</div>
+
+
+###  Подробнее
+
+15 декабря 2012 года в "Олимпийском" с аншлагом прошел восьмой международный фестиваль "Легенды Ретро FM", который собрал популярнейших суперзвёзд 70-х, 80-х и 90-х.
+Ретро FM вновь удалось удивить зрителей новой афишей: почти все артисты выступили на "Легендах" впервые – это Al Bano, C.С. Catch, Анжелика Варум, Baccara, Лев Лещенко, (   Читать дальше...   )01. Intro
+02. Александр Айвазов - ЛИЛИИ
+03. Александр Айвазов - ВАЛЕНТИНОВ ДЕНЬ
+04. Baccara - CARA MIA(   Читать дальше...   )Жанр: КонцертПродолжительность: 03:15:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A12C40CEA8393AE41B6338D353A615D9A50B8911
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 975845   (967783) от 19.01.2016
 
 Jacques Loussier Trio - Play Bach... and more (2004) DVD5
@@ -637,93 +722,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7E59BEFB253FD4101FBF84F7FDF2330CDFBE237
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359419   (962993) от 13.02.2020
-
-Nightwish, Tarja Turunen - 27 Music Clips (1998-2020) WEB-DL [VP9/H.264/2160p/1080p/720p-LQ] <Symphonic Power Metal>
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962993.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tarja Turunen: 00:50:41
-001 2017 Tarja - Feliz Navidad (Solo Version)
-002 2013 Tarja - Never Enough
-003 2017 Tarja - O Come, O Come, Emmanuel(   Читать дальше...   )Производство: Nuclear BlastЖанр: Symphonic Power MetalПродолжительность: 02:01:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83B6E747CB24313A683490D191598A31DF99EEEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 747460   (962532) от 19.01.2014
-
-Roxette - Live, Travelling the World (2013) BDRemux [1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962532.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концертная запись «Roxette» записанная в ходе тура “Travelling the World″, который прошел в 2011-2012 году. Группа отыграла перед 1.5 миллионами человек в 46 странах мира. На протяжении всей карьеры шведский поп-роковый дуэт «Roxette» свыше 30 раз бомбардировал чарты своими синглами, а общий тираж пластинок группы перевалил за 75 миллионов экземпляров.01. Dressed For Success
-02. Sleeping In My Car
-03. The Big L
-04. Silver Blue(   Читать дальше...   )Производство: Швеция / Parlophone, Warner MusicЖанр: Rock, pop, документальныйСубтитры: Вшитые отключаемыеЯзык субтитров: АнглийскийПродолжительность: 01:35:13 + 01:01:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDF991FC92B43C4166ED30BE6D0A2D05A0F8FBBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 747409   (962328) от 19.01.2014
-
-Roxette - Live, Travelling the World (2013) Blu-Ray [1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962328.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концертная запись «Roxette» записанная в ходе тура “Travelling the World″, который прошел в 2011-2012 году. Группа отыграла перед 1.5 миллионами человек в 46 странах мира. На протяжении всей карьеры шведский поп-роковый дуэт «Roxette» свыше 30 раз бомбардировал чарты своими синглами, а общий тираж пластинок группы перевалил за 75 миллионов экземпляров.01. Dressed For Success
-02. Sleeping In My Car
-03. The Big L
-04. Silver Blue(   Читать дальше...   )Производство: Швеция / Parlophone, Warner MusicЖанр: Rock, pop, документальныйСубтитры: Вшитые отключаемыеЯзык субтитров: Английский, испанский, немецкийПродолжительность: 01:35:13 + 01:01:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D8C790F72A8AF1326E7022611E5BBACE2B57C20
 ```
 
 https://mybot314.ru/tekegram_catalog/

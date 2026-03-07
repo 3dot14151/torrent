@@ -1,3 +1,32 @@
+###  Публикация: 1580741   (329984) от 02.10.2022
+
+Def Leppard - London To Vegas (2020) (4 CD) [OGG Vorbis|484 Kbps] <Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_329984.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Die Hard The Hunter
+02. Animal
+03. Excitable
+04. Foolin.(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 03:50:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:339783475BE2C91BF8CD2BB00A6541178AA79824
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1580559   (329924) от 02.10.2022
 
 B.O.W. (Brotherhood Of Wolves) - A Dump Of Twisted Destinies (2022) [MP3|320 Kbps] <Melodic Rock, AOR>
@@ -723,35 +752,6 @@ Slade - Alive At Reading (1980) Bootleg [MP3|192 кб/с]<Rock, Glam Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3955D36F8858B6D769B8E79D64C7D27698058BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182218   (319092) от 09.11.2017
-
-Kid Rock - Sweet Southern Sugar (2017) [MP3|320 Kbps] <Rock, Country Rock, Southern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319092.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Greatest Show On Earth
-2. Po-Dunk
-3. Tennessee Mountain Top
-4. I Wonder(   Читать дальше...   )Жанр: Rock, Country Rock, Southern RockПродолжительность: 00:42:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEB4BB8D20E4B4E5486B89352DBA59AC16780BC1
 ```
 
 https://mybot314.ru/tekegram_catalog/

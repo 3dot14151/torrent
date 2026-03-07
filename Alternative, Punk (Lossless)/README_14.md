@@ -1,3 +1,32 @@
+###  Публикация: 1275050   (791161) от 10.01.2019
+
+Mirah - Understanding (2018) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie Pop, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791161.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Counting (02:51)
+02. Information (03:50)
+03. Lake/Ocean (02:45)
+04. Lighthouse (05:10)(   Читать дальше...   )Жанр: Alternative Rock, Indie Pop, Indie RockПродолжительность: 00:38:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DC3AFC3EAE81FA250AC869DF44F63918883659F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1275293   (791160) от 10.01.2019
 
 AFI - All Hallow's E.P. (1999) EP [FLAC|Lossless|tracks + .cue] <Punk>
@@ -716,35 +745,6 @@ Maggie Rogers - Heard It In A Past Life (2019) [FLAC|Lossless|WEB-DL|tracks] <In
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DDFA7E44AF2D604C8A90F5319439E39EA4289CC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276780   (787230) от 18.01.2019
-
-The Twilight Sad - It Won/t Be Like This All The Time (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Indie Rock, Post-Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787230.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. [10 Good Reasons for Modern Drugs] (4:08)
-02. Shooting Dennis Hopper Shooting (3:25)
-03. The Arbor (4:19)
-04. VTr (4:16)(   Читать дальше...   )Жанр: Alternative Rock, Indie Rock, Post-PunkПродолжительность: 00:46:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:926DD880DACBE2185345189CD91F9922551FD1F8
 ```
 
 https://mybot314.ru/tekegram_catalog/

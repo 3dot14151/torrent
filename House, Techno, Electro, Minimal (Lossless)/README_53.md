@@ -1,3 +1,125 @@
+###  Публикация: 1193887   (261800) от 23.12.2017
+
+Marla Singer - Center Of Subconscious (2017) Nachtstrom Schallplatten [FLAC|Lossless|WEB-DL|tracks] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261800.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Complex Chemistry (06:15)
+ 02. Morning Rain (06:18)
+ 03. Lost In The Jungle (07:03)
+ 04. Low Center Of Gravity (06:56)(   Читать дальше...   )Жанр: TechnoПродолжительность: 01:31:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7117753AFC579D5D39A3150890FA000F21FB5C5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838935   (261606) от 25.11.2025
+
+VA - Autum Hits 2025 (Deep Strips) (2025) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261606.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DominiNiobe - I'm Not Afraid (4:02)
+02. Kanette - Real Life (5:17)
+03. Gorbunoff - Somebody To Love (2:12)
+04. Nikita Marasey - Lost Tonight (Radio Edit) (2:28)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:38:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E43A7AD956D139A9E4B5DF8E53967F0E500DC67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838019   (257741) от 20.11.2025
+
+VA - Ibiza Winter Island 2026 (The Melodic Techno Edition) (2025) [FLAC|Lossless|WEB-DL|tracks] <Techno, Progressive House, Melodic House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_257741.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sarrdo Carocci - It's About Love 02:54
+02. Steen Thottrup & Kaia Mainz - Dreamers (Stefano Martiago Remix) 05:03
+03. Chris Le Blanc, Wolfgang Filz & Karmaloft - Enjoy Your Life (Wolfgang Filz Remix) 03:47
+04. Mafo - Focus Is You (Extended Mix) 03:27(   Читать дальше...   )Жанр: Techno, Progressive House, Melodic HouseПродолжительность: 02:08:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0712D104F3E63C6058CC8C8813294A62563DF1E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 499447   (256445) от 21.05.2012
+
+VA - Century Groove Innovation Vol. 1 (Mixed by Hiroshi Watanabe) - 2012 [FLAC|Lossless]<Tech House, Deep House, Minimal Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_256445.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Synethesys - Hope
+02. Martin Schulte - Liquid (P. Laoss Bottom Shaking Remix)
+03. No'mad - Pulsar
+04. Temma-Teje - Run
+05. Ney Faustini - Free My Soul
+06. Luis Gaviria - Black Man
+07. Low Orbit Satellite - Synchrotation
+08. Life Recorder - Falling Drops (Original Mix)
+09. Foog & Temma-Teje - Dumb
+10. Alveol - Sensual(   Читать дальше...   )2012Жанр: Tech House, Deep House, Minimal TechnoПродолжительность: 01:19:22
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1626568   (255168) от 15.04.2023
 
 VA - Anjunadeep 14 (Mixed by Jody Wisternoff & James Grant) - 2023 [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive House, Progressive Breaks>
@@ -637,118 +759,6 @@ RÜFÜS DU SOL (RUFUS DU SOL) - Collection 7 Releases (2014-2022) [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:38773801BA0A0B6FFDC0A1D15AA6AE3D52B68B53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626833   (240291) от 16.04.2023
-
-VA - Chill & Dance Hits 2023 [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240291.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A-Mase - Tremble (6:23)
-02. Alessio Cappelli - I Have Been Before (6:26)
-03. Andrey Keyton - I Want Your Soul (5:58)
-04. Anton Ishutin - Always (5:28)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 02:05:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5D0E5C6560DB99F9854241F3C5221C13C4C475E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467422   (239821) от 03.05.2021
-
-Biodub - Minutenschlaf EP (2012) Tiefenrausch [FLAC|Lossless|WEB-DL|tracks] <Dub Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 7pm September Light (10:36)
- 02. Mangroove (05:41)
- 03. Minutenschlaf (07:48)Жанр: Dub TechnoПродолжительность: 00:24:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEE3FE5A21331D8113C15E140CAC96946C5DA0F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370278   (238747) от 28.06.2021
-
-Biodub - Discography 21 Releases (2008-2021) Ki Records, Tiefenrausch [FLAC|Lossless|tracks+.cue, tracks] <Dub Techno, Dub, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238747.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unterfluss (08:07)Тип издания: CD, WebЖанр: Dub Techno, Dub, Ambient •Продолжительность: 07:39:47 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1864BFF353EBDD8F0CEF1FD65B580D42B5CAE577
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549132   (237338) от 05.05.2022
-
-Виктор Цой - Ремиксы (2021) [FLAC|Lossless|WEB-DL|tracks] <Electro House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237338.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Печаль (Dj Hitretz Remix) (6:34)
- 02. Звезда по имени Солнце (DJ Vini Remix) (5:51)
- 03. Спокойная ночь (DJ Karas & DJ Mar Dee Remix) (5:52)
- 04. Печаль (DJ Shevtcov & DJ Gallin Remix) (3:42)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 01:33:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73DD5CE2FB85E06E2DEBAF7A14FFAC0D8D6F438D
 ```
 
 https://mybot314.ru/tekegram_catalog/

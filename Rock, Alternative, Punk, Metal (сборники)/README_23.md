@@ -1,3 +1,32 @@
+###  Публикация: 910985   (615654) от 23.06.2015
+
+VA - Мир русского рока 100 песен (2015) [MP3|320 кб/с]<Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_615654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Кино — Группа крови
+02. ДДТ — Что такое осень
+03. Аквариум — Город золотой
+04. Машина времени — Поворот(   Читать дальше...   )Жанр: RockПродолжительность: 06:42:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC0B7089853C7AEDA06D6C9B9FCA20A4F5445980
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1230547   (613947) от 13.06.2018
 
 VA - Tragic Heroes: Hard Rock Legendary Sounds (2018) [MP3|320 Kbps] <Rock, Hard Rock, Alternative, Metal>
@@ -722,35 +751,6 @@ VA - Metal Duets Vol. 01 - 11(2015) [MP3|320 кб/с]<Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85D024FD162EFE26F5553D3973781292EAE9011B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551686   (588916) от 18.05.2022
-
-VA - New Rock 2022 [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588916.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Pabst - Locker Room (3:43)
-002. Machine Gun Kelly,blackbear - make up sex (feat blackbear) (2:02)
-003. DON BROCO - Fingernails (4:12)
-004. Adam Jensen - Chaos (3:24)(   Читать дальше...   )Жанр: RockПродолжительность: 05:49:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DC950E1693927CB66D2F7829BEF47B66431855B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1156173   (528486) от 06.08.2017
+
+VA - German Top 100 Single Charts 04.08.2017 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_528486.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Luis Fonsi – Despacito (feat. Daddy Yankee)
+002. Axwell Λ Ingrosso – More Than You Know
+003. Imagine Dragons – Thunder
+004. Robin Schulz – OK (feat. James Blunt)(   Читать дальше...   )Жанр: PopПродолжительность: 05:46:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CAC8798A34F44244813FC964790768B632517F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1313082   (528240) от 07.07.2019
+
+VA - German Top 100 Single Charts 12.07.2019 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_528240.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Capital Bra x Samra - Tilidin (2:52)
+2.Shawn Mendes & Camila Cabello - Señorita (3:11)
+3.Shirin David, Maître Gims - ON OFF (3:11)
+4.UFO361, Data Luv - Shot (3:44)(   Читать дальше...   )Жанр: PopПродолжительность: 05:15:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34447D23381FE505F89DF28A7607B08E38A3120E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 228706   (527887) от 07.07.2019
 
 VA - Хит Парад 90-х (2008) [MP3|320 kbps]<Pop>
@@ -687,64 +745,6 @@ Tanita Tikaram - Compilation (2022) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2EA78F17E3DA49D6F0A17D6FCCD46E004AEA13DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930193   (516303) от 22.08.2015
-
-VA - Летние super новинки. Часть 5. 50/50 (2015) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516303.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rufus - You Were Right (03:58)
-002. Ярослав Ромашов - Отдыхай (02:57)
-003. Hoodie Allen - Overtime (03:23)
-004. Nuteki - Дни Километры (03:51)(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AD18617DAE6BF47D8FA331D25D6E54E06A2C04E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930224   (516296) от 22.08.2015
-
-VA - Летние super новинки. Часть 4. 50/50 (2015) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516296.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Los Locos & El 3mendo - Carnaval (03:20)
-002. Север - Давай Живи (03:30)
-003. Jessica Mauboy - Can I Get A Moment (03:25)
-004. A-Sen Feat. Dj Nejtrino & Dj Baur - Я Рисую (03:47)(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9010544002D4BA9C198B797E776D08FC8F1ABA9
 ```
 
 https://mybot314.ru/tekegram_catalog/

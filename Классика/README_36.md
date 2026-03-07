@@ -1,3 +1,32 @@
+###  Публикация: 949101   (379144) от 22.10.2015
+
+David Garrett - Explosive (2015) 2CD [FLAC|image+.cue]<Classical, Crossover>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_379144.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dangerous
+02. Explosive
+03. Serenity feat. Nicole Scherzinger
+04. Lose Yourself(   Читать дальше...   )Жанр: Classical, CrossoverПродолжительность: 01:11:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B43DAEA47ABECC90495A55F2C85BDF0EAEF7F12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 948896   (377331) от 23.10.2015
 
 Bach - Goldberg Variations (Andras Schiff) (2005) [FLAC|image +.cue]<Classical, Baroque Period, Chamber Music, Variations>
@@ -704,35 +733,6 @@ Jordi Savall, La Capella Reial de Catalunya, Hesperion XXI - Christophorus Colum
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E064F93D29D66C902E9DFCE71BC01D0498A757EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328719   (358926) от 02.10.2019
-
-Jordi Savall, La Capella Reial de Catalunya, Hesperion XXI - Don Quijote de la Mancha, Miguel de Cervantes - Romances y Musicas [2CD] (2005) Alia Vox [MP3|320 Kbps] <Classical, Baroque>
-
->>Классика
->>Концерты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358926.jpg" />
-</div>
-
-
-###  Подробнее
-
-Среди множества хвалебных речей в дань уважения, опубликованных в ознаменование четвертого столетия со дня рождения Дон Кихота, мало кто задумывался о музыкальном аспекте гения Мигеля де Сервантеса, и еще меньше задумывались о том, что литературное величие Сервантеса принесло ему столь же мало мирского успеха, как и величие духа его героя. Как и наши музыканты прошлого, (   Читать дальше...   )01. Fanfarra (instrumental) (01:44)
-02. Recitado En un lugar de la Mancha (00:50)
-03. La Folia Yo soy la locura (02:32)
-     .II. Первые приключения(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 02:34:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7917C9DCA5B1119D682048BD1DCA9763F6BB3ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1105215   (876401) от 17.02.2017
+
+Tina Guo - The Journey (2011) [FLAC|Lossless|tracks + .cue] <Classical Contemporary>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_876401.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lament [04:20]
+02. Introduction and Polonaise Brillante in C Major, For Cello and Piano, Op. 3 [09:06]
+03. Le Grand Tango [11:16]
+04. Winter Star [05:09](   Читать дальше...   )Жанр: Classical ContemporaryПродолжительность: 00:52:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA7137DCCBA77FF93A0125F607675E5B925D6C4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1105115   (876352) от 17.02.2017
 
 Kalman - Die Csardasfurstin (Сильва) (1968) 1994 Hungaroton Classic Kft [APE|Lossless|image + .cue] <Operetta>
@@ -722,35 +751,6 @@ George Frideric Handel - Arminio (2016) [FLAC 2.0|96/24|Lossless|WEB-DL|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:378D2F0AFF89D776760C6E4CEB3A92FEA95A4B61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997670   (869695) от 19.03.2016
-
-Jean Sibelius - Lemminkainen Suite, Pohjola’s Daughter (Finnish Radio Symphony Orchestra, Hannu Lintu) (2015) [DTS 2.0, 5.0|ISO|64/1|SACD-R] <Orchestral>
-
->>Классика
->>Классика (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869695.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lemminkäinen Suite
-01-I Lemminkäinen and the Maidens on the Island
-02-II The Swan of Tuonela
-03-III Lemminkäinen in Tuonela(   Читать дальше...   )Жанр: OrchestralФормат: DST64Продолжительность: 01:01:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F485FFD2684CF7B58904605DB26DF7BCC08104C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

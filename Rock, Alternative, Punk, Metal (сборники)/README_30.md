@@ -1,3 +1,32 @@
+###  Публикация: 1064890   (423470) от 21.10.2016
+
+VA - Rock Collection 1993 (2016) [MP3|320 Kbps] <Rock, Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_423470.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 01:
+
+01. Steve Vai - An Earth Dweller's Return
+02. Scorpions - Alien Nation(   Читать дальше...   )Жанр: Rock, MetalПродолжительность: 24:56:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98071331B16F44C7C30A97FE1E4538A2D85BCF21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1411795   (423159) от 27.09.2020
 
 VA - Silent Mutiny (Vol.03) (2020) [MP3|320 Kbps] <Hard Rock, Hardcore>
@@ -716,35 +745,6 @@ Theory Of A Deadman - Compilation (2022) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53F02D66919CCE832D0970DD2A42C3C596C2FE9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326040   (407363) от 18.09.2019
-
-VA - Rock Concept: Euro Edition (2019) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407363.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sep7ember - Bullet
-002. Big Mother Gig - Obliterate
-003. Gene Simmons - Carnival Of Souls
-004. Northward - Timebomb(   Читать дальше...   )Жанр: RockПродолжительность: 10:48:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B5F897A2525126B7F935508A9A86C133194A924
 ```
 
 https://mybot314.ru/tekegram_catalog/

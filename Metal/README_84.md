@@ -1,32 +1,3 @@
-###  Публикация: 1267621   (265799) от 07.12.2018
-
-Opera IX - The Gospel (2018) [MP3|320 Kbps] <Symphonic Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265799.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Gospel
-2. Chapter II
-3. Chapter III
-4. Moon Goddess(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 00:54:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBA4A5FEFC1438BE9404B2576B3A6EDFF3ED6A4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1339657   (265358) от 20.11.2019
 
 Mustasch - Killing It For Life (2019) [MP3|320 Kbps] <Heavy Metal, Stoner Metal>
@@ -760,34 +731,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 493516   (248756) от 08.05.2012
+###  Публикация: 1833983   (248551) от 03.11.2025
 
-Stargate - Beyond Space And Time (2012) [MP3|320 кб/с]<Progressive/Symphonic Power Metal>
+Avatar - Don’t Go In The Forest (2025) [MP3|320 Kbps] <Modern-Metal, Groove-Metal, Heavy-Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248756.jpg" />
+  <img src="http://mybot314.ru/public/picture/004/save_picture_248551.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Wonders Of Nature 02:13
-02. Save The World 05:26
-03. Sands Of Time 06:40
-04. Nothing's Forever 07:38
-05. Nightspell 03:44
-06. The Power Within 08:03
-07. The Dark Rift 00:51
-08. Age Of Aquarius 06:22
-09. Ground Zero 08:10
-10. Hysteria 07:25(   Читать дальше...   )Жанр: Progressive/Symphonic Power MetalПродолжительность: 00:59:14
+01. Tonight We Must Be Warriors(4:11)
+02. In The Airwaves(4:38)
+03. Captain Goat(4:29)
+04. Don't Go In The Forest(4:50)(   Читать дальше...   )Жанр: Modern-Metal, Groove-Metal, Heavy-MetalПродолжительность: 00:47:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:326F529E51BF2C1BCE60A79B836CC136B435C827
+magnet:?xt=urn:btih:5113C3474D3BB054FC46445483C03A7330AB41BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1833991   (248549) от 03.11.2025
+
+Fallen Lillies - Cran (2025) [MP3|320 Kbps] <Glam Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_248549.jpg" />
+</div>
+
+
+###  Подробнее
+
+• 01. Basic Body Shaming (2:58)
+• 02. Haut et fort (4:32)
+• 03. Imposteur (2:48)
+• 04. Plaisirs amers (3:41)(   Читать дальше...   )Жанр: Glam-Metal, Hard-RockПродолжительность: 00:34:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53F11966837F9DE163A4B75BEE58B2CCED41415D
 ```
 
 https://mybot314.ru/tekegram_catalog/

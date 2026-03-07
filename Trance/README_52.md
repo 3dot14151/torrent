@@ -1,3 +1,90 @@
+###  Публикация: 1677460   (150536) от 18.11.2023
+
+VA - Black Hole Trance Music 11-23 (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_150536.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Emma Hewitt & Roman Messer - FALLEN (Extended Mix) [6:02]
+02. Christina Novelli & Sarah De Warren - Leaving Me (Extended Mix) [5:37]
+03. Richard Durand & D72 - Raise Yourself (Extended Mix) [5:43]
+04. Sam Allan & Sarah De Warren - Sunrise (Extended Mix) [4:37](   Читать дальше...   )Жанр: TranceПродолжительность: 02:41:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9400EE96110E597697B7C27ED9DC20A0B2AC740
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519546   (148535) от 24.12.2021
+
+VA - Vocal Trance 2022 (2021) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_148535.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aurosonic Sarah Lynn - Onyx (4:05)
+02. Cathy Burton Omnia - Hearts Connected (Costa Remix) (3:40)
+03. Costa Jessie Lee Thetford - Distant World (3:30)
+04. Frainbreeze Shannon Hurley - Calling Your Name (3:45)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:09:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3D6EEF10D3F5840C7F304448121F0246BA03CAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271873   (147601) от 25.12.2018
+
+VA - Markus Schulz - Global DJ Broadcast Top 20: December (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_147601.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz - The Awakening (Extended Mix)
+02. Johan Gielen - Sunshine State (Extended Mix)
+03. Moogwai - Viola (Driftmoon & Robert Nickson Present Astrosphere Extended Remix)
+04. Cosmic Gate & Jason Ross - Awaken (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:23:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F72476E98EE0E35BC43B6B3AF4C0AE8392B57D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1271867   (147577) от 25.12.2018
 
 VA - Uplifting Only: Fan Favorites 2017-2018 (Mixed by Ori Uplift) (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
@@ -655,90 +742,6 @@ VA - Gate 2 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E24C91564471E2B44539ADA4A7FA360AAEC847F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 795600   (137731) от 31.12.2014
-
-Armin van Buuren - 20 Albums , 117 Compilations (1999 - 2014) [MP3|320 кб/с]<Trance , Uplifting Trance , Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137731.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Trance , Uplifting Trance , Progressive TranceПродолжительность: 08:22:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90F2001A824023C022A3E138FB3058A8AA46B0D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824968   (136793) от 16.10.2025
-
-VA - Dark Amsterdam 2025 (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136793.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roman Messer & Main Engine - New Reality (Suanda 500 Anthem) (Extended Mix) [6:42]
-02. Tom Exo - Dare To Dream Big (Extended Mix) [6:55]
-03. AMINTO - Spectrum Of Sound (Extended Mix) [5:24]
-04. Mike Zaloxx - Future (Extended Mix) [7:04](   Читать дальше...   )Жанр: TranceПродолжительность: 01:56:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:491BC1B8F071B55740AAD85B3E791843544F88D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679429   (134961) от 27.11.2023
-
-VA - Uplifting Only Top 15: November 2023 (Extended Mixes) (2023) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kohta Imafuku - Best Wishes (Tsuki Shizumutoki Intro Remix) [4:43]
-02. Tycoos & Daisy Lou - Darkness Into Light (Extended Mix) [5:15]
-03. New World - One (Emotional Mix) [9:17]
-04. Rowan Van Beckhoven - Conjunction (Extended Mix) [7:15](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:46:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3178A5B9FAEB83FDBBAB9BDA096924597691F2D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

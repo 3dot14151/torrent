@@ -1,3 +1,32 @@
+###  Публикация: 1796223   (18817) от 09.05.2025
+
+VA - Relax & Unwind: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_18817.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Pearson - Sous La Lune (5:39)
+02. Michael e - All My Love (5:58)
+03. Luis Hermandez - Rolling (4:51)
+04. Steven Solveig - Smooth Faces (3:18)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:01:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6D5DAB2997F4083A5B080FEC340E2E03F4E5EA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1796792   (18513) от 12.05.2025
 
 VA - The Perfect Lounge Balearic Session (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
@@ -713,35 +742,6 @@ VA - Ibiza Afterlight - Chillout Soundscapes (2025) [FLAC|Lossless|WEB-DL|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA66C4C2B3576EE7AC5406E9C514064EF2E4A459
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818665   (2157) от 18.09.2025
-
-VA - A Spa & Wellness Chill Experience (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Silbermaus - Shaped by Light (04:10)
- 02 - The Foxtrot Effect - Echoes of Dusk (04:19)
- 03 - Muehlig - Aftertaste of You (04:22)
- 04 - Klasse XXI - Journey to You (04:16)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:48:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9E9B17E871C075A57DE1902215321C01D50EC03
 ```
 
 https://mybot314.ru/tekegram_catalog/

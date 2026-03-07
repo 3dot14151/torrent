@@ -1,3 +1,29 @@
+###  Публикация: 1605522   (1044804) от 18.01.2023
+
+Topaz Photo AI 1.1.7 RePack by KpoJIuK [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044804.jpg" />
+</div>
+
+
+###  Подробнее
+
+Topaz Photo AI — это универсальный инструмент для уменьшения шума, повышения резкости и увеличения фотографий с помощью искусственного интеллекта. Topaz Labs объединила некоторые функции Denoise AI , Sharpen AI и Gigapixel AI в один мощный инструмент, чтобы сделать ваш рабочий процесс быстрее и проще.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A086D3506B4A7539F2D0E5508B667EF6756347F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1605642   (1044798) от 18.01.2023
 
 Macrorit Partition Expert 7.3.3 Unlimited Edition RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -649,32 +675,6 @@ Wondershare PDFelement - программа для общего редактир
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B07C6306E5921105CEB0DDA5DC8130C77219D401
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605767   (1044695) от 19.01.2023
-
-Topaz Photo AI 1.1.7 RePack (& Portable) by TryRooM [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044695.jpg" />
-</div>
-
-
-###  Подробнее
-
-Topaz Photo AI — это универсальный инструмент для уменьшения шума, повышения резкости и увеличения фотографий с помощью искусственного интеллекта. Topaz Labs объединила некоторые функции Denoise AI , Sharpen AI и Gigapixel AI в один мощный инструмент, чтобы сделать ваш рабочий процесс быстрее и проще.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82CFD02E652FBC495C35EACB151CA44EDFE4FC08
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1801622   (66167) от 12.06.2025
+
+VA - Keep It Trance Vol. 29 (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66167.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cristanodj - Bright Future (Original Mix) [3:32]
+02. Eddie Lung - Brilliance (Original Mix) [3:12]
+03. Dyrsein & Renata Cast - Don't Change My Soul (Original Mix) [4:21]
+04. Mhammed El Alami & Josie Sandfeld - Memories (Original Mix) [4:04](   Читать дальше...   )Жанр: TranceПродолжительность: 01:50:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6981DA83C66FE749B0C6F03964542D09616CA6D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802080   (66125) от 14.06.2025
+
+VA - Progressive Trance Awakening, Vol. 05 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66125.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Issam Boufhigua - Psychic Drain (Radio Edit) [4:23]
+02. North Skies - The Void (Original Mix) [3:26]
+03. SICKCODE & Keuse - Vinaceous (Extended Mix) [5:01]
+04. Pablo Artigas - Paranoid Platypus (Original Mix) [3:47](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:07:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2083A1B20FE2CE4AEE40E090077F800E7E18BCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802618   (66028) от 18.06.2025
+
+VA - A State of Trance - Classics Top 10, Vol. 4 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_66028.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1:
+01. Armin van Buuren & Cathy Burton - Rain (04:05)
+02. Southside Spinners - Luvstruck (Marco V & Benjamin 2000 Remix) (04:32)
+03. Signum & Scott Mac - Coming On Strong (03:19)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:48:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAE883E44F1FE99DC053E804DD7754A213C94E26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1804005   (65742) от 26.06.2025
 
 VA - Trancendence, Vol. 02 (2025) [MP3|320 Kbps] <Trance>
@@ -656,93 +743,6 @@ VA - Redux Selection, Vol. 10 / 2025 (2025) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC04D64391F750FF3E17BCC1F2A3DA5F47E7C7B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733523   (51625) от 29.06.2024
-
-VA - Markus Schulz - Sunrise Set 2024 (Emotional Dance Mix) (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51625.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chicane - Early (Sunrise Set 2024) (Symphonic Rehearsal Mix) [2:09]
-02. Markus Schulz - Summer Of '99 (Sunrise Set 2024) [3:36]
-03. Stu McNally - Innerversions (Sunrise Set 2024) [3:51]
-04. Estiva - Mesa (Sunrise Set 2024) [3:36](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 04:00:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C006817FDFEF04E43524B4EF39E8A93413BE1128
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737115   (49804) от 16.07.2024
-
-VA - A State Of Trance Radio Top 50 - 2024, Vol. 2 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren feat. Anne Gudrun - High On Love (Extended Mix) [6:08]
-02. Ferry Corsten feat. Chris Howard - Where The Mountains Grow (Extended Mix) [6:30]
-03. Gareth Emery & Giuseppe Ottaviani feat. Sarah De Warren - Carry On (Original Mix) [3:08]
-04. Cosmic Gate & Christian Burns - Brave (Extended Mix) [7:25](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 04:50:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2990B60AE938C2347C80E7EEFD07857E4B27344E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737288   (49719) от 17.07.2024
-
-VA - Anjunabeats presents Vocal Trance 01 (2024) [MP3|320 Kbps] <Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49719.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ilan Bluestone & Maor Levi feat. EL Waves - Will We Remain? (Extended Mix) [7:31]
-02. Oliver Smith feat. Amy J Pryce - Lovingly (Extended Mix) [7:03]
-03. Above & Beyond pres. OceanLab - Satellite (Above & Beyond's 2023 Extended Progressive Mix) [6:38]
-04. Boom Jinx & Maor Levi & Ashley Tomberlin - When You Loved Me (Extended Mix) [6:15](   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 02:45:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3071008833C59C0F910A8C45DEA3F8EC4696BCF0
 ```
 
 https://mybot314.ru/tekegram_catalog/

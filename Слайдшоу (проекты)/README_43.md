@@ -1,3 +1,30 @@
+###  Публикация: 1221841   (691054) от 26.04.2018
+
+Проекты - Motion Array - Golden Luxury Slideshow - 78011 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_691054.jpg" />
+</div>
+
+
+###  Подробнее
+
+Golden Luxury Slideshow - красивый, творчески анимированный шаблон After Effects.
+Этот проект - идеальное вступление для церемоний награждения. Так же можно использовать в качестве трейлера к фильму.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:207710AE964D4E4FBF3537420181D24A80606101
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 674889   (690670) от 01.07.2013
 
 Проекты - VideoHive - Barbed Wire [AEP]
@@ -648,32 +675,6 @@ Ink Slideshow - это классный проект для создания с�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4BAAA4B4187E5193E0B6AE66E63CCCC4705F9FAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135357   (682385) от 18.05.2017
-
-Проекты - VideoHive - Hybrid Typo Opener - 19879373 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682385.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hybrid Typo Opener - современный шаблон After Effects. Создайте свой впечатляющий, динамичный ролик к подходящему событию!Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D7DD02671D4FD47174D1B3A731EAE6ED5A64FC2
 ```
 
 https://mybot314.ru/tekegram_catalog/

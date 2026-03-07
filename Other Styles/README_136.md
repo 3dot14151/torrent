@@ -1,3 +1,32 @@
+###  Публикация: 1079665   (291986) от 05.12.2016
+
+VA - Los clasicos argentinos - Tango - Vol.13 - Julio De Caro: El gran melodioso (1996) [MP3|128 Kbps] <Tango>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_291986.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carlos Gardel - Tango argentino
+02. Sexteto Mayor - Verano porteno
+03. F.Ruiz-F.Rotundo - Milonguera
+04. Argentino Ledesma - Fuimos(   Читать дальше...   )Жанр: TangoПродолжительность: 00:46:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A143329D77F87873698EE56BEF2AF9D2D76EB03C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1080054   (291572) от 05.12.2016
 
 Ramin Djawadi - Westworld / Мир Дикого Запада: Season 1 (Music from the HBO Series) (2016) [MP3|320 кб/с]<Soundtrack>
@@ -727,35 +756,6 @@ Musica Relajante - Power Yoga (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Med
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71A7590BBB305E2E156DBC86B9FFD6007FA919A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263359   (286299) от 20.11.2018
-
-Thomas E Rouch - Портал/Alpha Gateway (Original Motion Picture Soundtrack) (2018) Web-DL [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286299.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alpha Gateway
-02. Some Would Call That Magic
-03. Matt and Jane
-04. The Accident(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:01:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D4CC01849FF9EDA479875E36D1FEB61D4E47A70
 ```
 
 https://mybot314.ru/tekegram_catalog/

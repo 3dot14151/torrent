@@ -1,159 +1,25 @@
-###  Публикация: 1808886   (64816) от 27.07.2025
+###  Публикация: 1803701   (65827) от 24.06.2025
 
-Как львенок и черепаха пели песню. Сборник мультфильмов (1970-1985) DVDRip
-
->>Мультфильмы
->>Отечественные Мультфильмы (коллекции, сборники / *логии)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64816.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Я на солнышке лежу, я на солнышко гляжу!" - кому не знакома эта незамысловатая популярная песенка на музыку Г. Гладкова из мультфильма "Как львенок и черепаха пели песню", снятого Инессой Алексеевной Ковалевской!.. На диске представлены и другие известные произведения режиссера. Они созданы в разные годы, на разные темы, однако их объединяет (   Читать дальше...   )Производство: СССР / СоюзмультфильмЖанр: мультфильм, детский, короткометражкаРежиссер: Инесса КовалевскаяАктеры: Олег Анофриев, Ростислав Плятт, Валентина Толкунова, Аида Ведищева, Анатолий ГороховСубтитры: отсутствуютПродолжительность: 01:26:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1EF9C1AA00D4BE350968739292D9F3E61593FD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808805   (64815) от 27.07.2025
-
-Fallen Empire - Сожаление (2025) [MP3|320 Kbps] <Gothic Metal, Industrial Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Прощай [00:04:32]
-02. Иди за мнои [00:04:16]
-03. Безумный мир [00:03:22]
-04. Страсть [00:03:41](   Читать дальше...   )Жанр: Gothic Metal, Industrial MetalПродолжительность: 00:34:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB3DC6CA1180604E23E10746640B0DAA64BE2C90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808913   (64814) от 27.07.2025
-
-Формула 1. Сезон 2025. Этап 13. Гран-при Бельгии. Квалификация (26.07.2025) WEBRip [H.264/720p-LQ] [50fps] F1TV
-
->>Спорт и активный отдых
->>Формула 1
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64814.jpg" />
-</div>
-
-
-###  Подробнее
-
-26 июля 2025 суббота 17:00 МСК этап 13, Франкоршам. Гран-при Бельгии. КвалификацияТелекомпания: F1TVЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Продолжительность: 01:18:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:858EC292744128C8969B3492F6FCEE23489561FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808945   (64813) от 27.07.2025
-
-Николай Новиков | Первый среди карапузов. (Книга 4). Наномашины, первоклашка! (2025) [MP3, Олег Кейнз, Алиса Тверская]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64813.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Наномашины, первоклашка!» – роман Николая Новикова, четвертая книга цикла «Первый среди карапузов», жанр попаданцы, боевое фэнтези, бояръ-аниме.
-Трепещите учителя! Бойтесь одноклассники. Спасайся школа! Я выбрался из Бездны, вернул оттуда своего родственника и попутно получил великую силу. Теперь я готов к следующему этапу своей жизни… Встречай меня, экспериментальная (   Читать дальше...   )Жанр: фантастика, попаданцыИздательство: ИДДКПродолжительность: 09:06:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E217CF5D9A7DE504574EC1E89D6A7E8A276AF83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808893   (64812) от 27.07.2025
-
-Мортал Комбат / Mortal Kombat (2021) WEB-DL [H.265/2160p] [4K, SDR, 10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64812.jpg" />
-</div>
-
-
-###  Подробнее
-
-Боец смешанных единоборств Коул Янг не раз соглашался проиграть за деньги. Он не знает о своем наследии и почему император Внешнего Мира Шан Цзун посылает своего лучшего воина, могущественного криомансера Саб-Зиро, на охоту за Коулом. Янг боится за безопасность своей семьи, и майор спецназа Джакс, обладатель такой же отметки в виде дракона, как и у Коула, советует (   Читать дальше...   )Производство: США / New Line Cinema, NetherRealm Studios, Atomic MonsterЖанр: боевик, фэнтези, фантастикаРежиссер: Саймон МаккуойдАктеры: Льюис Тан, Джо Таслим, Джессика МакНэми, Джош Лоусон, Мехкад Брукс, Матильда Кимбер, Лора Брент, Таданобу Асано, Хироюки Санада, Чинь ХаньПеревод: Дублированный, Многоголосый, Двухголосый, АвторскийЯзык озвучки: Русский, Украинский, АнглийскийСубтитры: Русские (forced, full), Украинские (forced, full), Английские (full, SDH)Продолжительность: 01:50:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EC2500112AD6391FC5C2CC3C9958DD2EE68D05E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808979   (64811) от 27.07.2025
-
-VA - Lounge Avenue, Vol. 3 (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+VA - Winter Anthems 2016 (2016) CD, Compilation, Mixed [FLAC|Lossless|tracks + .cue] <Electronic, House>
 
 >>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64811.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65827.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Calmabohain - In My Mind (05:34)
- 02.  Velvet Dreamer; Tim Gelo - Cafe Latte Macchiato (05:28)
- 03.  Music Of The Earth - Golden Ride (Pearldiver Homegrown Mix) (03:29)
- 04.  Five Seasons - Walk Through the Day (Original Mix) (05:26)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:15:36
+01. Cheat Codes X Kris Kross Amsterdam / Sex    [0:04:16.22]
+02. Sigala Feat. John Newman & Nile Rodgers / Give Me Your Love    [0:03:11.73]
+03. Sia Feat. Sean Pau / Cheap Thrills (Le Youth Remix)    [0:02:42.06]
+04. Imany / Don't Be So Shy (Filatov & Karas Remix)wn Title    [0:03:06.00](   Читать дальше...   )Жанр: Electronic, HouseПродолжительность: 01:16:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2550297F9EBFB2D20F26B16B4B9629A33C988300
+magnet:?xt=urn:btih:9CDA0A4B19EB6A28705BE90EBDC5939A610D00F0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -161,26 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808961   (64810) от 27.07.2025
+###  Публикация: 1803683   (65826) от 24.06.2025
 
-Тихоокеанский рубеж 2 / Pacific Rim: Uprising (2018) WEB-DL [H.265/2160p] [4K, SDR, 10-bit]
+Ds Dream Band Stillminati - Electro Swing Classics (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Electro Swing>
 
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64810.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65826.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Команда пилотируемых роботов-защитников остановила вторжение гигантских инопланетных монстров. Великая битва за Тихоокеанский рубеж ознаменовала новую главу в истории человечества. Однако война только начинается…
-Пришло время нового поколения отстаивать своё право на Землю.Производство: Великобритания, Китай, Япония, США, Мексика / Legendary EntertainmentЖанр: фантастика, боевик, приключенияРежиссер: Стивен С. ДеНайтАктеры: Джон Бойега, Скотт Иствуд, Кэйли Спэни, Берн Горман, Чарли Дэй, Цзин ТяньПеревод: Дублированный, Многоголосый, Двухголосый, АвторскийЯзык озвучки: Русский, АнглийскийСубтитры: русские (forced, full), английские (forced, full, SDH, Commentary)Продолжительность: 01:50:44
+01.  Hit the road (4:00)
+02.  All Night (4:00)
+03.  Cinnamon Swing (2:18)
+04.  Honey has spice (4:00)(   Читать дальше...   )Жанр: Jazz, Electro SwingПродолжительность: 00:59:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1D73D8092F3A4AC219C4C2281CF3595FDA763CE9
+magnet:?xt=urn:btih:6341D511EC4B3D21C02BBF48BDFFF540E500D46F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -188,28 +56,167 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808987   (64809) от 27.07.2025
+###  Публикация: 1803510   (65825) от 24.06.2025
 
-VA - Lounge Avenue, Vol. 4 (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+Yungblud - Idols (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65825.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. YUNGBLUD - Hello Heaven, Hello (9:06)
+02. YUNGBLUD - Idols Pt. I (3:35)
+03. YUNGBLUD - Lovesick Lullaby (2:55)
+04. YUNGBLUD - Zombie (4:07)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:47:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90938923AA0284C8043EA6692473ABD820614456
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803689   (65824) от 24.06.2025
+
+Holler - Next In Line (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Rock, AOR>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65824.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Miracle [00:05:38]
+02. Stormy [00:04:26]
+03. Chandelier [00:04:58]
+04. Don't Fool Me [00:04:39](   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:52:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:562177693562F70CA2D90ED7006D3AC8ABA83D3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803700   (65823) от 24.06.2025
+
+VibeSeeker - Electro Swing 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Electro Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65823.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Black Lace (2:17)
+02.  Crimson Moon (2:40)
+03.  Dark Desire (3:37)
+04.  Ghost In Your Arms (3:26)(   Читать дальше...   )Жанр: Jazz, Electro SwingПродолжительность: 00:29:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC0792D333AC499AF5A077F388E8D3C2C2A738A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803661   (65822) от 24.06.2025
+
+Поездка отца / Le voyage du pere (1966) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65822.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм по одноимённому роману Бернара Клавеля... Мсье Контен много лет не уезжал из своей деревни. И вот, преодолев страх перед большим путешествием, он отправляется в Лион, чтобы навестить свою дочь Мари-Луизу. Найти девушку в большом городе оказывается непросто. После встречи со знакомыми Мари-Луизы отцу становится ясно – его дочь стала проституткой. Контен многое (   Читать дальше...   )Производство: Франция, Италия / Gafer, Les Films Copernic, Metropolis FilmsЖанр: драмаРежиссер: Дени де Ла ПательерАктеры: Фернандель, Лилли Палмер, Лоран Терзиефф, Филипп Нуаре, Мишель Оклер, Мадлен Робинсон, Этьен Бьерри, Доминик Паж, Рози Варт, Риккардо Гарроне, Патриция ДармонПеревод: профессиональный двухголосый (ОРТ-видео)Язык озвучки: русский, французскийСубтитры: французскиеПродолжительность: 01:24:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE023DD055988696A8247601E75AB5569007BCEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803513   (65821) от 24.06.2025
+
+Cheat Kusushi no Slow Life: Isekai ni Tsukurou Drugstore | Drugstore in Another World: The Slow Life of a Cheat Pharmacist | Размеренная жизнь фармацевта-читера [2021, TV, 12 из 12 эп.] BDRemux 108 ...
+
+>>Аниме разное
+>>Аниме Blu-ray, Remux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65821.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рэйдзи Кирио был типичным офисным планктоном, который целыми днями только и делал, что работал. В самый обычный день, идя на работу с отсутствующим выражением лица, он вдруг обнаружил, что оказался в лесу в другом мире. «О, должно быть, это то самое перерождение в другом мире, о котором рассказывают». Рэйдзи может создавать лекарства, которых очень не хватало в этом (   Читать дальше...   )Производство: EMT SquaredЖанр: комедия, фэнтези, повседневностьПеревод: CrunchyRollЯзык озвучки: Японский и русский (AniLibria)Субтитры: Английские и  Русские (Полные и Надписи)Продолжительность: 12 эп. по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF0CD34732E45FA53764E30189A669F8AA8DEFA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803558   (65820) от 24.06.2025
+
+Markus Schulz - Global DJ Broadcast: Sunrise Set (2025-06-19) [MP3|320 Kbps] <Progressive House, Trance, Melodic House>
 
 >>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
+>>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64809.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65820.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Living Room - This Old Rollercoaster (Instrumental Mix) (05:15)
- 02.  Weathertunes - Jade Flowers (Original Mix) (04:39)
- 03.  Lemongrass - Sunset People (Original Mix) (04:42)
- 04.  Hatar - Dejalo en Paz (Original Mix) (05:21)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:10:48
+01. Chicane - The Sleepless Year (Beatless Mix)
+02. Matt Fax - Twilight
+03. Airwave - It Rained All Weekend (2024 Version)
+04. Marsh & Volen Sentir - Ascension(   Читать дальше...   )Жанр: Progressive House, Trance, Melodic HouseПродолжительность: 02:00:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:87AA79C6D30F08E7C2E40F79511690606ECC9AE2
+magnet:?xt=urn:btih:95786FE7288722C9A7825891E7910EE0B257F516
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -217,25 +224,135 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808846   (64808) от 27.07.2025
+###  Публикация: 1803429   (65819) от 24.06.2025
 
-Юрий Винокуров, Олег Сапфир | Орден Архитекторов (Книга 2) (2024) [MP3, Денис Некрасов]
+George Koller - Zen Tranquility (2011) CD, Album [FLAC|Lossless|tracks + .cue] <Meditative, Relax, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65819.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ancient Waters    [0:06:03.60]
+02. Zen Tranquility    [0:02:55.42]
+03. Willow Breeze    [0:04:16.01]
+04. Bamboo Fields    [0:03:11.13](   Читать дальше...   )Жанр: Meditative, Relax, New AgeПродолжительность: 00:51:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF594A5C1502347772390D246290CF6799253649
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803633   (65818) от 24.06.2025
+
+Plugin Alliance & Brainworx - bx_glue 1.1.0 VST, VST 3, AAX (x64) RePack by TCD [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65818.jpg" />
+</div>
+
+
+###  Подробнее
+
+Получите звук величайших VCA-компрессоров британского производства 1980-х годов, теплоту, мощь и сплоченность аналоговой компрессии для склейки со всей мощью и контролем современного набора функций Brainworx с многополосными возможностями. Для профессионалов, ищущих идеальный клей для микса, и любителей, чья миск никогда не получается единым целым, это идеальный (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6EAC643B422A8FCB7A6DEE675833C2745680319
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803665   (65817) от 24.06.2025
+
+Поездка отца / Le voyage du pere (1966) BDRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65817.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм по одноимённому роману Бернара Клавеля... Мсье Контен много лет не уезжал из своей деревни. И вот, преодолев страх перед большим путешествием, он отправляется в Лион, чтобы навестить свою дочь Мари-Луизу. Найти девушку в большом городе оказывается непросто. После встречи со знакомыми Мари-Луизы отцу становится ясно – его дочь стала проституткой. Контен многое (   Читать дальше...   )Производство: Франция, Италия / Gafer, Les Films Copernic, Metropolis FilmsЖанр: драмаРежиссер: Дени де Ла ПательерАктеры: Фернандель, Лилли Палмер, Лоран Терзиефф, Филипп Нуаре, Мишель Оклер, Мадлен Робинсон, Этьен Бьерри, Доминик Паж, Рози Варт, Риккардо Гарроне, Патриция ДармонПеревод: профессиональный двухголосый (ОРТ-видео)Язык озвучки: русский, французскийСубтитры: французскиеПродолжительность: 01:24:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89394819F55B0E189FD54A32261A883E479CD375
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803625   (65816) от 24.06.2025
+
+VA - Ibiza Summer 2025 (Deep-House Smoothies from the Heart) (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calmabohain - Take Me Away (03:26)
+02. Scot & Millfield - It's a Fine Day (03:42)
+03. Lemongrass - Got It On The Dancefloor (04:52)
+04. Steen Thøttrup & Kaia Mainz - Dreamers (daZZla Deep Remix) (06:14)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:16:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B72CE63FA49FF5F9E8E6DA46361E490036BF2836
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803703   (65815) от 24.06.2025
+
+Альфред Бестер | Время - предатель (2020) [MP3, Puffin Сafe]
 
 >>Художественные аудиокниги и публицистика
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64808.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65815.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Наследник без наследства, но с большим потенциалом? Слабый маг, но с огромным опытом? Молодой человек, что проживает вторую жизнь? Это все я, Теодор Вавилонский, кто потихоньку осваивается в Лихтенштейне. Пришла пора вернуть свое, а главное, показать всем окружающим, что “мое” – это священно. И тем, кто на него позариться… не завидую я им, в общем.Жанр: фэнтези, приключения, попаданцыИздательство: ЛитРесПродолжительность: 08:27:32
+Джон Страпп может решить любую стратегическую задачу с вероятностью 87%, за что межзвездные корпорации готовы платить ему космические деньги и отдавать 1% от будущих прибылей. Команда Страппа заинтересована в том, чтобы он продолжал работать без сбоев, но они все же случаются. Свой талант Страпп обрел десять лет назад после катастрофы. И теперь, каждый раз, когда (   Читать дальше...   )Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 01:01:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:211945B5F8E5DA17DF8BED26A7F2A43E623A67B5
+magnet:?xt=urn:btih:23919670F03FA8C5EC4BF08300AE774AB6566A6B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -243,82 +360,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808857   (64807) от 27.07.2025
+###  Публикация: 1803622   (65814) от 24.06.2025
 
-Дэвид Луис Эдельман | Инфошок (2025) [MP3, Петр Каледин]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64807.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как далеко можно зайти в жажде наживы?
-Грандиозное путешествие по окопам технологической войны, которая ведется с помощью демонстрационных образцов продукции, пресс-релизов и предложений о продажах, а плацдармами служат конференц-залы корпораций далекого будущего. Будущего, в котором знакомые нам технологии запрещены.
-Нэтч – мастер био-логики, программирования человеческого (   Читать дальше...   )Жанр: фантастикаИздательство: FanzonПродолжительность: 16:01:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3F0B5BC39A1AEC0A903ADEB04BAAA2FD3283C8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808932   (64806) от 27.07.2025
-
-Firefox Browser ESR 115.26.0 Portable by PortableApps [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64806.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mozilla Firefox - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB1CF61632F8F7F6F607639DC0DA447EF0640D7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808968   (64805) от 27.07.2025
-
-Roscoe Bowie and the Federal City Swingers - Relationships (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+Soulfly - Savages (2013)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Groove, Thrash, Death Metal>
 
 >>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64805.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65814.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Cry To Me (3:14)
-02.  He Will Fix It (4:49)
-03.  I Didn't Think She Would Do That (4:10)
-04.  Man Meets Woman (Thoughts) (4:45)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:27
+A1 Bloodshed
+A2 Cannibal Holocaust
+A3 Fallen
+B1 Ayatollah Of Rock ‘N’ Rolla(   Читать дальше...   )Жанр: Groove, Thrash, Death MetalПродолжительность: 01:09:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ABC532FAC37E092EE55C6395D8AFF2226FE3A449
+magnet:?xt=urn:btih:9B089E19E407AC3C4D84B16E0B1D285AAEFE379D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -326,57 +389,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808949   (64804) от 27.07.2025
+###  Публикация: 1803620   (65813) от 24.06.2025
 
-Mastodon - Crack The Skye (2009) Reissue, Remastered, 2024, Reprise Records, Deluxe Edition, Limited Edition [FLAC|Lossless|image + .cue] <Progressive Metal, Sludge Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64804.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1 - Original Album (Remastered):
-CD1-1 Oblivion 5:47
-CD1-2 Divinations 3:39
-CD1-3 Quintessence 5:27(   Читать дальше...   )Жанр: Progressive Metal, Sludge MetalПродолжительность: 01:39:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06EFD92F4639BCA73108AB399E19A3BD7F60F8D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808965   (64803) от 27.07.2025
-
-Lightnin' Malcolm - Turnt Up On Loud (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+Veil Of Conspiracy (ex-Astral Domine) - Studio Albums (4 releases) (2014-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal with Doom influences>
 
 >>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64803.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65813.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Fit To Eat (3:12)
-02.  Just Friends (4:29)
-03.  Weight (4:55)
-04.  Good Time (3:42)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:58
+Veil Of Conspiracy - итальянская метал-группа из Рима, основана в 2011 году как Astral Domine и сменившая имя на Veil Of Conspiracy в 2016 году.2014 - Arcanum Gloriae (as Astral Domine)
+2019 - Me, Us And Them
+2021 - Echoes of Winter
+2025 - Shape of GriefЖанр: Progressive Metal with Doom influencesПродолжительность: 03:33:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:917021F8943290838E5FAC29BFDCD3503004CE71
+magnet:?xt=urn:btih:62B1D04C4450CF5E167EDCF642FEFDF4D38795B1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -384,28 +418,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808966   (64802) от 27.07.2025
+###  Публикация: 1803614   (65812) от 24.06.2025
 
-Lowland Blues - Lowland Blues (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+Eddie Palmieri & Cal Tjader - Bamboleate (1967) 2007, Fania Records [FLAC|Lossless|tracks + .cue] <Latin Jazz>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64802.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65812.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Devil Angel (4:11)
-02.  The Getaway (4:32)
-03.  Don't Hold Back (3:38)
-04.  The Absence (4:15)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:46
+01. Bamboleate [3:25]
+02. We've Loved Before [2:30]
+03. Resemblance [5:40]
+04. Mi Montuno [5:23](   Читать дальше...   )Жанр: Latin JazzПродолжительность: 00:33:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:24C61857603A5DB32FA4ED29F971AC6723396F19
+magnet:?xt=urn:btih:0C67FEDB530F172DA825286D646F72D6E92706C8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -413,28 +447,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808963   (64801) от 27.07.2025
+###  Публикация: 1803677   (65811) от 24.06.2025
 
-Koko Taylor - Crown Jewels (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+Зонтик / Paraplyen (1916) WEBRip [H.264/1080p]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64801.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65811.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Wang Dang Doodle (4:24)
-02.  Mother Nature (4:43)
-03.  You Can Have My Husband (2:46)
-04.  Born Under A Bad Sign (4:56)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:50:43
+Комедия ошибок. Господина Хольм, производителя и продавца зонтов, преследует имя «Бек», которое внезапно появляется повсюду в его доме. Холм убежден, что Бек — известный театральный актер — ухаживает за его женой. На самом деле, он почти прав, но только почти. Актер Бек увлечен работницей магазина зонтов Хольма. Но путаница на этом не заканчивается: служанка Хольма (   Читать дальше...   )Производство: Дания / Nordisk Film KompagniЖанр: короткометражный, комедия, немое киноРежиссер: Лау ЛауритценАктеры: Фредерик Бух, Герда Христоферсен, Филиппа Фредериксен, Стелла Линд, Лауриц Олсен, Карл Шенстром, Оскар СтриболтПеревод: немой с интертитрамиСубтитры: голландские (интертитры), русскийПродолжительность: 00:14:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8E9573A7F027EF4C836AD15E068D99B874663481
+magnet:?xt=urn:btih:BCB50913836330B20DF475A4841F53491AE4A8D5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -442,28 +473,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808957   (64800) от 27.07.2025
+###  Публикация: 1803562   (65810) от 24.06.2025
 
-Cyfurcat - 1.0.0 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+John Summit - Live @ Club Space Miami, United States (2025-05-03) [MP3|320 Kbps] <House, Tech House, Techno>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Electronic
+>>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64800.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65810.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Lodewijk (3:52)
-02.  Cyfurcat (5:47)
-03.  Doom City (4:01)
-04.  New order (4:55)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:51
+01.  Roddy Lima - Night Time
+02.  Shakedown - At Night (Anyma & Layton Giordani Remix)
+03.  SIDEPIECE - ELECTRIC BONGOS
+04.  Cassian - S.O.S(   Читать дальше...   )Жанр: House, Tech House, TechnoПродолжительность: 08:24:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1BEFF1C4E95988065B89D8E853905058F7CC369D
+magnet:?xt=urn:btih:3F97BC5E8EA43AE14A3A89BB8DCE24D60F8EE543
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -471,28 +502,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808967   (64799) от 27.07.2025
+###  Публикация: 1803588   (65809) от 24.06.2025
 
-Pharaoh Rumor - Vintage Blues Express (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+DJ Tron - Da Real Wid'it (1998) CD, Compilation [FLAC|Lossless|tracks + .cue] <Rap, Hip Hop, G-Funk>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64799.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65809.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Vintage Blues Express (3:57)
-02.  The Wanderer (3:06)
-03.  As the Barriers Fall (4:00)
-04.  Treasure Vein (5:26)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:44:06
+01. Breakin' Bread    [0:04:58.27]
+02. What You Know    [0:03:52.22]
+03. Infatuation    [0:04:34.09]
+04. Infatuation    [0:03:02.50](   Читать дальше...   )Жанр: Rap, Hip Hop, G-FunkПродолжительность: 01:11:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:94FA3AB4E1D19D4C919634F378A96FDAACDF474F
+magnet:?xt=urn:btih:8A50754FC3AF4AE88EC2DBC5436B468FA9D0AD88
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -500,25 +531,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808944   (64798) от 27.07.2025
+###  Публикация: 1803679   (65808) от 24.06.2025
 
-Николай Новиков | Первый среди карапузов. (Книга 3). Наномашины, демонёнок! (2025) [MP3, Олег Кейнз, Алиса Тверская]
+Chilly Swing Band - Music to Listen to in The Middle of Your Work (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Swing>
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64798.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65808.jpg" />
 </div>
 
 
 ###  Подробнее
 
-С помощью бабушкиного фамильяра Баала, я свергаю тиранию в детском садике! Игрушки – детям! Власть – карапузам! После этого у меня наконец появляется время для неистовой прокачки! Как раз пригождается техника Греха Зависти – «Похищение Ядра». Я могу поглощать саму сущность убитого существа, и Баал предлагает начать с демонов – тех, кого уже не спасти. Хороший план (   Читать дальше...   )Жанр: фантастика, попаданцыИздательство: ИДДКПродолжительность: 08:39:36
+01.  Imagination In Jazz (Key A Ver.) (2:33)
+02.  Sustained Endeavor Whispers (Key Eb Ver.) (3:00)
+03.  Deep inside the Head (Key Ab Ver.) (2:33)
+04.  Ideas Blossom Softly (Key C Ver.) (2:34)(   Читать дальше...   )Жанр: Jazz, SwingПродолжительность: 01:23:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:27A9BC7C4BF049479C28A3395F5102D817CB7E16
+magnet:?xt=urn:btih:731C978E9097FEA87BD7CAA828BD79BB5B644515
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -526,25 +560,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808849   (64797) от 27.07.2025
+###  Публикация: 1803415   (65807) от 24.06.2025
 
-Юрий Винокуров, Олег Сапфир | Орден Архитекторов (Книга 5) (2025) [MP3, Роман Попов]
+Олег Чубыкин - Вечная любовь (2025) [MP3|320 Kbps] <Pop>
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Pop
+>>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64797.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65807.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Народ княжества Лихтенштейн всегда желал независимости, но у Империи на него были свои планы. А еще соседние государства неизменно поглядывали на княжество, как на свою собственность. Да и внутренние противоречия между аристократами никуда не девались. Надо же мне было разворошить такое осиное гнездо? Что ж… Сами виноваты.Жанр: фэнтези, приключения, попаданцыИздательство: ЛитРесПродолжительность: 08:53:20
+01. Вечная любовь [00:04:28]
+02. Я молюсь за тебя (Album version) [00:03:45]
+03. Любовь вернётся в мир [00:04:09]
+04. Сочи, встречай! [00:03:48](   Читать дальше...   )Жанр: PopПродолжительность: 00:35:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:84D2D4BEB175536EB38D00952AF6DDEAA706699C
+magnet:?xt=urn:btih:1349326BD2E75EE7B62C236B0572C2CE7EA46DAA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -552,25 +589,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808848   (64796) от 27.07.2025
+###  Публикация: 1803590   (65806) от 24.06.2025
 
-Юрий Винокуров, Олег Сапфир | Орден Архитекторов (Книга 4) (2024) [MP3, Роман Попов]
+Tom Talbert Orchestra - This Is Living! (1997) [FLAC|Lossless|tracks + .cue] <Jazz, Big Band>
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64796.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65806.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Кажется, самое трудное уже позади. Детский сад закончился. У меня уже есть деньги, свои люди и, главное, определенная репутация.Да, чем выше поднимаешься, тем больше вызовов подкидывает тебе Вселенная и тем более мощные враги появляются на горизонте. Но это делает мою жизнь только более интересной.У меня есть план. И я ему следую…Жанр: фэнтези, приключения, попаданцыИздательство: ЛитРесПродолжительность: 09:19:10
+01. The Brio Trio    [0:05:02.64]
+02. Love Is A Pleasure    [0:04:52.04]
+03. Of Thee I Sing    [0:04:48.73]
+04. Django    [0:07:34.65](   Читать дальше...   )Жанр: Jazz, Big BandПродолжительность: 00:57:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FC5A9D295D0F04AB47E56751A955C3C70C410993
+magnet:?xt=urn:btih:532A1BD75213ED872ED54A7220BD8DCDB7F4AE4A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -578,28 +618,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808880   (64795) от 27.07.2025
+###  Публикация: 1803751   (65805) от 25.06.2025
 
-In Theory - Retribution (2025) [MP3|320 Kbps] <Hard Rock>
+Журнал | Дилетант №7 (115) (июль 2025) [PDF]
 
->>Rock, Alternative, Punk, Metal
->>Hard Rock
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64795.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65805.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Retribution (04:08)
- 02. Stain On My Soul (03:38)
- 03. The River (04:09)
- 04. Get Me Higher (04:23)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:12
+Первый исторический журнал, в живой, далеко не академической форме передающий колорит эпох и помогающий ориентироваться в истории, искать и находить в прошлом ответы на многие сегодняшние вопросы.
+В каждом номере увлекательные и познавательные материалы, подготовленные именитыми историками, великолепными писателями, популярными журналистами. Каждый выпуск журнала (   Читать дальше...   )Жанр: Исторический журналИздательство: ООО "Образование 21 век"Формат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8555F49B76B4260054800E969B82474F769CD3F5
+magnet:?xt=urn:btih:1246E5D80525B9E0EEDBAB913323DC3094DA93A5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -607,25 +645,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808943   (64794) от 27.07.2025
+###  Публикация: 1803749   (65804) от 25.06.2025
 
-Николай Новиков | Первый среди карапузов. (Книга 2). Наномашины, внучок! (2025) [MP3, Олег Кейнз, Алиса Тверская]
+Warhammer 40,000: Rogue Trader (2023) [Ru/Multi] (1.4.0/dlc) Repack seleZen [Lex Imperialis]
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Win Игры
+>>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64794.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65804.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Я внучок, и во мне наномашины. Чего вы ещё ждали? Неожиданное появление моей могущественной прабабушки меняет все планы. Одного её слова достаточно, чтобы разрушить нашу семью, которую я так полюбил! Она сильна, её многие боятся! Но не я. Ведь я – Михаэль Кайзер, и мой талант в Адаптации. Я покажу тебе, бабка, насколько сильны карапузы! Время подкачаться!Жанр: фантастика, попаданцыИздательство: ИДДКПродолжительность: 08:56:27
+Warhammer 40,000: Rogue Trader – это изометрическая ролевая игра, сделанная по мотивам культовой вселенной Боевого Молота. В её сеттинге гримдарк смешивается с научной фантастикой. Данный продукт предлагает путешествовать по космосу на огромном корабле, посещать разные места, болтать с колоритными неписями, прокачиваться, выполнять квесты, участвовать в битвах. Все (   Читать дальше...   )Тип издания: RepackРазработчик: Owlcat GamesЖанр: Role-Playing, Turn-Based, TacticalЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6B4CA9F36B606B78060E14A875636A287978174A
+magnet:?xt=urn:btih:CAA01CA5E08FBE7CF44478C30BFDFF6E2FE201B9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -633,28 +671,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808974   (64793) от 27.07.2025
+###  Публикация: 1803793   (65803) от 25.06.2025
 
-Zayden Fleet - Lone Star Blues (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+Агония (1981) DVDRip (серии 1-2 из 2) [Полная реставрация]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64793.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65803.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Lone Star Blues (4:56)
-02.  Sonny’s Sorrow (5:15)
-03.  Dark Spell Lady (5:56)
-04.  Aged Lowdown Blues (5:07)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:45:04
+1916 год. Россия в критическом положении, на престоле безвольный Николай II. Придворные предчувствовали крах самодержавия. «И вот во дворец вошел и, глумясь и издеваясь, стал шельмовать над Россией неграмотный мужик с сумасшедшими глазами»: - так писал Алексей Толстой о «святом старце» Распутине, который приобрел неограниченную власть над царем, а впоследствии стал (   Читать дальше...   )Производство: СССР / МосфильмЖанр: Драма, биография, историяРежиссер: Элем КлимовАктеры: Алексей Петренко, Анатолий Ромашин, Велта Лине, Алиса Фрейндлих, Александр Романцов, Юрий Катин-Ярцев, Леонид Броневой, Павел Панков, Михаил Светин, Нелли ПшеннаяСубтитры: ОтсутствуютПродолжительность: 01:13:00 + 01:09:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CD9ACEA6F615FC696049073A8750CDACD04C5A5D
+magnet:?xt=urn:btih:7BDCD6C1AE47D23A0A37C655ED926839E7F73493
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -662,53 +697,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808853   (64792) от 27.07.2025
+###  Публикация: 1803658   (65802) от 25.06.2025
 
-Юрий Винокуров, Олег Сапфир | Орден Архитекторов (Книга 9) (2025) [MP3, Роман Попов]
+Очередное достижение: 1000 релизов от kulemin
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>3
+>>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64792.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65802.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Что ж… Это еще не мой родной замок, который был неприступной крепостью, но княжество Лихтенштейн уже не так просто захватить кому-либо. Будь он хоть Императором, хоть Проклятым Тенями. Теперь это мой дом и я позабочусь о нём и живущих здесь людях. Лучше не злите меня...
-
-Юрий Винокуров, Олег Сапфир | Орден АрхитекторовЖанр: фэнтези, приключения, попаданцыИздательство: ЛитРесПродолжительность: 09:06:08
+Очередное  достижение: 1000 релизов от kuleminУважаемые одноклубники!Дорогие друзья! Мы отмечаем первое, и очень важное достижение Пользователя. Накануне наш Одноклубник, релизёр литературы (в основном презентации аудиокниг) создал 1000-ю раздачу. Преодолев этот рубеж - он не останавливается, и начинает вторую тысячу. Это довольно весомый вклад в развитие трекера (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0165BEE466EEAC4B44C10664954C6D07B908C844
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808851   (64791) от 27.07.2025
-
-Юрий Винокуров, Олег Сапфир | Орден Архитекторов (Книга 7) (2025) [MP3, Роман Попов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64791.jpg" />
-</div>
-
-
-###  Подробнее
-
-Князь Лихтенштейна Бобшильд. Человек, поставленный Императором, дабы поддерживать порядок в этом маленьком государстве. Но, правитель Империи недооценил человеческую жадность и тщеславие. Всё было у князя хорошо, до появления в княжестве меня, Теодора Вавилонского. Князь вел государственные дела, не забывая при этом себя. И осуществлял, при этом, долгосрочный план (   Читать дальше...   )Жанр: фэнтези, приключения, попаданцыИздательство: ЛитРесПродолжительность: 08:55:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB19128BB9832003B221404DD8C0CE7930FA8B18
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

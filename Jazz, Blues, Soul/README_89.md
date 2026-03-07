@@ -1,3 +1,241 @@
+###  Публикация: 300781   (873115) от 26.02.2011
+
+The Chick Corea Elektric Band - The Chick Corea Elektric Band (1986) [APE|Lossless]<Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. City Gate
+02. Rumble
+03. Side Walk**
+04. Cool Weasel Boogie**
+05. Got A Match?
+06. Elektric City**
+07. No Zone
+08. King Cockroach*
+09. India Town
+10. All Love(   Читать дальше...)Жанр: FusionПродолжительность: 00:57:16
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496482   (872848) от 17.09.2021
+
+Hot 'n' Nasty - Burn (2021) [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872848.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anyway the Wind Blows (3:09)
+02. Like a Hammer (2:52)
+03. I Can't Stand It Anymore (2:51)
+04. Superstar (3:14)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:47:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9E925AAB780A2868041BEF6558C7701AEF59C1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496427   (872846) от 17.09.2021
+
+Mike Andersen - Raise Your Hand (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872846.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slamming The Door (3:20)
+02. Next Time You Call (3:35)
+03. Finally Free (2:42)
+04. If I Fall Again (4:42)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5CBEF292A118EE21EC046B048EBBBB1E400DDA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496420   (872721) от 17.09.2021
+
+Darren Jack - Lost in Living - Lost in Living (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872721.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Movin' (3:12)
+02. Lost in Living (3:38)
+03. Deep Blue Ocean Deep Blue Sea (3:25)
+04. Slow Me Down (5:08)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:38:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38C6F088EC50EEBDA4A7650774AED0E8802290EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496422   (872714) от 17.09.2021
+
+Kris Wiley - Kris Wiley (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872714.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inside Outside (4:16)
+02. Letting Go of You (4:11)
+03. Paying the Price (4:56)
+04. She Dreams (5:23)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:49:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66A68C095CCB8BCAC593EEFA8D52472F4DF56392
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496429   (872713) от 17.09.2021
+
+Paul Carrack - One on One (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues, Soul, Funk>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872713.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good And Ready (3:12)
+02. A Long Way To Go (3:57)
+03. I Miss You So (4:14)
+04. You're Not Alone (4:10)(   Читать дальше...   )Жанр: Blues, Soul, FunkПродолжительность: 00:38:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBC5C1032B15C0B9899E8D747F47329921CED902
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496431   (872701) от 17.09.2021
+
+Tommy Castro - Tommy Castro Presents A Bluesman Came To Town (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872701.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Somewhere (3:30)
+02. A Bluesman Came To Town (3:57)
+03. Child Don't Go (2:49)
+04. You To Hold On To (3:54)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:47:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4697DCF49B4CB21D7E130753C6FE09B72ACBBB81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374553   (872698) от 10.04.2020
+
+Mungo Jerry - Touch The Sky (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock, Pop Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872698.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Touch the Sky
+02. You'll Be Sorry
+03. Rhythm is a Healer
+04. I'll Be a Hippy 'Til I Die(   Читать дальше...   )Жанр: Blues Rock, Pop RockПродолжительность: 00:49:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A52B34E8DA6C1D8150EEBA429D3535BAD4811C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1374252   (872696) от 10.04.2020
 
 Shakura S'Aida - Brown Sugar (2010) [APE|Lossless|image + .cue] <Jazz, Funk / Soul, Blues>
@@ -512,239 +750,6 @@ VA - Cozy Winter Jazz Vol.1 (2017) [MP3|320 Kbps] <Jazz, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED3D552F8DF148D3A5449FCFA422EF48AD6D4C08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106822   (871668) от 20.02.2017
-
-VA - Cozy Winter Jazz Vol.2 (2017) [MP3|320 Kbps] <Jazz, Lounge>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871668.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eckard Koltermann - Tango der Nacht
-02. Gerd F. Schumann - You Smell so Good
-03. Maik Mondial - Kletz Fetz
-04. Slinky & P'tit Loup - Danser le swing(   Читать дальше...   )Жанр: Jazz, LoungeПродолжительность: 01:29:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EEB52E25CA156CBF76245C021EBB831E25F9EAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106485   (871660) от 20.02.2017
-
-Billie Holiday - The Real... Billie Holiday (2011) 3CD [FLAC|Lossless|tracks + .cue] <Jazz Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871660.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-1. Easy Living
-2. All Of Me
-3. God Bless The Child(   Читать дальше...   )Жанр: Jazz VocalПродолжительность: 03:49:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E86F91E21D8E364B4BDBD5019C06F18F0308DDE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496640   (871657) от 18.09.2021
-
-Roland Kirk - Roland Kirk's Finest Hour (2001) Verve Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871657.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stompin' Grounds [4:49]
-02. Blue Rol [6:12]
-03. Serenade to a Cuckoo [4:34]
-04. Spring Will Be a Little Late This Year [4:07](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:00:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9868D92F0731B638EC8CC8B5EA326AF717153E28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496644   (871655) от 18.09.2021
-
-Duke Ellington - Duke Ellington's Finest Hour (2002) Verve Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871655.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. East St. Louis Toodle-o [2:55]
-02. Black and Tan Fantasy [3:20]
-03. Jubilee Stomp [2:47]
-04. Black Beauty [3:15](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:03:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85BFEB6C646E0DC388095234D8B88900735102A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106855   (871564) от 20.02.2017
-
-Judith Nijland - A Jazz Tribute To ABBA (2016) [FLAC|Lossless|WEB-DL|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871564.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Do, I Do, I Do, I Do, I Do (3:02)
-02. I Have A Dream (4:01)
-03. Waterloo (4:30)
-04. Lay All Your Love On Me (3:37)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:47:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31E4DCEC41AB9E0F9342D2C0B8C8972EFB843679
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496615   (871410) от 18.09.2021
-
-Marcin Wasilewski Trio - En attendant (2021) [FLAC 2.0|88/24|tracks|WEB-DL] <Jazz, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871410.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. In Motion, Pt. 1 (5:29)
-2. Variation 25 (From J.S. Bach: Goldberg Variations, BWV 988) (7:17)
-3. Vashkar (4:57)
-4. In Motion, Pt. 2 (6:55)(   Читать дальше...   )Жанр: Jazz, Contemporary JazzПродолжительность: 00:43:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BE21D61FA96390779485CF589F439F82AC86210
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496637   (871406) от 18.09.2021
-
-Club Des Belugas - How To Avoid Difficult Situations (2021) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Broken Beat>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871406.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Set Fire to It All
-02. Hazy (Club des Belugas Remix)
-03. Scat
-04. That's My Style (Extended Mix)(   Читать дальше...   )Жанр: Nu Jazz, Broken BeatПродолжительность: 01:14:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9806F8A230AD4444344584A70244C42D80A2CDB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106843   (871384) от 20.02.2017
-
-Johnny Winter - Original Album Classics (2010) 5xCD 1969-1974 [FLAC|Lossless|image + .cue] <Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871384.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джонни Уинтер по версии журнала Rolling Stone занимает 63 строчку в списке ста лучших гитаристов мира. С 1988 года его имя занесено в Зал Славы блюза.
-Джон Доусон Уинтер Третий появился на свет в техасском городе Бьюмонт 23 февраля 1944 года. Несмотря на то, что мальчик родился косоглазым альбиносом, впоследствии это компенсировалось музыкальным талантом и мировым (   Читать дальше...   )Список альбомов:
-CD1 - Johnny Winter - 1969
-CD2 - Second Winter - 1969
-CD3 - Johnny Winter And Live - 1971(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 03:27:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E737C7CDA855643A18713162169496DC7D6FFE5E
 ```
 
 https://mybot314.ru/tekegram_catalog/

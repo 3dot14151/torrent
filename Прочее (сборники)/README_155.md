@@ -1,3 +1,206 @@
+###  Публикация: 1829917   (201788) от 26.10.2025
+
+VA - Musical kaleidoscope part 60 Assorted (2025) [MP3|320 Kbps] <Electronic, Easy listening, Instrumental, Sax>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_201788.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Aurora Night - One Left
+02 - Dave Koz - I Believe
+03 - York Patrick - All I Have to Give (Club Mix)
+04 - Владимир Кузмин - Золотая Карусель(   Читать дальше...   )Жанр: Electronic, Easy listening, Instrumental, SaxПродолжительность: 00:38:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A4366FA1548A2C365360DE2ACC5F9FFC33173F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616903   (201708) от 04.03.2023
+
+VA - Дискотека 2023 Dance Club Vol. 217 [NNNB] (2023) [MP3|320 Kbps] <Dance, House, Trance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_201708.jpg" />
+</div>
+
+
+###  Подробнее
+
+Part 1 (Discoteka):
+01. DJ Jedy feat. Niki Four - Womens Day
+02. Geo Da Silva feat. George Buldy & DJ Combo - Wena Wena Wena (Radio Mix)
+03. Inna - Nothing I Won't Do(   Читать дальше...   )Жанр: Dance, House, Trance, Pop, ChillПродолжительность: 11:04:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5333BF5546396D87AE55964A665596B8698A8496
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618551   (201430) от 12.03.2023
+
+VA - B машину ремиксы Vol. 31 (2023) [MP3|320 Kbps] <Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_201430.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мафик & Adam Maniac - Наведу суету (Adam Maniac Remix) (02:51)
+02. Lny Tnz Feat. & Diandra Faye - Catch Me If You Can (D-Sides Remix) (02:24)
+03. Dj. Dimixer Feat. & Murana - Romantic Dаnce (Imanbek Remix) (03:22)
+04. Гио Пика - Поэт (Adam Maniac Remix) (02:25)(   Читать дальше...   )Жанр: DanceПродолжительность: 03:30:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0C12F1A29077BBF0963337BE5E3A6C4BD4A2F4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617922   (201405) от 11.03.2023
+
+VA - Украинские песенки Vol.2 (2023) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_201405.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heartbreaker  - Pray For Ukraine (03:21)
+02. Asilia Feat. & Олександр Положинський - Як Ти Там (04:40)
+03. Dzidzio Feat. & Іван Попович - Розлук Не Буде (03:04)
+04. Kamaliya  - Чекатиму (03:15)(   Читать дальше...   )Жанр: PopПродолжительность: 02:37:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F5C94B15F7E39BE606E309325EFBCA63246EDE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619008   (201300) от 13.03.2023
+
+VA - Свежаки Весны 2023 Remix NNM [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_201300.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Burak Cilt - Easy Come Easy Go (The Distance & Igi Remix) (5:14)
+002. Taylor Swift - Lavender Haze - Felix Jaehn Remix (2:51)
+003. Taylor Swift, Fat Max Gsus - Message In A Bottle (Fat Max G Remix) (Taylor’s Version) (3:44)
+004. The Black Eyed Peas - Don't Phunk With My Heart (Sulim & Dj Chicago Extended Remix) (4:46)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:22:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4892536033D8696CFDF108FF821AE5DEF5D330B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620204   (201058) от 19.03.2023
+
+VA - В машине с музыкой Vol.330 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_201058.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Risk Zone  - Роль (03:17)
+02. Morgan Page Feat. & Telykast - Dancing All Alone (03:07)
+03. Samoel Feat. & Андрей Витвитский - Мама (03:27)
+04. Сергей Завьялов - Две Дороги (03:47)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:26:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE90AC65C89720D0A53EB79CE7CFD51ECC3FB710
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619923   (201047) от 19.03.2023
+
+VA - Украинские песенки Vol.3 (2023) [MP3|320 Kbps] <Pop, Dance, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_201047.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ani Lorak - Забирай Pай (03:01)
+02. Leroy  - Я Не Я (02:54)
+03. Zub  - Зорі (03:01)
+04. Ann Kovtun  - До Тебе (KiRiK Remix) (02:55)(   Читать дальше...   )Жанр: Pop, Dance, RockПродолжительность: 02:46:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:088873A273207D4670BCBF3C9BF7ED7C37463E1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1620829   (200915) от 22.03.2023
 
 VA - 30(18) Новые Песни (2023) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -542,209 +745,6 @@ VA - Music News vol.269 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84F0E5D3413250D1B1252A90174444B1460D9569
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637798   (197482) от 06.06.2023
-
-VA - Dance Rising 3 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. &ME - Before The Flood - Ankhoï Remix (7:25)
-02. Sonny Fodera - Like I Used To (3:06)
-03. Leftwing Kody - Bring The Heat (2:37)
-04. Kolsch - All That Matters - ARTBAT Remix Radio Edit (6:52)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:30:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F4C61E7A52C7144A5F008FE9F9F0F3C45C6F45A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637431   (197481) от 04.06.2023
-
-VA - Лучшие рок баллады 20-го века Vol.2 (2023) [MP3|320 Kbps] <Rock, Ballads>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Accept - Shadow Soldiers  (05:48)
-02. Alice Cooper - Poison (04:27)
-03. Bonfire - You Make Me Feel (04:32)
-04. Bryan Adams & Rod Stewart - All for Love (04:43)(   Читать дальше...   )Жанр: Rock, BalladsПродолжительность: 02:25:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAFFE6948DF23F8F655096F8E6DF717BE027E6C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637809   (197472) от 06.06.2023
-
-VA - Music News vol.268 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197472.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bebe Rexha - Call On Me (David Guetta Remix) (02:55)
- 002. 10AGE - Демоны (03:17)
- 003. Abdulkarim - Моя История (03:52)
- 004. Adam Lambert feat. Sigala - You Make Me Feel (Mighty Real) (03:26)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:23:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB452588CA37769DE585FFE4B4F99852348EAE23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638765   (197196) от 12.06.2023
-
-VA - Музыка для машины Vol.25 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adon Mix - По Таймеру (02:12)
-02. Martin Jensen - Harry Styles (02:27)
-03. Roxen - Cenusa (Adrian Funk & Olix Remix) (03:03)
-04. Soblydie Feat. & 1exia - Капли (03:18)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:38:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD8D2453CBCE3B922BD3BB4BBEFCE0A19DB8FC7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639054   (197142) от 11.06.2023
-
-VA - ЕвроХит Топ 40 Europa Plus 09.06.2023 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197142.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Loreen - Tattoo (3:03)
-02. Tove Lo - Borderline (3:13)
-03. Maneskin feat. Tom Morello - Gossip (2:48)
-04. Purple Disco Machine feat. Kungs - Substitution (3:01)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:59:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22E29E0BA44FBD209620D9575F4A44B331B6FEFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639249   (197117) от 12.06.2023
-
-VA - Remixes 2023 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197117.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Silk City - Electricity (feat. Dua Lipa) - MK Remix (5:46)
-002. Dolly Parton - Jolene - Destructo Remix (5:15)
-003. Diplo - Don’t Forget My Love - John Summit Remix (5:12)
-004. Whitney Houston - How Will I Know (Extended Remix) Clean (5:15)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:50:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57495A059CB472595228A4C67584FA535A02F92C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642452   (196513) от 27.06.2023
-
-VA - just hits 4 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. MEDUZA - Upside Down (feat. Poppy Baskcomb) (6:24)
-02. Swedish House Mafia - See The Light (feat. Fridayy) (5:08)
-03. The Weeknd - Double Fantasy (with Future) (4:29)
-04. Bad Bunny - WHERE SHE GOES (4:31)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:42:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C77A0AD45E5CAA3DB15CCBA93441CEC5E055D18E
 ```
 
 https://mybot314.ru/tekegram_catalog/

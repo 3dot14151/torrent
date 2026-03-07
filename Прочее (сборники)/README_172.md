@@ -1,3 +1,206 @@
+###  Публикация: 1703952   (114705) от 02.03.2024
+
+VA - Music News vol.347 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114705.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Blanka - Cara Mia (Mark Voss Remix) (02:23)
+ 002. A'DI - Валим (03:00)
+ 003. Akmal' - Лепесток (02:51)
+ 004. Alana O. feat. SOLVARO - Холодно (02:28)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 08:18:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:574C09345876855E504789EE6EC7D0E020CC70DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704597   (114221) от 05.03.2024
+
+VA - Music News vol.348 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_114221.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ana Mena - Madrid City Remix (Gallery Session Version) (02:54)
+ 002. 52Ghz - Всеми Забытый (02:04)
+ 003. 52Ghz - Пополам (02:35)
+ 004. 84 - Падай На Меня (02:07)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:45:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AB4B425A6C0BC69C0135CDCECA592BC74475255
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706618   (113608) от 13.03.2024
+
+VA - Music News vol.351 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113608.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Zemfira Atara - Танцы На Боли (03:03)
+ 002. Andra Day - Probably (05:01)
+ 003. ANNA BELAYA - I Don't Feel You (02:40)
+ 004. Ariana Grande - True Story (A Cappella) (02:42)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:00:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F6FABBE3BC0D3528921616D9281AA4FC2E4BC67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707477   (113304) от 17.03.2024
+
+VA - Electro Swing, Nu Jazz Compilation part 64 (2024) [MP3|320 Kbps] <Electro Swing, Nu Jazz>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113304.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alice Francis - Shoot Him Down!
+02. Odd Chap - Sleight of Hand
+03. Little Violet - Crazy Out There
+04. Alice Francis - I Pimp You(   Читать дальше...   )Жанр: Electro Swing, Nu JazzПродолжительность: 00:59:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67AB43F265811EC40299FDD8DF6DEFBDE6F935FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707765   (113301) от 17.03.2024
+
+VA - Music News vol.353 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113301.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Cascada - Aint No Mountain High Enough (03:08)
+ 002. 24kGoldn - I Remember (02:25)
+ 003. 24kGoldn - I'm Here (02:31)
+ 004. 24kGoldn - Innocence (02:41)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:19:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:171083B014F2AF210CF6AA89A2CACE92468A7465
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707475   (113295) от 17.03.2024
+
+Lyre le temps - Compilation (2024) [MP3|320 Kbps] <Electro Swing, Nu Jazz, Rap, Hip-Hop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_113295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Summer Leaves
+ 02.  About the Trauma Drum
+ 03.  Dump You
+ 04.  Beautiful Day(   Читать дальше...   )Жанр: Electro Swing, Nu Jazz, Rap, Hip-HopПродолжительность: 00:40:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACA8472094BA83D0F5BA4FD9F5BE211FD4556059
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710546   (112696) от 27.03.2024
+
+VA - Music News vol.357 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112696.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Анна Калашникова - Не Ври Мне в Риме (Kalashnikoff Сlub Mix) (03:13)
+ 002. Aitkulov - Last Day (02:24)
+ 003. Alex Andreev - Липнет (03:12)
+ 004. Amaya Gloor - Hurting (02:38)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:37:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A349D44BE27084876072A91722C50E8BC6F3A19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1708992   (112693) от 27.03.2024
 
 VA - Pop Spring Melodies (2024) [MP3|320 Kbps] <Pop, Dance>
@@ -542,227 +745,6 @@ VA - compilation part 125 Nu Jazz, Electro Swing & Electro pop (2024) [MP3|320 K
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6CAD69874FFD561DFA267E7BE7694C06E7F93901
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759143   (103323) от 06.11.2024
-
-Shaed - Compilation (2024) [MP3|320 Kbps] <Electropop, indie pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103323.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Dizzy
- 02.  Osaka
- 03.  We Live We Die
- 04.  Part Time Psycho(   Читать дальше...   )Жанр: Electropop, indie popПродолжительность: 00:50:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B2F1CDD2D116ED73D190FD9F9F999529DE77B77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 489848   (102486) от 01.05.2012
-
-VA - Музыка в дорогу и для себя (2012) [MP3|96-320 кб/с]<Dance, Pop, Rock, шансон, фолк,>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102486.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. CENTR - Город дорог (4:30)
-2. Eminem - Lose Yourself (5:22)
-3. Eminem - Stan (6:44)
-4. Guf - Ice Baby (4:12)
-5. Mr. СREDO - Медляк (4:27)
-6. Sting - Desert Rose (4:45)
-7. Whizzkids feat. Inusa Dawuda - Rumours (Digi digi) (3:46)
-8. Агата кристи и Би-2 - А мы не ангелы, парень (3:04)
-9. Александр Розенбаум - Гаврош (4:17)
-10. Александр Розенбаум - Заходите к нам на огонек (2:16)(   Читать дальше...   )2012Жанр: Dance, Pop, Rock, Шансон, Фолк.Продолжительность: 07:56:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:213303B01513CC5CBD202EDE1CBC2724C4F81520
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 489440   (101977) от 29.04.2012
-
-VA - New Top Зайцев.нет 50/50 (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101977.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 5sta Family - Вместе Мы
-02. Michel Telo - Ai Se Te Ue Pego (Sagi Abitbul Remix)
-03. Павел Воля и Город 312 - Мама, мы все стареем
-04. Aura Dione feat. Rock Mafia - 004 Aura Dione feat. Rock Mafia - Friends
-05. Шима - Океан
-06. Jennifer Lopez feat. Pitbull - Dance Again
-07. Иракли & Даша Суворова - Нелюбовь
-08. Madonna - Masterpiece
-09. Полина Гагарина - Спектакль окончен
-10. T-Killah feat. Виктория Дайнеко - Mirror Mirror2012Жанр: PopПродолжительность: 05:56:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C951DEE4EDEB1DA085F963C1B78483FD1A52D14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 489144   (101744) от 28.04.2012
-
-VA - Лучшие Зарубежные Треки (2012) [MP3|224 кб/с]<Dance, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101744.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. K.Melody - Te Quiero
-002. Dj turtle & floran.c feat gioia blow - Truba (radio edit)
-003. Olly Murs - Dance With Me Tonight (Radio Edit)
-004. Sol City feat Massari - That Kinda Love (George Thomas Alex Lascae Remix)
-005. Ricky Castelli & LA19, Jack Ross, LDB - Criminal 4 love (Radio mix)
-006. Morandi - Serenada (radio Edit)
-007. New Fresh feat. Alla - Love In Your Eyes (Stephan F Remix Edit)
-008. Steve Aoki feat. Miss Palmer & Afrojack - No beef
-009. Demi Lovato Feat. Missy Elliott And Timbaland - All Night Long
-010. Emin - Heart Keeps A Beating(   Читать дальше...   )2012Жанр: Dance, PopПродолжительность: 06:29:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB8DC3D976AECB728FE88E9954DB9A01B1F6E5A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822662   (101715) от 07.10.2025
-
-Feel My Vibe - Feel My Vibe (2025) [MP3|320 Kbps] <Electronic, Easy listening, Instrumental, Vocal>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101715.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Breeze and Harmony
- 02 - Soul Resonance
- 03 - Sax in the Mist
- 04 - Live, Smile, Love(   Читать дальше...   )Жанр: Electronic, Easy listening, Instrumental, VocalПродолжительность: 00:47:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:686DC5BFE7468F35B0557051C376FD185DC5B2C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822615   (100928) от 07.10.2025
-
-VA - Music News For Forum vol.138 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100928.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ellinoora - Ahdistuksen Aika (04:53)
- 002. Adekunle Gold - Don Corleone (02:27)
- 003. Akmalov - В зоне прочитанного (03:13)
- 004. Alberto Guta & Ministerul Manelelor - Pupa-Ma Pe Obraz (01:56)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 08:20:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C4E783EE71C50E46E619A9A148FE268AF619CE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822644   (100902) от 07.10.2025
-
-EchøNova - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100902.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Golden Sun
- 02 - Deep Chill
- 03 - Relaxing Music
- 04 - When All Else Fades, I’m Still With You(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 01:31:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6937BA2C347253A4D91766A468AD99D39DECDC1D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1213652   (767335) от 18.03.2018
+
+VA - Piano Cloud Series - Volume One (2016) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Piano, Minimal>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_767335.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nils Frahm - Nils has a new piano
+02. Library Tapes - Running by the roads, running by the fields (Solo Piano)
+03. Peter Broderick - Eyes Closed And Traveling
+04. Fabrizio Paterlini - Everyone wants to be found(   Читать дальше...   )Жанр: Modern Classical, Piano, MinimalПродолжительность: 01:01:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19E3A3C179D49770FED65763E1197108778C64DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1125899   (765273) от 18.04.2017
 
 VA - Celtic Swoon (2017) [MP3|320 Kbps] <Classical>
@@ -709,35 +738,6 @@ Julien Marchal - INSIGHT III (2017) [FLAC|Lossless|WEB-DL|tracks] <Neoclassical,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E06A834B17E46412206AB31F41C3F35752FCEB1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283323   (731953) от 18.02.2019
-
-Julien Marchal - INSIGHT IV (2019) [FLAC|Lossless|WEB-DL|tracks] <Neoclassical, Piano, Minimal>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731953.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Insight XXXIV (3:31)
- 02. Insight XXXV (3:20)
- 03. Insight XXXVI (2:04)
- 04. Insight XXXVII (3:27)(   Читать дальше...   )Жанр: Neoclassical, Piano, MinimalПродолжительность: 00:34:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA87ABC711FA207FC5FF62BBD9EF2BFA6FF5A32A
 ```
 
 https://mybot314.ru/tekegram_catalog/

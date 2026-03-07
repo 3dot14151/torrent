@@ -1,22 +1,106 @@
-###  Публикация: 919032   (584781) от 17.07.2015
+###  Публикация: 1040580   (586492) от 05.08.2016
 
-Африканец / L'Africain (1983) DVDRip [Director's Cut]
+VA - Mixmag Germany presents Einmusik (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pete Grace & Thomas Gandey - Carried On (Betoko remix) [07:32]
+02. Darlyn Vlys - Colours (feat Forrest - Tim Engelhardt remix) [07:48]
+03. Third Son - Atonal Impression (original mix) [06:11]
+04. Fat Sushi - Hana (original mix) [06:17](   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 02:55:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:291297818A0A6116C242727FBB22E77BB17E7850
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040283   (586491) от 05.08.2016
+
+Т. И. Ойзерман, И. С. Нарский | Теория познания Канта (1991) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586491.jpg" />
+</div>
+
+
+###  Подробнее
+
+Авторы книги рассматривают учение Канта о явлениях и “вещах в себе”, априористическое истолкование пространства и времени, категориальной структуры мышления и опыта. Критический анализ априоризма Канта, его философских и естественнонаучных предпосылок и выводов позволяет вскрыть не только заблуждения великого философа, но и его глубокие догадки, прозрения относительно (   Читать дальше...   )Жанр: История, философияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16BA6D406B5BA4751419CC430BC08C676E75DE00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040432   (586490) от 05.08.2016
+
+VA - Ayurveda Healing Lounge: Relaxing Spa Chill Music (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_586490.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mandala Hindu - Free Tibet - Himalaya Meditation Enigma Mix
+02. Flotation Device - Silver in the Sky - Twilight Mix
+03. Mystic Chant - Aquaworld - Blue Ocean Mix
+04. Lounge Of Spirits - Life in Balance(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:18:27
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040541   (586489) от 05.08.2016
+
+Пушка для Кордоба / Cannon for Cordoba (1970) HDTVRip [H.264]
 
 >>Классика кино и Старые фильмы до 90-х
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584781.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586489.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Замечательный приключенческий фильм с истинно французским юмором, снят в экзотических, живописнейших местах Африки, куда прилетает героиня фильма , чтобы изучить возможность строительства отеля для туристов. Там она встречает своего мужа , летчика, охраняющего заповедник от браконьеров. Они расстались несколько лет назад, но так и не смогли забыть друг друга. Он (   Читать дальше...   )Производство: ФранцияЖанр: Приключения, комедияРежиссер: Филипп Де БрокаАктеры: Катрин Денёв, Филипп Нуаре, Жан-Франсуа Бальмер, Жак Франсуа, Жан Бенгиги, Жозеф Момо, Вивиан Рид, Пьер Майкл, Гордон Хит, Рэймонд АкилонПеревод: Профессиональный многоголосыйПродолжительность: 01:36:32
+1916 год. Мексиканский бунтовщик Кордоба крадет шесть пушек у генерала Першинга, который должен обеспечить порядок на границе США и Мексики. Генерал посылает солдата Рода Дугласа в Мексику, чтобы вернуть пушки назад. Дуглас принимает на работу троих людей, которые наряду с мексиканским чиновником и загадочной женщиной, совершают путешествие к горной крепости Кордобы….Производство: США / The Mirisch Production CompanyЖанр: ВестернРежиссер: Пол УэндкосАктеры: Джордж Пеппард, Джованна Ралли, Раф Валлоне, Пит Дюл, Дон Гордон, Нико Минардос, Габриэле Тинти, Джон Ларч, Френсин Йорк, Джон РасселлПеревод: Двуголосый закадровый (НТВ+)Продолжительность: 01:39:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:53254054BE456922B4CDBEFC226C4D4E44D1104C
+magnet:?xt=urn:btih:F79943B6A92F12E3CD3A18889C6571E4237E64DC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +108,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 918966   (584780) от 17.07.2015
+###  Публикация: 1040587   (586488) от 05.08.2016
 
-Галина Кизима | Лунный дачный календарь на 2016 год (2015) [FB2, RTF]
+Пауль Маар | Субастик [5 книг] (2012) [FB2]
 
->>Разное (категория книг)
->>Сад, огород, животноводство
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584780.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586488.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Вы все еще ориентируетесь на знаки зодиака при работе на дачном участке? А зря. Знаете ли вы, что до сих пор нет убедительных научных доказательств влияния знаков зодиака на всхожесть семян, рост и развитие растений? Из всего арсенала астрологии именно этот раздел наименее изучен, но, как ни странно, именно он наиболее популярен. А потому можете смело пренебрегать (   Читать дальше...   )Жанр: Сад, огородФормат: FB2, RTF
+Субастик - волшебный персонаж, выдуманный великолепный немецким писателем Паулем Мааром, - стал героем его нескольких детских книг. Это необычное существо, не переставая удивлять всех своей находчивостью и изобретательностью, меняет жизни и характеры окружающих его людей - и детей, и взрослых.
+
+Судя по описанию, рыжий Субастик подозрительно напоминает сериальную (   Читать дальше...   )Жанр: ФэнтезиПеревод: Валентин ОстровскийФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FD529E9C0F4374E8D38F73BEC259AAF960C3E6DA
+magnet:?xt=urn:btih:6D2F34B5A6E7E8AE3DAFF7DE7B4FE9EC18E1D177
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,135 +136,138 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 918766   (584779) от 17.07.2015
+###  Публикация: 1040600   (586487) от 05.08.2016
 
-На грани безумия / Breaking at the Edge (2013) BDRip [VO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584779.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодая пара готовится стать родителями. Но беременную девушку внезапно начинает беспокоить странный призрак, который грозит смертью ее не рожденного ребенка.Производство: СШАЖанр: Триллер, УжасыРежиссер: Предраг АнтониевичАктеры: Ребекка Да Коста, Энди МакДауэлл, Джонатон Шек, Логан Браунинг, Брианна Дэвис, Шэйн Грэй, Мишель Миллс, Луис Госсетт мл, Гэбриел МахтПеревод: Одноголосый закадровый, любительскийОзвучка: Хихикающий докторПродолжительность: 01:25:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91DBFE1E1FD789E56F42537F202597FF00A0232C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919155   (584778) от 17.07.2015
-
-Сахара / Sahara (1983) HDTVRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584778.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1928 году прекрасная американка, наследница большого состояния, приезжает в Сахару, чтобы выполнить волю покойного отца — выиграть автогонку в пустыне. Так как к гонке допускаются только мужчины, она переодевается, ну, а затем — гонки, арабские племена, кровавые сражения, шейхи, жаждущие ее красоты…Производство: Великобритания, США / Cabal Film, Cannon Group, Golan-Globus Productions Ltd., London-Cannon FilmsЖанр: Драма, ПриключенияРежиссер: Эндрю В. МакЛагленАктеры: Брук Шилдс, Ламбер Вильсон, Хорст Буххольц, Джон Рис-Дэвис, Рональд Лейси, Клифф Поттс, Перри Лэнг, Яаков Бен-Сира, Джон Миллз, Тувиа Тави, Стив Форрест, Терренс ХардиманПеревод: Профессиональный многоголосыйПродолжительность: 01:46:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D712DC05518DEF55F21442082903EB34AB05800
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918337   (584777) от 17.07.2015
-
-Fancy - Playa De Palma (Nonstop-Hit-Party) (2015) [MP3|320 кб/с]<EuroDisco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584777.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fancy feat. Coconut Boys & Latoya Turner - To the Music Hitmakers (Medley)
- 02. Fancy - Slice Me Nice
- 03. Fancy - Flames of Love
- 04. Coconut Boys & Latoya Turner - Sun of Jamaika(   Читать дальше...   )Жанр: EuroDisco, ElectronicПродолжительность: 01:02:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:554EBFE83C58EAD4827EA9B94050329D2F7B837D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919011   (584776) от 17.07.2015
-
-Марк Оуэн, Кевин Морер | Нелегкий день (2013) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584776.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о том, как планировалась и проводилась операция по ликвидации Усамы бен Ладена, рассказанная ее непосредственным участником. В ходе операции «Копье Нептуна», проведенной 1 мая 2011 года в пакистанском городе Абботтабаде и закончившейся ликвидацией Усамы бен Ладена, Оуэн в числе первых проник на третий этаж особняка, где скрывался террорист № 1. Имена Марка (   Читать дальше...   )Жанр: Публицистика, CпецслужбыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC0E81BBB3791832C323841FE95EFD443353810C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918987   (584774) от 17.07.2015
-
-MindNode 2.0.1 [Multi]
+VA - Piano Lullaby: 25 Piano Lounge Anthems (2016) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Lounge>
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584774.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586487.jpg" />
 </div>
 
 
 ###  Подробнее
 
-MindNode  – программа, позволяющая визуализировать ваши мысли с помощью построения графических диаграмм. Отлично помогает при мозговых штурмах и при необходимости упорядочить мысли или идеи.
+01. Key of Dreams Fiftheen - Welcome Go Back [4:25]
+02. Division Tree - Surrealism [3:20]
+03. Kasey Taylor - Crossing [2:56]
+04. System 55 - Portus [2:11](   Читать дальше...   )Жанр: Downtempo, LoungeПродолжительность: 01:43:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3B4879C0C9E9EC95066FC43763C853BA30978A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040556   (586486) от 05.08.2016
+
+Экшены - GraphicRiver - Epic Studio Pop Culture 5 [ATN, ABR]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586486.jpg" />
+</div>
+
+
+###  Подробнее
+
+Epic Studio Pop Culture 5 - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5361D33F52B684B8030889615FEDB7F4F3A348B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040627   (586485) от 05.08.2016
+
+The Upbeats - De-Evolution Part II (2016) EP [MP3|320 Kbps] <Drum & Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586485.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mediums
+ 02. Joyrider
+ 03. Say Go (feat. Mara TK)
+ 04. Babylon (feat. Orifice Vulgatron)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:23:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:302E1E3B9064C395008EFEC67BA9F65CD3A45467
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040503   (586484) от 05.08.2016
+
+Журнал | Огородник №7 (июль 2016) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586484.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Огородник» - красочный современный журнал для любителей дач и огородов. В каждом номере интересные статьи и полезные советы по уходу за различными культурами, а также по дизайну участка.Жанр: Сад, огород, дачаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6F3D1C9DE62805A9C08A2DABA516005A85BB2C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040554   (586483) от 05.08.2016
+
+XXIX Летние Олимпийские игры (Олимпиада-2008). Пекин (Китай). Церемония открытия (2008) HDTVRip [H.264/720p-LQ][hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586483.jpg" />
+</div>
+
+
+###  Подробнее
+
+8 августа 2008г. Стадион: Пекинский национальный стадион, Пекин (Китай)
 
-MindNode  элегантный и простой в использовании, который помогает визуально:
-	•	Сбора, классификации и структуре идей.(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 11 июня 2015Разработчик: IdeasOnCanvas GmbHПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский, Немецкий, Французский, Китайский и др.
+XXIX летние Олимпийские игры проходили в Пекине с 8 по 24 августа 2008 года.
+Некоторые соревнования проходили также в Гонконге, Тяньцзине, Циндао, Циньхуандао, Шанхае и Шэньяне.(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: Спорт, ДокументальныйЯзык озвучки: русский (А. Дмитриева, И. Швецов )Продолжительность: 04:13:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5E477953F13524B30EE5DCF47DCD36C9A9427723
+magnet:?xt=urn:btih:2EFEB45179F27CC3F4B939693E192B9F3CB2065E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -186,25 +275,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 918925   (584773) от 17.07.2015
+###  Публикация: 1040624   (586482) от 05.08.2016
 
-Батальонъ  (2014) WEB-DL [720p] ATV
+VA - Drum & Bass Summer Slammers 2016 (Viper Presents) (2016) [MP3|320 Kbps] <Drum & Bass>
 
->>Аудио и Видео
->>Отечественное видео HD для устройств Apple
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584773.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586482.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Весна 1917-го года. Февральская революция изменила жизнь России и ход Великой войны. Государь уже отрёкся от престола. В окопах, где противостояние с немцами длится уже не один год, вовсю ведут свою пропаганду большевики. Они призывают к миру с неприятелем. Российское офицерство фактически ничего не может решить без одобрения так называемых солдатских комитетов. (   Читать дальше...   )Производство: РоссияЖанр: Драма, военный, историяРежиссер: Дмитрий МесхиевАктеры: Мария Аронова, Мария Кожевникова, Ирина Рахманова, Марат Башаров, Янина Малинчик, Евгений Дятлов, Алёна Кучкова, Валерия Шкирандо, Николай Аузин, Владимир ЗайцевПеревод: Не требуетсяПродолжительность: 02:03:45
+01. Birdy - Wild Horses (Matrix & Futurebound Remix) (Matrix & Futurebound)
+ 02. MNEK - At Night (I Think About You) (Cyantific Remix) (Cyantific)
+ 03. Brookes Brothers - Good To Me (feat. Majesty)
+ 04. Delta Heavy - White Flag (VIP Mix)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 03:27:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E7E7447CE7498F06853F755855268FCE4F1F9192
+magnet:?xt=urn:btih:09D166F03C9F844D0509E053097E3D47D8F30512
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -212,26 +304,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 918947   (584772) от 17.07.2015
+###  Публикация: 1040531   (586481) от 05.08.2016
 
-Д. П. Шантепи де-ля-Соссей | Иллюстрированная история религий [II Тома] (1900) [PDF]
+Black Jack - 3 Albums (1979-1982) [MP3|320 Kbps] <Electronic, Disco, Synth-pop, Pop-Rock>
 
->>Разное (категория книг)
->>Религиозная литература
+>>Pop
+>>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584772.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586481.jpg" />
 </div>
 
 
 ###  Подробнее
 
-По замыслу своего создателя - профессора Пьера Шантепи де ла Соссея (1848-1920) "Иллюстрированная история религий" была предназначена не только для специалистов, но и для всех действительно интересующихся историей религиозных воззрений разных народов.
-Отсутствие исследований, посвящённых христианству, обусловлено самим замыслом книги - создать историческую (   Читать дальше...   )Жанр: РелиговедениеФормат: PDF
+"Black Jack" - созданная в Германии "Funk-Disco" группа. Основатель - George Liszt.Список альбомов:
+1979 - Hot Passion
+1980 - Neon Lover
+1982 - White BusinessЖанр: Electronic, Disco, Synth-pop, Pop-RockПродолжительность: 01:37:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:393C11941BD56A240E9F09B9158A30CEA1F64D01
+magnet:?xt=urn:btih:A5F45669094D9D31CD6FAB933660DBC00CAD7050
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -239,28 +333,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 918438   (584771) от 17.07.2015
+###  Публикация: 1040557   (586480) от 05.08.2016
 
-Marilyn Manson - The Remix Collection (2014) 2CD [MP3|320 кб/с]<Alternative Rock, Heavy Metal, Industrial>
+Экшены - GraphicRiver - Epic Studio Pop Culture 6 [ATN, ABR]
 
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584771.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586480.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Disposable Teens (Bon Harris Remix)
-02. Slo-Mo-Tion (Proxy Dub Mix)
-03. The Nobodies (Stephane K Rock Dub Mix)
-04. I Don't Like The Drugs (But The Drugs Like Me) (Absinth Makes The Heart Grow Fonder)(   Читать дальше...   )Жанр: Alternative Rock, Heavy Metal, IndustrialПродолжительность: 02:37:04
+Epic Studio Pop Culture 6 - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:746B080EB676C11F40551ED18B8AEE59F3E7988B
+magnet:?xt=urn:btih:AB8E3C1C17EB5AA09EA53E64F68B3FEBA6B4BB22
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -268,29 +359,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552770   (584770) от 23.05.2022
+###  Публикация: 1040560   (586479) от 05.08.2016
 
-Opeth - In Cauda Venenum (2019) 3xCD, Remastered, 2022, Atomic Fire Records [FLAC|Lossless|image + .cue] <Progressive Rock>
+Экшены - GraphicRiver - Epic Studio Pop Culture 2 [ATN, ABR]
 
->>
->>
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_584770.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586479.jpg" />
 </div>
 
 
 ###  Подробнее
 
-OPETH выпустили расширенное издание своего последнего альбома "In Cauda Venenum" 13 мая 2022 года на лейбле Atomic Fire.
-В переиздание вошли английская и шведская версия "In Cauda Venenum" с новыми иллюстрациями знаменитого художника Travis Smith в буклете, а также третий CD с тремя ранее не издававшимися треками (каждый в двух версиях – на английском (   Читать дальше...   )CD - 1 - English:
-01. Garden of Earthly Delights (03:29)
-02. Dignity (06:36)
-03. Heart in Hand (08:30)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 02:45:15
+Epic Studio Pop Culture 2 - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:3B001E3CC5F103CA8C9A50A314171D21F869DBB4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -298,28 +385,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552941   (584769) от 23.05.2022
+###  Публикация: 1040465   (586478) от 05.08.2016
 
-VA - Recoverworld: Summer Trance Sessions (2022) [MP3|320 Kbps] <Trance, Tech Trance>
+Тони Эбботт | Собрание сочинений [5 книг] (2012-2014) [FB2]
 
->>
->>
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_584769.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586478.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Chris Hampshire & Bissen - The Dungeon (Original Mix) (7:18)
-02. T.O.M. - Altitude (Original Mix) (6:24)
-03. Cedric Lass - Montpellier (Original Mix) (2:55)
-04. Tim Cilento - Shadow Walker (Original Mix) (7:02)(   Читать дальше...   )Жанр: Trance, Tech TranceПродолжительность: 01:39:24
+Оуэн и подземные царства - детский фантастический цикл Тони Эбботта.Жанр: ФантастикаФормат: FB2
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:767BCB25760E03C13B49B1889B83D342DCD4AEEA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -327,28 +411,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552895   (584768) от 23.05.2022
+###  Публикация: 1040484   (586477) от 05.08.2016
 
-Bodom After Midnight - Paint The Sky With Blood (2021) EP, Japanese Edition [FLAC|Lossless|image + .cue] <Death Metal>
+Экшены - GraphicRiver - Epic Studio Pop Culture 4 [ATN, ABR]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584768.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586477.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Bodom After Midnight - финская мелодик-дэт-метал супергруппа, основанная Алекси Лайхо в 2020 году после распада Children of Bodom.
-Лайхо умер в конце 2020 года в возрасте 41 года. До этого коллектив успел отыграть несколько концертов, исполнив песни Children of Bodom, и записать дебютный мини-альбом Paint the Sky with Blood, выход которого состоялся 23 апреля 2021 (   Читать дальше...   )1. Paint The Sky With Blood
-2. Payback’s A Bitch
-3. Where Dead Angels LieЖанр: Death MetalПродолжительность: 00:14:53
+Epic Studio Pop Culture 4 - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7D0DA13D9ABDF323FAB2AE8A72FB63730559C062
+magnet:?xt=urn:btih:A1FFEA2051F89A384BCD75CE4566BEE504F1378D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -356,83 +437,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553063   (584767) от 23.05.2022
+###  Публикация: 1040545   (586476) от 05.08.2016
 
-Сруб - Веры Пиры (2022) [MP3|320 Kbps] <Post-Punk, Dark Folk, Occult Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584767.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Запивали росой
-2. Бесы
-3. Погосты
-4. Рожь(   Читать дальше...   )Жанр: Post-Punk, Dark Folk, Occult PunkПродолжительность: 00:40:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6378B3201136FBD10B12B148D9982AE515FAFAF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552869   (584766) от 23.05.2022
-
-VA - HarDD NRG OverDoZZe 6 (2022) Mixed by aQuaLuna [MP3|320 Kbps] <Trance, Hard Trance>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_584766.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. De Niro - Mind Of Man (Binary Finary Remix) (HOOK,2000)
-02. Aava - Karma (Original Mix) (MONSTER PURE,2005)
-03. Mirco De Govia - Epic Monolith (Original Mix) (XTRAVAGANZA,2002)
-04. Gate 42 - Flow (John O'Callaghan Remix) (DISCOVER,2004)(   Читать дальше...   )Жанр: Trance, Hard TranceПродолжительность: 02:03:21
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553095   (584765) от 23.05.2022
-
-Acoustica Premium Edition 7.4.0 (x64) RePack (& Portable) by TryRooM [Ru/En]
+Process Lasso Pro 8.9.8.38 Final RePack (& Portable) by D!akov [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584765.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586476.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Acoustica Premium Edition - профессиональная программа, которая позволит на высоком уровне вести аудио запись, редактирование и мастеринг. Хочется отметить интуитивно понятный интерфейс в котором приятно работать. Он был разработан таким образом, чтобы вы максимально быстро могли в нем освоится и приступить к работе, получая доступ к мощным инструментам. Все аудио (   Читать дальше...   )Язык интерфейса: Русский, Английский
+Windows, по умолчанию, позволяет программам полностью загружать центральный процессор, что ведет к зависанию системы и, соответственно, к неудобству работы. Технология ProBalance (Process Balance) программы Process Lasso аккуратно перераспределяет приоритеты запущенных программ, так что процессы, которые ранее загружали весь центральный процессор, больше не будут (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FF479C7B88AB1EA5892A27F0ABD68A4591C00910
+magnet:?xt=urn:btih:8B4D19414BA0F9FBBACD863209C1831BB63C9453
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -440,25 +463,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552958   (584764) от 23.05.2022
+###  Публикация: 1040563   (586475) от 05.08.2016
 
-Бит Стрит / Beat Street (1984) BDRip [H.264/720p]
+Экшены - GraphicRiver - Epic Studio Transparent Sketching [ATN, ABR]
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584764.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586475.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Культовый фильм о хип-хопе рассказыет историю нескольких друзей, увлекающихся граффити, брэйком, dj, mc. Живут они в Бронксе, в бедных кварталах, и пытаются при помощи своих увлечений «выбиться в люди». Кому то это удалось, кому-то нет, а кто-то в попытке отстоять своё самовыражение погибает...Производство: США, Orion PicturesЖанр: драма, музыкаРежиссер: Стэн ЛэтэнВ ролях: Рей Дон Чонг, Гай Дэвис, Джон Чардиет, Леон В. Грант, Сандра Сантьяго, Роберт Тейлор, Мэри Элис, Шон Эллиотт, Джим Боррелли, Дин ЭллиоттПеревод: профессиональный двухголосый (НТВ+), авторский (Владимир Королёв)Субтитры: английскиеПродолжительность: 01:46:10
+Epic Studio Transparent Sketching - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9EF179407DD28896882B5291EBE9891990D073AB
+magnet:?xt=urn:btih:CC10266F6D26967AEE77ED96B633088D705B1180
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -466,54 +489,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552844   (584763) от 23.05.2022
+###  Публикация: 1040140   (586474) от 05.08.2016
 
-Delta Spirit - One is One (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584763.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Villains (00:04:03)
-02 - One Is One (00:03:30)
-03 - What's Done is Done (00:03:30)
-04 - Lottery Ticket (00:04:27)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:40:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA6BA74C0FF021D72B4369A0DE195496BDE1EEB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552938   (584762) от 23.05.2022
-
-Аркадий Кошко и др. | Классика русского детективного рассказа (Выпуск 5 ) (2019) [MP3, Александр Бордуков]
+Иван Бунин | Рассказы 1932-1952 годов (2016) [MP3]
 
 >>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
+>>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584762.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586474.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Леденящие кровь истории, запутанные расследования, бесконечные погони и поиски преступников. Все это ждет вас в новом аудиосборнике «Классика русского детективного рассказа № 5», представленного лучшими образцами русской детективной прозы.Жанр: Классические детективыПродолжительность: 08:06:34
+Ива́н Алексе́евич Бу́нин (10 [22] октября 1870, Воронеж — 8 ноября 1953, Париж) — русский писатель и поэт, первый лауреат Нобелевской премии по литературе из России (1933 год).
+Лауреат Нобелевской премии по литературе в 1933 году за «строгое мастерство, с которым он развивает традиции русской классической прозы». Получив денежное вознаграждение за (   Читать дальше...   )Жанр: Русская классическая прозаПродолжительность: 03:23:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E5F7F6BDB485CF9C95C119B1D98EB2281A0E0D21
+magnet:?xt=urn:btih:816AA3FF685DB5CAA4FE2D6F5406D1F5115ADB20
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -521,28 +516,33 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553051   (584761) от 23.05.2022
+###  Публикация: 809566   (586472) от 02.08.2014
 
-Cosa Nostra Disco Band - Tarantella Disco (1978) LP [MP3|320 Kbps] <Electronic, Disco>
+VA - Modern Talking Árnyékában 1. (2009) [FLAC|Lossless]<EuroDisco>
 
->>
->>
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_584761.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586472.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Tarantella Disco (16:54)
-02. Sicilian Nights (5:38)
-03. Pastaciuta Symphony (5:40)
-04. Venedetta's Party (5:30)Жанр: Electronic, DiscoПродолжительность: 00:33:40
+01. K.B.Caps - Do You Really Need Me (Maxi Version) (6:39)
+02. Solid Strangers - Music In The Night (Maxi Version) (5:24)
+03. New Baccara - Call Me Up (Maxi Version) (5:04)
+04. Grant Miller - Doctor For My Heart (Maxi Version) (5:16)
+05. C.C. Catch - Strangers By Night (Maxi Version) (5:46)
+06. Lift Up - Diamonds Never Made A Lady (Maxi Cut) (5:10)
+07. Patty Ryan - Stay With Me Tonight (Maxi Version) (5:42)
+08. Lian Ross - It's Up To You (Maxi Version) (5:38)
+09. Bad Boys Blue - For Your Love (Album Maxi Version) (   Читать дальше...   )Жанр: EuroDiscoПродолжительность: 01:17:31
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:D5BA06A0C10FA15DED02AC845393F9672FB6A95B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -550,110 +550,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551801   (584760) от 23.05.2022
+###  Публикация: 809657   (586462) от 02.08.2014
 
-Upon A Burning Body - Fury (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Metalcore>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_584760.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. A New Responsibility
-2. Snake Eyes
-3. Shapeshifter
-4. Meltdown(   Читать дальше...   )Жанр: Alternative, MetalcoreПродолжительность: 00:31:21
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552995   (584759) от 23.05.2022
-
-Boston - Don't Look Back (1978) Santa Maria Press [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Prog Rock, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584759.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Don't Look Back
-A2 The Journey
-A3 It's Easy
-A4 A Man I'll Never Be(   Читать дальше...   )Жанр: Prog Rock, Pop RockПродолжительность: 00:34:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A87CEE71C750B5A7E2BE0A764DDE2466524F633
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552955   (584758) от 23.05.2022
-
-Glitchmachines - Convex 1.4.0 VST (x64) Retail [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584758.jpg" />
-</div>
-
-
-###  Подробнее
-
-Convex — это процессор мультиэффектов, предназначенный для облегчения создания искаженных артефактов, синкопированных паттернов и искаженных цифровых текстур.
-На основе трех классических эффектов; Многорежимный фильтр, регулятор высоты тона и задержка, Convex генерирует динамические вариации входного сигнала путем перекрестного затухания между двумя экземплярами (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:131DF65E6A6DA2FA254F084F5997742DB7FBADF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552879   (584757) от 23.05.2022
-
-Журнал | Тайны ХХ века №19 (май 2022) [PDF]
+Журнал | Chip [Украина] №8 (Август 2014) [PDF]
 
 >>Журналы
->>Другие журналы
+>>Компьютерные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584757.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586462.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Тайны XX века» - еженедельное издание, рассказывающее о загадочных силах природы, истории великих изобретений и жизни необыкновенных людей. Поиски сокровищ, исчезнувших без следа кораблей и самолетов, интервью с экстрасенсами и рассказы очевидцев о встречах с внеземным разумом. Каждую неделю на страницах вас ждут новые загадки мироздания и новые потрясающие открытия.Жанр: историяФормат: PDF
+Chip — первый компьютерный журнал в Европе, сейчас издается в 16 странах тиражом более 1 миллиона экземпляров. Журнал Chip — это высочайшее качество в освещении таких тем, как аудио-, видео- и фототехника, компьютеры, программное обеспечение, Интернет, современные технологии телекоммуникаций и развлечений. Работая в тесной связке с редакцией журнала Chip, сайт публикует (   Читать дальше...   )Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:29FD3A4754A7F4E6762F6F6F00E781E8A33ED215
+magnet:?xt=urn:btih:A6A157F686A3B6C58F04876850E6083AB472922E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -661,28 +576,33 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552993   (584756) от 23.05.2022
+###  Публикация: 809570   (586459) от 02.08.2014
 
-Starlight Brigade - Beyond The Future (2022) [FLAC|Lossless|WEB-DL|tracks] <Crossover Progressive Rock>
+VA - Modern Talking Árnyékában 1. (2009) [MP3|320 кб/с]<EuroDisco>
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584756.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586459.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - The Horizone (00:05:46)
-02 - Let It Rain (Let it all come down) (00:04:28)
-03 - Light Years Away (00:04:50)
-04 - Red Moon Is Calling (00:04:06)(   Читать дальше...   )Жанр: Crossover Progressive RockПродолжительность: 00:50:50
+01. K.B.Caps - Do You Really Need Me (Maxi Version) (6:39)
+02. Solid Strangers - Music In The Night (Maxi Version) (5:24)
+03. New Baccara - Call Me Up (Maxi Version) (5:04)
+04. Grant Miller - Doctor For My Heart (Maxi Version) (5:16)
+05. C.C. Catch - Strangers By Night (Maxi Version) (5:46)
+06. Lift Up - Diamonds Never Made A Lady (Maxi Cut) (5:10)
+07. Patty Ryan - Stay With Me Tonight (Maxi Version) (5:42)
+08. Lian Ross - It's Up To You (Maxi Version) (5:38)
+09. Bad Boys Blue - For Your Love (Album Maxi Version) (   Читать дальше...   )Жанр: EuroDiscoПродолжительность: 01:17:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9DD6988D578C19FD6174C287229031F21B749347
+magnet:?xt=urn:btih:1C4331E4E45F40397C09186571CBFACB90F9A463
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -690,25 +610,110 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553061   (584755) от 23.05.2022
+###  Публикация: 809491   (586456) от 02.08.2014
 
-Спартак / Spartaco (1913) DVDRip
+Веселые и беззаботные / Fun and Fancy Free (1947) BDRip [H.264/720p-LQ]
 
->>
->>
+>>Архив торрентов
+>>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_584755.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586456.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Рассказанная здесь история о легендарном восстании рабов под предводительством фракийского гладиатора Спартака имеет мало общего с известным романом Рафаэлло Джованьоли "Спартак". В этой картине, помимо основной сюжетной линии, повествующей о самом восстании, немалое место занимает история развития романтических отношений между Спартаком и Нароной, дочерью (   Читать дальше...   )Производство: Италия, Pasquali e C.Жанр: Драма, военный, биография, история, немое киноРежиссер: Джованни Энрико ВидалиАктеры: Лучиано Альбертини, Энрико Браччи, Альберто Капоцци, Мария Гандини, Акилле Майерони, Сигнор ФрэттиПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 01:11:31
+Две музыкальные истории, участниками которых являются персонажи студии «Дисней». Устав от переездов и плохого обращения,
+цирковой медвежонок по имени Бонго сбегает в лес. Жизнь в дикой местности оказывается не так уж легка,
+но смелый малыш находит самое главное — настоящую любовь. А далее Микки Маус, Дональд Дак и недотепа Гуфи
+пускаются в захватывающие приключения, (   Читать дальше...   )Производство: США |  Walt Disney ProductionsЖанр: Мультфильм, семейный, музыкаРежиссер: Джек Кинни, Гамильтон ЛаскиПеревод: Дублированный (Невафильм), многоголосый закадровыйПродолжительность: 01:12:59
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:6B5F2DB64E6FF57F9E21A1EB07717FE904DDF4CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 809470   (586455) от 02.08.2014
+
+Монтевидео: Божественное видение / Montevideo, Bog te video! (2010) DVDRip [VO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586455.jpg" />
+</div>
+
+
+###  Подробнее
+
+Югославия, 1930 год. Тирке – молодой парень, обожающий футбол, но на футболе не заработаешь. В национальную футбольную федерацию Югославии приходит официальное приглашение принять участие в первом чемпионате мира по футболу, который пройдет в столице Уругвая, Монтевидео. Готовить сборную к чемпионату назначен Бошко Симонович, всеобщий объект насмешек. Никто не верит, (   Читать дальше...   )Жанр: Драма, Мелодрама, КомедияРежиссер: Драган БьелогрличАктеры: Милош Бикович, Петар Стругар, Нина Янкович, Данина Йефтич, Войин Четкович, Виктор Савич, Никола Джурицко, Небойша Илич, Милутин Караджич, Бранимир БрстинаПеревод: Одноголосый закадровый, любительский - ViruseProjectПродолжительность: 02:19:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A300BAA9658D44DDE1E19F11CB618F093ACE049C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040622   (586453) от 05.08.2016
+
+The Z.A.C.K. - Disco Cosmix (1979) [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586453.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интереснейший проект в стиле спейс-диско.01. Mister Satellite (7:26)
+02. 565, Where Are You (6:07)
+03. Mind The Cosmic Rocker (6:55)
+04. Immediate Boarding Folks To The Moon (12:11)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:38:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0563A6F18C9480DE08B19860761D828A74B407FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040122   (586452) от 05.08.2016
+
+Юрий Жуков | Укрощение "тигров" (1961) [PDF, DJVU, FB2]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586452.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юрий Жуков в Великую Отечественную войну был на фронте военным корреспондентом. В данной книге собраны его фронтовые заметки о Курской дуге и последовавшим за ней боям за Харьков. Многие бои расписаны буквально по минутам.
+Выдержки из книги:"...Это была ударная группировка эсэсовского танкового корпуса, и дрались они с отчаянием смертников...". "...Сюда (   Читать дальше...   )Жанр: Военная историяФормат: PDF, DJVU, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BC7AE2C042F8618D4B291A4538D8BE0990C6B36
 ```
 
 https://mybot314.ru/tekegram_catalog/

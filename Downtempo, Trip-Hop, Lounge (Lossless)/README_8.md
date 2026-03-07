@@ -1,3 +1,32 @@
+###  Публикация: 1383459   (811576) от 15.05.2020
+
+Moby - All Visible Objects (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811576.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Morningside
+2. My Only Love
+3. Refuge
+4. One Last Time(   Читать дальше...   )Жанр: Electronic, DowntempoПродолжительность: 01:12:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45DF55518D8F5C17A894CD357D75D870597C33DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1505441   (804452) от 27.10.2021
 
 VA - Free Floating: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -710,35 +739,6 @@ Faro - Shape Of Sense (2009) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Downtempo>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C36397E0683DB54BCE8162CA879BCCC93E36F275
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124544   (785786) от 11.04.2017
-
-Faro - Dreaming In Orange (2010) Reissue, 2017 [FLAC|Lossless|WEB-DL|tracks] <Chillout, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785786.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bahia (6:06)
- 02. Subtle Land (5:27)
- 03. Underneath The Sun (4:17)
- 04. I'm Glad You Feel That Way (6:13)(   Читать дальше...   )Жанр: Chillout, DowntempoПродолжительность: 01:27:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC262DA934D951D6D066D9BD0EF8FF91B684C3AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

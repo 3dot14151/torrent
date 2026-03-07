@@ -1,3 +1,34 @@
+###  Публикация: 546069   (483335) от 11.09.2012
+
+[Wallpapers] HQ Wallpapers №16
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_483335.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] HQ Wallpapers №16
+Название: HQ Wallpapers №16
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Количество: 60 шт.
+Расширение (тип) файлов: jpgРелиз от:Время раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24C42939D472F0CCDFD19D4F5471A639355D0405
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 546099   (483252) от 11.09.2012
 
 Best HD Wallpapers Pack (11.09.12) [Wallpapers]
@@ -642,32 +673,6 @@ SGX Icons pack by KSV
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:664358A327D628D4ABD7676F5193AAA71FD074A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 546173   (480132) от 12.09.2012
-
-Лучшее в мире оружие и боеприпасы [Графика]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480132.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лучшее в мире оружие и боеприпасы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37E50C01BB52E36098ADE29B78399C3EED3C1DDE
 ```
 
 https://mybot314.ru/tekegram_catalog/

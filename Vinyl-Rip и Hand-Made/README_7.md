@@ -1,3 +1,177 @@
+###  Публикация: 1089128   (953579) от 02.01.2017
+
+VA - RETROспектива, часть I: Эстрадные оркестры (1932-1960) [FLAC 1.0|48/24|tracks|Vinyl-Rip] <Retro, Instrumental>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_953579.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ланни Дэй - Потанцуем (фокстрот)
+02. Ансамбль электромузыкальных инстр. - По набережной (фокстрот)
+03. Концертный ансамбль - Колокола (танец)
+04. Концертный ансамбль п.у. Ф. Криша - Анна (полька)(   Читать дальше...   )Жанр: Retro, InstrumentalПродолжительность: 00:55:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36A37D576E29EFA08FFE94A48F31A609899DA25E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 981385   (952709) от 31.01.2016
+
+U.D.O. (UDO) - Mean Machine (1988), RCA [FLAC 2.0|192/24|image + cue|Vinyl-Rip] <Heavy/Speed-Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_952709.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Don't Look Back
+02 - Break The Rules
+03 - We're History
+04 - Painted Love(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B248EEA22ABE092461027C53F75E2B6AEFC4DFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 981683   (951243) от 01.02.2016
+
+Deep Purple - Fireball (1971) [FLAC 2.0|96/24|image|Vinyl-Rip]<Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_951243.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fireball (3:24)
+02. No No No (6:53)
+03. Strange Kind Of Woman (4:06)
+04. Anyone's Daughter (4:42)(   Читать дальше...   )Производство: Warner Bros. Records / Warner-Pioneer - P-8092WЖанр: Hard RockПродолжительность: 00:39:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36219E842A0EB29653998B21E08677746F611F56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089925   (948933) от 05.01.2017
+
+Triumvirat - 3LP (1975-1978) [FLAC 2.0|192/24|Lossless|image + .cue|Vinyl-Rip] <Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948933.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Watefall
+A2 (Oh I'm) Late Again
+A3 Jo Ann Walker
+A4 For You(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 02:15:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29D411AEF677457DE19BDA8A1EE856D68E0A80C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089742   (948647) от 05.01.2017
+
+Константин Никольский - Иллюзии (2007) [WavPack 2.0|192/24|image + .cue|Vinil-Rip] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948647.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side 1
+01.- Иллюзии (4:22)
+02.- Пред чертой (4:06)
+03.- Только там (4:25)(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5145FF0DE54B82D40ED6154FCFD717424B65EC68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089678   (948575) от 05.01.2017
+
+VA - RETROспектива, часть III: Эстрадные оркестры III (1933-1961) [FLAC 1.0|48/24|tracks|Vinyl-Rip] <Retro, Instrumental>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948575.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Инструментальный октет - Новые приятели
+02. Оркестр п.у. Эмброуза (соло Сэм Браун) - Кукарача (румба)
+03. Джаз-оркестр ВРК п.у. А. Н. Цфасмана - Песенка дятла (полька)
+04. Джаз-оркестр ВРК п.у. А. Н. Цфасмана - Тирольский вальс (вальс)(   Читать дальше...   )Жанр: Retro, InstrumentalПродолжительность: 00:53:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84F4C7F50EB9BAA08B435D8DF13429EF11BEBCB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1089961   (948567) от 05.01.2017
 
 VA - RETROспектива, часть IV: Эстрадные оркестры IV (1939-1960) [FLAC 1.0|48/24|tracks|Vinyl-Rip] <Retro, Instrumental>
@@ -568,180 +742,6 @@ VA (Various Artists) - Greenpeace Rocks (1993) SNC [FLAC 2.0|192/24|image+cue|Vi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7E1B51AA84A88AA25A804CBFF584C8F30C0F778
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986285   (930906) от 14.02.2016
-
-Калинов мост - Дарза (1992) Not On Label [FLAC 2.0|192/24|image+cue|Vinyl-Rip] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930906.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Тропы в Китай
-02 - По-прежнему
-03 - Даждо (Для его стрелы)
-04 - Колывань(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA048C84A7B3E6E28B541B41379CA89C081A2C4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093929   (930459) от 17.01.2017
-
-Камерный оркестр Латвийской государственной филармонии, скрипка В. Зариньш, дирижер Т. Лифшиц - Антонио Вивальди - Времена года (1977) [WavPack|192/32|tracks|Vinyl-Rip] <Classical, Baroque>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930459.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-Концерт №1 Ми Мажор «Весна»
-01. Allegro  3:20
-02. Largo E Pianissimo Sempre  2:36(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 00:39:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:589C997DF13C3AB2E0145E339B178A345581DFFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093948   (930129) от 17.01.2017
-
-VA - RETROспектива, часть VIII: Эстрадные оркестры VIII (1930-1966) [FLAC 1.0|48/24|tracks|Vinyl-Rip] <Retro, Instrumental>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Оркестр п.у. П. Урмузеску - Кумушки
-02. Оркестр п.у. Депрайнс - Дождь идет (танго)
-03. Инстр. квартет п.у. Б. Тихонова - Белорусская полька (танец)
-04. Э. Пибоди - Хороший день (фокстрот)(   Читать дальше...   )Жанр: Retro, InstrumentalПродолжительность: 00:55:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6578E7B6701879EA24E97E97C93A31DD24FA782
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986813   (928780) от 15.02.2016
-
-Оркестр Поля Мориа - Бабье лето (1981) [FLAC 2.0|192/24|tracks|Vinyl-Rip] <Romantic, Ballad>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_928780.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-1. Бразильский карнавал · Brasilia Carnaval  2:44
-2. Бабье лето · L'ete Indien «Africa»  3:30
-3. Мелиза · Melisa  2:56(   Читать дальше...   )Жанр: Romantic, BalladПродолжительность: 00:35:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25EBD896D2DE870517140CC1B3FE3CB6487D3C98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986948   (928765) от 15.02.2016
-
-Владимир Кузьмин - Моя любовь (1985) 1987, Мелодия ТЗГ [FLAC 2.0|96/24|image + .cue|Vinyl-Rip]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_928765.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Только ты и я (4:43)
-02. Влюблённый в музыку (5:15)
-03. Ты, ты, ты (3:57)
-04. Моя любовь (3:25)(   Читать дальше...   )Производство: Мелодия ТЗГ - C60 25375 009Жанр: RockПродолжительность: 00:35:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:303EBE4045F4ACB6E8E3BC5B50AF9F369B49513A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987552   (925762) от 17.02.2016
-
-Def Leppard - Hysteria (1987) [FLAC 2.0|96/24|image + .cue|Vinyl-Rip]<Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Woman (5:45)
-02. Rocket (6:39)
-03. Animal (4:05)
-04. Love Bites (5:48)(   Читать дальше...   )Производство: Mercury – 830 675-1 Q-1Жанр: Hard RockПродолжительность: 01:02:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0F8994506E24FC87802F2081FCB124399FDA3E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

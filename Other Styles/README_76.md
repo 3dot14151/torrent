@@ -1,3 +1,32 @@
+###  Публикация: 1032545   (644027) от 08.07.2016
+
+Amy Lauren - Sulla Riva (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_644027.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mahogany Cider [00:02:59]
+02. Black Creek Trail [00:04:29]
+03. Where Three Rivers Meet [00:05:18]
+04. Emmerson's Ballad [00:03:14](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:52:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12E84847938C33BE8AF513E245D8507CEDE05374
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 215448   (643987) от 08.07.2010
 
 Dan Gibson's Solitudes - Blue sky classics (2008) [MP3|256 kbps]<Релакс, New Age, Meditative>
@@ -761,35 +790,6 @@ Levon Minassian & Armand Amar - Songs from a World Apart (2005) [FLAC|Lossless|i
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F1BD570D73B4A70E6D6D7C50CAE7333D175A6C3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142847   (639464) от 16.06.2017
-
-Gary Stewart - Boy Cries Wolf (2010) [MP3|128 Kbps] <Folk, Country>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639464.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Travelling Song 4:16
-02. Jekyll And Hyde 2:56
-03. Take Me Down 3:06
-04. Behind The Door (feat. Ellen Smith) 3:11(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:37:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0957B31213ED2BCDB724052CFCC31AC3EB7434D
 ```
 
 https://mybot314.ru/tekegram_catalog/

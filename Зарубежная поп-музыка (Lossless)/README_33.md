@@ -1,3 +1,119 @@
+###  Публикация: 1129685   (720321) от 29.04.2017
+
+VA - 100 Hits Sunday Morning Songs (2017) Box Set, 5CD [FLAC|Lossless|tracks + .cue] <Dance, Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720321.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ну какой релиз публиковать субботним предпраздничным утром - конечно 100 Hits: Sunday Morning Songs. Этим сборником британский лейбл Demon Music Group продолжает серию боксетов для самых различных слушателей (ссылку на серию NNM-Club вы найдете в конце релиза). Сдесь собраны спокойные, светлые и умиротворяющие композиции со всего света. 100 мягких мелодий собраны (   Читать дальше...   )CD1:
+01. Kris Kristofferson - Sunday Morning Comin' Down  (4:33)
+02. Johny Cash - It Ain't Me Babe  (3:04)
+03. Lulu - The Man Who Sold The World  (3:51)(   Читать дальше...   )Релиз состоялся: 17 февраля 2017Жанр: Dance, Pop, RockПродолжительность: 06:20:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B187667912098D3F6F8FAD72AF6995110B2BC6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129692   (720232) от 29.04.2017
+
+VA - BRAVO Hits 97 (2017) [FLAC|Lossless|WEB-DL|tracks] <Top 40, Pop, Dance, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Katy Perry feat. Skip Marley - Chained To The Rhythm (3:57)
+02. Ed Sheeran - Castle On The Hill (4:21)
+03. Alma - Chasing Highs (3:15)
+04. Zedd & Alessia Cara - Stay (3:30)(   Читать дальше...   )Жанр: Top 40, Pop Compilation, Pop, Electronic, R&B, Disco, Dance, Indie Pop, Europop, R&B, Hip Hop, Pop Rap, House, Euro House, Deep House, Electro, Synthpop, Pop RockПродолжительность: 02:36:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F3B1F1E0B4C9C23DB1CB3A498CB799790E225B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400492   (719253) от 05.08.2020
+
+The Boy Least Likely To - The Wrong End of a Rainbow (2020) A Collection of B Sides and Rarities [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Rock Lo-fi>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It Could've Been Me (Pop String Version) (03:49)
+02. Rock Upon a Porch with You (02:42)
+03. When I Grow up I Want to Be a Boy Again (03:07)
+04. My Country Heart (04:45)(   Читать дальше...   )Жанр: Indie Pop, Rock Lo-fiПродолжительность: 00:40:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B14394E18EBBB3A624569920D0841EA4ABE2F676
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400458   (719038) от 05.08.2020
+
+VA - The 90s Music Generation Playlist (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719038.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mighty Metal Gods - One (07:54)
+02. Knightsbridge - Living on My Own (03:37)
+03. Knightsbridge - Miracle (04:53)
+04. Groovy-G - Fly Like an Eagle (04:16)(   Читать дальше...   )Жанр: PopПродолжительность: 02:09:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C259483B93E5AAEE1C426CD283B2A358985D0AF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1285607   (718687) от 27.02.2019
 
 Julio Iglesias - De Julio 100 (2018) 5CD [FLAC|Lossless|tracks + .cue] <Pop>
@@ -631,122 +747,6 @@ Laid Back - Unfinished Symphonies (1999) [FLAC|Lossless|image + .cue] <Electroni
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1469F9820E138E31D4C366B6A6CB45F23C045C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025062   (711961) от 11.06.2016
-
-Linda Jo Rizzo - Fly Me High (The Album) (2015) [FLAC|Lossless|tracks] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fly Me High    07:20
-02. There's A Fire    05:37
-03. Only One Night    07:34
-04. Heartflash    05:58(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:14:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92F51BA05FA39EAD68408DDC0CED4B23B1A0B64E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286623   (711183) от 03.03.2019
-
-Kenny Rogers - Ruby Don't Take Your Love To Town (Unknown) Compilation [FLAC|Lossless|image + .cue] <Pop, World, Country>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711183.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	Ruby Don't Take Your Love To Town
-2.	For The Good Times
-3.	A Stranger In My Place
-4.	Rueben James(   Читать дальше...   )Жанр: Pop, Folk, CountryПродолжительность: 01:01:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:427446A97558438509E862F7F615CA0C50956269
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286516   (711146) от 03.03.2019
-
-The Seekers - The Very Best Of The Seekers (1997) [FLAC|Lossless|image + .cue] <Pop, Folk, Country>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711146.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	I'll Never Find Another You
-2.	A World Of Our Own
-3.	The Carnival Is Over
-4.	Someday One Day(   Читать дальше...   )Жанр: Pop, Folk, OldiesПродолжительность: 01:03:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12ECD5D82EABFA3ADC437E696AF707AFEC95CB7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286630   (711013) от 03.03.2019
-
-ZAYN - Icarus Falls (2018) 2CD [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711013.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good Guy (02:34)
-02. You Wish You Knew (03:25)
-03. Sour Diesel (04:03)
-04. Satisfaction (03:28)(   Читать дальше...   )Жанр: PopПродолжительность: 01:36:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCE98794F52443CDC8DE4D3BA8602A9FA117FF65
 ```
 
 https://mybot314.ru/tekegram_catalog/

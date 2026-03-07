@@ -1,4 +1,62 @@
 https://t.me/izofen
+###  Публикация: 1856995   (1059442) от 03.03.2026
+
+Lovrite - Favorites Collection (2026) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Sunoai>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1059442.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Back to Our Time
+02 - Goodbye My Love
+03 - Stay Tonight
+04 - L’Amour au Froid(   Читать дальше...   )Жанр: Italodisco, Italodance, Eurodisco, Eurodance, SunoaiПродолжительность: 01:27:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B305F5147E2EA6C9482E57014D1395FEF2F6D6B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856896   (1059273) от 03.03.2026
+
+VOYAGE - Favorites Collection (2026) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Sunoai>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1059273.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Simple Boy
+02 - Come Back To Me
+03 - Your Heart Is Beating
+04 - My Wound(   Читать дальше...   )Жанр: Italodisco, Italodance, Eurodisco, Eurodance, SunoaiПродолжительность: 01:23:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6A99EDB30ECF2D581891F74194AA658D721F418
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1855805   (1058402) от 25.02.2026
 
 Amanda Lear - Compilation (1977-2025) [MP3|320 Kbps] <Pop, Disco>
@@ -688,64 +746,6 @@ VA - No name compilation part 24  Dance, Synthwave,  Disco (2025) [MP3|320 Kbps]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F813DF76A164EDDBDA9E166A34A07ADD494F7C37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839728   (1046824) от 30.11.2025
-
-Talking Luna - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Disco, Italo-Disco, Euro-Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046824.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Playing With Fire (Alt Version)
- 02 - I Miss the 80s
- 03 - Inside My Heart (Alt Version)
- 04 - Playing With Fire(   Читать дальше...   )Жанр: Disco, Italo-Disco, Euro-DiscoПродолжительность: 00:32:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6A7538D2E221C40E75C484F41D73456817FE4B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839725   (1046822) от 30.11.2025
-
-Romantic Dreams - Favorites Collection Part 9 (2025) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Sunoai>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046822.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Only Once in Life
- 02 - Merry Christmas, My Love
- 03 - My Shining Christmas Star
- 04 - Only One Man(   Читать дальше...   )Жанр: Italodisco, Italodance, Eurodisco, Eurodance, SunoaiПродолжительность: 00:52:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F83F2531196DC3A68B2276E16C6413A16C67FCAF
 ```
 
 https://mybot314.ru/tekegram_catalog/

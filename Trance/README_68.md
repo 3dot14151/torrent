@@ -1,3 +1,90 @@
+###  Публикация: 1767978   (33231) от 23.12.2024
+
+VA - The Best Releases 2024 of High Emotions (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_33231.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Dani - Lay Down Near Me (Original Mix) (06:49)
+02. Lost States - Echoes of the Soul (Original Mix) (06:22)
+03. Maxim Kovalskiy - Lost in Translation (Original Mix) (05:30)
+04. DeeAnork - Gladius (Original Mix) (06:34)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 03:04:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8D8872551015D62D4C6BF8F30F78491DD56E46F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770471   (32300) от 01.01.2025
+
+VA - Christmas Trance (Best for the Year 2025) (Happy New Year 2025) (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_32300.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Artak & Nara AiMi - Light Shine (Ilya Fly Remix) (05:18)
+02. Max Denoise feat. Jennifer Hn - Love Song (Angelo-K Remix) (07:45)
+03. Ilya Fly - Remember This Time (Original Mix) (05:48)
+04. Max Denoise feat. Jennifer Hn - Love Song (Original Mix) (05:50)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:17:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B98CD20934AC4E94C8FB5676F2C9DA0B513AD06F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770867   (32072) от 03.01.2025
+
+VA - Trance Selected, Vol 2 (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_32072.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Kazal - That One Moment (Extended Mix) [7:08]
+02. Super Luminal - Memory (Extended Mix) [7:26]
+03. D.A.R.E - Tranquility (LEZAMAboy Trance Remix) [7:53]
+04. Vibe Therapy - The Last Goodbye (Extended Mix) [8:16](   Читать дальше...   )Жанр: TranceПродолжительность: 02:44:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E8E3359BC0C6BCC54A4BEEE7722E7FD8366DCC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1771002   (31986) от 04.01.2025
 
 VA - Silent Shore Trance - Highlights 2024 (2025) [MP3|320 Kbps] <Trance>
@@ -658,93 +745,6 @@ VA - Dream Dance Vol. 96 - The Annual (2025) [MP3|320 Kbps] <Trance, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DDB0252314A5DD19A0FEDB431DA264C2452E6871
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779067   (27940) от 11.02.2025
-
-VA - Top 8 December 2024 Emotional and Uplifting Trance (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27940.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eric Vanegard - Que Ricooo (Original Mix) (04:45)
-02. Misha Vorobjev - Sorrow (Original Mix) (09:42)
-03. Lost States & JJ Garcia - Fire in the Heart (Original Mix) (08:33)
-04. D.J.G. & M.I.K! - Who You Are (Forceflow Remix) (06:38)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 00:52:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26211915E3C86AF3067DD8A65D910A8FEA959864
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780279   (27308) от 17.02.2025
-
-VA - Remixes Revisited, Vol. 1 (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27308.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Polzn Bladz - Achoired Taste (Chris Oblivion Remix) [7:12]
-02. Polzn Bladz & Pulse Code - Busted Flush (Chris Oblivion Remix) [6:55]
-03. Polzn Bladz - Caller Response (James Pound Extended Remix) [7:23]
-04. James Pound & Pulse Code - Delilah (Trance x Extended Remix) [9:53](   Читать дальше...   )Жанр: TranceПродолжительность: 02:45:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E4C2AC88201FB3059B775C3F4E1814CB3DCFEBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781784   (26471) от 25.02.2025
-
-VA - The Best of 2024 from High Emotions Group Music (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26471.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alphacube - Stripes to Horizons (Original Mix) (06:35)
-02. SounEmot & Elgfrothi - Together in Time (Original Mix) (10:07)
-03. Sam Fletcher - Full of Colors (Original Mix) (07:23)
-04. Super Luminal - Song of Remedy (JJ GARCIA Remix) (05:40)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:36:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D31431FBC662BCA9E0D936C39534F520AE548E7C
 ```
 
 https://mybot314.ru/tekegram_catalog/

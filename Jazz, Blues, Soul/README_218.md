@@ -1,3 +1,232 @@
+###  Публикация: 912517   (610764) от 26.06.2015
+
+Rickie Lee Jones - The Other Side of Desire (2015) [MP3|320 кб/с]<Folk-Rock, Jazz, Blues>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_610764.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Jimmy Choos
+2. Valtz De Mon Pere (Lovers' Waltz)
+3. J'ai Connais Pas
+4. Blinded By The Hunt(   Читать дальше...   )Жанр: Folk-Rock, Jazz, BluesПродолжительность: 00:46:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BC42082B2EC1C7CBD0A61744681ECE54297B502
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912659   (610761) от 26.06.2015
+
+Dave Brubeck - Jazz & Blues collection (1996) [MP3|320 кб/с]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_610761.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Introduction (1:01)
+02.  Stardust (6:57)
+03.  Gone With The Wind (6:41)
+04.  Stompin' For Willie (5:11)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:06:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7553D2C54B397BF35C3CF55CD1A708FD01823496
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 353899   (610657) от 23.06.2011
+
+Airto Moreira & The Gods Of Jazz - Killer Bees (1993) [FLAC|Lossless]<Fusion, Jazz Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_610657.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Fusion, Jazz RockПродолжительность: 00:50:12
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230786   (610584) от 15.06.2018
+
+Vanessa Bley - Colors (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Piano>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_610584.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Light
+02 – Dark
+03 – Blue
+04 – Rebound(   Читать дальше...   )Жанр: Jazz, PianoПродолжительность: 00:46:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B13A608FBED09516D575D16F67F0ED29106EDD4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230929   (610582) от 15.06.2018
+
+McCoy Tyner Trio With Symphony - What The World Needs Now: The Music of Burt Bacharach (1997) Impulse! [FLAC|Lossless|image + .cue] <Hard Bop, Third Stream, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_610582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. (They Long to Be) Close to You [7:51]
+02. What the World Needs Now Is Love [6:09]
+03. You'll Never Get to Heaven (If You Break My Heart) [5:05]
+04. The Windows of the World [5:30](   Читать дальше...   )Жанр: Hard Bop, Third Stream, Piano JazzПродолжительность: 00:52:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FE94082D2FBF19138465E0B4DDA51C711896DA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230961   (610513) от 15.06.2018
+
+Buddy Guy - The Blues Is Alive And Well (2018) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_610513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Few Good Years (4:48)
+02. Guilty As Charged (3:20)
+03. Cognac (feat. Jeff Beck & Keith Richards)(5:22)
+04. The Blues Is Alive And Well (5:14)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 01:04:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22989801A67E35D4126B190F8D33D0B041303F36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296655   (610328) от 18.04.2019
+
+Clark Terry - Combo & Sextet: Free And Oozy (1963) 1998, Blue Moon [FLAC|Lossless|image + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_610328.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tread Ye Lightly [8:08]
+02. The Good Life [2:19]
+03. Blues Fr'Ell [3:52]
+04. Georgia On My Mind [4:22](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:00:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:164573C9AFF17A96068C74251F0BE2F23E3AA991
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1037910   (610234) от 26.07.2016
+
+Stonefield - Stonefield (2013) [MP3|320 Kbps] <Blues Rock, Female Vocal>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_610234.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  C'mon (3:20)
+ 02.  Love You Deserve (3:41)
+ 03.  Put Your Curse On Me (3:22)
+ 04.  Over And Over (2:55)(   Читать дальше...   )Жанр: Blues Rock, Female VocalПродолжительность: 00:37:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04182A14DD840005D4A7958898107E3CDB2E6857
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1037897   (610219) от 26.07.2016
 
 Mick Kolassa - Michissippi Mick (2014) [MP3|320 Kbps] <Blues>
@@ -513,238 +742,6 @@ Illinois Jacquet - The Soul Explosion (1969) /2000, Prestige/[FLAC|tracks+.cue]<
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:272BAC588885BDC406F8BD0320CD822D4B63203E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912767   (609324) от 27.06.2015
-
-Narada Michael Walden - Divine Emotion (1988) [FLAC|tracks+.cue]<Funk, Soul, Disco>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609324.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Divine Emotions
-02. Can't Get You Outta My Head
-03. That's The Way That I Feel About Cha
-04. Wild Thing(   Читать дальше...   )Жанр: Funk, Soul, DiscoПродолжительность: 00:50:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D20AE50042478532623C513A0AEE890A1AFC833F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912677   (609129) от 27.06.2015
-
-Ella Fitzgerald - Jazz & Blues collection (1994) [MP3|320 кб/с]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Sing me a swing song (and let me dance) (2:35)
-02.  (if you can't sing it) You'll have to swing it (2:57)
-03.  My last affair (2:42)
-04.  Organ grinder's swing (2:53)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:56:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93BF054D026E03AC22A17631FF585B9154F3D4BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912672   (609005) от 27.06.2015
-
-Duke Ellington - Jazz & Blues collection (1995) [MP3|320 кб/с]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609005.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Take The 'A' Train (2:54)
-02.  Johnny Come Lately (2:40)
-03.  Perdido (3:08)
-04.  Jumpin' Punkins (3:42)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:55:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86822C33EB3EFDC3CDBC43121240309C3FC65FB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231093   (608935) от 16.06.2018
-
-VA - Мой любимый старый джаз (My Loved Old Jazz) (1930-e - 1960-e) 2005, Би Смарт [FLAC|Lossless|image + .cue] <Dixieland, New Orleans Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Louis Armstrong - St.Louis Blues [8:53]
-02. Louis Armstrong - Twelfth Street Rag [3:10]
-03. Louis Armstrong - West End Blues [3:19]
-04. Louis Armstrong - Loveless Love [4:30](   Читать дальше...   )Жанр: Dixieland, New Orleans JazzПродолжительность: 01:03:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:605C2BFD1F1C3A997DF6E08E758AB92C683EC5AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231053   (608768) от 16.06.2018
-
-Caro Emerald - Acoustic Sessions Parts 1 & 2 (2017) GMCD092 [FLAC|Lossless|tracks + .cue] <Jazz, Vocal Jazz, Pop, Acoustic>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608768.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Riviera Life
-02. Dr. Wanna Do
-03. A Night Like This
-04. Just One Dance(   Читать дальше...   )Жанр: Jazz, Vocal Jazz, Pop, AcousticПродолжительность: 00:45:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D94F94F5D52360602B214F7331EF1D6F00768E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296847   (608724) от 19.04.2019
-
-Jerry Bergonzi - The Seven Rays (2019) Savant [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608724.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 1st Ray:  Intention [6:40]
-02. 2nd Ray:  Magnetism [7:33]
-03. 3rd Ray:  Creation [6:35]
-04. 4th Ray:  Harmony [7:23](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:53:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB98764FB2A1DD577DFD692F84706B2B29F2B3E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296725   (608720) от 19.04.2019
-
-VA - 12 Ladies In BP Club (2007) [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608720.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - St. James Infarmery - Angela Brown 05:57
-02 - Grangma's Hands - Jackson Kay Foster 04:38
-03 - All Of Me - Lee Anne Carrol 04:03
-04 - Hey John! - Honor Heffernann 05:18(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:59:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26E68E299234C02AB903C69294267D3BC151DF69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038162   (608713) от 27.07.2016
-
-Big Creek Slim - Keep My Belly Full (2016) [MP3|320 Kbps] <Modern Delta Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608713.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bye Bye Blues (03:42)
-02. You Don't Love Me (03:36)
-03. Precious Memories (05:58)
-04. Keep My Belly Full (03:34)(   Читать дальше...   )Жанр: Modern Delta BluesПродолжительность: 00:54:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E34826688008840B55FAC01E5A51341F61379BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

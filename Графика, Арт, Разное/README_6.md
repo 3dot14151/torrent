@@ -1,3 +1,29 @@
+###  Публикация: 1352595   (1000989) от 14.01.2020
+
+Обои - Desktop Wallpapers Full HD. Part (552) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000989.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCC01798E907368678AECFD0884C797C58BFC2DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1352589   (1000988) от 14.01.2020
 
 Обои - Desktop Wallpapers Full HD. Part (548) [JPG]
@@ -681,32 +707,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6EC8049EF17F632D5578DBC86BD394D07197C53D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598042   (999650) от 05.01.2013
-
-Рисованная графика - Artworks by Kai Spannuth
-
->>Графика, Арт, Разное
->>Современное изобразительное искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999650.jpg" />
-</div>
-
-
-###  Подробнее
-
-Работы художника-иллюстратора Kai Spannuth.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:236E4956AB0744262A49E9D5DC9CFEE336DFFD82
 ```
 
 https://mybot314.ru/tekegram_catalog/

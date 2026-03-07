@@ -1,3 +1,32 @@
+###  Публикация: 1755401   (40288) от 15.10.2024
+
+VA - Fashion Show Best Background Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40288.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Chiffre 100 - Frozen Sundae (04:13)
+ 02 - The Sura Quintet - Similitudes (04:27)
+ 03 - Roby Pherty - La Puesta del Sol (03:30)
+ 04 - Aktnuance - About the Details (04:20)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:48:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3779B09B78A8279CC361DA5CBFA3AA85BD81D81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1755407   (40257) от 15.10.2024
 
 VA - Ibiza Closing 2024 (Chillout & Lounge Music) (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
@@ -716,35 +745,6 @@ VA - Love Lounge, Vol. 3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:886B6FFBEFE267B4E29C6318530C9927F46B5AC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767499   (33414) от 22.12.2024
-
-V.A. - Christmas Lounge – The Essential (Playlist 2024) (2024) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Lounge, Chill Out>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vakanzregel - Interchangeable Words
-02. HIC ET NUNC - Blow Your Mind
-03. Hohe Minne - Dissolved Silence
-04. Mind Conventions - Hidden Whispers(   Читать дальше...   )Жанр: Electronic, Lounge, Chill OutПродолжительность: 01:54:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9E1D9C28822E4CE15A9491060FDCF1C6A1A8F17
 ```
 
 https://mybot314.ru/tekegram_catalog/

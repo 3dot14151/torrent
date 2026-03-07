@@ -1,3 +1,58 @@
+###  Публикация: 1264839   (277667) от 25.11.2018
+
+VA - Greatest Dance Hits (2018) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_277667.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alan Walker - Diamond Heart
+002. Baz - Like A Dream (Original Mix)
+003. Castellani Feat. Mel - Feel Something
+004. Cocooma - The Lights(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 11:56:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A5B2C9184EB46B8E9763AC74778A75E908B3135
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 273007   (277446) от 20.12.2010
+
+VA - Discoтека Life is Life (2010) [MP3|128 kbps]<Dance / Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_277446.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Dance / DiscoПродолжительность: 12:31:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38BA61FB3F74DCD54FA278DE63CBFF0835600BB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 273221   (277438) от 20.12.2010
 
 VA - Созвездие хитов. Суперсборник попмузыки 50/50 (2010) [MP3|256-320 kbps]<Pop/Dance>
@@ -651,64 +706,6 @@ VA - Танцевальная зима. Снежная сотка (2016) [MP3|25
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08ACD72366327F942DB9D6F4BC54FAF4E7716D80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083257   (274842) от 15.12.2016
-
-VA - Billboard Hot 100 Singles Chart 24.12. (2016) [MP3|32-320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274842.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Rae Sremmurd feat. Gucci Mane - Black Beatles 4:52
-002.The Weeknd feat. Daft Punk - Starboy 3:51
-003.The Chainsmokers feat. Halsey - Closer 4:06
-004.Bruno Mars - 24k Magic 3:47(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:27:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D25EB064130A13038A9CC46ABDFA3F35B0860A34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1082880   (274749) от 15.12.2016
-
-VA - Зимний TOP 100. Русский сборник (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274749.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Ost Up (Остап) - Раздень Свою Музыку 4:06
-002.Weel - Под Мой Пульс 3:03
-003.Отто Нотман - За Руку Держи Меня 4:02
-004.Герои - Доживем До Пятницы 3:33(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70D01DF7BAFFBF7B39D22AC92919AD047DCA9901
 ```
 
 https://mybot314.ru/tekegram_catalog/

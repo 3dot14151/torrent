@@ -1,3 +1,29 @@
+###  Публикация: 1783202   (25716) от 04.03.2025
+
+Шрифты - Future Fonts - Granblue [OTF, TTF, WOFF, WOFF2]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_25716.jpg" />
+</div>
+
+
+###  Подробнее
+
+Granblue — это красивое семейство шрифтов, поддерживающих кириллицу.Формат: OTF, TTF, WOFF, WOFF2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2B26156D2D01FF1A71F94358B76412B7FE6C541
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1783356   (25627) от 05.03.2025
 
 Шрифты - Creative Market - Boldark - Powerful Serif Font - 290870735 [OTF, TTF]
@@ -675,34 +701,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A9FED088704FD0568DE8A720A1C36F4753EC17A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789260   (22606) от 03.04.2025
-
-Шрифты - Alina Absaliamova - Behance - NIT - Free Display Font - 188881135 [OTF, WOFF, WOFF2]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22606.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатный шрифт c кириллицей.
-Разработчик: Alina Absaliamova
-В файлах в папке "NIT By He Rez AD" от "He Rez AD" добавлена немного расширенная кириллица (Украинская, Белорусская, Молдавская), глифы теперь в обоих регистрах, им же добавлены файлы форматов WOFF, WOFF2.Формат: OTF, WOFF, WOFF2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59F078E741A96D4E13380984417E63B1D3B3026C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,131 +1,25 @@
-###  Публикация: 1599769   (159644) от 24.12.2022
+###  Публикация: 1674870   (160694) от 07.11.2023
 
-Ирада Нури | Золото в её крови (2022) [MP3, Ксения Широкая]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159644.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чикаго. Начало прошлого века. В руках ловкого мошенника Сидни Бойда оказывается таинственная скрижаль, в зашифрованных символах которой спрятана карта к легендарному и издавна будоражащему умы золотому городу Пайтити. С этой минуты его жизнь под угрозой. Как, впрочем, и её… Девушки, которая слышит золото. Оно зовет ее, и лишь ей одной готово поведать все свои секреты…Жанр: Исторические приключения, МистикаПродолжительность: 10:30:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37E6F0108178A101A5D697CF763DE23C459283AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599775   (159643) от 24.12.2022
-
-Вот мчится тройка почтовая (1915) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159643.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Картину "Вот мчится тройка почтовая" следует особо отметить, так как при её постановке Сабинский впервые в России применил монтажный лист, являвшийся одновременно "железным сценарием". В этот монтажный лист, кроме подробного перечисления сцен и заметок о натурных и павильонных съёмок, заносилось также количество снятого метража рядом с предполагаемым. (   Читать дальше...   )Производство: Российская империя, Товарищество "И. Ермольев"Жанр: драма, короткометражный, немое киноРежиссер: Чеслав СабинскийАктеры: Александр Вырубов, Вера Горская, Николай ПановПродолжительность: 00:09:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46155703CA536E317BEF6D53677FE5709B5EC6DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599801   (159642) от 24.12.2022
-
-Наталья Мазуркевич | Семь бед - один адепт (Книга 2). На все ответ – один адепт! (2022) [MP3, Анна Басс]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159642.jpg" />
-</div>
-
-
-###  Подробнее
-
-«На все ответ – один адепт!» – фантастический роман Натальи Мазуркевич, вторая книга цикла «Семь бед – один адепт», жанр любовное фэнтези, попаданцы.
-
-Скука осталась позади, но теперь Ани готова многое отдать, чтобы вернуть прежние времена. Неназываемый повержен, Мортен Эншальт больше не слуга в ее замке, проблемы Доминики решены, и ничто не мешает богине тьмы наслаждаться (   Читать дальше...   )Жанр: Книги про волшебников, Любовное фэнтези, ПопаданцыПродолжительность: 10:40:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EE0C2EE2E35AF8310FA024ED7C92A97EA7E75DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599627   (159641) от 24.12.2022
-
-Битва Поколений. GAYAZOV$ BROTHER$ vs группа НА-НА (2022) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159641.jpg" />
-</div>
-
-
-###  Подробнее
-
-На МУЗ-ТВ стартует масштабное шоу, которое соберёт на одной сцене артистов первой величины разных музыкальных эпох – «Битва Поколений». Заслуженный исполнитель и дерзкий хэдлайнер чартов встретятся в профессиональном поединке и померяются силами в качестве живого звука, мощности хитов, харизме и творческом экспромте!Телекомпания: Муз ТВЖанр: Музыкальный баттлПродолжительность: 01:05:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4712C127C2DC90293558DAD8454C736C1C090712
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599725   (159640) от 24.12.2022
-
-In Flames - I, the Mask (2019) [FLAC 2.0|44/24|tracks|WEB-DL] <Melodic-Groove, Modern, Alternative-Metal>
+Red Harvest - Sick Transit Gloria Mundi (2002) Promo CD [APE|Lossless|image + .cue] <Industrial Metal, Death Metal, Thrash Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159640.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_160694.jpg" />
 </div>
 
 
 ###  Подробнее
 
-This 13th studio album from the Gothenburg "melodeath" icons is the follow-up to 2016's Battles. Recorded once again with Howard Benson (All That Remains, Escape the Fate) in Los Angeles, it sees the band unleash another dose of their patented sound, at once brutal, breakneck, and incredibly catchy. The singles "I Am Above," "(This Is Our) (   Читать дальше...   )01. Voices
-02. I, the Mask
-03. Call My Name
-04. I Am Above(   Читать дальше...   )Жанр: Melodic-Groove, Modern, Alternative-MetalПродолжительность: 00:50:56
+01. U.G.X.
+02. AEP
+03. Godtech
+04. Humanoia(   Читать дальше...   )Жанр: Industrial Metal, Death Metal, Thrash MetalПродолжительность: 00:49:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9624750A461E19A943549D000218FBD178CE928C
+magnet:?xt=urn:btih:9513060C8D7510EAA83031B35BAA6189B351B5F6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -133,25 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599663   (159639) от 24.12.2022
+###  Публикация: 1674782   (160693) от 07.11.2023
 
-Битва Поколений. Николай Басков vs Егор Шип (2022) WEBRip [H.264/720p]
+Granada - Prisionego (2016) [FLAC|Lossless|image + .cue] <Thrash Metal>
 
->>Документалистика и Телепередачи
->>Музыкальные шоу
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159639.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_160693.jpg" />
 </div>
 
 
 ###  Подробнее
 
-На МУЗ-ТВ стартует масштабное шоу, которое соберёт на одной сцене артистов первой величины разных музыкальных эпох – «Битва Поколений». Заслуженный исполнитель и дерзкий хэдлайнер чартов встретятся в профессиональном поединке и померяются силами в качестве живого звука, мощности хитов, харизме и творческом экспромте!Телекомпания: Муз ТВЖанр: Музыкальный баттлПродолжительность: 01:07:34
+01. Iman 03:44
+02. Prisionego 03:35
+03. Escupiendo al cielo 03:28
+04. Roto X dentro 03:39(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:46:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C5F812905A24834D7BC0CB10359C23E4E7280C02
+magnet:?xt=urn:btih:635A00D1C2E0609C93636311707AC987251F57EF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -159,25 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599762   (159638) от 24.12.2022
+###  Публикация: 1675012   (160692) от 07.11.2023
 
-Джеффри Томас | Панктаун (Сборник) (2022) [MP3, Александр Степной]
+WiszdomStone - Rise (2009) [WavPack|Lossless|image + .cue] <Power Metal>
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159638.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_160692.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Панктаун — место, наполненное мраком и безысходностью, тем не менее, имеет своих жителей, приспособившихся к такому существованию. Это люди и не только, живущие в мире жестоких нравов и законов, имеющие свою мораль, этику и мировоззрение, отличные друг от друга. Кое-кто из них живёт за счёт клонирования трупов, считая это предметом искусства, кто-то делает с помощью (   Читать дальше...   )Жанр: Социальная фантастикаПродолжительность: 05:07:13
+01. Rise    					       (05:51)
+02. Floods And Fires    			       (04:47)
+03. Unforgiven    				       (04:18)
+04. Take This Cup    				       (05:44)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:56:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9994A45732BC3B3F2B77BDB35E5D789D4AE94082
+magnet:?xt=urn:btih:19DCEE32DF4D6D5A90ECD4487844FCFD4E8FA4C4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -185,28 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599573   (159637) от 24.12.2022
+###  Публикация: 1674920   (160691) от 07.11.2023
 
-VA - Nu-Disco & Re-Edits Vol.1 (2022) [MP3|320 Kbps] <Deep Disco, Funky, Soulful, Nu Disco>
+Guillotine - Metal in the Vein (2007) [WavPack|Lossless|image + .cue] <Thrash Metal>
 
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159637.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_160691.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Chewy Rubs - Strange Love
-02. Chewy Rubs - The Game
-03. Chuggin Edits - I Get Satisfied
-04. Chewy Rubs - Garage Disco (Chewy Rubs Dub)(   Читать дальше...   )Жанр: Deep Disco, Funky, Soulful, Nu DiscoПродолжительность: 03:58:09 hrs
+01. Intro
+02. Metal in the Vein
+03. Violence and War
+04. Sexthrash(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:40:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2CAB046A74402C296E576E3414426FCB1C1341A6
+magnet:?xt=urn:btih:D561590573CC8CF1E7ADF5A23C68DD9D04C45DFB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -214,27 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599796   (159636) от 24.12.2022
+###  Публикация: 1674912   (160690) от 07.11.2023
 
-Наталья Мазуркевич | Семь бед - один адепт (Книга 1). Семь бед - один адепт (2021) [MP3, Анна Басс]
+Celestial Crown - Rebirth (2016) [FLAC|Lossless|image + .cue] <Gothic Metal, Doom Metal, Black Metal>
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159636.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_160690.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"Семь бед – один адепт" – фантастический роман Натальи Мазуркевич, жанр любовное фэнтези, попаданцы.
-
-Терпение и труд до добра не доведут. Особенно если работа сопряжена отнюдь не с добром. Вот и головная боль начала проявляться (в ее-то возрасте!), и радость жизни куда-то исчезла, а толпы страждущих захватить забыла. И никуда от них, страждущих, не деться. (   Читать дальше...   )Жанр: Книги про волшебников, Любовное фэнтези, ПопаданцыПродолжительность: 10:25:47
+01. Chaos Reigns Over 07:09
+02. Consumed by Fire 05:58
+03. Awaken 03:54
+04. Beyond the Horizon 05:00(   Читать дальше...   )Жанр: Gothic Metal, Doom Metal, Black MetalПродолжительность: 00:51:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D483974EACD0A34FE6CA120AA9022024E35C5E97
+magnet:?xt=urn:btih:D934D8270F21971D718EFE84C8B3BBC0EF5C7F60
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -242,28 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599742   (159635) от 24.12.2022
+###  Публикация: 1674853   (160688) от 07.11.2023
 
-VA - The Best Of Trancemission 2022 [MP3|320 Kbps] <Uplifting Trance>
+Prestige - Reveal the Ravage (2021) [FLAC|Lossless|image + .cue] <Thrash Metal>
 
->>Electronic
->>Trance
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159635.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_160688.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Milad E & David Deere - Metamorphic (Original Mix) (3:09)
-02. Andrew Mirt & Natune - My Fairytale (KWONE Extended Remix) (4:25)
-03. Paul Echo - The Journey (Extended Mix) (5:34)
-04. POPOFF & Ria Joyse - Full Of Love (Extended Mix) (5:36)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:22:28
+01. Innocent 03:53
+02. Burn My Eyes 04:52
+03. Blessed Be 04:27
+04. Pick Your Poison 04:55(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:43:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A0591115DE24797BD9C42C2C0ACD3000B1C08B78
+magnet:?xt=urn:btih:1EB3A0F62B6B0F193BC4E0D6CB4F2C592539AD9A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -271,27 +172,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599734   (159634) от 24.12.2022
+###  Публикация: 1674391   (160687) от 07.11.2023
 
-Галина Гончарова | Черное зеркало, белый алтарь (2022) [MP3, Оксана Шокина]
+Wizard - Head Of The Deceiver (2001) [FLAC|Lossless|image + .cue] <Power Metal>
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159634.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_160687.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фантастическая история разворачивается в Академии Магии. Какие секреты скрывает новенькая?
-
-Случайность – и вместо Наташи, любительницы булочек и романов, в Академию Магии попадает тоже Наташа, но любительница котлет и детективов. Романы она не читала, а вот подвох чует. И в свалившееся на нее счастье не верит. И в любовь с первого взгляда – тоже. Только в расчет. (   Читать дальше...   )Жанр: Романтическое фэнтези, ПопаданцыПродолжительность: 13:42:54
+01. Evitum Okol
+02. Magic Potion
+03. Head Of The Deceiver
+04. Collective Mind(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:47:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:606105D288F46CC711D454697629DE45C4AFF2A4
+magnet:?xt=urn:btih:8811F1955E0224734C2313685B6F1D1976308045
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -299,28 +201,364 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599441   (159633) от 24.12.2022
+###  Публикация: 1675002   (160686) от 07.11.2023
 
-Green Dolphin Street - Paint It White (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Blues Rock>
+Boxy SVG 4.15.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_160686.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цель проекта Boxy SVG - создать редактор SVG для рядовых пользователей, а также для профессиональных дизайнеров и разработчиков.Тип издания: macOS SoftwareРелиз состоялся: 06.11.2023Разработчик: © 2012-2023 Jaroslaw FoksaПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:520B903444F557DF1DFB7B067FA7DC2F3023B2F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674899   (160685) от 07.11.2023
+
+GrimFaith - Preacher Creature (2013) [FLAC|Lossless|image + .cue] <Gothic Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_160685.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro-1 (Beyond My Closed Doors) 01:05
+02. Abberation 05:23
+03. E.V.O.-3: Cyberlover 04:40
+04. Saint-Demonic Smile or Sex in Heaven (2012) 07:03(   Читать дальше...   )Жанр: Gothic Doom MetalПродолжительность: 00:49:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:620B673CBE214FAE01F39D0EE64C67D5A9746E06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674859   (160684) от 07.11.2023
+
+Angel Dust - Enlighten The Darkness (2000) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_160684.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let Me Live
+02. The One You Are
+03. Enjoy!
+04. Fly Away(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75D850B76CB30F6F805603A1E921CE137B3FF82A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674861   (160683) от 07.11.2023
+
+Granada - Sincronizado (2017) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_160683.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Poseso 03:47
+02. Sincronizado 04:04
+03. Mensaje oculto 03:19
+04. Provocacion 04:11(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:36:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03557961D6A9C5D46CDE4B02C7C43F775E09A4C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674779   (160682) от 07.11.2023
+
+Zombie Attack - Bonded By Beer (2019) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_160682.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. IntroЖанр: Thrash MetalПродолжительность: 00:32:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DAFEB35F5BA9B8E3A49E7179D6C2ACACE62C00D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674986   (160681) от 07.11.2023
+
+SILKYPIX Developer Studio Pro 11 v.11.0.12.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_160681.jpg" />
+</div>
+
+
+###  Подробнее
+
+SILKYPIX Developer Studio Pro 11 — это последняя версия высококачественного программного обеспечения для обработки RAW из серии SILKYPIX, впервые выпущенная в 2004 году. Этот продукт включает в себя первые в своем роде усовершенствования механизма обработки RAW и включает новую технологию демозаики, которая позволяет выражения разрешения определения. Таким образом, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.11.2023Разработчик: © 2023 Ichikawa Soft Laboratory Co.,Ltd.Поддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FD0EFC197D23BD832553264299A28B1B00BBD49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674989   (160680) от 07.11.2023
+
+Slidepad 1.4.6 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_160680.jpg" />
+</div>
+
+
+###  Подробнее
+
+С Slidepad не будет больше хлопот с переключением окон. Slidepad приносит многозадачность в стиле iPad на ваш Mac. Использовать Slidepad так же просто, как использовать док-станцию.
+Slidepad позаимствовал концепцию боковой панели у Franz и Station. Он намного более плавный, чем вкладки, и помогает быстро переключаться между различными веб-приложениями.
+Omnibox позволяет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.11.2023Разработчик: © 2023 SlidepadПоддерживаемая ОС: macOS 10.13.4+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCB157676EB9D9250118218FB6A09712AF9D0FC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674975   (160679) от 07.11.2023
+
+MWeb Pro 4.5.1 [Multi]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_160679.jpg" />
+</div>
+
+
+###  Подробнее
+
+MWeb: Markdown редактор, ведение заметок и генератор статических блогов.
+MWeb поддерживает расширенный синтаксис Github: TOC, Table, Fenced code block, LaTex,Task lists, Footnote и др. MWeb имеет красиво оформленную темную тему и предлагает интересные функции, как прокрутка, папки Drag & Drop, вставку изображения и др. MWeb поддерживает LaTex Просмотр в on-редакторе! (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.11.2023Разработчик: © 2023 CoderForArt IncПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Упрощенный китайский, Традиционный китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70BFB831AC489273BDE4E6FFD3849BFE992425DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674774   (160678) от 07.11.2023
+
+Asagraum - Veil of Death, Ruptured (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_160678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ignem Purificat Lilitu
+02. Fearless Dominance
+03. Opus ad Errantem (instrumental)
+04. De verloren tijd(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:36:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8FCF931D2EDFC1572BFC9982E76308600138022
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674856   (160677) от 07.11.2023
+
+Angel Dust - Bleed (1999) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_160677.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bleed
+02. Black Rain
+03. Never
+04. Follow Me (Part 1)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:48:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:578122682174B711742E4210F536E91108C55F08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674860   (160676) от 07.11.2023
+
+Angel Dust - Of Human Bondage (2002) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_160676.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Human Bondage
+02. Inhuman
+03. Unreal Soul
+04. Disbeliever(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:47:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB2C1A33DC7254782838A470F88FFFB164C262CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674909   (160675) от 07.11.2023
+
+Darkside of Innocence - Infernum Liberus Est (2010) [FLAC|Lossless|image + .cue] <Symphonic Black Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_160675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Act I - Inferno 02:21
+02. Act I.I - Angel of Sin 04:23
+03. Act I.II - The Eve to a Colder Epoch 04:40
+04. Act II - Once upon Havoc and Despair 02:46(   Читать дальше...   )Жанр: Symphonic Black Gothic MetalПродолжительность: 00:58:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4919B5D6639B3229F2983DBF8E103F0B370DC91F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674926   (160674) от 07.11.2023
+
+Alan Pasqua, Peter Erskine, Darek Oles - Live In Italy (2022) Fuzzy Music [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
 
 >>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159633.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_160674.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. How Many More Times (4:10)
-02. Hello (3:25)
-03. Paint It White (4:01)
-04. My Life (4:25)(   Читать дальше...   )Жанр: Hard Blues RockПродолжительность: 00:38:59
+01. Agrodolce [8:46]
+02. New Hope [7:49]
+03. Old School Blues [7:32]
+04. Nuages [5:03](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 01:09:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7A73F4B0CCE98080E77DC440C3D741DC4960441A
+magnet:?xt=urn:btih:38405881AD26119BBA0897193BC426F5165A19B5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -328,83 +566,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599713   (159632) от 24.12.2022
+###  Публикация: 1674851   (160673) от 07.11.2023
 
-Gwen Stefani - You Make It Feel Like Christmas (2017) Japanese Edition [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159632.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jingle Bells
-02. Let It Snow
-03. My Gift Is You
-04. Silent Night(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E520513669F6920A062BD2143E7A4EF1B740241
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599744   (159631) от 24.12.2022
-
-Леся Шишкова | Страшный сон блондинки (2021) [MP3, Aagira]
-
->>Художественные аудиокниги и публицистика
->>Сатира, Юмор (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159631.jpg" />
-</div>
-
-
-###  Подробнее
-
-Не покупайте непроверенную косметику из страны сакуры. А то приснится…Жанр: Юмор, ФантастикаПродолжительность: 00:14:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAF0CC35809A2FBEC91F1A1BA078D04C8FE667AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599707   (159630) от 24.12.2022
-
-Неоткрытая Авоська - 1 Album, 2 Singles (2022) [MP3|320 Kbps] <Punk-Rock, Ska>
+Evemaster - MMIV Lacrimae Mundi (2005) [FLAC|Lossless|image + .cue] <Melodic Black Gothic Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Русский рок
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159630.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_160673.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Список альбомов:
-2022 - Дальневосточная (Неоткрытая Авоська feat. Голос Омерики) (Single)
-2022 - Морж роман (Single)
-2022 - Панк-кабареЖанр: Punk-Rock, SkaПродолжительность: 3 CD, 00:41:19
+01. Pandemonium 04:59
+02. Whispers 05:55
+03. Embraced 04:13
+04. Archways 06:35(   Читать дальше...   )Жанр: Melodic Black Gothic MetalПродолжительность: 00:49:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:65E08E8452289E8A10F35B73DCEBF59E64ED2389
+magnet:?xt=urn:btih:216B862BC8230C3568FBAF675960E909AAA4454A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -412,111 +595,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599621   (159629) от 24.12.2022
+###  Публикация: 1674906   (160672) от 07.11.2023
 
-Аделаида Котовщикова | В большой семье (1949) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159629.jpg" />
-</div>
-
-
-###  Подробнее
-
-Блокада Ленинграда, во время эвакуации детей теряется мальчик - Алик.
-После войны отец возвращается домой, но находит только разрушенный дом, известие о смерти жены и пропажи ребёнка.
-Лишь череда случайных событий воссоединяет семью.
-Для детей среднего школьного возраста. Иллюстрации Л.Петрова.Жанр: Повесть, ВОВФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1629F7AEE01FF22C8B33E00303D0B4F7CEFB16D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599615   (159628) от 24.12.2022
-
-Эдуард Тополь | Настоящая любовь, или Жизнь, как роман (2014) [MP3, Татьяна Ненарокомова]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159628.jpg" />
-</div>
-
-
-###  Подробнее
-
-Невыдуманные истории о жизни и настоящей любви. «Все романы Эдуарда Тополя – это большой захватывающий сценарий, который издается массовыми тиражами не только в России, но и в США, Европе, Японии… А все потому, что Тополь не лукавит с читателем, не морочит ему голову, не играет с ним в литературные игры, а прямым текстом излагает, что думает»Жанр: Современная прозаПродолжительность: 29:22:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EC54E58E5A084C4E678E1E74731610E54CA6FAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599675   (159627) от 24.12.2022
-
-Главная дорога (24.12.2022) SATRip [H.264]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159627.jpg" />
-</div>
-
-
-###  Подробнее
-
-- Обзор праздничного светомобиля из Кирова.
-- Забыть вещи в такси — просто, но как их вернуть?
-- Праздник зимнего в-пробке-стояния! Ведущие «Главной дороги» Андрей Федорцов и Денис Юченков вместе с космонавтами, которые проводят сутки в одном положении, и врачами, рассказали и показали, как пережить десятибалльные заторы и не испортить новогоднее настроение!? Зачем (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:27:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80B0EAAB4295697DE3AFCCA1686122FFE7780BF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599561   (159626) от 24.12.2022
-
-Runelord - 3 Albums (2018-2022) [MP3|320 Kbps] <Heavy Metal, Power Metal>
+Нахема - Сюжеты иного писания (2006) [FLAC|Lossless|image + .cue] <Gothic Black Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Metal
+>>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159626.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_160672.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Список альбомов:
-2018 - A Message from the Past
-2018 - The Battle For Greatness
-2022 - Doomsday ScriptЖанр: Heavy Metal, Power MetalПродолжительность: 3 CD, 02:22:04
+01. Марш апокалипсиса 7:16
+02. Опухоль мира 8:04
+03. В тумане гнева 7:20
+04. Опера волчицы 8:36(   Читать дальше...   )Жанр: Gothic Black MetalПродолжительность: 01:06:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FB5E0A10B01A4E577B47A90FF0AEEBC7A93246D6
+magnet:?xt=urn:btih:9ABBDF48FF82F012311436694A5F1BD038A9A7CE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -524,25 +624,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599649   (159625) от 24.12.2022
+###  Публикация: 1674903   (160671) от 07.11.2023
 
-Битва Поколений. Mary Gu vs Акула (Оксана Почепа) (2022) WEBRip [H.264/720p]
+Bethlehem - Lebe Dich Leer (2019) 2CD [FLAC|Lossless|image + .cue] <Dark Metal>
 
->>Документалистика и Телепередачи
->>Музыкальные шоу
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159625.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_160671.jpg" />
 </div>
 
 
 ###  Подробнее
 
-На МУЗ-ТВ стартует масштабное шоу, которое соберёт на одной сцене артистов первой величины разных музыкальных эпох – «Битва Поколений». Заслуженный исполнитель и дерзкий хэдлайнер чартов встретятся в профессиональном поединке и померяются силами в качестве живого звука, мощности хитов, харизме и творческом экспромте!Телекомпания: Муз ТВЖанр: Музыкальный баттлПродолжительность: 01:03:26
+01. Verdaut in Klaffenden Mäulern 05:41
+02. Niemals Mehr Leben 04:37
+03. Ich Weiß Ich Bin Keins 05:07
+04. Wo Alte Spinnen Brüten 07:48(   Читать дальше...   )Жанр: Dark MetalПродолжительность: 01:11:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:624BFDB30BF142F6A44AFAF3B72167D5018E26B9
+magnet:?xt=urn:btih:7AF72A738FAB7FBDAAACFBC1EF232F35D7EC4840
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -550,28 +653,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599567   (159624) от 24.12.2022
+###  Публикация: 1674944   (160670) от 07.11.2023
 
-Sarah Belle Reid & David Rosenboom - Nows (2022) [FLAC|Lossless|tracks + .cue] <Experimental, Electroacoustic>
+Privatus 7.0.1 [Multi]
 
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159624.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_160670.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Never Know Night Ears
-02. Accelerated Mitosis
-03. Bowing Stream Invitation
-04. Morphcycle(   Читать дальше...   )Жанр: Experimental, ElectroacousticПродолжительность: 01:07:20
+Privatus - это простое приложение для удаления нежелательных данных после веб-серфинга. Программа работает в фоновом режиме. Просто завершите работу браузера - и Privatus удалит так называемые "tracking cookies", куки Flash, Silverlight и пр. Приложение автоматически анализирует данные и производит удаление самостоятельно. При необходимости Privatus может (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.11.2023Разработчик: © 2022 SweetP Productions, Inc.Поддерживаемая ОС: macOS 10.14.6 или вышеЯзык интерфейса: Английский, Французский и Немецкий
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:64283A8C4D6F90009651C54BEB2B499F73B1ABE4
+magnet:?xt=urn:btih:6C5D693534AD36C3975BEA128A1120126638E53B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -579,28 +679,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599753   (159623) от 24.12.2022
+###  Публикация: 1675024   (160669) от 07.11.2023
 
-Анна Шаенская | Артефактор под прикрытием (Книга 1). Артефактор под прикрытием (2022) [MP3, Наталья Фролова]
+Благовест | О крестном знамении (2016) [PDF, FB2, EPUB, MOBI, TXT]
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Разное (категория книг)
+>>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159623.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_160669.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Артефактор под прикрытием» – фантастический роман Анны Шаенской, первая книга одноименного цикла, жанр магический детектив, приключенческое фэнтези.
+Настоящая брошюра рассказывает о сути, силе и значении крестного знамения для каждого православного христианина. Отдельное место в издании уделено формам крестного знамения в истории Церкви, а также правилам и порядку наложения крестного знамения во время разных богослужений в храме и во внебогослужебное время.
 
-На что способна леди, находящаяся в розыске, и оборотень, потерявший звериную ипостась? На многое, если она – лучший артефактор страны, а он – гениальный сыщик.
-Я и Джаред терпеть не можем друг друга, но должны объединиться, (   Читать дальше...   )Жанр: Любовно-фантастические романыПродолжительность: 08:55:05
+Издание рассчитано на широкий круг православных читателей.Жанр: ПравославиеИздательство: БлаговестФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:47737045FBF2AAE011F3BD0164C16EF889660777
+magnet:?xt=urn:btih:BF946D96D558AA5B7562686D65AFDB5C6109EB84
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -608,112 +707,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599563   (159622) от 24.12.2022
+###  Публикация: 1674881   (160668) от 07.11.2023
 
-VA - Relaxing Echoes: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+Подшивка журнала | Ваш семейный доктор №1-4 (январь-август 2023) [PDF]
 
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159622.jpg" />
+  <img src="http://mybot314.ru/public/picture/002/save_picture_160668.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Michael E - It's Time (Original Mix) (6:05)
-02. Kevin Paczesny - Winter Lights (5:33)
-03. Hölderlin - Lullaby (4:54)
-04. Fantômas - Dull&slow (4:06)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:18:06
+«Ваш семейный доктор» — издание об альтернативной медицине, которое содержит достоверную информацию о здоровом образе жизни, профилактике и лечении различных заболеваний. В журнале вы найдете проверенные и понятные советы профессиональных докторов; уникальные разработки и классические методы поддержания физического и душевного равновесия; рекомендации и советы по (   Читать дальше...   )Жанр: ЗдоровьеИздательство: ООО "ИМ Медиа"Формат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:94A84859E20466B3EE2BA99ADF7E00169104F633
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599577   (159621) от 24.12.2022
-
-VA - Trance 2023 (2022) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159621.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Craig Connelly - Got To Give (3:59)
-02. Metta & Glyde - Build A Bridge (3:41)
-03. Stargazers - Stand Me Up Alive (3:47)
-04. Raz Nitzan - Moon Phases (3:47)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:51:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:042D478D9F863491601DA4B77CD86083E5EE7AB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599575   (159620) от 24.12.2022
-
-Валентина Гринкевич | Пророчество ведьм, или тайна татуировки (2022) [MP3, Павел Михайлов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159620.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обычная девушка из провинциального городка на западе Беларуси едет в командировку, где попадает в круговорот мистических событий. Начинает собственное расследование загадочных убийств, свидетелем которых она стала случайно, чтобы докопаться до истины и понять свое предназначение в мире магии и колдовства. История, в которой оживут герои славянских легенд, а тривиальные (   Читать дальше...   )Жанр: Городское фэнтези, Детективная фантастика, МистикаПродолжительность: 07:02:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2C44A0D7A78F827C5BC648DB76EB1544CCD3D4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599495   (159619) от 24.12.2022
-
-Mountain Silence - Harmonia Coeli (Sri Chinmoy, Шри Чинмой) (2008) [FLAC|Lossless|tracks + .cue] <New Age, World, Christian>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159619.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jishu Khristo
-02. Father we love
-03. Jishu nam
-04. My God(   Читать дальше...   )Жанр: New Age, World, ChristianПродолжительность: 00:54:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA5359963BEA59C97876B2C601970AAB8AE4D7AA
+magnet:?xt=urn:btih:1FCA278C07623DF431435D785B30F9F676E7FB97
 ```
 
 https://mybot314.ru/tekegram_catalog/

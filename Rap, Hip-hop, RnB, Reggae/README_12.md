@@ -1,3 +1,90 @@
+###  Публикация: 1511207   (789311) от 20.11.2021
+
+ST1M - Цитрус (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Цитрус [03:00]
+02. Лимб [03:47]
+03. Карантин (feat. СД) [02:40]
+04. Насквозь [02:38](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:15:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DDDB4DB85C237FEC95D5508A3FF0D0CBF9BDAF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511214   (789310) от 20.11.2021
+
+SQWOZ BAB - FLOWJOB (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789310.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. INTRO [02:03]
+02. FLOWJOB [01:58]
+03. МИКРОЗАЙМ [03:28]
+04. МНОГА ТРОЕК [02:38](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:37:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:436FEA215CD80968C05B7015B6EBE6A0A0B46827
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511206   (789309) от 20.11.2021
+
+Руставели, Nekby - ОКТА (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789309.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Картина мира [02:49]
+02. Голгофа [03:51]
+03. Монархия 2.0 [03:05]
+04. АиД [03:09](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:26:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62D46A0BCDC5A5582826010D7262A87A30BA258E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1511200   (789304) от 20.11.2021
 
 VELIAL SQUAD - UGLY STYLEZZ (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -658,93 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D724D3682AA28543C8836C1077B81D2725ABC769
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279278   (765875) от 29.01.2019
-
-Группа «Антиреспект» - Тишина... (2018) [MP3|320 Kbps] <Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765875.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Заветная
-02 - Летай
-03 - Нарисуй (feat. Мафик)
-04 - Одинокие берега(   Читать дальше...   )Жанр: RapПродолжительность: 01:32:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3BE68C482DF1E622D61B59BDF1506D444CB25BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214715   (763927) от 22.03.2018
-
-Toni Braxton - Sex & Cigarettes (2018) [FLAC|Lossless|WEB-DL|tracks] <R&B, Soul>
-
->>Rap, Hip-hop, RnB, Reggae
->>RnB, Reggae (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763927.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Deadwood 03:59
-2. Sex & Cigarettes 03:48
-3. Long As I Live 04:51
-4. FOH 02:47(   Читать дальше...   )Жанр: R&B, SoulПродолжительность: 00:30:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DF5D1C74B357872FFDCC33DD89BBE4A9C700D2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280073   (763517) от 01.02.2019
-
-MATRANG - DA (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763517.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Иди
-2. Луной
-3. Заменители
-4. Камень(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:27:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A936B4CE3C260E47DF9B95166D98DA48BFB34F76
 ```
 
 https://mybot314.ru/tekegram_catalog/

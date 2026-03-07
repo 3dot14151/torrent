@@ -1,3 +1,32 @@
+###  Публикация: 1397217   (741333) от 19.07.2020
+
+VA - Smooth Piano for Romantic Lovers (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741333.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Instrumental Jazz Music Ambient - Falling in Love (2:39)
+02. Kenny Bern - Endless Love (2:56)
+03. Daniel Philo - Lovers at Paradise (2:56)
+04. Victor Sommers - Lounge of Desires (2:46)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:22:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C4448CA511E2A22D4B57C6FAC4C0A9B6F37A09C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1282843   (741163) от 15.02.2019
 
 Birds of Chicago - Love in Wartime (2018) [FLAC|Lossless|tracks + .cue] <Folk, World, & Country>
@@ -710,35 +739,6 @@ Deep Forest - Evo-Devo (2016) [FLAC|Lossless|WEB-DL|tracks] <New-Age, Ambient, E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7456F8C8F00799897E4C9B8211946803B158340F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126928   (732083) от 21.04.2017
-
-VA - Yoga Mantras & Dance: Power Yoga Music & Ecstatic Dance Beats (2014) [MP3|320 Kbps] <Chillout, Ethnic, Downtempo, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732083.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Red Buddha - Desert Thar: World Mantra Flow (04:55)
-02. Donna De Lory - Sky is Open: Yoga Mantra Flow (Edit) (05:24)
-03. Prem Joshua & Chintan - The Subject Tonight Is Love: Hafiz Yoga Beats (Edit) (05:47)
-04. EarthRise SoundSystem - You Lovin' Me: Yoga World Dance (feat. Camille Armstrong, Srikala) (04:45)(   Читать дальше...   )Жанр: Chillout, Ethnic, Downtempo, New AgeПродолжительность: 02:03:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E41E0A47E1C0A5689D6484EAA6A9ECFE219D8286
 ```
 
 https://mybot314.ru/tekegram_catalog/

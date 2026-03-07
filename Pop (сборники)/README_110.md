@@ -1,3 +1,61 @@
+###  Публикация: 1562240   (212755) от 08.07.2022
+
+VA - Лето на Love Radio (2022) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_212755.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Purple Disco Machine feat. Sophie And The Giants - In The Dark (Denis Bravo Radio Edit) (3:10)
+02. Harry Styles - As It Was (2:47)
+03. Imagine Dragons - Bones (2:45)
+04. Regard feat. Years And Years - Hallucination (2:54)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:04:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:831EA3245F61A9E4578A9B665B6B19DFDCCF70F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638836   (211892) от 10.06.2023
+
+VA - German Top 100 Single Charts 09.06.2023 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_211892.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ski Aggu, Joost & Otto Waalkes - Friesenjung (2:26)
+002. Udo Lindenberg & Apache 207 - Komet (2:47)
+003. Bonez MC - Alles nur kein Star (2:30)
+004. Yung Yury & Damn Yury - TABU. (2:15)(   Читать дальше...   )Жанр: PopПродолжительность: 04:48:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37CD9394BC4FFD66D51824D65A16AE561359D3D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1566394   (211668) от 29.07.2022
 
 Yaki-Da - Compilation (2022) [MP3|320 Kbps] <Pop, Eurodance>
@@ -687,64 +745,6 @@ VA - 90s Eurodance: XXL Super Sounds 90s (2020) Unofficial [MP3|320 Kbps] <Eurod
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD9D2389DDB0A3839944CB2596D04C0200EB0D60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640460   (196897) от 19.06.2023
-
-VA - Музыка для машины Vol.27 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Саша Санта - Время-Жить (03:04)
-02. Jake Shears Feat. & Kylie Minogue - Voices (04:27)
-03. Kalifarniya - Puerto-Rico (03:53)
-04. Андрей Картавцев - Налей Огня (03:49)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:42:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCF8ADC8333F56A8F98AEBD60637CFDD49E268C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1644086   (196113) от 04.07.2023
-
-VA - Pop 3 Remix NNM (2023) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196113.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Swedish House Mafia - Moth To A Flame (feat. The Weeknd) - Adriatique Remix (6:30)
-02. Gorillaz - New Gold (feat. Tame Impala and Bootie Brown) - Dom Dolla Remix (6:03)
-03. Bee Gees - More Than A Woman - SG's Paradise Edit (5:57)
-04. Lana Del Rey - Summertime - Imanbek Remix (5:06)(   Читать дальше...   )Жанр: PopПродолжительность: 03:55:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADEBE046AC365B1329D7A38382E5D614B14EC969
 ```
 
 https://mybot314.ru/tekegram_catalog/

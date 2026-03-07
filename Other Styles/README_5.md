@@ -1,3 +1,32 @@
+###  Публикация: 1463276   (1020456) от 18.04.2021
+
+Benjamin Wallfisch - Mortal Kombat / Мортал Комбат (Original Motion Picture Soundtrack) (2021) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020456.jpg" />
+</div>
+
+
+###  Подробнее
+
+[03:07] 01. Techno Syndrome 2021 (Mortal Kombat)
+[07:15] 02. Hanzo Hasashi
+[02:25] 03. Lord Raiden
+[02:43] 04. Bi-Han(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:19:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B5CE5812DE05A3B3385EACF32E8D250A0041403
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1463278   (1020444) от 18.04.2021
 
 Benjamin Wallfisch - Mortal Kombat / Мортал Комбат (Original Motion Picture Soundtrack) (2021) [MP3|320 кб/с]<Soundtrack, Score>
@@ -718,35 +747,6 @@ Llynya - The Guiding Light - Celtic Mantras (2002) [FLAC|Lossless|image + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35F87231602CCD8D93E93485D1A6070A09821C5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473053   (1013858) от 28.05.2021
-
-Aethera - The Caelic Mystery (2005) [FLAC|Lossless|image + .cue] <New Age, Celtic, Folk>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013858.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Into Blue 3:44
-2 The Mountain Side 3:52
-3 Dungannon Dew 2:56
-4 The Green Side 4:24(   Читать дальше...   )Жанр: New Age, Celtic, FolkПродолжительность: 00:46:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7EB2BE080624102D16580F977FFA51019B40876
 ```
 
 https://mybot314.ru/tekegram_catalog/

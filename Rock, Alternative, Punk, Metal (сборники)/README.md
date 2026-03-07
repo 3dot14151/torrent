@@ -173,6 +173,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849945   (1054347) от 28.01.2026
+
+VA - Russian Rock 2025 (2025) [MP3|320 Kbps] <rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054347.jpg" />
+</div>
+
+
+###  Подробнее
+
+[2:58]. 001-Инкогнито - Январь
+[2:46]. 002-Диана Арбенина - Вот и я
+[4:10]. 003-7Б - Я люблю её
+[3:53]. 004-Сурганова и Оркестр - Здравствуй(   Читать дальше...   )Жанр: rockПродолжительность: 07:24:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A5ABBCE5D6FBA8A8C138F10FBC0B57C9423FED0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1848913   (1053202) от 19.01.2026
 
 VA - Russian Rock 2023-2024 (2023-2024) [MP3|320 Kbps] <rock>
@@ -717,35 +746,6 @@ VA - The Rock Meeting (2023) [MP3|320 Kbps] <Rock, Punk, Alternative>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01849C3A8ADA77203C1FEB9278F1025FAE2DA93E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609758   (1043141) от 04.02.2023
-
-VA - From Nightmares: Metal Hard Compilation (2023) [MP3|320 Kbps] <Metal, Hard Rock, Core>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043141.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kvasir - Authenticity
-002. Sleeping Romance - Smoke And Mirrors
-003. Goatwhore - Born Of Satan's Flesh
-004. Infection Code - Daily Slavery System(   Читать дальше...   )Жанр: Metal, Hard Rock, CoreПродолжительность: 11:35:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCCF82B99F7D5F2B6FA6CD6310ADEBA0718F6140
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,242 @@
+###  Публикация: 499705   (256341) от 21.05.2012
+
+VA - Fitness Health Creator (2012) [MP3|320 кб/с]<Funky, Club House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_256341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mistow - "Fear My Love" (Dazt Glitch remix) (04:44)
+02. Krueger & Leu - "Pour Annabelle" (Fred Wendekinds Early Friedrichshain mix) (07:45)
+03. Martin Hedegaard - "Rhythm Of" (Maksy remix) (06:41)
+04. Martin Hedegaard - "Rhythm Of" (Armando Cooper remix) (04:28)
+05. Sergio Pardo - "Lucian Night" (07:37)
+06. G&O - "Nordic" (Yenk remix) (07:39)
+07. Crooper - "Earn Money" (06:13)
+08. Jack Fennessy - "Bouncey" (05:27)
+09. Beckmann - "Breaking Headlines" (radio edit) (03:45)
+10. Patrick MC Culkgin - "Nasty Sexy Girls" (03:46)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:42:58
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1836479   (256337) от 10.11.2025
+
+VA - National Pop Dance Music Vol.122 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_256337.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Misamo - Message (04:05)
+ 002. Nolive - A Fragile Heart (02:23)
+ 003. Soonone - A Mind Without Greed (03:46)
+ 004. Robia - Basic Needs (02:17)(   Читать дальше...   )Жанр: Pop, Folk, DanceПродолжительность: 13:45:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F532839AA67AE66346B667C3A150DC0738B9F134
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 499526   (256315) от 21.05.2012
+
+VA - Зарубежные Новинки Vol.52 from AGR (2012) [MP3|320 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_256315.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Emma Hewitt & 16 Bit Lolitas - Circles
+02. Sandra - Maybe Tonight (Extended Version)
+03. Adam Lambert - Nirvana
+04. Emma Hewitt - Foolish Boy
+05. M.O.B - Every Single Day (Radio Edit)
+06. T.I. - Like That
+07. Lana Del Rey - Never Let Me Go
+08. Karmin - Brokenhearted (Razor N Guido Radio Edit)
+09. Claydee - Mamacita Buena
+10. Melanie C x Jodie Harsh - Set You Free2012Жанр: PopПродолжительность: 03:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A10BC05562B60F74099B81E9D8FF33B1842AFA94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 499522   (256294) от 21.05.2012
+
+VA - Танцевальная Dискотека from AGR (2012) [MP3|320 кб/с]<Pop, Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_256294.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deadmau5 feat. Chris James - The Veldt (Original Mix)
+02. Tiesto & Swanky Tunes feat. Ben McInerney - Make Some Noise (Original Mix)
+03. Тринна - Взорви Моё Сердце
+04. Tony Ray Project - Send Me An Angel (Radio Edit)
+05. David Guetta & Nicky Romero - Metropolis (PAKD Remix)
+06. Иван Дорн n Co - Co'n'Dorn
+07. Eva Simons - I Don't Like You (Nicky Romero Remix)
+08. Afrojack & Shermanology - Can't Stop Me (Tiesto Remix)
+09. Скрябин - Держи её за руку
+10. Music People Deejays (Mpdj's) - Выпускной (New 2012 Extended Mix)2012Жанр: Pop, Club, DanceПродолжительность: 04:54:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AD1971A471BAB45B63A6F7D0BE8A782C41555EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 499509   (256261) от 21.05.2012
+
+VA - Клубные Новинки Vol.81 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_256261.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Toni Braxton - I Heart You (Peter Rauhofer Club Mix)
+02. Circulation - Turquoise (Guy J Remix)
+03. Gary Afterlife - Dreaming Of You (Original Mix)
+04. Thomas Schwartz - Africa (Original Mix)
+05. Jay Marks - Dont Talk (Original Mix)
+06. Pulsar - Dedicated To All Women
+07. Audien - Keep This Memory (Karanda Remix)
+08. Min&Mal & Doublewave - Darkness (Original Mix)
+09. Andy Moor & Ashley Wallbridge feat. Gabriela - World To Turn (Club Mix)
+10. Simon Doty – Ladders (Jerome Robins Mix)2012Жанр: Club, DanceПродолжительность: 04:24:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:234B09B3FF4D3FF4E5EC9E9CE5032C8D92D3B24E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 499177   (256097) от 20.05.2012
+
+VA - XXXL Союз: Super новинки 50/50 (2012) [MP3|236-320 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_256097.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dan Balan - Не Любя
+02. Sandra - Maybe Tonight (Extended Version)
+03. Юрий Шатунов - Летний Ливень
+04. Labrinth - Express Yourself (Radio Edit)
+05. Olly Murs feat. Chiddy Bang - Heart Skips a Beat
+06. MC Zali & Fidel Wicked - Носом По Кокосам
+07. Эрика (Ерика) - Порцеляна
+08. Sammy Adams - Only One
+09. NY - Music
+10. A-Sen - Давай Поженимся(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:12:33
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 499050   (256068) от 20.05.2012
+
+VA - Ночное движение хитов (2012) [MP3|256-320 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_256068.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dan Balan - Люби
+02. V2G Feat. Женя Юдина - Если Не Ты (Dj Goman Remix)
+03. Dj Fudge - Мы Будем Вместе
+04. Настя Кочеткова - Жара
+05. Пальчики Оближешь - Любовь, Как Сон
+06. Винтаж - Стерео
+07. Юрий Шатунов - Летний Ливень (320 кб/с)
+08. Лоя - Розы Темно-Алые
+09. Ассорти - Плакала
+10. Титан Feat. Тамерлан И Алена Омаргалиева - Seninle(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:14:01
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1836871   (255629) от 13.11.2025
 
 VA - Weekend Freestyle (2025) [MP3|320 Kbps] <Pop, Dance>
@@ -608,251 +847,6 @@ VA - Зарубежные Новинки Vol.50 from AGR (2012) [MP3|320 кб/с
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05F7C854B552E5B18EB1183DD7F759FF0E72DA0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 497883   (253606) от 17.05.2012
-
-VA - Клубные Новинки Vol.79 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253606.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angel Stoxx - Something To Remember (Bastian Van Shield Remix)
-02. Jakub Rene Kosik - Spica (Original Mix)
-03. Estiva & Tania Zygar - Death Of Me (Original Mix)
-04. Evave feat. Aelyn - Hand To Hand (Sensitive5 Remix)
-05. Jaytech - Overdrive (Jaytech's 2012 Remix)
-06. Andain - Much Too Much (Mike Shiver Remix)
-07. Matan Caspi - Surprise Me feat Mykle Anthony (Original Mix)
-08. Digitize feat. Laura - Breathe In (Progressive Remix)
-09. Daniel Wanrooy feat. Hannah Ray - Your Life
-10. Max Vertigo feat. SevenEver - Tech Love (Original Mix)2012Жанр: Club, DanceПродолжительность: 04:19:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3922F35256D80B08A030E5ADF0B82B753DC92CF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 497504   (253408) от 16.05.2012
-
-VA - Lifetime Of Romance (2004)(18CD) [MP3|~225 кб/с (V1)]<Easy Listening / Oldies / 50s, 60s, 70s, 80s>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253408.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lifetime of Romance - Be my Love
-
-Disc 1:
-
-01. Mona Lisa - Nat King Cole
-02. Are You Lonesome Tonight? - Elvis Presley
-03. That's Amore - Dean Martin
-04. Moon River - Henry Mancini
-05. Love Letters In The Sand - Pat Boone
-06. Three Coins In The Fountain - The Four Aces(   Читать дальше...   )2004Жанр: Easy Listening / Oldies / 50s, 60s, 70s, 80sПродолжительность: 00:42:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03F8AB58A792F3B9216C27A1518DFC933088861B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 497515   (253373) от 16.05.2012
-
-VA - XXXL Зарубежный Топ Сезона (2012) [MP3|320 кб/с]<Pop,Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253373.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Danjel Summers - Set Free (Radio Edit)
-002. Arash - Melody (Radio Edit)
-003. Maxx - No More (I Cant Stand It) (DJ Cargo Bootleg Mix)
-004. Ray Charles - Hit The Road Jack (Freaky DJs Bootleg)
-005. Nicole Scherzinger - Try With Me (Cahill Radio Edit)
-006. G-Spot - Luxurolux (Radio dirty version)
-007. Martin Silence Feat. Kika - Me And You
-008. Richard Marx - When You Loved Me
-009. Alyssa Reid feat. Jump Smokers - Alone Again (Uk Radio Edit)
-010. Avril Lavigne - Wont Let You Go2012Жанр: Pop,DanceПродолжительность: 06:44:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1748D5CB20B73291D363E9A6088ABD26BF18EF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 497238   (253343) от 16.05.2012
-
-VA - Танцевальный клубный поп хит vol.7 (2012) [MP3|256 кб/с]<Pop,Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253343.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fly Project - Musica (Extended)
-02. Anton Neumark & Re-Zone - Time (DJ Winn, Anton Neumark's Re-Remix)
-03. Emin - Сердце Бьётся
-04. Чугунный Скороход - Afterparty (Smotrov DrumBase Mix)
-05. DJ Цветкоff & Оля Милакса - Белая ночь (Dj Amor remix)
-06. Братья Грим - Парашюты
-07. Dna Family - Когда Любовь Живет
-08. Avicii - Fade Into Darkness (Radio Vocal Mix)
-09. MaSha GoYa - Безумно Влюблена
-10. Bob Sinclar feat. Sophie Ellis-Bextor - Fuck with you2012Жанр: Pop,Dance, ClubПродолжительность: 06:38:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F43EF5DA448C76A7C9F3E4F04FB88BA6B54CEA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496981   (253165) от 15.05.2012
-
-VA - Летняя Жажда Скорости (2012) [MP3|256 кб/с]<Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253165.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj Robert.T - Heart Of Sound (Radio Edit)
-02. Clare Maguire - The Shield The Sword (Dexcell Remix)
-03. Pitbull Feat. Chris Brown - International Love (Uk Pop Extended Mix)
-04. Danger Wolf - Love Story My Heart (Original)
-05. Ian Carey Rosette Feat. Timbaland Brasco - Amnesia (Club Mix)
-06. My Digital Enemy - Back To The Mansion (Original Mix)
-07. Christian Staymaer Feat. Nicolle - Only One (Club Edit)
-08. Far East Movement Feat. Rye Rye - Jello (R3hab Remix)
-09. Nicola Fasano Feat. Lu Menezes - Canto Da Cidade (Original Mix)
-10. Radio Killer - Don't Let The Music End (Paul Damixie Remix)2012Жанр: Dance, ClubПродолжительность: 06:37:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E2D86C5F0D3884BBF11E3036A8527F998942EB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496758   (253152) от 15.05.2012
-
-VA - Популярный музыкайф зарубежный (2012) [MP3|192-320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253152.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Rasmus - In The Shadows (Max Freegrant VIP Remix) (5:48)
-2. Julia St. Luis - Wonder World (Radio Mix) (3:42)
-3. Espresso - Drive Me Crazy'99 (5:13)
-4. Dj.Tandu - Runnin' (Radio Mix) (3:38)
-5. Free Project - I Wanna Stay (Summer Track) (5:41)
-6. Casablanca - Sweet Sensation (Oh Yes,Oh No) (Radio Edit) (3:38)
-7. Red Hardin - Private Emotion (Dance Mix) (4:40)
-8. Alexandra Burke - All Night Long (4:22)
-9. High Spirit - Mr.Moon (Radio Mix) (3:38)
-10. One Nation - Your Woman (4:49)2012Жанр: PopПродолжительность: 07:51:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4E8F8150E3C5E9A07ADC7182347D1B0DB0DE185
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496861   (253145) от 15.05.2012
-
-VA - 200 Самых Сочных Хитов (2012) [MP3|128 кб/с]<Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253145.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Michel Telo - Ai se te ue pego (Sagi Abitbul rmx)
-002 Дискотека Авария - Россия Победит!
-003 Far East Movement feat. Justin Bieber - Live my life
-004 Алексей Воробьев - За твою любовь (Hitretz and Sergei Karpov remix)
-005 Sunrise Inc - Mysterious girl
-006 Стас Шуринс - Останься
-007 Inna - Alright
-008 Elvira T - Все решено (Fresh Tunes remix)
-009 Leventina - Freak it out
-010 Диверсанты - Мама Люба Дала Бы2012Жанр: PopПродолжительность: 11:44:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3CB04CFFA3DB36977B55E47B75E3A0518E0E427
 ```
 
 https://mybot314.ru/tekegram_catalog/

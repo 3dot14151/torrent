@@ -1,3 +1,58 @@
+###  Публикация: 1308641   (553513) от 16.06.2019
+
+VA - German Top 100 Single Charts 21.06.2019 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_553513.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lil Nas X - Old Town Road (feat. Billy Ray Cyrus)Жанр: PopПродолжительность: 05:22:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6BE53D6C994A5B4F7723D5FE104D6BF57DEAB3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046182   (553118) от 26.08.2016
+
+VA - Лето в кайф. Версия 7 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_553118.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Zhu - Hometown Girl
+002. Stereo Isterika - Кит
+003. Delyno & Remakeit - Passion
+004. Медойти - Поймав Мелодию(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8C1D4EC3C4FED92A7821F0940790A403D0BB450
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1046181   (553072) от 26.08.2016
 
 VA - Летний заводной музон - 10 (2016) [MP3|256 Kbps] <Pop>
@@ -687,64 +742,6 @@ VA - Massive Vocal, Euro, Dance Hits (2016) [MP3|179~320 Kbps] <Pop, Eurodance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E115708A882C8107D9ABB5880E49230BC94A7C45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046711   (549247) от 30.08.2016
-
-VA - Танцевальный ритм - 8 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549247.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Настасия - Если Мы С Тобой
-002. North Base Feat. Mica - Give You Up
-003. Prospektr - Окна
-004. Cheat Codes & Kriss Kross Amsterdam - Sex(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A3AC3FEFEDC6BB73E5DDB2CEFA95F7A516D7A5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047539   (549023) от 30.08.2016
-
-ABBA - DMC Classic Mixes I Love ABBA Volume 1 (2016) [MP3|320 Kbps] <Pop, Disco, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549023.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mamma Mia (vs Does Your Mother Know)  5:07
-02. Gimme Gimme Gimme (DMC International English-Spanish Mix)  4:07
-03. Dancing Queen (DMC International English-Spanish Mix)  4:07
-04. Knowing Me Knowing You (DMC International English-Spanish Mix)  3:59(   Читать дальше...   )Жанр: Pop, Disco, DanceПродолжительность: 01:18:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86F3F3CC82B556CA06CC4DDD2C417FC18C2EBA29
 ```
 
 https://mybot314.ru/tekegram_catalog/

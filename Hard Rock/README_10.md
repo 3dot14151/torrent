@@ -1,3 +1,32 @@
+###  Публикация: 1401576   (707687) от 11.08.2020
+
+Fortune - The Gun's Still Smokin' Live (2020) [MP3|320 Kbps] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707687.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thrill of It All (04:54)
+ 02. Don't Say You Love Me (05:03)
+ 03. Bad Blood (04:14)
+ 04. What a Fool I've Been (04:42)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:51:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E82FCBDB82DDCC19392593BC1699BD144F51A5EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1532738   (707211) от 23.02.2022
 
 Simplekind - Goodbye to Yesterday (2022) [MP3|320 Kbps] <Hard Rock>
@@ -716,35 +745,6 @@ Tiger B. Smith - We're The Tiger Bunch (1974) Reissue, 1993, Bellaphon [MP3|320 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C24FA2ABEB9D252F80B0F884BD28623BE7A5EF99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138168   (662994) от 30.05.2017
-
-AC/DC - Californication (Live) (2017) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662994.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Who Made Who (Live at Irvine Meadows Amphitheatre, California 1986) (4:53)
-2. Shot Down in Flames (Live at Irvine Meadows Amphitheatre, California 1986) (3:37)
-3. Back in Black (Live at Irvine Meadows Amphitheatre, California 1986) (3:47)
-4. Dirty Deeds Done Dirt Cheap (Live at Irvine Meadows Amphitheatre, California 1986) (4:23)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:23:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B9CC417FA28B64EF973271BCD9ABB311EB47832
 ```
 
 https://mybot314.ru/tekegram_catalog/

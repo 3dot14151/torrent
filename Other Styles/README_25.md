@@ -1,3 +1,32 @@
+###  Публикация: 1100093   (901482) от 03.02.2017
+
+VA - Acoustic R&B Chill Playlist. Eighteen Smooth and Chilled Tracks (2017) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_901482.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Karizma Duo - Cry Me a River
+02. Olivia Keast - Every Breath You Take
+03. Ginnie - I Can't Make You Love Me - Acoustic Version
+04. Hannah Dorman - Hurts(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 01:09:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F2CB32F32045DE2043605D9A013341CB3F47CBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1100007   (901397) от 03.02.2017
 
 Wychazel - In Search of Lemuria (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -707,35 +736,6 @@ VA - Война (2002) [FLAC|Lossless|image + .cue] <Rock, Soundtrack>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:053A0FF2DE26F1493B317278A9D9E73167CCD7D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370601   (893495) от 29.03.2020
-
-Cris Velasco & Sascha Dikiciyan - The Long Dark Soundtrack (2017) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893495.jpg" />
-</div>
-
-
-###  Подробнее
-
-2017 - SURVIVAL Mode Ambient & Exploration
-2017 - WINTERMUTE, Ambient & Exploration
-2017 - WINTERMUTE, Episode One: "Do Not Go Gentle
-2017 - WINTERMUTE, Episode Two: "Luminance FugueЖанр: SoundtrackПродолжительность: 01:39:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F2F6B62D08BDFC6C5DCB79A5380F80504174240
 ```
 
 https://mybot314.ru/tekegram_catalog/

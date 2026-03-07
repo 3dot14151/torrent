@@ -1,3 +1,293 @@
+###  Публикация: 998630   (868214) от 20.03.2016
+
+VA - Blues Forever vol.41 - vol.44 (2016) [MP3|320 кб/с] <Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_868214.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Gogo - Why Don't You Show Me
+02. Ellis Hooks - To Get Close To You
+03. The Johnny Mac Band - Nothin' Left To Lose
+04. Brad Wilson - Hot Stuff(   Читать дальше...   )Жанр: BluesПродолжительность: 05: 14:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4397DD8205A735F79AD38297A6BEBE5934B4AFE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 998487   (868101) от 20.03.2016
+
+VA - Клубный мега хит в машину (2016) [MP3|256-320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_868101.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Estradarada - Мне Нравится (08:03)
+2. Alex Kafer & Lera - Ничего Не Говори (06:23)
+3. Twoloud, Showtek - Move (05:21)
+4. Yelawolf feat Eminem - Best Friend (05:14)(   Читать дальше...   )Жанр: PopПродолжительность: 08:25:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAAE022CA353C01F829FE61D8A5CAFF16E115FE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 873509   (868047) от 28.02.2015
+
+Scorpions - Anthology (2015) 8 Альбомов [MP3|320 кб/с] <Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_868047.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blackout
+02. Raised On Rock
+03. In Trance
+04. Rhythm Of Love(   Читать дальше...   )Жанр: Hard RockПродолжительность: 10:16:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60F20BB16B5E658C4EE0B65508844009D2D2B30F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497069   (868018) от 20.09.2021
+
+VA - Music News vol.133 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_868018.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Нино Нинидзе - Письмо Себе (03:13)
+ 002. 140 Ударов В Минуту - Растаял Сон (03:09)
+ 003. Agunda - Сны (02:56)
+ 004. Akha - Сюрприз (02:15)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 07:27:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBE9FF3270D5E4F6680AD3611119D6586EB79AF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1107179   (867853) от 22.02.2017
+
+VA - Woman of Jazz (2017) [MP3|320 Kbps] <Jazz, Vocal Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_867853.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Melody Gardot - Goodnite
+02. Astrud Gilberto - Solo El Fin (For All We Know)
+03. Sophie Milman - Lonely in New York
+04. Karen Souza - Everyday Is Like Sunday(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 04:09:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9934505B6029F516B7401CE832F32C94EF619AFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375119   (867274) от 13.04.2020
+
+VA - Beatport Electro House: Sound Pack #57 (2020) [MP3|320 Kbps] <Electro House, Dance, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_867274.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alex Milani - Say It Now
+002. Musata - Spinning Noise
+003. Falstronic - Strike Force
+004. Federico Seven - Stereo(   Читать дальше...   )Жанр: Electro House, Dance, ClubПродолжительность: 06:49:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC5F1A319B0657E05B546C2F036128DD3C188492
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375106   (867194) от 13.04.2020
+
+VA - Bass Reflex: Drum Electro Sound (2020) [MP3|320 Kbps] <D&B, Bassline, Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_867194.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Koznik & Khavy - Nasty
+002. Jaydan - Raggamuffin
+003. Pruf - Stand Up
+004. Ill Truth - On And On(   Читать дальше...   )Жанр: D&B, Bassline, DubstepПродолжительность: 09:46:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB292278ED1C66CD4FA43EBB64BAB5C1A4690120
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375247   (867187) от 13.04.2020
+
+VA - Acoustic Rock vol.5 (2020) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_867187.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. John Mayer - Who Says (02:55)
+02. Mudvayne - Forget to Remember - Acoustic (03:38)
+03. Pop Evil - 100 In A 55 - Acoustic (03:32)
+04. Halestorm - Break In (04:45)(   Читать дальше...   )Жанр: RockПродолжительность: 01:43:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90A306EE1D2AE5F932668E08850DD8E9A3AB02F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375117   (867116) от 13.04.2020
+
+VA - Beatport Deep House: Electro Sound Pack #58 (2020) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_867116.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Godfathers - Roper St
+002. Modular Bros. - Jailtime
+003. Anton Ishutin - Release The Energy
+004. Djscifi - Trap Inside Your Love(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 11:24:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:058785C28F316AF76AA52D0A5DAE1B86249C0253
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375335   (867113) от 13.04.2020
+
+VA - Metal Supreme (2020) [MP3|320 Kbps] <Rock, Metal, Thrash-Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_867113.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Metallica - Enter Sandman 5:31
+002. Anthrax - Caught In A Mosh 5:00
+003. Heaven Shall Burn - Endzeit 4:18
+004. Sepultura - Arise 3:18(   Читать дальше...   )Жанр: Rock, Metal, Thrash-Metal, Industrial-MetalПродолжительность: 08:53:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D01D3C51B2E27652CC593D44CF5F83A8754D033
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1375121   (867111) от 13.04.2020
 
 VA - Inspiration: Vocal House Party (2020) [MP3|320 Kbps] <Vocal House>
@@ -461,293 +751,6 @@ VA - Зайцев.нет Лучшие новинки Сентября (2021) [MP
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F04FB37167C0459C13C847BCB5DDB88372798EA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107730   (866239) от 23.02.2017
-
-VA - Relax to House Vol. 6 (House Edition) (2017) [MP3|320 Kbps] <House, Bass House, G-House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Underdog Project - Summer Jam (Wanz Remix)
-02. Cimieon, Letta - Creep (Original Mix)
-03. Roland UA - I Believe It (Original Mix)
-04. Block & Crown, Chris Marina - The Secrets (Luca Debonaire Club Mix)(   Читать дальше...   )Жанр: House, Bass House, G-HouseПродолжительность: 04:17:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D99171F50CF5979AF0695A455461AF9A3BF5413
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107545   (866106) от 23.02.2017
-
-VA - Полный отрыв. Сборник зажигательных хитов. Часть № 9 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866106.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kaiser Chiefs - Hole In My Soul 4:28
-002. Robbie Williams - Mixed Signals 3:59
-003. Mako & Morgan Page - Real Life 2:56
-004. Emeli Sande - Every Single Little Piece 4:03(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C367CD6F822A73B0920426B158E9BA2075B22ADE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107738   (865811) от 23.02.2017
-
-VA - Евро Хиты Топ 40 (Февраль 2017)[MP3|261-320 Kbps] <Club, Dance, Remix>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865811.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alan Walker - Sing Me to Sleep
-002. Alle Farben - Bad Ideas
-003. Alok, Bruno Martini feat. Zeeba - Hear Me Now (Original Mix)
-004. Bebe Rexha - I Got You(   Читать дальше...   )Жанр: Club, Dance, RemixПродолжительность: 02:17:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4570F62FFF946D2626C011890EA3A15BA0117A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375380   (865618) от 14.04.2020
-
-VA - Go Your Way: City R&B Lyric (2020) [MP3|320 Kbps] <R&B, Soul>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865618.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Doc 9 - My Life
-002. Sam Sparro - Marvelous Lover
-003. Og Dominator - Throwback Sundays
-004. Wyann Vaughn - Maya(   Читать дальше...   )Жанр: R&B, SoulПродолжительность: 06:57:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7AFA899A5934A39EFBEC3F3D9E1BB8BF43D99E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375377   (865617) от 14.04.2020
-
-VA - Easy Listening: Soul Heaven (2020) [MP3|320 Kbps] <Easy Listening, Jazz>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865617.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brice Davoli - Big Balloons
-02. Martin Liege - Stream Of Love
-03. Brice Davoli - I'm Not In My Plate
-04. Chillson - Easy Does It(   Читать дальше...   )Жанр: Easy Listening, JazzПродолжительность: 03:21:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BECBC3B504AFC2628F0BC3FF587A679651ADB5BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375385   (865503) от 14.04.2020
-
-VA - Rock Concept (2020) [MP3|320 Kbps] <Rock, Hard Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865503.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Early November - My Weakness
-002. John Floreani - Don't Wait Up
-003. Perry Farrell - Where Have You Been All My Life
-004. Robert Palmer - Every Kinda People(   Читать дальше...   )Жанр: Rock, Hard Rock, AlternativeПродолжительность: 06:09:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13005982A3F51CDD11B4895A21DA68FAF3002DD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375374   (865501) от 14.04.2020
-
-VA - Beatport Techno: Electro Sound Pack #56 (2020) [MP3|320 Kbps] <Techno>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865501.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Tom Nihil - Pain
-003. Joao Ferrari - I Wanna (Original Mix)
-004. Stephan Crown - Rinasab (Original Mix)
-005. Erofex - Foggy (Original Mix)(   Читать дальше...   )Жанр: TechnoПродолжительность: 12:31:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:019C1D838BE21BF5F5F5F8F07897BD2C2B8A69F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375375   (865500) от 14.04.2020
-
-VA - Beatport Trance: Electro Sound Pack #55 (2020) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865500.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Samsara - Rites Of Autumn (Original Mix)
-002. Semantic Maze - Fine (Original Mix)
-003. Drym - Hypnotic (Extended Mix)
-004. Enea Marchesini - Sensations (Radio Edit)(   Читать дальше...   )Жанр: TranceПродолжительность: 12:04:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4457668E8A0E5FB08E82FD2A8775D6FCA3EAD30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375392   (865491) от 14.04.2020
-
-VA - Spring Pop: Eurodance Ultra Mix (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865491.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ashley O - On A RollЖанр: Pop, DanceПродолжительность: 07:39:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36FDDCBEDB3DB7731617B81EF18C4B5DA54F8BEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375596   (865317) от 14.04.2020
-
-VA - Dark Country Blues (2020) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865317.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matt White - The Hard Way
-02. Dominic Marsh - Dark Cloud
-03. Dolly Wright - Murderous Mind
-04. Chris Lewis - Devil's Country(   Читать дальше...   )Жанр: Rock, Blues, Blues RockПродолжительность: 03:05:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A45C8F28945A0C2CCDCD8D7DFE8E5C665541CE86
 ```
 
 https://mybot314.ru/tekegram_catalog/

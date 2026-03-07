@@ -1,3 +1,177 @@
+###  Публикация: 1039521   (594514) от 02.08.2016
+
+Арсенал - Своими Руками (1983) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Fusion>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594514.jpg" />
+</div>
+
+
+###  Подробнее
+
+А1 Тайна (Mystery)
+А2 Посвящение Махавшину (Dedication To Mahavishnu)
+В1 Свет На Пути (Light On The Way)
+В2 Сюита В Фа Миноре (Suite In F Minor)Жанр: Jazz, FusionПродолжительность: 00:34:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9258C86254D062CB9A287D909694D832CD4FDD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 806923   (594171) от 22.07.2014
+
+Van Halen - 1984 (1984)  [FLAC 2.0 24/192|image (Vinyl-Rip)]<Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594171.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. 1984 (1:07)
+A2. Jump (4:04)
+A3. Panama (3:33)
+A4. Top Jimmy (3:01)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:33:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D06854D4B32B2584F86081D4E764026D44453965
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1150247   (594036) от 15.07.2017
+
+VA - Песни На Стихи Андрея Вознесенского (1981) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop, Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594036.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Николай Гнатюк - Танец На Барабане
+A2 Ольга Пирак - Два Стрижа
+A3 Петер Тилс - Белый Шиповник
+A4 Яак Йоала - Подберу Музыку(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:37:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC0D1A40407AA866ADF95FB8C0E354A6F8A8D043
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548801   (593957) от 06.05.2022
+
+The Ray Conniff Singers - It's The Talk Of The Town (1959) 1971 [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Jazz, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593957.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 It's The Talk Of The Town
+A2 You're An Old Smoothie
+A3 Buttons And Bows
+A4 Let's Put Out The Lights (And Go To Sleep)(   Читать дальше...   )Жанр: Jazz, PopПродолжительность: 00:29:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D554410E59E11D75E351C627B965CC74770AC44A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042634   (593733) от 06.05.2022
+
+Ray Conniff/Рэй Коннифф - Смех Под Дождем (1976) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Jazz, Pop, Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593733.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Смех Под Дождем (Laughter In The Rain)
+А2 Я Действительно Тебя Люблю (I Honestly Love You)
+A3 Закат (Sundown)
+A4 Ангелочек (Angie Baby)(   Читать дальше...   )Жанр: Jazz, Pop, Easy ListeningПродолжительность: 00:33:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1655F0090854A45F02B4616BF73161E16B5AC5B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549435   (593359) от 07.05.2022
+
+Ray Conniff/Рэй Коннифф - Голубая Рапсодия (1987) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Jazz, Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593359.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Страна Улыбок
+A2 Грезы Любви
+A3 Романс
+A4 Парафраза(   Читать дальше...   )Жанр: Jazz, Easy ListeningПродолжительность: 00:40:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB3EB617B322DEC6AFD9997B13D1BC7727A82D48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1549733   (592844) от 08.05.2022
 
 Twisted Sister - Studio Albums (8 releases) (1982 - 2006) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Heavy Metal/Hard Rock>
@@ -576,191 +750,6 @@ Breakfast in America — шестой студийный альбомы груп
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93C92B31BF8648921209C5D98214A4F0336E0BA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041078   (584150) от 07.08.2016
-
-Amy Winehouse - Back to Black (2013) [DTS-HD MA, LPCM, Dolby TrueHD 2.0|96/24|Blu-ray] <Soul, Jazz>
-
->>HD Audio и Многоканальная Музыка
->>Blu-ray Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584150.jpg" />
-</div>
-
-
-###  Подробнее
-
-Back to Black — второй и последний студийный альбом британской певицы Эми Уайнхаус, выпущенный 4 октября 2006 года на Island Records. Большинство музыкальных критиков положительно отозвались об альбоме, оценив талант автора в песнях, написанных Уайнхаус под влиянием классического соула и спродюсированных Саламом Реми и Марком Ронсоном. На 50-й церемонии «Грэмми» (   Читать дальше...   )01. Rehab
-02. You Know I'm No Good
-03. Me & Mr. Jones
-04. Just Friends(   Читать дальше...   )Жанр: Soul, JazzПродолжительность: 00:34:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12F70B632E8E3AAACD753BA1AA7915891210D206
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301234   (584015) от 12.05.2019
-
-VA - Rock'n'Roll (1977) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Rock & Roll>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584015.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1.a Shakin' Stevens And The Sunsets - It's Rock'N'Roll
-A1.b Shakin' Stevens And The Sunsets - I Told You So
-A2 Chas And Dave And Various - That's Alright Mama
-A3 Freddie "Fingers" Lee - Down On The Farm(   Читать дальше...   )Жанр: Rock & RollПродолжительность: 00:37:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EB95A32E2486E3A6FA6DFC163170B0380014B35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041372   (583171) от 08.08.2016
-
-Luciano Pavarotti - Ti Adoro (2003) [DTS 5.1 CD-DA|44.1/16|image+cue|SACD] <Classical - Vocal>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583171.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.    Il canto    03:44
-02.    Neapolis    03:35
-03.    Starai con me    04:23
-04.    Ti adoro    03:13(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:55:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C85C521834722C39DBCE5FFBC9D672195C3EDB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 810810   (582453) от 06.08.2014
-
-Bad Company - 10 From 6 (1985)  [FLAC 2.0 24/192|image (Vinyl-Rip)]<Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582453.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Can't Get Enough (4:18)
-A2. Feel Like Makin' Love (5:12)
-A3. Run With The Pack (5:25)
-A4. Shooting Star (6:17)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5DCA37F860681E62F864175C74038B3DA628726
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 359638   (581771) от 06.07.2011
-
-Billy Idol - Rebel Yell (1983) [APE 2.0 24/192|image (Vinyl-Rip)]<Pop Rock/Synth-Рop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581771.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side 1
-A1 Rebel Yell [04:47]
-A2 Daytime Drama [04:04]
-A3 Eyes Without A Face [04:58]
-A4 Blue Highway [05:08]
-Side 2
-B1 Flesh For Fantasy [04:37]
-B2 Catch My Fall [03:43]
-B3 Crank Call [04:00]
-B4 (Do Not) Stand In The Shadows [03:12](   Читать дальше...   )1983Жанр: Pop Rock/Synth-РopПродолжительность: 00:38:19
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 360094   (580828) от 07.07.2011
-
-Sandra - Into A Secret Land (1988) [APE 2.0 24/96|image (Vinyl-Rip)]<Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580828.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Secret Land [04:42]
- 02.  We'll Be Together [04:09]
- 03.  Heaven Can Wait [04:02]
- 04.  Just Like Diamonds [05:28]
- 05.  Around My Heart [03:16]
- 06.  Crazy Joliet [04:09]
- 07.  La Vista De Luna [03:43]
- 08.  Celebrate Your Life [03:26]
- 09.  Children of England [03:51]Жанр: Synth-popПродолжительность: 00:36:46
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

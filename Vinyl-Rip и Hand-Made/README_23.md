@@ -1,3 +1,177 @@
+###  Публикация: 1547522   (602418) от 29.04.2022
+
+Форум - Три альбома (1987-1992) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602418.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Зови Меня, Иди Ко Мне
+(В. Сайко – Л. Виноградова)
+A2 Серые Глаза
+(В. Сайко – Д. Панфилов)(   Читать дальше...   )Жанр: Synth-popПродолжительность: 01:56:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CCDA5F64130E86C81410FDC4D0186C4D0B7964D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547836   (602027) от 30.04.2022
+
+Оризонт - Между Нами Снег (1984) ЕР [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602027.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Между Нами Снег
+(В. Шаинский - С. Алиханов, А. Жигарев)
+02. Песня Куклы
+(В. Шаинский - С. Алиханов, А. Жигарев)(   Читать дальше...   )Жанр: PopПродолжительность: 00:13:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6727DDBAB1C47846FA52E37E23D51591DA2BD391
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547850   (602019) от 30.04.2022
+
+Людмила Сенчина - Аист На Крыше (1986) ЕР [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602019.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Бумажный Cамолетик
+(В. Севастьянов – А. Римицан)
+02. Сновидение
+(Л. Доброва – Н. Денисов)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:11:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03BADACA99BB5CB1DF36ABC97B831A628AE4F280
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127112   (601971) от 30.04.2022
+
+VA - RETROспектива, часть XVIII. Зарубежные исполнители II (1930-1969) [FLAC 1.0|48/24|tracks|Vinyl-Rip] <Pop, Retro>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_601971.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Анс. ''Филипинки'' (Польша) - Пити-пити
+02. Вок. дуэт "Сестры Пинац" (Япония) - Кусочек счастья
+03. Пилар и Элен Гарсиа (Испаия) - Девушка из Малаги
+04. Гуальтиеро Мизиано (Италия) - Душа и сердце(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:57:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64E0A7817962C1675FCE0D75B0081BAF5343C3F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127117   (601967) от 30.04.2022
+
+VA - RETROспектива, часть XIX. Зарубежные исполнители III (1930-1969) [FLAC 1.0|48/24|tracks|Vinyl-Rip] <Pop, Retro>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_601967.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Лолита Торрес (Аргентина) - Страдания любви (самба-песня)
+02. Гуальтиеро Мизиано (Италия) - Огненная луна
+03. Пилар и Элена Гарсиа (Испания) - Колумбина
+04. Жижи Марга (Румыния) - Это прекрасно (фокстрот)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:56:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:081C4F9BBCD987819C2DA407F4F31920DDF4EBEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134776   (601963) от 30.04.2022
+
+VA - RETROспектива часть XX. Зарубежные исполнители IV (1955-1962) [FLAC 1.0|48/24|tracks|Vinyl-Rip] <Pop, Retro>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_601963.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Джика Петреску (Румыния) - Тебя я полюбил, Москва
+02. Джика Петреску (Румыния) -Я тебя люблю (на румынском языке)
+03. Виктор Симон (Бразилия) - Карнавал в Рио (на португальском языке)
+04. Виктор Симон (Бразилия) - Площадка в Яйя (на португальском языке)(   Читать дальше...   )Жанр: Pop, Retro
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE66C27B17D5DF7B2609ED8FC6E6497062986E66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1122116   (601962) от 30.04.2022
 
 VA - Мелодии экрана, 9 серия (1962) [FLAC 1.0|96/24|tracks|Vinyl-Rip] <Soundtrack, Retro>
@@ -570,179 +744,6 @@ Side 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7CAF7AAD55B9C0712280BAD210322E49762FAB7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039325   (597369) от 31.07.2016
-
-Uriah Heep - Innocent Victim (1977) Reissue, 1978, Bronze [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597369.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Keep On Ridin' (3:43)
-02. Flyin' High (3:20)
-03. Roller (4:41)
-04. Free 'n' Easy (3:06)(   Читать дальше...   )Производство: Bronze Records, EMI-Toshiba - WBS-71017Жанр: Hard RockПродолжительность: 00:39:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBDFFC492D13357BC3A0CEF1CB27C731BA894362
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299572   (595897) от 03.05.2019
-
-ZZ Top - Hit Collection 2000 (2000) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Blues Rock, Texas Blues>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595897.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. My Mind is Gone
-02. Just Got PaidЖанр: Blues Rock, Texas BluesПродолжительность: 01:17:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA9BC1DE0C466BC3F64B5398EDB5229BC15D7852
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039541   (594676) от 02.08.2016
-
-VA - Famous Jazz Pianists/Знаменити Джаз Пианисти (1978) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594676.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Bill Evans - Време За Любов (Time For Love)
-A2 Art Tatum - Блус В Сърцето Ми (Blues In My Heart)
-A3 Bill Evans - Среднощно Настроение (Midnight Mood)
-A4 Art Tatum - Хумореска (Humoresque)(   Читать дальше...   )Жанр: Jazz, Easy ListeningПродолжительность: 00:38:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DABD8BC7D5A01F33BC91F52D3EAD1DEA6C0C8E2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210967   (594606) от 05.05.2022
-
-Bing Crosby (Бинг Кросби) - Play A Simple Melody (1985) [FLAC 1.0|96/24|image+.cue|Vinyl-Rip] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594606.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я напишу письмо
-02. Играйте простую мелодию
-03. Однажды летним днем
-(И. Берлин)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:42:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7F86F31BAD4CA4FF98182D16A2AAECF9E6E33FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039533   (594577) от 02.08.2016
-
-VA - Famous Jazz Singers/Знаменитые Джазовые Вокалистки (1978) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Soul-Jazz, Smooth Jazz, Jazz-Funk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594577.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Dinah Washington - Willow, Weep For Me
-A2 Ella Fitzgerald - April In Paris
-A3 Nancy Wilson - The Boy From Ipanema
-A4 Carmen McRae - Exactly Like You(   Читать дальше...   )Жанр: Soul-Jazz, Smooth Jazz, Jazz-FunkПродолжительность: 00:35:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC26ADCA15833D7CA36C185E8FAB32048C1FE669
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039535   (594568) от 02.08.2016
-
-VA - Famous Jazz Singers/Знаменитые Джазовые Вокалисты (1977) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Smooth Jazz, Jazz-Funk, Swing>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594568.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Louis Armstrong - I Get A Kick Out Of You
-A2 Nat King Cole - Stardust
-A3 Frank Sinatra - I've Got You Under My Skin
-A4 Tony Bennett - I've Grown Accustomed To Her Face(   Читать дальше...   )Жанр: Smooth Jazz, Jazz-Funk, SwingПродолжительность: 00:36:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C9C3382778439949BC6EDAB0034DD6BE31F43BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

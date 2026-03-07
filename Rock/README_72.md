@@ -1,3 +1,32 @@
+###  Публикация: 1187324   (275380) от 01.12.2017
+
+Sting - Greatest Hits (2017) 2CD [MP3|320 Kbps] <Rock, Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_275380.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+01. I Can't Stop Thinking About You
+02. And Yet
+03. Send Your Love(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 02:38:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:084F6ACAA8C058109B19BB34CC2DE0591FE397A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1336429   (274875) от 10.11.2019
 
 Иннокентий 3D - Дурные Звуки (2019) EP, Авторская раздача [MP3|320 Kbps] <Indie Rock, Electronic Rock>
@@ -719,41 +748,6 @@ ViceVersa - The Electric Flame (2017) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E34CCC0A760C706AAFE2E2B690E27EB23685944
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 505137   (260845) от 03.06.2012
-
-Richard Marx - Inside My Head (Compilation 2CD) (2012) [MP3|256 кб/с]<Melodic Rock, Soft Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_260845.jpg" />
-</div>
-
-
-###  Подробнее
-
-2012Жанр: Melodic Rock, Soft RockПродолжительность: 00:53:55
-01. Don't Mean Nothing (4:40)
- 02. Should've Known Better (4:26)
- 03. Endless Summer Nights (4:25)
- 04. Keep Coming Back (5:23)
- 05. Take This Heart (4:02)
- 06. Hold On To The Nights (5:12)
- 07. Angelia (4:52)
- 08. Hazard (4:57)
- 09. Too Late To Say Goodbye (4:45)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A2F7C602F298E84851AA2B456BD8A301350ECD8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,173 @@
+###  Публикация: 1033055   (620588) от 20.07.2016
+
+Jethro Tull - Aqualung (1971) 2 ADVD, 40th Anniversary Adapted Edition, 2016 [PCM 2.0| DTS 5.1, AC3] <Progressive rock, Folk rock, Hard rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Blu-ray Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_620588.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lick Your Fingers Clean (2:49)
+ 02. Just Trying To Be (1:38)
+ 03. My God (Early Version) (9:43)
+ 04. Wond'ring Aloud (13th  December 1970) (1:52)(   Читать дальше...   )Жанр: Progressive rock, Folk rock, Hard rock
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA56A7C0695D00E7E28FCDA0C50C559ED7C56366
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205059   (620346) от 12.04.2019
+
+Queen - Hot Space (1982) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_620346.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Staying Power (4:13)
+02. Dancer (3:48)
+03. Back Chat (4:36)
+04. Body Language (4:32)(   Читать дальше...   )Производство: EMI Records - EMA 797Жанр: RockПродолжительность: 00:43:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD7841371A88F4E0F2E1E81CD4B2F373FF0B96D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072817   (620203) от 16.04.2022
+
+Джаз-квинтет п/у Я. Валясека - Импровизированный джаз (1955) Shellac-78rpm [FLAC 1.0|96/24|tracks|Vinyl-Rip] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_620203.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Чай Вдвоём, фокстрот
+02. Знаю одно средство, фокстротЖанр: JazzПродолжительность: 00:06:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D336984AC1CB96C0F77ACC92BDF252DE8FDFFD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1071518   (620201) от 16.04.2022
+
+Концертный Ансамбль п/у Фердинанда Криша - Записи 1941 года (1951) Repress [FLAC 1.0|96/24|tracks|Vinyl-Rip] <Latin, Tango, Retro>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_620201.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Танго соловья, солист Таиса Савва (художественный свист)
+02. Романтическое тангоЖанр: Latin, Tango, RetroПродолжительность: 00:06:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F9E024105677E772DF14B445D007991E7D08F09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1059522   (620053) от 16.04.2022
+
+Roxy Music - Flesh + Blood (1980) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip]  <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_620053.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 In The Midnight Hour
+A2 Oh Yeah
+A3 Same Old Scene
+A4 Flesh And Blood(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:42:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B83BAB6E66B9436BADA4446EFB99F23D9659D80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 846687   (620042) от 16.04.2022
+
+Николай Басков - Посвящение... (2000) [FLAC|Lossless]<Pop, Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_620042.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1	Памяти Карузо
+A2	Гранада
+A3	О, Натали...
+A4	История Любви(   Читать дальше...   )Жанр: Pop, ClassicalПродолжительность: 00:43:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1E65B9B856742027C7E9D86F3727932BD599739
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1070326   (619907) от 16.04.2022
 
 VA - Golden Hits Of Turkish / Золотые Хиты Турецкой Эстрады (2003) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Pop>
@@ -570,183 +740,6 @@ A4	Пульс Улицы · Street Pulse(   Читать дальше...   )Жа
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E295BB7B92C3A78D4E87E192A11EAE1C9E1FB22D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007249   (612896) от 20.04.2022
-
-Louis Armstrong - Louis Armstrong In Prague (live at the Lucerna Hall 1965) 1983 [FLAC 2.0|96/192|image+cue|Vinyl-Rip] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612896.jpg" />
-</div>
-
-
-###  Подробнее
-
-01	When It's Sleepy Time Down South
-02	The Bucket's Got A Hole In It	2:30
-03	Tiger Rag	1:10
-04	Indiana	4:05(   Читать дальше...   )Жанр: JazzПродолжительность: 00:47:46
-Издатель (лейбл): Panton (Czechoslovakia)
-Номер по каталогу: 8015 0075
-Кодек: FLAC (image + .cue)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B25F4519AE89CB7FB61F29A1E98178D96B090DAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994866   (612888) от 20.04.2022
-
-Ricky Martin & Christina Aguilera - Nobody Wants To Be Lonely (2001) [FLAC 2.0|44,1/16|image+cue|MC-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612888.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nobody Wants To Be Lonely - Ricky Martin & Christina Aguilera
-02. El Amor De Mi Vida - Ricky Martin
-03. El Beso Del Final - Christina Aguilera
-04. Fuego Contra Fuego - Ricky Martin(   Читать дальше...   )Жанр: PopПродолжительность: 01:28:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7CC2854478CFE1F4CA45DFFB2832C3DBA08BF60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017131   (612792) от 20.04.2022
-
-Herrey's (Херриз) - Diggi Loo, Diggi Ley (Дигги Лу, Дигги Лей) (1985) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Europop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612792.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1	Дигги Лу, Дигги Лей • Diggi Loo, Diggi Ley
-A2	Освободись • Kom Loss
-A3	Мне Ничто Не Помешает • Ingenting Som Hindrar Mej
-A4	Если Это Любовь • If It's Love(   Читать дальше...   )Жанр: EuropopПродолжительность: 00:38:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:144B902D35787771A20BED814A6FD8C06452B448
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017177   (612789) от 20.04.2022
-
-Раймондс Паулс - Мой Путь (1980) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Instrumental, Ragtime, Chanson>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612789.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1	Увеселитель · The Entertainer
-A2	Как Велика Твоя Любовь · How Deep Is Your Love
-A3	Здравствуй! · Salut!
-A4	Мой Путь · My Way(   Читать дальше...   )Жанр: Instrumental, Ragtime, Disco, Easy ListeningПродолжительность: 00:34:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:283E20E2AD4C0C598BE7D96DAC5AF35F018B2241
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947912   (611135) от 21.04.2022
-
-VA - Fantastic Rio Carnaval (1976) [FLAC 2.0 24/96|Limage+.cue (Vinyl-Rip)]<Latin, Samba>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611135.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1	Gres Acadêmicos Do Salgueiro - Nossa Madrinha, Mangueira Querida-Tengo Tengo
-A2	Gres Mocidade Independente De Padre Miguel - Rio Zê Pereira
-A3	Gres Imperatriz Leopoldinense - Martin Cererê
-A4	Gres Imperatriz Leopoldinense - Abc Do Carnaval À Maneira Da Literatura De CordelЖанр: Latin, SambaПродолжительность: 01:24:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59AE3967469FF42A285440EB9241E02902912507
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993458   (611043) от 21.04.2022
-
-Hana & Dana, ORM - Talisman (1984) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Synth-pop, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611043.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1	Ciao Pepino	3:36
-A2	My Summer Holidays	3:22
-A3	Sad Old Clown	3:54
-A4	All Right	4:01(   Читать дальше...   )Жанр: Synth-pop, DiscoПродолжительность: 00:38:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E6B9B50A0982929C243746FBAD88DA3B5FA5C83
 ```
 
 https://mybot314.ru/tekegram_catalog/

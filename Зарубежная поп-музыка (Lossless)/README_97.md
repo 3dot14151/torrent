@@ -1,3 +1,119 @@
+###  Публикация: 1797684   (17970) от 17.05.2025
+
+VA - 50s Best Hits (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_17970.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Little Anthony & The Imperials - Tears on My Pillow [00:02:19]
+02 - Cliff Richard - Livin' Lovin' Doll (1997 Remaster) [00:02:07]
+03 - Frankie Lymon & The Teenagers - Who Put the Bomp (In the Bomp Bomp Bomp) [00:02:59]
+04 - Ray Charles - What'd I Say, Pt. 1 & 2 [00:05:07](   Читать дальше...   )Жанр: PopПродолжительность: 02:35:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3376696C6E4FB2FE74355BD3CC82B16DE2DA5173
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810123   (17675) от 02.08.2025
+
+V.A. - Pop Summer Hits 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_17675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Morena Rezzolata - Fever (Original Mix)
+02. Chelina Giordano - Wanna Know You (Original Mix)
+03. Boogie Signs - Tell Me (Original Mix)
+04. Daniel Locatelli - Shadows (Original Mix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:54:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C44B75E4FCC8E3DB1191B83F4200BE724928FC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798887   (17098) от 24.05.2025
+
+VA - Dance Pop Collection (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_17098.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sean Paul Feat. Dua Lipa - No Lie (03:41)
+02. Katy Perry - Firework (03:47)
+03. Spice Girls - Wannabe (02:53)
+04. Baby Queen - Buzzkill (03:24)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:51:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4031B61A180E44D2CB9EAAC2427816932299449
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811176   (16540) от 08.08.2025
+
+Craig David - Commitment (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_16540.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wake Up
+02. In It with You (feat. JoJo)
+03. Commitment (feat. Tiwa Savage)
+04. Leave the Light On (feat. Louisa Johnson)(   Читать дальше...   )Жанр: Pop, R&BПродолжительность: 00:41:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:398D7B5E40B3F2B685C8D34FBBD58B61D60E7713
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1800710   (15595) от 05.06.2025
 
 V.A. - 80's Best Ballads (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
@@ -627,122 +743,6 @@ Sandra - Into A Secret Land (1988) 1st German Press [APE|Lossless|image + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D2DA901E92908F87E5CF366D93AC974F604CFFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809024   (10079) от 28.07.2025
-
-VA - Let's Talk About Sex (1992) [APE|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10079.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Salt-N-Pepa - Let's Talk About Sex (3:34)
-02. George Michael - I Want Your Sex (4:45)
-03. LaTour - People Are Still Having Sex (4:07)
-04. Right Said Fred - I'm Too Sexy (2:53)(   Читать дальше...   )Жанр: PopПродолжительность: 01:01:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:143DD67CA63B81A60EF37A7D4616E29DD03E49C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809021   (10073) от 28.07.2025
-
-A-HA - Album Collection 5CDs (1985-1993) 1st German Press [APE|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10073.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-1985 - Hunting High And Low
-1986 - Scoundrel Days
-1988 - Stay On These Roads(   Читать дальше...   )Жанр: PopПродолжительность: 03:35:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2513A18957985D62F2012345F8A44369793E63F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809049   (10060) от 28.07.2025
-
-VA - Global Pop Fusion (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10060.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Teddy Swims - Bad Dreams (3:04)
-02. Ed Sheeran - Bad Habits (3:50)
-03. David Guetta - Forever Young (2:36)
-04. Melanie Martinez - Dead to Me (3:30)(   Читать дальше...   )Жанр: PopПродолжительность: 01:14:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFCBAE001D69C1F794A1CC767AC5CD420651522E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809510   (9746) от 31.07.2025
-
-Rick Astley - Whenever You Need Somebody (1987) 1st German Press [APE|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9746.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Never Gonna Give You Up (03:36)
-02. Whenever You Need Somebody (03:57)
-03. Together Forever (03:29)
-04. It Would Take A Strong Man (03:45)(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62C33029C50DA4DE8ED0F0BBEC7006C84072B9C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

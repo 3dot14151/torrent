@@ -1,3 +1,32 @@
+###  Публикация: 1329084   (356631) от 03.10.2019
+
+Brian Tyler & John Carey - Escape Room / Клаустрофобы (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_356631.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Escape Room (03:40)
+02. Escape Room (Madsonik and Kill The Noise Remix) (03:52)
+03. The Invitation (04:43)
+04. Coaster (05:08)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:14:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A80C8CD68B55419531012CF4FC6D129C685A5F60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1329091   (356630) от 03.10.2019
 
 Hildur Gudnadottir, Johann Johannsson - Mary Magdalene / Мария Магдалина (Original Motion Picture Soundtrack) (2018) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
@@ -728,35 +757,6 @@ Carlos Rodrigo - Argentine Tango (2001) [MP3|~160 кб/с (V4)]<Tango>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F00377DB9739D713706C7F68F4304CD484C4248
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952824   (353506) от 02.11.2015
-
-VA - The Bodyguard (Original Soundtrack Album) (1992) Japanese Edition [FLAC|image + .cue]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353506.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whitney Houston - I Will Always Love You [4:32]
-02. Whitney Houston - I Have Nothing [4:50]
-03. Whitney Houston - I'm Every Woman [4:47]
-04. Whitney Houston - Run To You [4:24](   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:57:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:673EC54B61B563BC51A8DC941B2206849EFD6CE2
 ```
 
 https://mybot314.ru/tekegram_catalog/

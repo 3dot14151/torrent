@@ -1,3 +1,83 @@
+###  Публикация: 1215014   (761284) от 24.03.2018
+
+3D модели - Daz 3D - UHD Fuzzy Cloth - Shaders and Merchant Resource - 48369  [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_761284.jpg" />
+</div>
+
+
+###  Подробнее
+
+UHD Fuzzy Cloth представляет собой набор специальных скриптовых шейдеров, имитирующих реалистичную шерстяную ткань. для DAZ 3D из категории Resource.Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1ED8331307CB8028AF209AEA3858E7C941F0847
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215136   (761152) от 24.03.2018
+
+3D модели - Daz 3D - Sci-Fi [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_761152.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор 3d моделей для DAZ 3D - научная фантастика из категории Structures.Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:027939A7406966A23AC3CA20772444A640FE34D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215028   (761144) от 24.03.2018
+
+3D модели - CGTrader - Lexus IS F-Sport 2016 3D model [MAX, SKP, 3DS, FBX, OBJ, C4D]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_761144.jpg" />
+</div>
+
+
+###  Подробнее
+
+3D модель Lexus IS F-Sport 2016
+(Max) Version: 2010, Renderer: Default (Scanline)
+(Cinema 4D) Version: 11.5, Renderer: Advanced Renderer 3Формат: MAX, SKP, 3DS, FBX, OBJ, C4D
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:555719EABE22F61A2F704B56B026E680B84E4FF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1215045   (761136) от 24.03.2018
 
 3D модели - Daz 3D - Mika 7 Pro Bundle - 34209 [DUF]
@@ -609,84 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F7A75C56F20688355FF3597BA5B87F27EC117F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218239   (724901) от 08.04.2018
-
-3D модели - Daz 3D - Сборник 3D моделей #4 [DUF]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724901.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор 3d моделей для DAZ 3D - из 50шт, категории Clothing, People, Animation, Jewelry.Формат: DUF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:948AD8A3BBA2603D12CCC0FB63317114166CA57A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218252   (724899) от 08.04.2018
-
-3D модели - CGStudio - Land Rover Defender Expedition - 3581 [MAX, 3DS, C4D, FBX, LWO, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724899.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки Land RoverФормат: MAX, 3DS, C4D, FBX, LWO, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7A0A7DE2B9224AA79E3EFBB1EB6EF6E60F9C27F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218227   (724894) от 08.04.2018
-
-3D модели - Daz 3D - Сборник 3D моделей #3 [DUF]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724894.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор 3d моделей для DAZ 3D - из 50шт, категории Clothing, People, Props, Interiors, Structures.Формат: DUF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A0A95F6F9398B4FC54769DF4440C97F31689D1A
 ```
 
 https://mybot314.ru/tekegram_catalog/

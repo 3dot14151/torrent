@@ -144,6 +144,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601880   (1046316) от 02.01.2023
+
+Вася Васин - Танец с саблями (2023) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1046316.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Великий Питер
+2. Мания величия
+3. Танец с саблями
+4. Мудрые слова(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:43:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6FCD57656C77BA8C12D1C41F1DC8B5B86885791
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1602264   (1046021) от 06.01.2023
 
 SERPO - Чужие истории (2023) [MP3|320 Kbps] <Rap, Hip Hop>
@@ -717,35 +746,6 @@ Face - Искренний (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC0D004ACC2AECA87587C329A113A7F998F0E6E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462801   (1020831) от 16.04.2021
-
-RAM - TRAUMATIX 2 (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020831.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Возьмем [03:10]
-02. Men in Black [02:41]
-03. Hesoyam (feat. LeanJe) [03:22]
-04. Как S1mple [02:06](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:38:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:729E68132D1D2F1815C5D0DAD1FD2C738AC37447
 ```
 
 https://mybot314.ru/tekegram_catalog/

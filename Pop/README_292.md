@@ -1,3 +1,206 @@
+###  Публикация: 1667206   (177487) от 07.10.2023
+
+Olivia Newton-John - Just The Two Of Us: The Duets Collection (Vol. 2) (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_177487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dare To Dream [00:04:58]
+02. Everybody's Someone [00:03:46]
+03. Rest Your Love On Me [00:05:00]
+04. Wishin' And Hopin' [00:03:05](   Читать дальше...   )Жанр: PopПродолжительность: 00:41:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AEE9D84E62673C84E814A9706F95A511F8A0AA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429122   (177470) от 05.12.2020
+
+Антонина Денискина и ансамбль То, что надо! - Бывали дни весёлые (1996) [FLAC|Lossless|tracks + .cue]<Retro, Folk>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_177470.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Бывали дни весёлые
+02. Каким ты был
+03. Однажды морем я плыла
+04. Хас-Булат удалой(   Читать дальше...   )Жанр: Retro, FolkПродолжительность: 00:50:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F1FB4E915C203FD075BE918BAC0BB84237DCB72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594871   (177154) от 02.12.2022
+
+Дмитрий Маликов - Здравствуй, Новый год! (2022) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_177154.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Здравствуй, Новый год
+2. Зимушка-зима (Winter Edition 2022)
+3. Песня про снежинку (feat. Юлианна Караулова)
+4. Тихо падает снег (feat. Жанна Фриске)(   Читать дальше...   )Жанр: PopПродолжительность: 00:19:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AAEBFC98632F52D9F04E2E8DEA2EDABE92277B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667491   (176898) от 08.10.2023
+
+Lufthaus & Robbie Williams - Visions, Vol. 1 (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop, Dance, Electronic>
+
+>>Pop
+>>Eurodance, Disco (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_176898.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Sway
+02 – Sunlight
+03 – Immortal (feat. Sophie Ellis-Bextor)
+04 – Alcohol(   Читать дальше...   )Жанр: Pop, Dance, ElectronicПродолжительность: 00:38:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8F7DBEBDE17DA4091C7039A737B058C72228863
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594741   (176696) от 03.12.2022
+
+C.C.Catch - Heartbreak Hotel (2000) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Europop, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_176696.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heartbreak Hotel (Room 69-Mix)  4:55
+02. I Can Loose My Heart Tonight (Extended Club Remix)  5:53
+03. 'Cause You Are Young (Maxi-Version)  4:55
+04. Are You Man Enough (Long Version - Muscle Mix)  6:03(   Читать дальше...   )Жанр: Electronic, Europop, DiscoПродолжительность: 02:12:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE9E4113E46A537B01FCA7D7971F853DEDAE559F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594943   (176638) от 03.12.2022
+
+Варвара Визбор - Gucci-Лебеди (2022) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_176638.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Жду тебя
+2. Ну спасибо тебе
+3. Корабли
+4. Давай с тобой помолимся(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A86A3ADAB915E4EDCABC41EE447B556675E02D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595249   (176191) от 04.12.2022
+
+Robbie Williams - Escapology (2002) [OGG Vorbis|480 Kbps] <Rock, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_176191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. How Peculiar
+02. Feel
+03. Something Beautiful
+04. Monsoon(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 01:13:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35DE553A26D6587410930BA7DEBBF1858B6C1D89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1595279   (176123) от 04.12.2022
 
 VA - Ultimate Party Classics Pop (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -546,211 +749,6 @@ CD1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62401F00FE9F09E554BD6F438DBAA485F3A1D2E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595997   (174007) от 08.12.2022
-
-VA - DMC Essential Hits 2022 UK & USA Number Ones (2022) CD, Compilation [MP3|320 Kbps] <Dance, Disco, Synthpop, R&B>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_174007.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adele - Easy On Me
-02. Beyonce - Break My Soul
-03. Carolina Gaitan Mauro Castillo Adassa Rhenzy Feliz Diane Guerrero Stephanie Beatriz & Encanto Cast - We Dont Talk About Bruno
-04. David Guetta & Bebe Rexha - Im Good (Blue) (Extended Clean)(   Читать дальше...   )Жанр: Dance, Disco, Synthpop, R&BПродолжительность: 01:14:51 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14FFAF3C09D1579CBCB3B2CF689B2CDA280EE215
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595960   (173859) от 08.12.2022
-
-C.C.Catch - The Best Of C.C. Catch (2000) 3 CD [OGG Vorbis|480 Kbps] <Electronic, Disco, Eurodance>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_173859.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Backseat Of Your Cadillac
-02. Dancing In Shadows
-03. Good Guys Only Win In Movies
-04. Don't Be A Hero(   Читать дальше...   )Жанр: Electronic, Disco, EurodanceПродолжительность: 02:40:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC62FFB988762AE7139D23B5E70C97FD0A54EB6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085477   (173814) от 21.12.2016
-
-VA - Ретро Шлягер Новогодний (2006) [MP3|320 Kbps] <Ретро>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_173814.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. М.Кристалинская - Новогодняя песня (02:09)
-2. Г.Великанова - В новогоднюю ночь (01:09)
-3. В.Толкунова - Серебряная песенка (01:27)
-4. В.Трошин - Песенка милиционера (02:10)(   Читать дальше...   )Жанр: РетроПродолжительность: 01:01:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A7609B79C6C8FDE5BB033992315BC057869A592
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1165609   (173776) от 23.12.2017
-
-Тина Кароль - 7 альбомов, 14 синглов, 6 сборников (2006 - 2017) [MP3|192-320 Kbps] <Pop, Soul, Jazz>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_173776.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тина Григорьевна Кароль (укр. Тіна Григорівна Кароль), имя при рождении Татьяна Григорьевна Либерман (укр. Тетяна Григорівна Ліберман; род. 25 января 1985, Оротукан, Ягоднинский район, Магаданская область, РСФСР, СССР) — украинская певица, актриса и телеведущая. Народная артистка Украины (2017).
-
-Татьяна Григорьевна Либерман родилась 25 января 1985 года в посёлке (   Читать дальше...   )2006 - Show Me Your Love
-2006 - Ноченька
-2007 - Полюс притяжения
-2010 - 9 жизнейЖанр: Pop, Soul, JazzПродолжительность: 14:19:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E625E3857E324D54F83A7271FAB20731127FB26E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596166   (173671) от 08.12.2022
-
-VA - Romantic DANCE (2022) [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_173671.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Swanky Tunes/Асия - Это Всё
-2. TRITICUM/MURANA - Her Love Story
-3. DJ JEDY - Passion on the Candle Light
-4. Lost Knights - U&I(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:07:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBCD022E8C7212135A1B05DACDB276884F8C8F03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430478   (173651) от 10.12.2020
-
-VA - Hello 2021 (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_173651.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luis Fonsi, Daddy Yankee - Despacito (3:48)
-02. Jonas Brothers - What A Man Gotta Do (3:00)
-03. NEIKED, Dyo - Sexual (3:08)
-04. Topic, A7S - Breaking Me (2:46)(   Читать дальше...   )Жанр: PopПродолжительность: 01:32:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05409338D2A4EB13926B61B86BF281C078F71564
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1826887   (173578) от 19.10.2025
-
-AlimkhanOV A. - The Best (The 5th Album) (2025) 2CD, Limited Edition [FLAC|Lossless|tracks] <Euro-Disco, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Best (4:21)
-02. Strong (4:54)
-03. Walking In The Chinatown (4:39)
-04. Run Away (4:08)(   Читать дальше...   )Жанр: Euro-Disco, Italo-DiscoПродолжительность: 01:38:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1432650FFCED7A45FC1183C5F83C63BF3246428A
 ```
 
 https://mybot314.ru/tekegram_catalog/

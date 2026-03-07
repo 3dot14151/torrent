@@ -1,3 +1,227 @@
+###  Публикация: 1110595   (851913) от 03.03.2017
+
+Вадим Самойлов - Другие (2017) Single [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_851913.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. ДругиеЖанр: RockПродолжительность: 00:03:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BA40F2E0A1044FAA49108AC84AF84DE18FAB87C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110810   (851848) от 03.03.2017
+
+Мураками - Ипи (2017) EP [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_851848.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Старики
+2. Незнакомы
+3. Наш страх
+4. Старики (Инструментальная версия)Жанр: RockПродолжительность: 00:14:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FAD6BCEBA1DFEAC681B31D08B83F68FCE1F103B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110592   (851841) от 03.03.2017
+
+Танцы Минус - Три (2017) EP [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_851841.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Машины
+2. Психея
+3. ЖиваЖанр: RockПродолжительность: 00:13:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:787CCC59A42D8AAA5006B3270AC493CC646FA646
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002114   (850265) от 30.03.2016
+
+Нуки (Слот) - Танцуй, клоун, танцуй (2016) Single [MP3|320 кб/с] <Alternative Rock, Nu Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_850265.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Танцуй, клоун, танцуй
+02. Пепел (Amanita version)
+03. Живы! (Amanita version)Жанр: Alternative Rock, Nu MetalПродолжительность: 00:14:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67DEF8825558426FEB77661EC5E1AB1E6FBEE53A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002033   (850260) от 30.03.2016
+
+Louna - Песни о мире (С симфоническим оркестром Globalis) (2016) Live [MP3|320 кб/с] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_850260.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Оркестровая увертюра
+02. Зачем
+03. Путь к себе
+04. Кто, если не мы(   Читать дальше...   )Жанр: RockПродолжительность: 01:40:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C91BACCF42BBD46F9635112410B843EB5BFEA09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377809   (850079) от 23.04.2020
+
+Сергей Бобунец - Просто музыка, просто слова (2020) Single [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_850079.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Просто музыка, просто словаЖанр: RockПродолжительность: 00:03:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C771F7A2191108E7D6CE72BC469A67AA19C26E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110849   (850015) от 04.03.2017
+
+Lumen - Хроника бешеных дней (2016) [MP3|320 Kbps] <Alternative-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_850015.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Истина
+02. Сын. Дом. Дерево.
+03. Хроника Бешеных Дней
+04. Зов(   Читать дальше...   )Жанр: Alternative-RockПродолжительность: 00:42:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:844EB0ACBE12A7639612D0EADCB3F18CE3EFCC8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377807   (850007) от 23.04.2020
+
+Сансара - Айсберги и радуги (2020) [MP3|320 Kbps] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_850007.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Бинокли
+2. Выше, чем облака
+3. Уголь 2
+4. Здесь никого нет(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:41:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCC230A970596E1783CAE25B626F5738A5D9D44E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1377881   (849478) от 23.04.2020
 
 АукцЫон - Мечты (2020) [MP3|320 Kbps] <Rock>
@@ -511,238 +735,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D10B8D05579C2D8641183FC486FF115A9A6FFF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499880   (846168) от 03.10.2021
-
-Эпидемия (Андрей Лаптев, Новый Состав) - Не Ищи Меня (2021) Maxi-single [MP3|320 kbps] <Power Metal, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Не Ищи Меня (03:55)
-02. Феанор (feat А.Булгаков) (08:32)
-03. Не ищи меня (инструментал) (03:56)
-04. Феанор (инструментал) (08:32)Жанр: Power Metal, Heavy MetalПродолжительность: 00:24:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19978F761987A45CF7BC1C55B4C9C4E58D648725
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002944   (845394) от 02.04.2016
-
-УрбаНегатив Объект - Ахтунгбэйби (2015) [MP3|320 кб/с] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845394.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Intro
-2. Н.А.К.М.
-3. Нет голоса
-4. Этилена(   Читать дальше...   )Жанр: RockПродолжительность: 00:29:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A55405FAD32195A0F092AA9522BECFEA9122452
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003198   (845296) от 02.04.2016
-
-The Otherside - Начало (2016) [MP3|320 кб/с] <Alt. Metal, Metalcore, Nu-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845296.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (01:19)
-02. Мы = Война feat. Ray (Fail Emotions & LastWeekEnd) (03:53)
-03. Свободный Полет feat. Kabz (Rashamba) (03:24)
-04. Электрошок feat. Alextyle (DETACH) (03:54)(   Читать дальше...   )Жанр: Alt. Metal, Metalcore, Nu-MetalПродолжительность: 00:42:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FB71468A149922FA91559DD0028BF10C4B7ED08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002632   (845116) от 02.04.2016
-
-PRAVADA - Мечтать (2016) [MP3|320 кб/с] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845116.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Земля
- 02. Миру не нужно слов
- 03. Осталось лететь
- 04. Посмотри на небо(   Читать дальше...   )Жанр: RockПродолжительность: 00:54:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB88BFDD86550227F9A75A4B5CA836627C8E6F92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003288   (845015) от 02.04.2016
-
-7000$ - Жизнь не любит слабаков (2016) Maxi-Single [MP3|320 кб/с] <Alt.Metal, Rapcore>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845015.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Жизнь Не Любит Слабаков
-02. Эй, Рок-Звезда!
-03. Каждой Твари По Паре
-04. Потерянный РайЖанр: Alt.Metal, RapcoreПродолжительность: 00:14:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFE6EC8909DDCF6F46EFAC36378F561CAC142ACF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499990   (844546) от 04.10.2021
-
-Азон - Без флагов и границ! (2020) [MP3|320 kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844546.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вперёд (03:14)
-02. Стрелять (03:33)
-03. Нам нужен враг (03:56)
-04. Рок (02:27)(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:35:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09FD932ABCA9F94D98F1E033187AFD72BF77D06C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499994   (844540) от 04.10.2021
-
-Stay Away - Синдром упущенных возможностей (2021) [MP3|320 kbps] <Punk-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Взамен (03:34)
-02. Я не хочу возвращаться (04:01)
-03. Говно (02:34)
-04. Какой-то мудило что-то подсыпал в пиво (03:02)(   Читать дальше...   )Жанр: Punk-RockПродолжительность: 00:54:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4075ABCA1F0477B61A5D82B5D71B7871D567C95E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002182   (843572) от 03.04.2016
-
-Neverside - 2 Extended Play (2013-2014) [MP3|320 кб/с] <Death Metal, progressive death metal, Blues>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843572.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. jabba (04:33)
-02. fade (06:04)
-03. pollysong (05:30)
-04. idle (02:16)Жанр: Death Metal, progressive death metal, BluesПродолжительность: 00:35:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:895942499B142B5FA77072790D28937646F12174
 ```
 
 https://mybot314.ru/tekegram_catalog/

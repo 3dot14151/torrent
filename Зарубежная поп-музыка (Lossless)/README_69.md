@@ -1,3 +1,119 @@
+###  Публикация: 1340446   (264010) от 23.11.2019
+
+Micro együttes - Olasz slágerek – magyarul No.1 (2005) [FLAC|Lossless|image + .cue] <Pop, Cover>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_264010.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Imádok útra kelni (4:02)
+02. Felicita (3:23)
+03. Azzuro (3:28)
+04. Szívem egy vándorcigány (4:00)(   Читать дальше...   )Жанр: Pop, CoverПродолжительность: 01:04:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFEB2A7B440D7FEEE799FF2897ADF04D3CF62B10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191623   (263855) от 15.12.2017
+
+Alexandra Savior - Belladonna Of Sadness (2017) [FLAC|Lossless|tracks + .cue] <Alternative Pop, Art Pop, Baroque Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263855.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mirage (03:25)
+02. Bones (02:48)
+03. Shades (03:50)
+04. Girlie (03:22)(   Читать дальше...   )Жанр: Alternative Pop, Art Pop, Baroque Pop, Indie Pop, Dream Pop, Desert RockПродолжительность: 00:41:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17D539D9E06A43766469F999AEFBE5D7069F1C10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191641   (263804) от 15.12.2017
+
+VA - Absolute Music 82 (2017) [FLAC|Lossless|tracks] <Pop, Pop-Rock, Dancepop, House, R&B, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263804.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wiktoria - As I Lay Me Down (3:11)
+02. Kygo with Selena Gomez - It Ain't Me (3:39)
+03. Julia Michaels - Issues (2:56)
+04. Calvin Harris - My Way (3:39)(   Читать дальше...   )Жанр: Top 40, Pop Compilation, Pop, Soul, Rock, R&B, Dancepop, House, Electropop, Pop-Rock, Country, FolkПродолжительность: 01:00:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F39EAD16B3D9CAA4D9DA08FE99B125FAD5201464
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191652   (263775) от 15.12.2017
+
+VA - Absolute Music 83 (2017) [FLAC|Lossless|tracks] <Pop, Dancepop, Pop-Rock, R&B, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_263775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Avicii feat. Sandro Cavazza - Without You (3:02)
+02. Justin Bieber + BloodPop® - Friends (3:10)
+03. DJ Khaled feat. Justin Bieber, Quavo, Chance The Rapper & Lil Wayne - I'm The One (4:49)
+04. Portugal. The Man - Feel It Still (2:43)(   Читать дальше...   )Жанр: Top 40, Pop Compilation, Pop, Electronic, Soul, R&B, Dancepop, House, Electropop, Synthpop, Pop-Rock, FolkПродолжительность: 01:51:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0991553557C301A71239AC92AC5F19A983366B37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1191784   (263715) от 15.12.2017
 
 Inna - Nirvana (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electronic, Dancepop, Elektro>
@@ -635,122 +751,6 @@ Backstreet Boys - A Very Backstreet Christmas (Deluxe Edition) (2022)(2025) [FLA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E692AA2D7A5B9DE92B09B24620EC649724FF469
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835294   (250972) от 05.11.2025
-
-Kristian Torgalsen - 2 Albums (2023-2025) [FLAC 24/44.1, FLAC 24/96|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_250972.jpg" />
-</div>
-
-
-###  Подробнее
-
-00. Get your mind straight [00:03:14]
-00. I figured it out [00:03:58]
-00. Normal world [00:03:48]
-00. Why the hell should I care [00:02:40](   Читать дальше...   )Жанр: PopПродолжительность: 2 CD, 01:13:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3414CDB0D79E5DFC88426208B4A141C15EC9B121
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835394   (250966) от 05.11.2025
-
-Mylene Farmer - 86-97 Mylene Farmer (2025) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_250966.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Maman a tort (nouvelle version)
-02. Plus Grandir
-03. Libertine(   Читать дальше...   )Жанр: PopПродолжительность: 02:00:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9679A37459452FA883F08E3F35EEF3DA940A6B9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835365   (250936) от 06.11.2025
-
-VA - 70s Rewind (Warner Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_250936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fleetwood Mac - Dreams (2018 Remaster) (4:17)
-02. Frankie Valli & The Four Seasons - December, 1963 (Oh What a Night!) (3:21)
-03. Racey - Boy Oh Boy (2:53)
-04. Tina Turner - Sometimes When We Touch (3:59)(   Читать дальше...   )Жанр: PopПродолжительность: 05:05:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECCAEAE156F971E95586DADEB2B9410B21A7F48B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835443   (250850) от 06.11.2025
-
-VA - 00s Rewind (Warner Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_250850.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bruno Mars - Nothin’ on You (4:28)
-02. Coldplay - Viva La Vida (4:02)
-03. Gorillaz - Feel Good Inc (3:42)
-04. Daniel Powter - Bad Day (3:55)(   Читать дальше...   )Жанр: PopПродолжительность: 04:27:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62AC1E791B143414FFD888B3E5638127DB9F9127
 ```
 
 https://mybot314.ru/tekegram_catalog/

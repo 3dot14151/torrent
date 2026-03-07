@@ -1,3 +1,32 @@
+###  Публикация: 942097   (457636) от 29.09.2015
+
+Elvis Presley - Good Songs (2015) [MP3|192 кб/с]<Rock'n'roll>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_457636.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. A big hunk o' love
+002. A fool such as I
+003. A Little Less Conversation
+004. Ain't That Loving You Baby(   Читать дальше...   )Жанр: Rock'n'rollПродолжительность: 08:16:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9525AE9C0CCC5A7A68A9D975A335C98AA047CEAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1569135   (453510) от 12.08.2022
 
 The Pretty Reckless - Compilation (2022) [MP3|320 Kbps] <Rock, Alternative>
@@ -719,35 +748,6 @@ Hits of My Soul - сборник электронной и инструмент�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8340B03483D15F8877D801F5FDF88257013EB2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064890   (423470) от 21.10.2016
-
-VA - Rock Collection 1993 (2016) [MP3|320 Kbps] <Rock, Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423470.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 01:
-
-01. Steve Vai - An Earth Dweller's Return
-02. Scorpions - Alien Nation(   Читать дальше...   )Жанр: Rock, MetalПродолжительность: 24:56:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98071331B16F44C7C30A97FE1E4538A2D85BCF21
 ```
 
 https://mybot314.ru/tekegram_catalog/

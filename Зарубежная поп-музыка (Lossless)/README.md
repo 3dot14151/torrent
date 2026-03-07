@@ -1,4 +1,91 @@
 https://t.me/izofen
+###  Публикация: 1857451   (1059684) от 
+
+Robyn - Robyn Is Here (1997) [FLAC|Lossless|tracks + .cue] <Pop, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1059684.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bumpy Ride [0:04:12.33]
+02. In My Heart [0:04:01.35]
+03. You've Got That Somethin' [0:03:46.62]
+04. Do You Know (What It Takes) [0:03:42.48](   Читать дальше...   )Жанр: Pop, Synth-popПродолжительность: 00:57:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0783B3841AB70F5D56BE80E1BC04596E2D26C9EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856834   (1059446) от 03.03.2026
+
+VA - 100 Greatest Seventies (2017) 5 x CD, Compilation [FLAC|Lossless|tracks + .cue] <Rock, Funk / Soul, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1059446.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ramones - Sheena Is A Pure Rocker (2:47)
+02. ZZ Top - Tush (2:16)
+03. Alice Cooper - Elected (3:43)
+04. The Stranglers - No More Heroes (3:28)(   Читать дальше...   )Жанр: Rock, Funk / Soul, PopПродолжительность: 05:55:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60A44EACD148C1FECA62EFCF7DF0F0C25946D8C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856827   (1059445) от 03.03.2026
+
+VA - Best Of The 90's (2017) 3 x CD, Compilation [FLAC|Lossless|tracks + .cue] <Electronic, Pop, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1059445.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adamski - Killer (4:12)
+02. Everything But The Girl - Missing (Todd Terry Remix) (3:55)
+03. Culture Beat - Mr. Vain (Radio Edit) (4:18)
+04. Salt-N-Pepa - Let's Talk About Sex (3:31)(   Читать дальше...   )Жанр: Electronic, Pop, Synth-popПродолжительность: 03:21:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB5F979647D833C05BFE31E6CA5A00B511FEFE54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1856338   (1058928) от 27.02.2026
 
 VA - Seventies Top 100 Vol. 2 (2007) 5 x CD, Compilation, Remastered [FLAC|Lossless|tracks + .cue] <Electronic, Rock, Pop>
@@ -166,6 +253,35 @@ VA - Low Light, Warm Feelings (2026) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED490A4011DBDD5D0E554826F59AA6AD74EBFFB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854422   (1057290) от 18.02.2026
+
+Backstreet Boys - Backstreet Boys (1997) [FLAC|Lossless|tracks + .cue] <Pop, Europop, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1057290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We've Got It Goin' On [0:03:40.40]
+02. Quit Playing Games (With My Heart) [0:03:54.27]
+03. As Long as You Love Me [0:03:33.38]
+04. Everybody (Backstreet's Back) (extended version) [0:04:47.62](   Читать дальше...   )Жанр: Pop, Europop, BalladПродолжительность: 00:52:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:546475E79719DD4A48B9735270EEE3335855C130
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -628,122 +744,6 @@ VA - Undercover Angel: 70's Nostalgia (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:766898C3509B9965280081BA3A53E636690AAA67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850243   (1054253) от 26.01.2026
-
-Alexander Rybak - Fairytales (2009) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roll with the Wind [00:03:34]
-02. Fairytale [00:03:03]
-03. Dolphin [00:04:15]
-04. Kiss and Tell [00:03:21](   Читать дальше...   )Жанр: PopПродолжительность: 00:35:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:208987B9D52D14FABBF021276DED791715D94FA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849397   (1053768) от 23.01.2026
-
-VA - Best Of The 70s. (2006) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053768.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heat Wave - Boogie Nights (3:42)
-02. Atlanta Rhythm Section - So Into You (6:53)
-03. Taste of Honey - Boogie Oogie Oogie (5:24)
-04. Stephen Bishop - On And On (3:21)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:06:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F95CFF649459BD0A94F6CDE4A4E516FD83A8BF77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849238   (1053538) от 22.01.2026
-
-VA - Beyond The Pale Horizon - The British Progressive Pop Sounds Of 1972 (2021) [3CD Box Set] [FLAC|Lossless|tracks + .cue] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053538.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thin Lizzy - Whiskey In The Jar (5:46)
-02. Status Quo - Paper Plane (2:56)
-03. Hello - The Wench (2:53)
-04. Curtiss Maldoon - One Way Ticket (3:11)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:58:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25D1D3E54753E3F958B1E118C7678AFAFF96FF96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848945   (1053357) от 20.01.2026
-
-VA - Hit Parade - From the 70s, 80s & 90s (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053357.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dreams (2018 Remaster) - Fleetwood Mac  - (04:17)
- 002. Iris - THE GOO GOO DOLLS  - (04:50)
- 003. La Isla Bonita - Madonna  - (04:02)
- 004. Right down the Line - Gerry Rafferty  - (04:28)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:38:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E0CFA845DF9F0866532500994646CC6109FED2B
 ```
 
 https://mybot314.ru/tekegram_catalog/

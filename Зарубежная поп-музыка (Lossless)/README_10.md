@@ -1,3 +1,119 @@
+###  Публикация: 1358139   (969700) от 07.02.2020
+
+Richard Marx - Limitless (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_969700.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Another One Down (3:13)
+ 02. Limitless (2:58)
+ 03. Love Affair That Lasts Forever (3:28)
+ 04. Let Go (3:40)(   Читать дальше...   )Жанр: Pop, Pop-RockПродолжительность: 00:41:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BA40933B59414BAB679B56A1338EFD8D27A7B89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 976157   (969668) от 17.01.2016
+
+Everything But The Girl - Temperamental (1999) Remastered, 2015, Edsel Records, Deluxe Edition: 2CD [FLAC|Lossless|tracks + .cue] <Downtempo, Deep House, Pop, Drum n Bass>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_969668.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Five Fathoms (6:24)
+02. Low Tide Of The Night (4:45)
+03. Blame (6:18)
+04. Hatfield 1980 (5:13)(   Читать дальше...   )Жанр: Downtempo, Deep House, Pop, Drum'n'BassПродолжительность: 02:27:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD677A788A3CD997BAEF0E588DD935531D1B4FBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 976378   (969656) от 17.01.2016
+
+Everything But The Girl - Walking Wounded (1996) Remastered, 2015, Edsel Records, Deluxe Edition: 2CD [FLAC|Lossless|tracks + .cue] <Downtempo, House, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_969656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Before Today (4:18)
+02. Wrong (4:37)
+03. Single (4:39)
+04. The Heart Remains A Child (3:50)(   Читать дальше...   )Жанр: Downtempo, House, Electro, Drum'n'Bass, PopПродолжительность: 02:33:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95092861A71AD2FDDBD81D1106042E49905499D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358200   (969635) от 07.02.2020
+
+Kovacs - Shades Of Black (2015) 2 CD Limited Dutch Edition [FLAC|Lossless|tracks + .cue] <Indie Pop, Soul, Jazz>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_969635.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (02:09)
+02. Whiskey And Fun (04:48)
+03. 50 Shades Of Black (03:17)
+04. Night Of The Nights (03:48)(   Читать дальше...   )Жанр: Indie Pop, Soul, JazzПродолжительность: 01:19:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BD7FD015D95045E6D5E90DFEA7E85825EE45401
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1358567   (968752) от 08.02.2020
 
 Asgeir - Bury The Moon (2020) Ásgeir [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
@@ -627,122 +743,6 @@ Karizma Duo - Acoustic Hits (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08CA1D85A8C2C50F90FEDD3F7A0A12D805E5CEFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980518   (956156) от 29.01.2016
-
-Fancy - Five (1990) [FLAC|Lossless|tracks + .cue] <Pop, Synthpop, Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956156.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.When Guardian Angels Cry
-2.Like You
-3.Second Hand Paradise
-4.All We Need Is to Believe(   Читать дальше...   )Жанр: Pop, Synthpop, DiscoПродолжительность: 00:45:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F726F2FE5F214C183FB3C415DC92C825385097E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980468   (956154) от 29.01.2016
-
-Nicole Scherzinger - Killer Love (2011) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Pop, R&B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Poison [03:47]
-02. Killer Love [03:52]
-03. Don't Hold Your Breath [03:17]
-04. Right There [04:02](   Читать дальше...   )Жанр: Pop, R&BПродолжительность: 01:11:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0250677A7D62F3B56FF6A0E13052256136ADE02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980472   (956062) от 29.01.2016
-
-ABBA - Super Trouper (1980) West Germany 1st Press, 15 November 1982 [FLAC|Lossless|image + .cue] <Pop Music>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956062.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Super Trouper    [04:11.90]
-02. The Winner Takes It All    [04:55.26]
-03. On and on and On    [03:40.62]
-04. Andante, Andante    [04:39.57](   Читать дальше...   )Жанр: PopПродолжительность: 00:42:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:687BF6BAA867AE1F01C72653F0CEA2D638628C45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980362   (955973) от 29.01.2016
-
-Pet Shop Boys - Very (1993) Licence to EMI Records Ltd. [FLAC|Lossless|tracks + .cue] <Pop, Synthpop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955973.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Can You Forgive Her?
-2.I Wouldn’t Normally Do This Kind of Thing
-3.Liberation
-4.A Different Point of View(   Читать дальше...   )Жанр: Pop, SynthpopПродолжительность: 01:08:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E17EDF1DEC034A0084B99FFC1E35A2031D528D29
 ```
 
 https://mybot314.ru/tekegram_catalog/

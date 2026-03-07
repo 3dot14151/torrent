@@ -1,3 +1,90 @@
+###  Публикация: 1343124   (220082) от 05.12.2019
+
+VA - Trance Universe Vol.01 (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_220082.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ATB & Markus Schulz - Heartbeat (Original Mix)
+02. Dash Berlin feat. Jonathan Mendelsohn - Locked Out Of Heaven (Dash Berlin 4AM Mix)
+03. Paul Van Dyk & Alex M.O.R.P.H. - Shine (Ibiza Anthem 2019)
+04. The Noble Six - Ocean Planet (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:37:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB73E9DDAFE8D2EEE425B300D0F8748B6D6DB163
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514271   (219486) от 02.12.2021
+
+VA - Best of Progressive Vocal Trance (2021) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_219486.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Raz Nitzan & Elara - Paralyzed 3:19
+02. Costa & Cathy Burton - Always 2021 3:45
+03. Zetandel & Tiff Lacey - Higher Ground (Costa & Aurosonic Remix) 3:45
+04. Aurosonic, Spark7 & Sarah Russell - Touched By An Angel 4:09(   Читать дальше...   )Жанр: TranceПродолжительность: 04:11:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF4E4E1FEAAAD3D24624484F295242D52B47D6AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1343368   (218638) от 06.12.2019
+
+VA - Suanda Music Radio Top 20 (December) (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_218638.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roman Messer & Feel - Reflection (Original Mix)
+02. Ruslan Radriges & Lennard Elliot - A New Age (Extended Mix)
+03. Papulin & Kate Miles - Home (Original Mix)
+04. Maywave & Sodality - Contrast (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:43:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D77A5496B3C05FE92106DE88DD4B9F0B22841EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1586155   (218215) от 25.10.2022
 
 VA - Summer Uplifting Trance (2022) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -658,93 +745,6 @@ VA - Vocal Anthems Ibiza (2023) [MP3|320 Kbps] <Trance, Vocal Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D775AFDF2255AA782F5676C6738E938D22ABF6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655772   (203580) от 29.08.2023
-
-VA - Trance Travel Hits 2023 [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203580.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dmitry Meretskiy - Late At Night (Extended Mix) [6:48]
-02. Reborn Sound System - PROJECT 7 (Original Mix) [6:39]
-03. Cristanodj - Revolution (Extended Mix) [5:45]
-04. Vahid Ghandizadeh - Cosmos (Original Mix) [6:35](   Читать дальше...   )Жанр: TranceПродолжительность: 02:15:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AD00DFBA63C41C1D90195F2A9055151E7C358F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1655699   (203522) от 29.08.2023
-
-VA - Nothing But...Ibiza Closing Party 2023 Trance (2023) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203522.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dr House - Ibiza Dreams (Original Mix) [5:51]
-02. Andy Jornee & Trance Girl - The World Is Your Home (V2Edit) [8:00]
-03. Claus Backslash - Spiritual Elements (Original Mix) [3:21]
-04. Diego Morrill - Rhenium (Original Mix) [3:21](   Читать дальше...   )Жанр: TranceПродолжительность: 02:20:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88D20B1DD7200A41CFE66768C17BD175CE116132
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1656633   (203026) от 31.08.2023
-
-VA - Nothing But... Trancetopia, Vol. 07 (2023) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203026.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boski - I Know You (Original Mix) [7:36]
-02. Victor Special - Just Want To Go Back (Radio Edit) [4:56]
-03. Johan Vilborg feat. Meggie York - Saved (Original Mix) [3:48]
-04. DT8 Project - Surrender (Original Mix) [3:08](   Читать дальше...   )Жанр: TranceПродолжительность: 02:24:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80CB16E930AC7784C6FFB61117B20E6C9FB91EA0
 ```
 
 https://mybot314.ru/tekegram_catalog/

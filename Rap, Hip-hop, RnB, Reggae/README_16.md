@@ -1,3 +1,90 @@
+###  Публикация: 901257   (663877) от 25.05.2015
+
+БАСТА / НоГгано / N1NT3ND0 - 12 Альбомов (2006-2015) Дискография [FLAC|tracks, image+ .cue]<Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_663877.jpg" />
+</div>
+
+
+###  Подробнее
+
+Василий Михайлович Вакуленко, он же Баста, Ноггано, Баста Хрю, Баста Бастилио, Nin-ten-do, родился 20 апреля 1980 года в городе Ростов-на-Дону в семье военных. Помимо общеобразовательной школы учился в музыкальной. В 15 лет впервые попробовал писать рэп, собрал свою группу. Поступил в училище на дирижерское отделение. Но, закончив первый курс, ушёл, поскольку стало (   Читать дальше...   )Список альбомов:
+2006 - Баста 1 (Переиздание)
+2007 - Баста 2 (Переиздание)
+2010 - Баста 3(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 14:08:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB29124C940B44015C8F019A8B213B7E882793A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138553   (663038) от 30.05.2017
+
+Onyx & Dope D.O.D. - Shotgunz In Hell (2017) [MP3|320 kbps] <Hip-Hop, Hardcore Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_663038.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shotgunz in Hell (Intro) (1:42)
+02. Can't Hear You (feat. SickFlo) (4:12)
+03. XXX (3:14)
+04. Piro (feat. Dopey Rotten) (2:45)(   Читать дальше...   )Жанр: Hip-Hop, Hardcore Hip-HopПродолжительность: 00:36:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AC7DFEB81BCE30D6E98B384EF444BE7A1D8DEE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1225267   (661824) от 14.05.2018
+
+SLIMUS - Место под луной (2018) [MP3|320 Kbps] <Rap, Hip-hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_661824.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Инвайт
+02. Мертвый президент
+03. Намедни
+04. За мое время(   Читать дальше...   )Жанр: Rap, Hip-hopПродолжительность: 00:19:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6482CBD03797AA9FC9DC1BBE955D0259ED468C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1225268   (661818) от 14.05.2018
 
 SLIMUS - Место под солнцем (2018) [MP3|320 Kbps] <Rap, Hip-hop>
@@ -656,93 +743,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB14552E8420DC3C4FB1081FF4D6A2F97BA29CEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293827   (633349) от 05.04.2019
-
-N1NT3ND0 (Баста) - Папа на рэйве (2019) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633349.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Делуга
-02. Ствол дымится
-03. Сomsi comsa
-04. Какаду(   Читать дальше...   )Жанр: Hip-HopПродолжительность: 00:38:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70501BDF79BEB4326B89B0DDA2C4C316DCAFFC6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543098   (631360) от 10.04.2022
-
-Guf - Опять (2022) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631360.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Где он? (Интро) [03:36]
-02. Надоем [04:25]
-03. Глаза к небу (feat. Slim) [04:27]
-04. Улыбнись [02:46](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:42:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE45BA46D3CBDEBF41EE7F7B7BF53A81B9208FF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542922   (631359) от 10.04.2022
-
-25/17 - Неизбывность (2022) EP [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631359.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Будьте счастливы [00:01:48]
-2. Остаться [00:03:46]
-3. Кесарь [00:02:47]
-4. Россимон [00:03:27](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:21:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B24D8228C98F762BE54A6E6BB22D289A65B2264
 ```
 
 https://mybot314.ru/tekegram_catalog/

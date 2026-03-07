@@ -1,3 +1,32 @@
+###  Публикация: 1306964   (555220) от 08.06.2019
+
+Mariee Sioux - Grief in Exile (2019) [FLAC|Lossless|WEB-DL|tracks] <Folk-Rock, Indie-Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555220.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Snakes
+02. Baby Wave
+03. Goose Song
+04. Never Known(   Читать дальше...   )Жанр: Folk-Rock, Indie-RockПродолжительность: 00:38:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AC620BBF5653FFC39A5156C9EA6410B23C2C1FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1306905   (555173) от 08.06.2019
 
 Hans Zimmer - X-Men: Dark Phoenix / Люди Икс: Тёмный Феникс (Original Motion Picture Soundtrack) (2019) [MP3|320 Kbps] <Soundtrack, Score>
@@ -716,35 +745,6 @@ Shabala - Shabala (1998) [MP3|320 Kbps] <World, Tribal, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:319E61BF907F16EE9F4D1BE5C623F46FE63775DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237750   (550552) от 25.07.2018
-
-Nigel Stanford (John Stanford) - Discography (1999-2017) [MP3|320 Kbps] <Downtempo, Ambient, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550552.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Watchers (9:26)
-02. Deep Space (8:09)
-03. Aurora (9:58)
-04. Sea Of Tranquility (7:42)(   Читать дальше...   )Жанр: Downtempo, Ambient, New AgeПродолжительность: 04:13:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE99E2BEC1CD1A1705E14BB32A0962BF633EBBB8
 ```
 
 https://mybot314.ru/tekegram_catalog/

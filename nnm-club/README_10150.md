@@ -1,25 +1,24 @@
-###  Публикация: 1294110   (631863) от 06.04.2019
+###  Публикация: 1228713   (633925) от 02.06.2018
 
-VA - Live Limited Welcome On April (2019) [MP3|320 Kbps] <Club, Electro, Dance>
+Векторный клипарт - Vector Animal Collection #17 [AI]
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631863.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633925.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Crush Club - Trust (Knight Horse RMX  Intro)
-002. Kraak & Smaak ft Sam Duckworth - Good For The City (Intro)
-003. Roosevelt - Everywhere (Fleetwood Mac Cover  Intro)
-004. Tuxedo - 2nd Time Around (Clean  Intro)(   Читать дальше...   )Жанр: Club, Electro, DanceПродолжительность: 07:57:30
+Векторный клипарт для дизайна.
+Зверушки
+25 AI + previewФормат: AI
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BEB687EE837F60B94B26E931D5724BD70F6273E0
+magnet:?xt=urn:btih:E216F132E5CCCB956F756BDD70DFE812539069CD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +26,81 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288352   (631862) от 06.04.2019
+###  Публикация: 1228707   (633924) от 02.06.2018
 
-VA - ASOT 900 Encore @ Poema RAW, Utrecht (2019-02-24)[MP3|320 Kbps] <Trance, Progressive House>
+Векторный клипарт - Vector Flowers Collection #46 [AI]
 
->>Архив торрентов
->>Архив Музыки
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631862.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633924.jpg" />
 </div>
 
 
 ###  Подробнее
 
-The Fatman & The Bear @ Elevation Audio Pres. Encore, Club Poema Utrecht, Netherlands 2019-02-24:
+Векторный клипарт для дизайна.
+Цветы
+25 AI + previewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0A73F4687CD3CBE8EF6D0B309ECA89CF9FFA56B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228672   (633923) от 02.06.2018
+
+NGW: Прирождённые монстры. Бразильский паук / Natural born monsters (2015) HDTV [H.264/1080i-LQ] (Сезон 1, эпизод 2)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633923.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шон Дугган отправляется на Коста-Рику в поисках самых ядовитых пауков в мире.Производство: США, Karga Seven Pictures, National GeographicЖанр: Документальный, природа, флора, фаунаРежиссер: B.J. GolnickПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:44:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EC9E5394A4AF0C72938070AAB01D2420A826DB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228689   (633919) от 02.06.2018
+
+Е. И. Востоков | Опыт Фуко, доказывающий вращение Земли вокруг своей оси (1939) [DJVU]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633919.jpg" />
+</div>
+
+
+###  Подробнее
+
+12 апреля 1931 года впервые в СССР, в Ленинграде, в Государственном Антирелигиозном музее - бывшем Исаакиевском соборе, был поставлен опыт Фуко.
 
-01. Armin Van Buuren & Shapov - The Last Dancer
-02. Ralphie B - Homestead(   Читать дальше...   )Жанр: Trance, Progressive HouseПродолжительность: 07:54:46
+В царской России этот опыт ни разу не демонстрировался для народных масс. Только после Великой Октябрьской Социалистической революции в советской стране был организован этот опыт в таком грандиозном масштабе и использован (   Читать дальше...   )Жанр: История, политология, науковедение, механикаФормат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:15BE0C4D442D89D33BBADEEB4481BBDB922222BC
+magnet:?xt=urn:btih:BB490F3292DC5AEE2D1451987288243A909F3402
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +108,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293985   (631861) от 06.04.2019
+###  Публикация: 1228796   (633917) от 02.06.2018
 
-Koan - Briar Rose Side A|B (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Downtempo, Ambient>
+PicturesToExe Deluxe 9.0.18 RePack (& Portable) by TryRooM [Multi/Ru]
 
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631861.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633917.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Briar Rose (Radio Version) (4:17)
-02. My Personal Dark Knight (The Kiss of Dark Knight Version) (7:18)
-03. Dream in Kaiser Gardens (Radio Version) (3:51)
-04. The Star of Pytheas (7:44)(   Читать дальше...   )Жанр: Electronic, Downtempo, Ambient |Продолжительность: 01:07:45
+Используя PicturesToExe вы сможете легко и быстро создать фотоальбом (слайд-шоу в виде единого самозапускаемого .exe файла), скринсейвер или видео файл из ваших фотографий, удобный для отправки по e-mail или записи на диск. К каждому слайду можно добавить текстовый и звуковой комментарий (wav, mp3, wma), а также фоновую музыку (mp3, wma, wav, midi) для всей презентации. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D6A5225C398E4954C0A2FB7E25D99BBFC7B27EC1
+magnet:?xt=urn:btih:8A1531F541FA3763F5206B1004BF21868291E9A0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +134,339 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294060   (631860) от 06.04.2019
+###  Публикация: 1228342   (633916) от 02.06.2018
 
-VA - 80s Soul Classics (2019) [MP3|320 Kbps] <Soul, RnB, Funk>
+VA - Flamenco Passion (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Flamenco>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 La Jose - La Ruta
+02 Vasco Hernandez - Cal y Arena
+03 Los Alhama - Gitana
+04 Thomas Koch - Armonia(   Читать дальше...   )Жанр: Instrumental, FlamencoПродолжительность: 01:12:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:502DFC029A9EFF84D67003FB0D1570366CDAC589
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228731   (633915) от 02.06.2018
+
+PrivaZer 3.0.47 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633915.jpg" />
+</div>
+
+
+###  Подробнее
+
+PrivaZer - полезная утилита, которая поможет вам очистить компьютер от следов конфиденциальной информации. Она подготовит детальный отчет со списком всех обнаруженных следов, обнаруженных в реестре, истории посещений сайтов, cookies и т.п. Также PrivaZer предоставит вам возможность удалить все обнаруженные или выбранные объекты при помощи специальных алгоритмов. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:116914B54D102A8EEFBC6F41091095236AD5E95D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228751   (633914) от 02.06.2018
+
+TIGRESS - Human; Like It Is; Who Cares? (2015-2018) 3 EP [MP3|320 Kbps] <Alternative Rock, Pop Rock, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633914.jpg" />
+</div>
+
+
+###  Подробнее
+
+2015 - Human
+2017 - Like It Is
+2018 - Who Cares?Жанр: Alternative Rock, Pop Rock, Female VocalПродолжительность: 01:01:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2206BAD8CBB912A7817636EBADF13FE788F7836B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228750   (633913) от 02.06.2018
+
+Glenn Frey (Ex. Eagles) - Above The Clouds: The Collection (2018) 3CD [FLAC|Lossless|image + .cue] <Rock, Blues Rock, Soft Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633913.jpg" />
+</div>
+
+
+###  Подробнее
+
+Треклист CD1:
+01. The Heat Is On
+02. Call On Me
+03. Part Of Me, Part Of You(   Читать дальше...   )Жанр: Rock, Blues Rock, Soft Rock |Продолжительность: 02:45:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C413939FE0F2B04D04843BB0CAC868BDB73F90C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228711   (633911) от 02.06.2018
+
+Векторный клипарт - Vector Elements Collection #7 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633911.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Элементы
+50 AI + previewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09D7D1F25AB587DF23AF24C9E700FA66209DC301
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 520033   (633895) от 08.07.2012
+
+Zillion - Zillion {Japanese Edition} (2004) [MP3|320 кб/с]<Melodic Heavy Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You and Me (3:30)
+02. This Day is Gone (3:57)
+03. Dirty Little Secret (2:48)
+04. Never Down (3:02)
+05. Kryptonite (3:31)
+06. The Smile (3:16)
+07. Wonder Why (3:21)
+08. Take It Away (4:48)
+09. Day or Night (4:04)
+10. The Hose (3:41)(   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 00:42:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E77A13E1DCFA6C33E20C261F8BB6F8F2C6A4CD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 520532   (633893) от 08.07.2012
+
+Формула 1. Гран-При Великобритании. 3-ая свободная практика (2012) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633893.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гран При Великобритании проходит в предместье города Сильверстоун в Нортгемптоншире с 1926-ом году, однако регулярно гонка стало происходить только с 1950-го года. В период с 1964 по 1986 года место проведения гонок менялось, то на Брендс Хэтч, то на Эйнтри (трассу более известную как ипподром).Жанр: СпортПродолжительность: 01:08:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34A15D23A8A8CA7503ADA7ED0C6AB033D7A960C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 519633   (633889) от 08.07.2012
+
+ReinXeed - 2 Альбома (2009-2012) [MP3|320 кб/с]<Power Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633889.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Power MetalПродолжительность: 01:06:42
+
+1. Welcome (Intro) (1:12)
+2. Life Will Find A Way (5:37)
+3. Follow Me (3:52)
+4. Save Us (5:56)
+5. Stranger Tide (5:30)
+6. Somewhere In Time (6:16)
+7. Freedom (8:13)
+8. No Fate (6:50)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FA0B2EFC46217BF3E64E50DA72E15C2DBA71C13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 519134   (633884) от 08.07.2012
+
+VA - Macarize:01 (04.04.2012) [MP3|320 кб/с]<Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633884.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hazem Beltagui - Macarize (Intro Mix) 06:36
+02. Alandanat - Voyager (Original Mix) 07:08
+03. Outlook - Airplane (Original Mix) 06:30
+04. Aleksey Yakovlev - Space Odyssey (Original Mix) 07:08
+05. Eximinds - August (Original Mix) 07:56
+06. Mick Elsa - Significant Others (Original Mix) 08:07
+07. Vitodito - Pisha (Original Mix) 06:42
+08. Allan V. - What If (Original Mix) 07:56
+09. Michael Elliot - Pool Splash (Original Mix) 08:00
+10. Domestic Technology - Californian (Original Mix) 05:44Жанр: Progressive HouseПродолжительность: 01:11:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EB4446902292901A5084B5B1F4D23F22B097AE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 519609   (633883) от 08.07.2012
+
+Опричь / Piarevaracien / Чур - Триединство (2012) [MP3|160 кб/с]<Folk Metal | Folk/Black Metal | Folk Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633883.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Опричь - Реками Севера
+2. Опричь - Волга
+3. Опричь - Север Вольный
+4. Piarevaracien - Мая восень
+5. Piarevaracien - Ранак
+6. Piarevaracien - Попел
+7. Чур - Ой, там на горі
+8. Чур - Через Рiчку, Через Гай (Ластiвка)
+9. Чур - Ой, у полі криниченькаЖанр: Folk Metal | Folk/Black Metal | Folk MetalПродолжительность: 00:52:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A2CDE9FE65B597A33C29341D615C7756F130CE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 519882   (633881) от 08.07.2012
+
+VA - Club 86 Recordings Ibiza 2012 (2012) [MP3|320 кб/с]<House>
 
 >>Неофициальные сборники
->>Прочее (сборники)
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631860.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633881.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Chaka Khan - Ain't Nobody
-02. George Benson - Give Me the Night
-03. Stacy Lattisaw - Jump to the Beat
-04. Grover Washington, Jr. - Just the Two of Us(   Читать дальше...   )Жанр: Soul, RnB, FunkПродолжительность: 01:51:09
+01. Arcuda - Musicbox (Original Mix)
+02. Johny S - Let Your Soul Fly (Original Mix)
+03. Steve Lade - Bongo Drums (Chantola Remix)
+04. Neo Neo - The Way Of The Cobra (Original Mix)
+05. Aurinkovuo - Sunday Massive (Original Mix)
+06. Timothy Night - Saft (Original Mix)
+07. Tallzzy - Do Not Disturb It (Original Mix)
+08. Kajis & Lade - Frisco (Klaukenberg Remix)
+09. Burdan - Back & Forth (Original Mix)
+10. Saarre - Wood & Pecker (Original Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 02:51:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:55719F058996647C77C0ED5793F3DB8DEAD02B74
+magnet:?xt=urn:btih:5CA78E9D4EA616EC5550D89B061A6B8558488351
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +474,95 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278215   (631859) от 06.04.2019
+###  Публикация: 519097   (633880) от 08.07.2012
 
-Jay Glass Dubs - Discography 13 Releases (2015-2019) Bokeh Versions [FLAC|Lossless|tracks] <Dub, Experimental, Dancehall, Ambient>
+VA - Passion Paradise (2012) [MP3|320 кб/с]<Trance, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633880.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sean Bay & Tiff Lacey - Moon In The Dark (Original Mix) 05:47
+02. Daniel Ocean & Photographer - Underground (Original Mix) 08:12
+03. Philip Mayer - Bright Eclipse (Original Mix) 07:42
+04. Dave202 - Purple Drops (Radio Mix) 04:13
+05. Aleksey Zhahin - Catching The Time 09:03
+06. Carl Fath - Into The Vortex! 07:11
+07. Digital X - Odyssey (Original Mix) 05:50
+08. Tritonal Feat Jeza - Can't Keep It In (Tritonal Club Mix) 06:40
+09. Daniel Kandi - Insert Generic Title (Daniel Kandi Vs Dennis Pedersen Remix) 06:04
+10. Boxer - Fathom (Ltn Remix) 07:01(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 03:20:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32E33B1E0FD84032B9AAC13DF55FB881C0ED8079
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908269   (633877) от 14.06.2015
+
+Журнал | Счастливые родители №4 (апрель 2015) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Журналы для детей и родителей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633877.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Счастливые родители» — популярный журнал для молодых родителей, содержащий необходимую информацию о беременности, материнстве и первых 4-х годах жизни малыша. В каждом номере – профессиональные рекомендации в области акушерства, гинекологии, психологии, педиатрии, диетологии, обзоры косметических новинок и средств по уходу за собой и ребенком, советы по созданию (   Читать дальше...   )Жанр: Журнал для родителейФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BF58361ED6B97B711078E0A651316A89F0C993E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 519806   (633876) от 08.07.2012
+
+Praying Mantis - Time Tells No Lies {Japanese Edition} (1981) [MP3|320 кб/с]<Heavy Metal/Hard Rock>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631859.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633876.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Seikilos & To Console Him (02:23)
- 02. Animal Estate (feat. Yorgia Karidi) (07:21)
- 03. Evil Empire (feat. Ben Vince) (05:59)
- 04. Interlude I (The Hand That Rocks The Cradle) (01:56)(   Читать дальше...   )Тип издания: WEB, CassetteЖанр: Experimental/Dub/Dancehall/Dungeon Synth/Tribal/AmbientПродолжительность: 00:41:39
+1. Cheated (3:51)
+ 2. All Day And All Of The Night (2:57)
+ 3. Running For Tomorrow (3:41)
+ 4. Rich City Kids (3:48)
+ 5. Lovers To The Grave (4:53)
+ 6. Panic In The Streets (3:43)
+ 7. Beads Of Ebony (5:27)
+ 8. Flirting With Suicide (5:04)
+ 9. Children Of The Earth (5:39)
+(   Читать дальше...   )Жанр: Heavy Metal/Hard RockПродолжительность: 00:39:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1F57A20B666049FBA53EEFAC648A639B49C1465A
+magnet:?xt=urn:btih:6CBCC7C7E9CCA501F62DE95323F6992132B83417
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,28 +570,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294057   (631858) от 06.04.2019
+###  Публикация: 908320   (633875) от 14.06.2015
 
-Weyes Blood - Titanic Rising (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop>
+А. В. Веселовский | Ядерный щит (1999) [PDF]
 
->>Pop
->>Зарубежная поп-музыка (Lossless)
+>>Разное (категория книг)
+>>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631858.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633875.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. A Lot's Gonna Change (04:21)
-02. Andromeda (04:40)
-03. Everyday (05:07)
-04. Something to Believe (04:45)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:42:27
+“Ядерный щит” - воспоминания человека, более 40 лет проработавшего в Российском Федеральном Ядерном Центре - ВНИИЭФ и принимавшего участие в испытаниях многих образцов отечественных ядерных зарядов, в том числе и самых мощных, а также уникальных ракетно-ядерных комплексов. На фоне профессиональной деятельности и повседневной жизни автор встречается с ведущими разработчиками (   Читать дальше...   )Жанр: советский атомный проектФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:83E224C1CE0EC0B086D11B257E393492B0F2485F
+magnet:?xt=urn:btih:2867951F6C754694898BBDF487172FE88B954CCD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,107 +596,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294054   (631857) от 06.04.2019
+###  Публикация: 908301   (633873) от 14.06.2015
 
-Ocenaudio 3.6.2 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631857.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ocenaudio является простым в использовании, быстрым и функциональным звуковым редактором. Это идеальное программное обеспечение для людей, которым нужно редактировать и анализировать звуковые файлы без лишних заморочек. ocenaudio также имеет мощные функции, которые будут радовать более продвинутых пользователей. Эта программа основана на Ocen Framework, мощной библиотеке, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18D8475B15D21A7840F593D6A29874B471A39CB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294062   (631856) от 06.04.2019
-
-Total Eclipse - Tokyo Live 1998 (2019) Suntrip Records [FLAC|Lossless|WEB-DL|tracks] <Goa Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631856.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Electro Gismo (Live) (07:06)
-02. Defrost (Live) (07:50)
-03. Kikamboot (Live) (06:15)
-04. Partycles (Live) (06:36)(   Читать дальше...   )Жанр: Goa TranceПродолжительность: 02:39:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FD28C75056C0775178EFA69C9517429B6E4C395
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294113   (631855) от 06.04.2019
-
-TSR Watermark Image Pro 3.6.0.8 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631855.jpg" />
-</div>
-
-
-###  Подробнее
-
-Watermark Image - приложение для нанесения так называемых "водяных знаков" на фото и иные изображения. Программа позволяет использовать в качестве такого знака как текст, так и графику. Водяной знак может быть настроен - пользователь волен выбрать цвет, уровень прозрачности, расположение и его размер (в процентах). Поддерживается программой изменения размера (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B67C964BCF5627343A9A9CB042539C5750167528
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294180   (631854) от 06.04.2019
-
-Елена Булганова | Девочка, которая спит (2019) [FB2]
+Журнал | Счастливые родители №5 (май 2015) [PDF]
 
 >>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
+>>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631854.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633873.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Первая книга фэнтези-серии «Инсомния» писательницы Елены Булгаковой, автора популярного цикла «Вечники».
-Пятнадцатилетний Алеша когда-то давно познакомился с девочкой Иолой. Познакомился… во сне. Иола жила странной, немного жутковатой жизнью: она могла бодрствовать только тогда, когда Алеша спал. А когда он просыпался, тут же проваливалась в беспробудный сон. И вот (   Читать дальше...   )Жанр: Городское фэнтези, Фантастика для детей, МистикаФормат: FB2
+«Счастливые родители» — популярный журнал для молодых родителей, содержащий необходимую информацию о беременности, материнстве и первых 4-х годах жизни малыша. В каждом номере – профессиональные рекомендации в области акушерства, гинекологии, психологии, педиатрии, диетологии, обзоры косметических новинок и средств по уходу за собой и ребенком, советы по созданию (   Читать дальше...   )Жанр: Журнал для родителейФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:864D054ED916B54FE9B6AC702D215A3E2A72AE72
+magnet:?xt=urn:btih:93ABA6413C441843E6EE8F74D919CCEFA1503E2E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -280,28 +622,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294108   (631853) от 06.04.2019
+###  Публикация: 908289   (633872) от 14.06.2015
 
-Periphery - Periphery IV: Hail Stan (2019) [FLAC|Lossless|tracks + .cue] <Progressive Metal, Djent>
+VA - Dreams of a shaman 2 (2015) [MP3|320 кб/с]<Native american, Ethnic, Folk, New Age>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631853.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633872.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Reptile (feat. Mikee Goodman) (16:44)
-2. Blood Eagle (5:58)
-3. Chvrch Bvrner (3:41)
-4. Garden in the Bones (5:57)(   Читать дальше...   )Жанр: Progressive Metal, DjentПродолжительность: 01:03:59
+01. Indian Mistic - Dancing Squaws
+02. Mohicans - The Big CircleЖанр: Native american, Ethnic, Folk, New AgeПродолжительность: 02:14:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0EE0E2636C1B8D5FE3D7C012F73C6F2F60A978DF
+magnet:?xt=urn:btih:5D77132637A1462828BC79D739227E2D1B68FD7A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -309,27 +649,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294182   (631852) от 06.04.2019
+###  Публикация: 908190   (633870) от 14.06.2015
 
-Елена Булганова | Девочка, которая ждет (2019) [FB2]
+Журнал | Psychologies №110 (июнь 2015) [PDF]
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
+>>Журналы
+>>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631852.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633870.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Вторая книга фэнтези-серии «Инсомния» писательницы Елены Булгановой, автора популярного цикла «Вечники».
-Алеша и Иоланта многому научились в лагере для подростков-атлантов и в подземных мирах.
-Но вскоре на ребят обрушивается лавина странных событий: школьный тренер втягивает учеников в жутковатые игры на выживание, директор лагеря и его жена бесследно исчезают в (   Читать дальше...   )Жанр: Городское фэнтези, Фантастика для детей, МистикаФормат: FB2
+Psychologies – уникальный журнал, главной и единственной темой которого является жизнь каждого из его читателей. Все его содержание – это вопросы самопознания, способы раскрыть собственные возможности, чтобы жить, получая удовольствие от жизни и отношений с другими людьми. Журналисты, работающие для Psychologies, бережно честно относятся к своим читателям, ведут (   Читать дальше...   )Жанр: ПсихологияФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6CD0DED4ADDAA5C945567B96F6F632E3CEA53A43
+magnet:?xt=urn:btih:5421DDDA6FE64F9233ABA1442A01381111F12100
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -337,25 +675,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294025   (631851) от 06.04.2019
+###  Публикация: 908235   (633868) от 14.06.2015
 
-Harukana Receive | Харука и Каната принимают подачу [2018, TV, 12 эп.] BDrip 1080p raw
+Журнал | Деньги №22 (июнь 2015) [PDF]
 
->>Аниме с субтитрами
->>Аниме (FullHD)
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631851.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633868.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сериал рассказывает о двух старшеклассницах и по совместительству двоюродных сёстрах — Канате Хиге и Харуке Оузо, переехавшей из Токио на Окинаву. Каната — опытная пляжная волейболистка, решившая бросить спорт из-за своего низкого роста, но однажды Харука уговаривает её вернуться на песок ради любительского матча... После этого они решают стать командой и принять (   Читать дальше...   )Производство: студия C2CЖанр: спортРежиссер: Кубоока ТосиюкиПеревод: SovetRomanticaЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+Еженедельный экономический журнал о том, как заработать, сохранить и на что лучше всего потратить деньги. Журналисты издания дают ответы на волнующие каждого вопросы, а именно… Как защитить свои потребительские права? Как организовать собственное дело? А также рассказывают о самых необычных способах заработка.Жанр: ФинансыФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:910B2E08AC14FE64D66EA6C61695B2EECE6BDDB3
+magnet:?xt=urn:btih:B83EFC84C8D425FA54B7F15DEB498312A7048BE0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -363,25 +701,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294091   (631850) от 06.04.2019
+###  Публикация: 520372   (633867) от 08.07.2012
 
-GoodSync Enterprise 10.9.30.3 RePack (& Portable) by elchupacabra [Multi/Ru]
+Ману / Mano (2005) DVDRip
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631850.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633867.jpg" />
 </div>
 
 
 ###  Подробнее
 
-GoodSync - программа из серии высоконадежного, удобного и простого в использовании программного обеспечения от компании Siber Systems - разработчика RoboForm. Программа автоматически синхронизирует и делает резервные копии документов, фотографий, музыкальных файлов, электронных писем. Синхронизация производится между любыми носителями, как подключенными непосредственно (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Фотограф Мариана, снимавшая снос старой киностудии находит странного серого человека с потерянным видом смотрящего на сгоревшие старые киноплёнки и забирает его домой. Этим человек оказывается Ману - всеми забытый комедийный персонаж из старых, ещё дозвуковых фильмов, о котором Мариана и её муж Марко вынуждены теперь заботиться...Жанр: Фэнтези, комедияРежиссер: Жорже ФелнерАктеры: Жорже Фелнер, Диого Инфанте, Аделаида Суза, Канту и Кастру, Марко Де Альмейда, Жоана Брандау, Педро Кальвиньо, Алда Гомес, Флавия Гузмау, Мануэль МаркусПеревод: Одноголосый закадровыйПродолжительность: 01:35:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9E8E1D9B76C29712FD50FDFC6F36C1E8D435DC66
+magnet:?xt=urn:btih:664CC464AE24F7768B8813ECBAA790871D4721CF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -389,339 +727,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293958   (631849) от 06.04.2019
+###  Публикация: 520056   (633865) от 08.07.2012
 
-Tom Petty and The Heartbreakers - The Best Of Everything (2019) 2CD, Compilation, Remastered [FLAC|Lossless|tracks + .cue] <Classic Rock>
+Юлия Федотова | Свет. Испытание Добром? [2012] [FB2]
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631849.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633865.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Tom Petty – Free Fallin' (04:14)
-02. Tom Petty & The Heartbreakers – Mary Jane's Last Dance (04:31)
-03. Tom Petty – You Wreck Me (03:22)
-04. Tom Petty – I Won't Back Down (02:56)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 02:26:03
+Хорошо тому, кто противостоит Тьме. Сразу ясно, что он – благородный герой, ступивший на стезю борьбы со Злом. Но тот, чьим противником оказывается Свет, поневоле задается вопросом: уж не само ли Добро он подрядился искоренять, а Зло, соответственно, сеять?
+Да, именно это приключилось с ними, недавними победителями Тьмы! Новая карта в колдовской книге, новая тайна, новое испытание для мира. И старый, но очень неприятный вопрос: кто станет Воплощением на этот раз?
+Под подозрением пятеро: Йорген фон Раух, темный по природе своей, Кальпурций Тиилл, податливый на колдовство, Черный Легивар, надумавший практиковать некромантию, Семиаренс Элленгааль, некогда отворивший путь Тьме, и юный хейлиг Мельхиор, выходец из семьи потомственных колдунов. Любой из них подходит на эту роль. Только воплощать ему на этот раз придется не Тьму, а Свет. А добрые друзья должны будут решить: нужно ли снова оставить Воплощение в живых или на этот раз его все-таки придется убить?Формат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7AC07A4268F43057C987EE04204B4636A7EEE749
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543292   (631848) от 10.04.2022
-
-Елена Кондрацкая | У Ворона две жизни (2022) [MP3, Любовь Конева]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631848.jpg" />
-</div>
-
-
-###  Подробнее
-
-Василиса мечтала защищать людей от тёмных сил. Быть Вороном и сражаться в Вольской Гвардии. Ради этого она сбежала из дома и попала в ученицы к сильнейшему чародею. Но наставник мёртв, по всей стране пропадают люди, а нечисть сходит с ума. Стать Вороном и отомстить за смерть учителя – Василиса готова ступить на этот путь. Но куда приведёт дорога, проложенная самой (   Читать дальше...   )Жанр: Героическое фэнтези, Любовное фэнтезиПродолжительность: 10:46:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:436FDF5C295787DADFE213FB5A955A9552CFC1E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542961   (631847) от 10.04.2022
-
-М. Булатов (обр.) | Маша и Медведь (2016) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631847.jpg" />
-</div>
-
-
-###  Подробнее
-
-Известные детские сказки и стихи о доброте, заботе и верности.
-Книги для малышей от года, развивают образное мышление, пробуждают любознательность и прививают любовь к чтению.Жанр: СказкаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A941715230AEB7750A52403D27F7533FD27A121
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543349   (631846) от 10.04.2022
-
-Tord Gustavsen Trio - Opening (2022) [FLAC 2.0|96/24|WEB-DL|tracks] <Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631846.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Circle (3:57)
-02. Findings / Visa från Rättvik (3:23)
-03. Opening (3:25)
-04. The Longing (2:36)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:48:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B6C95C77FBEA4F6DBAEC61DA23AD3DA59FA7936
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543151   (631845) от 10.04.2022
-
-Wet Leg - Wet Leg (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Punk, Female Vocal>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_631845.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Being In Love (00:02:02)
-02 - Chaise Longue (00:03:16)
-03 - Angelica (00:03:52)
-04 - I Don't Wanna Go Out (00:03:41)(   Читать дальше...   )Жанр: Post-Punk, Female VocalПродолжительность: 00:36:49
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542934   (631844) от 10.04.2022
-
-Unkle - Rōnin I (2021) Instrumental Version [FLAC|Lossless|WEB-DL|tracks] <Trip-Hop, Leftfield, Electroniс>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - 初登場 (00:00:24)
-02 - Ar.Mour (Rōnin Dub) (00:06:39)
-03 - The Other Side (Rōnin Def Mix) (00:03:46)
-04 - On My Knees (Rōnin Def Mix) (00:05:06)(   Читать дальше...   )Жанр: Trip-Hop, Leftfield, ElectroniсПродолжительность: 01:04:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:205A6BD3D085988EDFF0D9339FA07987D2B39A26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543157   (631843) от 10.04.2022
-
-Здоровье - Психиатрическая Больница (1985) [MP3|320 Kbps] <Pop-Rock>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_631843.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро [00:00:27]
-02. Эй, Приятель [00:03:16]
-03. Будет Так, А Не Иначе [00:05:05]
-04. Старый Пень [00:03:22](   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:39:13
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543233   (631842) от 10.04.2022
-
-Чудо техники с Сергеем Малозёмовым (10.04.2022) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631842.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коровья радость: какие изобретения уже могут заменить людей на фермах? Тапочки с эффектом хождения по разным поверхностям — какие из них реально полезны? А также — проверка защитного покрытия для дома и свойства фунготерапии.Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:40:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:018BC52771895CF86B1DA345F4AA2A6531D432F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543232   (631841) от 10.04.2022
-
-FM - Thirteen (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631841.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тринадцатый студийный альбом приверженцев мелодичного рока. Песни полны очарования и элегантности. Голос Оверланда по прежнему
-великолепен. Они предпочитают основывать свое звучание на классическом
-стиле, который они создали много лет назад. Это приводит к тёплому,
-знакомому звучанию, которое не устарело, и это немного отличает их от(   Читать дальше...   )01. Shaking The Tree
-02. Waiting On Love
-03. Talk Is Cheap
-04. Turn This Car Around(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 01:00:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC86252C75F629EFCD87AE7F9032FE376069231A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542939   (631840) от 10.04.2022
-
-Unkle - Rōnin I (2021) Deluxe Edition, 2CD [FLAC|Lossless|tracks + .cue] <Trip-Hop, Leftfield, Electroniс>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631840.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.初登場 (0:25)
-02.Ar.Mour (Rōnin Dub) (6:39)
-03.The Other Side (Rōnin Def Mix) (3:46)
-04.On My Knees (Rōnin Def Mix) (5:06)(   Читать дальше...   )Жанр: Trip-Hop, Leftfield, ElectroniсПродолжительность: 02:10:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:940FC666201F12865E717138F60119F83D524C48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543395   (631839) от 10.04.2022
-
-Аста Нильсен. Девушка без родины / Das Madchen ohne Vaterland (1912) TVRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631839.jpg" />
-</div>
-
-
-###  Подробнее
-
-1912 год. Приграничная зона одного из балканских государств. Чтобы заполучить секретные документы, хранящиеся в пограничной крепости, османский шпион завербовывает молодую цыганку Цыдру, табор которой расположился неподалеку. Цыдра, соблазнённая крупной суммой денег, не задумываясь соглашается и приступает к активным действиям, пустив в ход свои женские чары, дабы (   Читать дальше...   )Производство: Германия, Deutsche Bioscop GmbH, Internationale Film-VertriebsЖанр: Короткометражный, авантюрный, немое киноРежиссер: Урбан ГадАктеры: Аста Нильсен, Пауль Мефферт, Макс Вогрич, Ханнс Крали, Фред ИммлерПеревод: Немой с интертитрамиСубтитры: Немецкие интертитры, русские отдельным файломПродолжительность: 00:32:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:376B3B26C950543C8CD0A062B241E2722A4B372D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543178   (631838) от 10.04.2022
-
-The Brides of the Black Room - Blood And Fire (2022) [MP3|320 Kbps] <Synthpop, Dark Pop, Electropop, Synth Rock>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_631838.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fire Disciple [00:03:33]
-02. Blood [00:03:10]
-03. Mother Mother [00:03:58]
-04. Throne [00:03:31](   Читать дальше...   )Жанр: Synthpop, Dark Pop, Electropop, Synth RockПродолжительность: 00:38:31
-
-## Скачать торент
-```bash
-нет
+magnet:?xt=urn:btih:96C2700BB362457C44600084DCBF516C7BF9086C
 ```
 
 https://mybot314.ru/tekegram_catalog/

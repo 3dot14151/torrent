@@ -1,3 +1,29 @@
+###  Публикация: 1069122   (375657) от 03.11.2016
+
+Проекты - Motion Array - Paper Torn Slideshow [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_375657.jpg" />
+</div>
+
+
+###  Подробнее
+
+Paper Torn Slideshow - Это отличный After Effects проект идеально подходит для промо, открывалки или любого другого мультимедийного проекта. Этот шаблон состоит из 14 держателей изображений и 13 держателей текста, которые вы можете изменить, как вам нравится. Произвести впечатление на аудиторию современным взглядом на видео.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25536A8941A1872C2CB48CA5D2A9581DE6FB24D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1069137   (375568) от 03.11.2016
 
 Проекты - Motion Array - Photo Parallax Slideshow - 17206 [AEP]
@@ -660,32 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:111BF1750CBB8F107707CE04AC8917846D7D47E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070557   (366293) от 07.11.2016
-
-Проекты - VideoHive - Inspired Slideshow [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366293.jpg" />
-</div>
-
-
-###  Подробнее
-
-Inspired - Проект для создания вдохновляющего фото-видео слайдшоу.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D8BA9CAC4CB194B8F6B8CF9048E350ED87844C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

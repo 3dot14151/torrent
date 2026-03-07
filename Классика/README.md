@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1857102   (1059372) от 04.03.2026
+
+VA - Wake Up Music (2026) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1059372.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Katerina Modina - Spiegel im Spiegel (Version for Cello and Piano) (9:24)
+02. Sergey Bryukhno - Dans la lumière I. Modéré et calme (1:26)
+03. Katya Kramer-Lapin - 3 Gymnopédies No. 1, Lent et douloureux (2:36)
+04. Sergey Bryukhno - Two Flows Become One (2:01)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:50:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1614B8521548C5E84275AE56A09E20E6E15943B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1598576   (1046421) от 01.01.2023
 
 Megumi Yoshida, Bach - Organ Works Vol. 1. (2016) [OGG Vorbis|480 Kbps] <Classical, Baroque>
@@ -722,36 +751,6 @@ Peter Donohoe - Mozart: Piano Sonatas. Volume 2 (2019) SOMM Recordings [FLAC 2.0
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2ED1E5A8F10BCE326AFD0171DD530F56D11D3594
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413232   (1029914) от 21.02.2021
-
-Otavio de Assis Brasil - The Great Classical Music Played On Accordion (2020) Several Records [FLAC 2.0|48/24|tracks|WEB-DL] <Classical>
-
->>Классика
->>Классика (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029914.jpg" />
-</div>
-
-
-###  Подробнее
-
-Otavio de Assis Brasil (из Сан-Габриэль, Бразилия, г.р. - 1984) - бразильско-испанский аккордеонист. Первый южноамериканец, получивший высшую университетскую степень по классическому аккордеону в консерватории Арагона под руководством Анхеля Луиса Кастаньо, своего главного учителя, от которого до сегодняшнего дня он получает советы.
-С 2009 года он также изучал музыкальную (   Читать дальше...   )Antonio Vivaldi: Las Cuatro Estaciones. Concerto In F Minor, RV 297, Op. 25, "Invierno":
-01. I. Allegro Non Molto (03:34)
-02. II. Largo (02:14)
-03. III. Allegro (02:58)Жанр: ClassicalПродолжительность: 01:05:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59F425893A074C5E63A856DB4A52622999997C95
 ```
 
 https://mybot314.ru/tekegram_catalog/

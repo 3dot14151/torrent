@@ -1,3 +1,125 @@
+###  Публикация: 1554273   (577492) от 30.05.2022
+
+Ed Sheeran - = (Tour Edition) (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop, Acoustic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_577492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tides
+02. Shivers
+03. First Times
+04. Bad Habits(   Читать дальше...   )Жанр: Pop, AcousticПродолжительность: 01:21:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4DD0A8C4F41A367B65B81EF54C1B6EA12252869
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 527643   (576529) от 26.07.2012
+
+Melanie C - Northern Star (2000) [FLAC|Lossless]<Pop, Pop Rock, Dance Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_576529.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Go! [3:39]
+02. Northern Star [4:41]
+03. Goin' Down [3:36]
+04. I Turn To You [5:52]
+05. If That Were Me [4:33]
+06. Never Be The Same Again [4:54]
+07. Why [5:30]
+08. Suddenly Monday [2:38]
+09. Ga Ga [3:52]
+10. Be The One [3:37](   Читать дальше...   )Жанр: Pop, Pop Rock, Dance PopПродолжительность: 01:02:08
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303103   (576164) от 19.05.2019
+
+Various Artists - Eurovision Song Contest Tel Aviv 2019 - Dare To Dream (2019) Compilation [FLAC|Lossless|tracks] <Electronic, Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_576164.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Jonida Maliqi - Ktheju tokës (3:07)
+02. Srbuk - Walking Out (2:58)
+03. Paenda - Limits (3:02)(   Читать дальше...   )Жанр: Electronic, Rock, PopПродолжительность: 02:03:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADB4C6EB22B1A865057A7753AE8AF51BC6532C02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554239   (575756) от 31.05.2022
+
+Sparks - The Seduction of Ingmar Bergman (2009) Deluxe Edition, 2022, BMG [FLAC|Lossless|tracks] <Pop, Rock, Synth-pop, New Wave>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_575756.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 1956 Cannes Film Festival [00:01:55]
+02. "I Am Ingmar Bergman [00:03:09]
+03. Limo Driver (Welcome to Hollywood) [00:03:08]
+04. "Here He Is Now" [00:01:18](   Читать дальше...   )Жанр: Pop, Rock, Synth-pop, New WaveПродолжительность: 01:04:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC8E2F8688D7F34BEE9C7AE02F103725C519935A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1043260   (574568) от 15.08.2016
 
 VA - Pop Decades: 80s (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
@@ -627,122 +749,6 @@ Selena Gomez - Stars Dance (Deluxe Edition) (2013) /Scene/ [FLAC (tracks)|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A604CF12C691A9737841104A7839D26C6C8E7E56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044933   (563254) от 21.08.2016
-
-VA - The Best Nostalgia Album. In The World... Ever! (1997) Compilation [FLAC|Lossless|tracks + .cue] <Retro, Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563254.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fever (Peggy Lee) [03:22]
-02. Mona Lisa (Nat King Cole) [03:29]
-03. Volare (Dean Martin) [03:01]
-04. Spanish Eyes (Al Martino) [02:48](   Читать дальше...   )Жанр: Retro, Pop, Pop RockПродолжительность: 00:59:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49785D97E822F6F4230992E06DBA246CD3D7E799
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152439   (563004) от 24.07.2017
-
-VA - BRAVO Hits 98 (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563004.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Robin Schulz feat. James Blunt - OK (3:10)
-02. Jonas Blue feat. William Singe - Mama (3:01)
-03. Liam Payne feat. Quavo - Strip That Down (3:23)
-04. Axwell Λ Ingrosso - More Than You Know (3:21)(   Читать дальше...   )Жанр: Pop Compilation, Pop, Electronic, R&B, Disco, Dance, Indie Pop, Europop, R&B, Hip Hop, Pop Rap, House, Euro House, Deep House, Electro, Synthpop, Pop RockПродолжительность: 02:35:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD92409AA76EC1B6747E21C0C55608D9110E90E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044900   (562972) от 21.08.2016
-
-Michael Jackson - Thriller: 25th Anniversary Edition (1982) Remastered, 2008, Epic/Legacy [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562972.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wanna Be Startin' Somethin' (6:02)
- 02. Baby Be Mine (4:20)
- 03. The Girl Is Mine (3:42)
- 04. Thriller (5:57)(   Читать дальше...   )Жанр: Pop, SoulПродолжительность: 01:07:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC30F5871375BF187FD1600A2E6901150A1EA309
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304844   (562088) от 27.05.2019
-
-Stensound Party Group - Vom Zillertal bis Arenal (Unknown) [FLAC|Lossless|image + .cue] <Pop, Cover, Latino>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562088.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vamonos (3:52)
-02. Y Viva Espana (3:20)
-03. Vamos A La Playa (3:13)
-04. La Copa De La Vida (4:31)(   Читать дальше...   )Жанр: Pop, Cover, Latino-PartyПродолжительность: 00:57:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:040572FB5F530800865AA862A9ED58C74CAF0DF2
 ```
 
 https://mybot314.ru/tekegram_catalog/

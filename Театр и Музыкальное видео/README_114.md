@@ -1,3 +1,90 @@
+###  Публикация: 966572   (217765) от 18.12.2015
+
+Katy Perry - The Prismatic World Tour (2015) BDRip[H.264]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_217765.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вашему вниманию предлагается концерт Кэти Перри на Allphones Arena в Сиднее (Австралия), записанный в декабре 2014 года в ходе её мирового тура The Prismatic World Tour Live.01. Roar
+02. Part of Me
+03. Wide Awake
+04. This Moment / Love Me(   Читать дальше...   )Производство: США (Eagle Rock Entertainment)Жанр: PopРежиссер: Russell ThomasПродолжительность: 01:56:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C4D52481340835BC3A53AF79F9F543333D1AF9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1269876   (217716) от 16.12.2018
+
+L. A. Guns - Made In Milan (2018) BDRip [H.264/720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_217716.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гитарист Трейси Ганс и вокалист Фил Льюис, которые в 2016 году воссоединились под названием L.A. Guns после более 15 лет скандалов и работы по раздельности, выпускают новый концертный альбом "Made In Milan". Релиз увидел свет 23 марта на лейбле Frontiers Music Srl в форматах CD, DVD и Blu-ray. Материал диска был записан в 2017 году на фестивале "Frontiers (   Читать дальше...   )01. No Mercy
+02. Electric Gypsy
+03. Killing Machine
+04. Bow Solo/Over The Edge(   Читать дальше...   )Производство: США, Frontiers Music SrlЖанр: Hard Rock, Glam RockСубтитры: отсутствуютПродолжительность: 01:08:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EB9F40218425195AACF715F910D32E190448F1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1269782   (217664) от 16.12.2018
+
+L. A. Guns - Made In Milan (2018) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_217664.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гитарист Трейси Ганс и вокалист Фил Льюис, которые в 2016 году воссоединились под названием L.A. Guns после более 15 лет скандалов и работы по раздельности, выпускают новый концертный альбом "Made In Milan". Релиз увидел свет 23 марта на лейбле Frontiers Music Srl в форматах CD, DVD и Blu-ray. Материал диска был записан в 2017 году на фестивале "Frontiers (   Читать дальше...   )01. No Mercy
+02. Electric Gypsy
+03. Killing Machine
+04. Bow Solo/Over The Edge(   Читать дальше...   )Производство: США, Frontiers Music SrlЖанр: Hard Rock, Glam RockСубтитры: отсутствуютПродолжительность: 01:08:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B8708CC57FB4A871370A6732BEAE64D274507E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1343364   (217523) от 06.12.2019
 
 Сборник клипов - Old School Hits от ALEXnROCK часть 2 (2019) WEBRip [H.264/1080p-LQ] [upscale]
@@ -636,84 +723,6 @@ Miyeon - Sky Walking (Special) (2025) WEBRip [H.265/2160p]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E3701A49AC5B5679C04469CF2AE285719C54035
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1832135   (213442) от 30.10.2025
-
-SooRin - Sure Thing (2025) WEBRip [H.265/2160p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_213442.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: КореяЖанр: KpopПродолжительность: 00:02:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBD68A12C2B3D549089CEC156AE8EA891DDE30E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1832132   (213441) от 30.10.2025
-
-Song HaYea - Why did you love me (2025) WEBRip [H.265/2160p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_213441.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: КореяЖанр: BalladПродолжительность: 00:03:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6823238861F36C4BA400B95CB1D3FB12CE3E8ADF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1832119   (213440) от 30.10.2025
-
-Winter (aespa) - Spark (2024) WEBRip [H.265/2160p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_213440.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: КореяЖанр: KpopПродолжительность: 00:03:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16D3185F76B2FE624335DDF3C2922EBD3C3DD464
 ```
 
 https://mybot314.ru/tekegram_catalog/

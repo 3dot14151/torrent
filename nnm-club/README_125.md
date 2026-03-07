@@ -1,22 +1,502 @@
-###  Публикация: 1852202   (1055616) от 06.02.2026
+###  Публикация: 1852855   (1056555) от 12.02.2026
 
-Дж. Мэтьюз, Р. Уокер | Математические методы физики (1972) [DJVU]
+Hillel Wayne | Logic for Programmers (2025) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056555.jpg" />
+</div>
+
+
+###  Подробнее
+
+Logic is the most important branch of math to software engineering. Knowing logic opens up a vast world of development techniques, from everyday tricks of the trade to exotic tools for cracking impossible tasks.
+This book teaches the basics of logic and nine special logic-powered techniques: property testing, decision tables, constraint solving, and more. Over 40 (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: LeanpubФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9037D6999B60FCDDCA7F8F6B6C37BF2619BBF2BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852854   (1056554) от 12.02.2026
+
+Florent Poux | 3D Data Science with Python. Building Accurate Digital Environments with 3D Point Cloud Workflows. 1st Edition (2025) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056554.jpg" />
+</div>
+
+
+###  Подробнее
+
+Our physical world is grounded in three dimensions. To create technology that can reason about and interact with it, our data must be 3D too. This practical guide offers data scientists, engineers, and researchers a hands-on approach to working with 3D data using Python. From 3D reconstruction to 3D deep learning techniques, you'll learn how to extract valuable insights (   Читать дальше...   )Жанр: Computer Programming Languages, Python Programming, Computer SoftwareЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:140D70FDE5FB6C281043128AB4031C66AE29FC00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1853341   (1056553) от 12.02.2026
+
+Хищник: Планета смерти / Predator: Badlands (2025) UHD BDRip [H.265/1080p] [HDR10, Dolby Vision Profile 7.6, 10-bit]
+
+>>Горячие новинки
+>>Зарубежные Новинки (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056553.jpg" />
+</div>
+
+
+###  Подробнее
+
+В глазах воинственного отца молодой хищник Дек — полное ничтожество и позор клана. Отец приказывает старшему сыну убить его, но тот ценой собственной жизни спасает брата и отправляет его на населённую агрессивными тварями планету Генна. Там Дек встречает располовиненную девушку-андроида Тию, некогда прибывшую сюда в составе экспедиции с Земли, и, чтобы доказать отцу (   Читать дальше...   )Производство: США, Австралия, Новая Зеландия, Канада, Германия / 20th Century Studios, TSG Entertainment, Deutsche FilmakademieЖанр: фантастика, боевикРежиссер: Дэн ТрахтенбергАктеры: Эль Фаннинг, Димитриус Коломатанги, Рави Нарайан, Майкл Хомик, Стефан Грубе, Рубен Де Йонг, Камерон Браун, Элисон Райт, Мэтт Даффер, Росс ДафферПеревод: Дублированный (MovieDalen)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (Forced, Full, SDH)Продолжительность: 01:47:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D62B9EB56331D5A7D853A5E9276AD0FA641D43E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852853   (1056552) от 12.02.2026
+
+Малькольм Макдональд | Грокаем безопасность веб-приложений (2025) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056552.jpg" />
+</div>
+
+
+###  Подробнее
+
+Безопасность приложений — приоритетная задача для веб-разработчиков. Вы работаете над интерфейсом фронтенд-фреймворка? Разрабатываете серверную часть? В любом случае вам придется разбираться с угрозами и уязвимостями и понимать, как закрыть, дырки через которые хотят пролезть черные хакеры.
+Здесь вы найдете все, что нужно практикующему разработчику для защиты приложений (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: ПитерФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F70911515AFC9D06812E1E010020046C3971335
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852852   (1056551) от 12.02.2026
+
+Йоаким Сунднес | Python. Системный анализ данных, расчеты и моделирование (2025) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056551.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами подробное руководство по применению в научных целях Python - современного и наиболее востребованного языка программирования. Его преимущество заключается в том, что это так называемый язык высокого уровня с простым и интуитивно понятным синтаксисом. Однако несмотря на то, что Python хорошо подходит в качестве языка для начинающих, он также активно применяется (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: АСТФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74DF7B2333A18A11D6582A17B2A45DFE8548321D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852851   (1056550) от 12.02.2026
+
+Micha Gorelick, Ian Ozsvald | High Performance Python. Practical Performant Programming for Humans. 3rd Edition (2025) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056550.jpg" />
+</div>
+
+
+###  Подробнее
+
+Your Python code may run correctly, but what if you need it to run faster? This practical book shows you how to locate performance bottlenecks and significantly speed up your code in high-data-volume programs. By explaining the fundamental theory behind design choices, this expanded edition of High Performance Python helps experienced Python programmers gain a deeper (   Читать дальше...   )Жанр: Computer Performance Optimization, Python Programming, Software DevelopmentЯзык: АнглийскийИздательство: O’Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C95BD1500740C3DF127BCBD18AC632C3EE40240
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852850   (1056549) от 12.02.2026
+
+Laurence Moroney | AI and ML for Coders in PyTorch. A Coder's Guide to Generative AI and Machine Learning (2025) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056549.jpg" />
+</div>
+
+
+###  Подробнее
+
+Eager to learn AI and machine learning but unsure where to start? Laurence Moroney's hands-on, code-first guide demystifies complex AI concepts without relying on advanced mathematics. Designed for programmers, it focuses on practical applications using PyTorch, helping you build real-world models without feeling overwhelmed.
+From computer vision and natural language (   Читать дальше...   )Жанр: Generative AI, Microsoft Programming, Python ProgrammingЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C690ABDA5B4AB21DF9CC72837C4D3E05D432BD3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852849   (1056548) от 12.02.2026
+
+Alireza Parandeh | Building Generative AI Services with FastAPI. A Practical Approach to Developing Context-Rich Generative AI Applications. 1st Edition (2025) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056548.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ready to build production-grade applications with generative AI? This practical guide takes you through designing and deploying AI services using the FastAPI web framework. Learn how to integrate models that process text, images, audio, and video while seamlessly interacting with databases, filesystems, websites, and APIs. Whether you're a web developer, data scientist, (   Читать дальше...   )Жанр: Web Services, Generative AI, Software DevelopmentЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81DBB6003DA9A422AE3FE31039A465578E97BAE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852848   (1056547) от 12.02.2026
+
+Bartosz Konieczny | Data Engineering Design Patterns. Recipes for Solving the Most Common Data Engineering Problems. 1st Edition (2025) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056547.jpg" />
+</div>
+
+
+###  Подробнее
+
+Data projects are an intrinsic part of an organization's technical ecosystem, but data engineers in many companies continue to work on problems that others have already solved. This hands-on guide shows you how to provide valuable data by focusing on various aspects of data engineering, including data ingestion, data quality, idempotency, and more.
+
+Author Bartosz (   Читать дальше...   )Жанр: Data Warehousing, Data Processing, Data Modeling & DesignЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F246461EB2E1CA02248C98133CED1064D6C79B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852847   (1056546) от 12.02.2026
+
+Antonio Di Cecco, Leonida Gianfagna | Explainable AI with Python. Second Edition (2025) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056546.jpg" />
+</div>
+
+
+###  Подробнее
+
+This comprehensive book on Explainable Artificial Intelligence has been updated and expanded to reflect the latest advancements in the field of XAI, enriching the existing literature with new research, case studies, and practical techniques.
+
+The Second Edition expands on its predecessor by addressing advancements in AI, including large language models and multimodal (   Читать дальше...   )Жанр: Python Programming, Probability & Statistics, Artificial Intelligence & SemanticsЯзык: АнглийскийИздательство: SpringerФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC3BD67FFD617AC2E6B7D43DFF8222C1BB1E89B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852846   (1056545) от 12.02.2026
+
+Matt Frisbie | Building Browser Extensions. Create Modern Extensions for Chrome, Safari, Firefox, and Edge. Second Edition (2025) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056545.jpg" />
+</div>
+
+
+###  Подробнее
+
+This book is the definitive guide to building modern browser extensions, covering everything from fundamental concepts to advanced techniques.
+
+Developing a browser extension is more like building a mobile app than a traditional website. Extensions operate within a unique environment with their own security model, lifecycle, and APIs. This book demystifies the process, (   Читать дальше...   )Жанр: Software Design & Engineering, Software Development, Web Development & Design ProgrammingЯзык: АнглийскийИздательство: ApressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34FD1754784DDF44951DD205F9A8DBF2D14A70FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852844   (1056544) от 12.02.2026
+
+Satej Kumar Sahu | Building Secure PHP Applications. A Comprehensive Guide to Protecting Your Web Applications from Threats. First Edition (2024) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056544.jpg" />
+</div>
+
+
+###  Подробнее
+
+Learn how to protect PHP applications from potential vulnerabilities and attacks. As cyberattacks and data breaches continue to rise, it's crucial for developers and organizations to prioritize security in their PHP applications. The book offers an all-encompassing guide to securing PHP applications, covering topics ranging from PHP core security to web security, (   Читать дальше...   )Жанр: Computer Network Security, Computer Programming Languages, Web Development & Design ProgrammingЯзык: АнглийскийИздательство: ApressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:909CB76401B6201065CAE69F74E8D0AFCC72AA31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852843   (1056543) от 12.02.2026
+
+Shailendra Kadre, Shailesh Kadre, Subhendu Dey | Mastering Text Analytics. A Hands-on Guide to NLP Using Python. First Edition (2025) [PDF] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056543.jpg" />
+</div>
+
+
+###  Подробнее
+
+This book is a comprehensive guide to mastering Natural Language Processing (NLP), a rapidly growing field in AI-powered text and data analytics. It equips you with tools and techniques to extract valuable insights from both structured and unstructured data, enabling you to uncover insights beyond the reach of traditional data analysis methods and stay competitive (   Читать дальше...   )Жанр: Python Programming, Probability & Statistics, Artificial Intelligence & SemanticsЯзык: АнглийскийИздательство: ApressФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9EEC98A823DDC77B5E1AC92D54F56F007E37245
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1853343   (1056542) от 12.02.2026
+
+MediaHuman YouTube Downloader 3.9.18 (1202) (x64) [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056542.jpg" />
+</div>
+
+
+###  Подробнее
+
+На YouTube можно найти много интересного, но по умолчанию вы не можете скачать видео или сохранить его в виде аудиофайла. Именно поэтому мы разработали YouTube Video Downloader. Это приложение поможет вам загружать видео быстро и без заминок. С помощью нашей программы вы можете просто скачать сразу весь плейлист или канал YouTube и смотреть его когда угодно и где (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:693C8DFAA89FDA221DC9F06475438F2E439D285E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852842   (1056541) от 12.02.2026
+
+Юрий Чернов | Искусство Agile-тестирования (2024) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056541.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена тестированию программного обеспечения в рамках технологии Agile. Рассматриваются основные аспекты Agile-тестирования: методология, организация, процессы, категории и техники тестирования, инфраструктура, тестовое обеспечение, контроль качества данных. Отдельные главы посвящены психологии Agile-тестирования и особенностям работы тестировщика в Agile-команде. (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: БХВ-ПетербургФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0814CC565100BDB8FC61A269A18F49638EB443A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852841   (1056540) от 12.02.2026
+
+В.Ю. Арьков | Частотный анализ числовых и текстовых данных. Учебное пособие (2023) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056540.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данная работа посвящена применению современных методов и технологий больших данных в курсе бизнес-аналитике и статистики. Анализ частоты появления различных значений — один из способов первоначальной обработки данных. Чаще всего его относят к описательной статистике или аналитике. Подсчет частот имеет отношение распределению. Поэтому для успешного восприятия материала (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: Издательские решенияФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:397B1A32562627BFA2B658F331F8C14F14A25931
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852840   (1056539) от 12.02.2026
+
+Валерий Рябинин | База про нейросети (2025) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056539.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга для всех, кто хочет понимать происходящее и не остаться в стороне от главной технологической трансформации нашего времени. Простым и доступным языком мы расскажем, как устроены нейронные сети, почему они стали такими мощными именно сейчас и как вы можете использовать их уже сегодня — в работе, учебе и повседневной жизни. Никаких сложных формул и программирования (   Читать дальше...   )Жанр: Компьютерная литература, Искусственный интеллектИздательство: СамиздатФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EF16A6FFF4C633DD6E22235FD2775DF38391F8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852839   (1056538) от 12.02.2026
+
+Сергей Тарасевич | Искусственный интеллект. Основное (2024) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056538.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга для начинающих пользователей искусственного интеллекта.
+Цель книги - быстро дать начальные знания об искусственном интеллекте, захватывающей и перспективной теме и знания для начала использования его в работе и жизни. Книга написана простым и понятным языком.
+В книге используются актуальные на сегодняшний день термины в программировании и науке. В дальнейшем, (   Читать дальше...   )Жанр: Компьютерная литература, Искусственный интеллектИздательство: СамиздатФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73D91E78FFE1139E5BCA7561B2B2A0044C43F472
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852838   (1056537) от 12.02.2026
+
+Д.Ю. Петров, Е. Окорокова | Японский язык. 16 уроков. Базовый курс (2024) [PDF]
 
 >>Научная и техническая литература
->>Точные и естественные науки
+>>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055616.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056537.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В книге излагаются математические методы, наиболее часто используемые при решении физических, задач. В отличие от других учебников аналогичной тематики авторы делают ударение на обучение математическим методам посредством решения простых примеров. Во многих примерах содержатся нетривиальные трюки, дающие возможность быстро и красиво решить поставленную проблему. (   Читать дальше...   )Жанр: МатематикаИздательство: АтомиздатФормат: DJVUКачество: Обработанный скан
+Это серия самоучителей от знаменитого полиглота и синхронного переводчика Дмитрия Петрова. Он уверен: чтобы заговорить на иностранном языке, совсем не обязательно посвящать его изучению десятилетия. Гораздо важнее освоить базовые алгоритмы плюс минимально необходимый для общения запас слов.
+И все это вполне возможно сделать за 16 уроков, что сам Дмитрий Петров много (   Читать дальше...   )Жанр: Языки, самоучителиИздательство: ЭксмоФормат: PDFКачество: OCR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B7FB698614E868C8F76376E3075847BF3FD61C92
+magnet:?xt=urn:btih:441A193D0DDF22722F1B5967F8EA311816DFE166
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,26 +504,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852201   (1055615) от 06.02.2026
+###  Публикация: 1852837   (1056536) от 12.02.2026
 
-Ф.М. Морс, Г. Фешбах | Методы теоретической физики [2 книги] (1958 - 1960) [DJVU]
+Р.А. Гонсалес, Р.Р. Алимова | Испанский на все случаи жизни. Полезный самоучитель (2017) [PDF]
 
 >>Научная и техническая литература
->>Точные и естественные науки
+>>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055615.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056536.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Двухтомный курс Ф. Морса и Г. Фешбаха занимает особое место в литературе по математической физике. Он написан физиками для физиков и инженеров и показывает в действии математические методы, наиболее успешно применяемые при изучении различных полей.
-В книге излагается ряд важнейших разделов современной математики в плане их применения к задачам физики и техники. Большим (   Читать дальше...   )Жанр: МатематикаИздательство: Издательство иностранной литературыФормат: DJVUКачество: Обработанный скан
+В книге в предельно доступной форме объясняется все самое необходимое из лексики и грамматики испанского языка. Ко всем словам и выражениям дается транскрипция русскими буквами, что позволяет использовать это пособие еще и как разговорник. Самоучитель содержит языковые подсказки, в которых объясняются основные элементы грамматики. Кроме того, приводятся списки полезных (   Читать дальше...   )Жанр: Языки, самоучителиИздательство: АСТФормат: PDFКачество: OCR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F9BC504AB07997E08DCD0FEDA7D66375C3B4A049
+magnet:?xt=urn:btih:C119A55AFDF2865790B74321E7BC03971E69F734
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -51,28 +530,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852181   (1055613) от 06.02.2026
+###  Публикация: 1852834   (1056535) от 12.02.2026
 
-VA - Ori Uplift - Uplifting Only Episode 678 (2026) [MP3|320 Kbps] <Trance, Uplifting Trance>
+Ксения Поляк | Приключения Шерлока Холмса. Коллекция загадок и головоломок (2025) [PDF]
 
->>Electronic
->>Radioshow, Live Mixes
+>>Разное (категория книг)
+>>На досуге
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055613.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056535.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. BarWall & Ria Joyse – Tell Me Why
-02. BiXX & That Girl – Walk On Water (Pre-Release Pick)
-03. Vinny DeGeorge – Entrancing Love (Orchestral Uplifting Classic)
-04. Aly & Fila, Jwaydan – We Control The Sunlight (Darren Porter Remix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:03:45
+Погрузитесь в атмосферу викторианского Лондона: расшифруйте таинственные послания, найдите улики, раз гадайте логические задачи и помогите Холмсу и Ватсону раскрыть запутанные дела. Красочные иллюстрации, головоломки разной сложности и фрагменты знаменитых расследований превратят чтение в увлекательную тренировку для ума. Книга развивает аналитическое мышление, внимание (   Читать дальше...   )Жанр: Головоломки, ЗагадкиИздательство: АСТФормат: PDFКачество: OCR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:220891A3A20306C88165CD9E4F3095556CF78CB0
+magnet:?xt=urn:btih:BF53AD507BDD3A5384C4E0427834D24264FC212B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -80,28 +556,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852177   (1055612) от 06.02.2026
+###  Публикация: 1852833   (1056534) от 12.02.2026
 
-VA - Armin van Buuren - A State Of Trance 1263 (2026) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+С.А. Молодяков, А.В. Милицын | Алгоритмы работы с мультимедийными данными в telegram-боте (100 примеров на Python) (2024) [PDF]
 
->>Electronic
->>Radioshow, Live Mixes
+>>Компьютерная литература
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055612.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056534.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Cosmic Gate ft. Ava Silver – Let It All Out
-02. Estiva – Running
-03. OTTAGON ft. Lake Silver – What The Future Holds
-04. Armin van Buuren & Glockenbach – Sun Shines On Me (Rising Star Remix)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:01:26
+В монографии излагаются вопросы постоения программ редактирования медийных данных, которые реализованы в виде telegram-бота. В представленных алгоритмах редактирования аудио и видео файлов используются функции библиотек OpenCV, FFmpeg и другие. Приведены 100 примеров полностью рабочих программ, написанных на языке Python. Примеры разделены по главам: алгоритмы преобразования (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: ПОЛИТЕХ-ПРЕССФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E02A9098AFD5770A5A022E8D7661F4541C659216
+magnet:?xt=urn:btih:E7175079FB6C8CF96E70982525B61996FB3969D1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -109,26 +582,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852161   (1055610) от 06.02.2026
+###  Публикация: 1852832   (1056533) от 12.02.2026
 
-Иван Путилин | Сорок лет среди грабителей и убийц (2023) [MP3, Алексей Воскобойников]
+П.А. Головинский, А.А. Дробышев, Е.А. Михин | Основы математического моделирования и оптимизации на языке Python. Учебно-методическое пособие (2023) [PDF]
 
->>Художественные аудиокниги и публицистика
->>Другие аудиокниги
+>>Компьютерная литература
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055610.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056533.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Русский Шерлок Холмс, гений дедукции, легенда уголовного сыска – всё это о первом начальнике Санкт-Петербургской сыскной полиции Иване Путилине.
-Самые яркие преступления, прогрессивные по тем временам методы работы, психологические уловки, секреты уголовного мира – обо всем он расскажет сам в своих воспоминаниях! Иван Дмитриевич Путилин (1830–1893) – легенда отечественного (   Читать дальше...   )Жанр: Биографическая проза, Дореволюционная РоссияИздательство: ИДДКПродолжительность: 09:09:30
+В пособии представлены основные методы применения языка Python для решения задач моделирования, оптимизации и обработки данных. Каждая рассмотренная тема включает краткие теоретические сведения, подробный разбор практической работы, индивидуальные варианты заданий и контрольные вопросы по теме.Жанр: Компьютерная литератураИздательство: Знание-МФормат: PDFКачество: OCR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:92B4320B2F6622C36F3A6A39A4C5A4179A6C07CA
+magnet:?xt=urn:btih:9540679B91907EC20A76FA57C3EF5D24E26E9C7B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -136,26 +608,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852146   (1055609) от 06.02.2026
+###  Публикация: 1852786   (1056532) от 12.02.2026
 
-Юрий Мороз | Ваше кредо вечно второй? Истина в тезисах. Юрий Мороз (2007) [MP3, Воронин Александр]
+И.И. Зайнуллин | Заработок в крипте. Все легальные способы (2025) [PDF]
 
->>Обучающие аудиоматериалы
->>Бизнес и Менеджмент (аудиоматериалы)
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055609.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056532.jpg" />
 </div>
 
 
 ###  Подробнее
 
-...А теперь, как и положено в наше время - рекламная пауза. Несколько слов обо мне, то есть об авторе.
-Ну что сказать. На момент написания этой книги я уже 14 лет как предприниматель. То есть живу на доходы, а не на зарплату. Явился учредителем и совладельцем за это время более тридцати фирм. Начиная от аудиторских фирм и кончая, ну, например, кооперативом по закупке (   Читать дальше...   )Жанр: БизнесИздательство: ООО "Диск Про" МоскваПродолжительность: 09:59:23
+Полное руководство по всем способам заработка в мире криптовалют — от майнинга и стейкинга до NFT и трейдинга. Каждая глава — отдельная пошаговая модель с анализом рисков, затрат и правовых аспектов. Книга создана для обучения, а не для спекуляций — это системное исследование экономики цифровых активов.Жанр: ФинансыИздательство: Издательские решенияФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AAD341896417DAB0C338F13B4906078FFC5136BF
+magnet:?xt=urn:btih:E0D7A1BB131811D23AE17ED26E46B02AEE006309
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -163,26 +634,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852103   (1055608) от 06.02.2026
+###  Публикация: 1852787   (1056531) от 12.02.2026
 
-Себастьян Фитцек | Календарная девушка (2024) [FB2, EPUB, MOBI]
+Алексей Марков | Хулиномика 6.2: хулиганская экономика. Еще толще. Еще длиннее (2025) [PDF]
 
->>Художественная литература
->>Боевики, Детективы, Триллеры
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055608.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056531.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Представьте: ваша дочь умирает. Ей срочно нужен донор костного мозга, а вы — приёмная мама и не можете помочь. В секретных документах об усыновлении — зловещая запись: «Мать в смертельной опасности, ни в коем случае не раскрывать!»
-   Чтобы спасти ребёнка, психолог Оливия бросается на поиски биологических родителей. Но чем глубже она копает, тем страшнее правда: всё (   Читать дальше...   )Жанр: Детектив, триллерПеревод: Иван ВисычЯзык: русскийИздательство: Droemer KnaurФормат: FB2, EPUB, MOBIКачество: Изначально электронное (ebook)
+Идеальный учебник для тех, кто не любит учиться по скучным талмудам!
+Экономика - это очень скучно. Куча непонятны заумных слов и формул? Кто вам такое сказал? Экономика это интересно и просто! Вы просто не знаете, с каким соусом ее нужно подавать, на какой стороне пережевывать и долго ли жевать. Самое полное издание.Жанр: Бизнес литература, экономикаИздательство: АСТФормат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CD7E042663775763B688AC908E3B8FBB5A7ABB2A
+magnet:?xt=urn:btih:3FC904FAF0B8B8E5345470704BB185654381A696
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -190,508 +661,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851643   (1055607) от 06.02.2026
+###  Публикация: 1852790   (1056530) от 12.02.2026
 
-Madonna - Like A Prayer  1989 (2005) Reissue [FLAC|Lossless|image + .cue] <Pop Rock>
+Говард  Саспортас | Боги перемен. Уран, Нептун, Плутон. (Том 1-2) [2 книги] (2023) [PDF]
 
->>Pop
->>Зарубежная поп-музыка (Lossless)
+>>Разное (категория книг)
+>>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055607.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056530.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Pop Rock
-Производитель диска (релиза): JapanПродолжительность: 00:51:15
+Говард Саспортас - доктор психологии, астролог, глава и со-основатель, вместе с Лиз Грин, Центра Психологической Астрологии. Данная книга «Боги Перемен», уже ставшая классической, объясняет, как работать с транзитами Урана, Нептуна и Плутона.
+Знаком ли вам странный, чарующий зов, загадочный прорыв энергии из самых глубин вашего существа? Идеи, безумные и прекрасные, (   Читать дальше...   )Жанр: АстрологияИздательство: КасталияФормат: PDFКачество: OCR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E6435190956256CBE0BBAC11E465B1CD018F2DC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851791   (1055606) от 06.02.2026
-
-Terra Incognita (Prem Joshua, Chinmaya Dunster) - No Goal but the Path (1993) [FLAC|Lossless|tracks + .cue] <World Fusion>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055606.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shepherd’s Dream
-02. Amazonas Juan
-03. Darshan
-04. Bop Du Bop(   Читать дальше...   )Жанр: World FusionПродолжительность: 00:46:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC7DC97AB27878F28CB7865A2D2D0696E42D632F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851891   (1055605) от 06.02.2026
-
-Дем Михайлов | Компиляции циклов [6 циклов] (2011-2026) [FB2, EPUB]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055605.jpg" />
-</div>
-
-
-###  Подробнее
-
-Руслан Алексеевич Михайлов (творческий псевдоним Дем Михайлов) — русский писатель-фантаст, один из основоположников русского литРПГ. Родился 23 ноября 1979 года в городе Заравшан Узбекской ССР, СССР.
-Известен своими произведениями в жанрах фэнтези, LitRPG и реалРПГ, в частности, по циклу «Господство клана Неспящих»(ГКН).Жанр: Фантастика, Боевая фантастика, Антиутопия, ЛитРПГ, ФэнтезиИздательство: СамиздатФормат: FB2, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD7F0D7466DAC2A37C4206B83C1F2FC7A2D38BB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851937   (1055604) от 06.02.2026
-
-One Direction - Up All Night (2012) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055604.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What Makes You Beautiful [0:03:18.54]
-02. Gotta Be You [0:04:01.59]
-03. One Thing [0:03:17.14]
-04. More Than This [0:03:48.52](   Читать дальше...   )Жанр: PopПродолжительность: 00:45:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B268081388719C74CA7BD92F45F684AAF5D2B638
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852057   (1055603) от 06.02.2026
-
-Олег Сапфир, Юрий Винокуров | Цикл "Повар. Правила волшебной кухни" [2 книги] (2025-2026) [FB2] [Обновляемая]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055603.jpg" />
-</div>
-
-
-###  Подробнее
-
-“Всё не то, чем кажется” (с) Официальный слоган книги
-
-Мой дед привел род к величию, а мои родители… Нет, не уничтожили его и не ослабили. Даже наоборот - род процветает, как никогда раньше. Вот только методы, которыми они используют наш родовой дар (и которыми зарабатывают), заставили бы перевернуться деда в гробу. Да, к чёрту приуменьшения! Уверен, что он сейчас (   Читать дальше...   )Жанр: Городское фэнтези, Бытовое фэнтези, ЮморИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:984DFAF8935EC7155B7C394113EE84B2341A0EFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852122   (1055602) от 06.02.2026
-
-Тим Волков, Андрей Посняков | Земский докторъ (Книга 1). Новая жизнь (2025) [MP3, Николай Бырев]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055602.jpg" />
-</div>
-
-
-###  Подробнее
-
-Не думал, не гадал талантливый столичный хирург Артем, что, вступившись за незнакомую девушку, самым трагическим образом очнется в теле юного земского врача Ивана Палыча Петрова. Уезд – жуткое захолустье, и столь же жуткая больница, которую надо еще поднимать. Нет ни лекарств, ни наркоза, ни дезинфекции – вообще ничего нет! Но есть пациенты, и их надо лечить – на (   Читать дальше...   )Жанр: фантастика, приключения, попаданцыИздательство: ИДДКПродолжительность: 08:28:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA2D11089488E1CB3B47A2D7418D9FAE36BC6A2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852110   (1055601) от 06.02.2026
-
-Влад Техномак | Механоид (Книга 1). Механоид (2023) [MP3, Радион Нечаев]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055601.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ещё вчера он был обычным кадетом, а сегодня – уже в теле боевого робота защищает людей от монстров Роя. Правда, его «железка» устарела лет так на сто… Но ничто не помешает прокачивать и апгрейдить новое тело за собранную эссенцию.В руках оружие, в груди мистическое ядро, а рядом верный напарник. И цель – найти тех, кто ответственен за появление Роя на планете.Жанр: LitRPG, Боевая фантастика, Героическая фантастика, Космическая фантастика, РеалРПГИздательство: Аудиокнига своими рукамиПродолжительность: 09:10:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5133CEB74EC707C6A2ACA7CA8F6DCCBD33B0D1C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852111   (1055600) от 06.02.2026
-
-Влад Техномак | Механоид (Книга 2). Сердце Роя (2023) [MP3, Радион Нечаев]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055600.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ещё вчера он был обычным кадетом, а сегодня — уже в теле боевого робота защищает людей от монстров Роя. Правда, его «железка» устарела лет так на сто... Но ничто не помешает прокачивать и апгрейдить новое тело за собранную эссенцию.
-В руках оружие, в груди мистическое ядро, а рядом верный напарник. И цель — найти тех, кто ответственен за появление Роя на планете. (   Читать дальше...   )Жанр: Биотехнологии, Боевая фантастика, Космос, ПриключенияИздательство: Аудиокнига своими рукамиПродолжительность: 08:23:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:026A58C56CBFF423B81E7F802B7D59AAA5182CFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852112   (1055599) от 06.02.2026
-
-Влад Техномак | Механоид (Книга 3). Призрачная стража (2024) [MP3, Радион Нечаев]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055599.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фалор - фронтирная планета Т-Нуль-Пространства, кишащая самыми редкими видами Роя. Идеальное место для опытных механоидов, чтобы собрать побольше эссенции, ресурсов, реликтовых предметов - и просто получить незабываемый боевой опыт. Казалось бы, что может пойти не так? Команде Экелза придется столкнуться не только с тварями Роя, но и ветеранами-механоидами. Но любые (   Читать дальше...   )Жанр: Боевая фантастика, Боевые роботыИздательство: ЛитРесПродолжительность: 07:39:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9B124D470716A85F62E6B5391F1635539D89096
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852113   (1055598) от 06.02.2026
-
-Влад Техномак | Механоид (Книга 4). Демонстрация силы (2024) [MP3, Радион Нечаев]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055598.jpg" />
-</div>
-
-
-###  Подробнее
-
-Город Механоидов — место проведения отборочного этапа Королевской охоты. Здесь собрались сильнейшие фавориты фракций, а за порядком следит Призрачная стража.
-
-Экелзу и команде предстоит пройти отборочные испытания и доказать свою силу. Только враги не спят и стараются всеми силами помешать достигнуть целей, а руководство проекта втягивает команду во внутренние интриги. (   Читать дальше...   )Жанр: Фантастика, фэнтези, LitRPGИздательство: Аудиокнига своими рукамиПродолжительность: 08:07:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5075AB7DCB52F04F8B394C7F5FE21F8F0E072D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852116   (1055597) от 06.02.2026
-
-Влад Техномак | Механоид (Книга 5). Королевская охота (2025) [MP3, Радион Нечаев]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055597.jpg" />
-</div>
-
-
-###  Подробнее
-
-Королевская охота началась! Экелз и его команда оказываются втянуты в непредсказуемую смертельную игру. Теперь ему предстоит бороться не только с другими участниками, но и с кандидатами в группу Герцога. И, конечно, по возможности избежать внимания охотников за модуляторами... Так или иначе, Экелзу придется доказать, что он достоин звания фаворита.Жанр: Боевая фантастика, ПриключенияИздательство: Аудиокнига своими рукамиПродолжительность: 08:24:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21ABBBC08885AE5F6B398477D1447CAA1DA0137D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852119   (1055596) от 06.02.2026
-
-Илья Савич | Капитан Волхов (Книга 1). Грех (2022) [MP3, Андрей Балдук (Абаддон)]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055596.jpg" />
-</div>
-
-
-###  Подробнее
-
-Город сотрясает жестокое убийство сбежавших заключенных. Их раны настолько жуткие, что сначала всё списывают на диких животных, но скоро происходит ещё более громкое убийство. Жители города называют неизвестного карателя Жнецом.
-Игорь Волхов, капитан полиции, вынужден расследовать это дело. В ходе работы он выясняет, что убийца – не простой человек. Здесь замешаны (   Читать дальше...   )Жанр: Ужасы, Мистика, ДетективИздательство: Аудиокнига своими рукамиПродолжительность: 05:46:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8E131965E888FCE469FC7660CC46794B8736DDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852120   (1055595) от 06.02.2026
-
-Илья Савич | Капитан Волхов (Книга 2). Покаяние (2023) [MP3, Андрей Балдук (Абаддон)]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055595.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игорь Волхов провёл почти год в одиночной камере, но сумел сохранить ясность разума. Уже привыкнув к своему положению, он вдруг обрёл свободу, но её цена оказалась немалой. Новая личность, новый город, новое расследование и новые преграды. Получится ли у него остаться верным себе или то, с чем он столкнётся, навсегда изменит его?Жанр: Ужасы, мистикаИздательство: Аудиокнига своими рукамиПродолжительность: 03:25:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F5039CB215F038E7BC579948F2F3BBA530710BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852121   (1055594) от 06.02.2026
-
-Илья Савич | Капитан Волхов (Книга 3). Искупление (2023) [MP3, Андрей Балдук (Абаддон)]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055594.jpg" />
-</div>
-
-
-###  Подробнее
-
-Волхов возвращается в родной город, чтобы спасти похищенную Марину. Саша, спасённый в особняке Железнова, следует за ним в надежде отплатить долг. Старые знакомые, друзья и враги Игоря живут своей жизнью, но появление Жнеца отразится на каждом из них.Жанр: Мистика, УжасыИздательство: Аудиокнига своими рукамиПродолжительность: 02:49:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90968607DB36E60629196FE0B5886EC236EEC33A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852228   (1055593) от 06.02.2026
-
-Полина Минк | Нечеловеческое. Очень страшные истории (Сборник) (2024) [MP3, Светлана Хомякова]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055593.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник «Нечеловеческое. Очень страшные истории» состоит из трех жутких мистических произведений. Штрих за штрихом рисуя картину, которая могла бы скрываться за завесой тайны между знакомым миром и нечеловеческим, они порой заставляют содрогнуться от увиденного. Персонажи историй сталкиваются со сверхъестественным злом и пытаются противостоять ему, попутно догадываясь (   Читать дальше...   )Жанр: Мистика, УжасыИздательство: ЛитРесПродолжительность: 03:21:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D11684311B1204485B0241856BFF7D50EE0A9E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852230   (1055592) от 06.02.2026
-
-Полина Минк | Нечеловеческое. Чертова лирика (2025) [MP3, Джульетта]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055592.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Нечеловеческое. Чертова лирика» – это сборник из пяти леденящих кровь историй о потустороннем, каждая из которых приправлена загадочным и мрачным поэтическим предисловием.Рассказы «Продается дом с бассейном», «Здравствуй, тетя!», «Общество больно», «Монстр живет в ванной» и «Пятно на стене» поднимают животрепещущие темы, заглядывают в темные уголки человеческой (   Читать дальше...   )Жанр: Мистика, Ужасы, ТриллерИздательство: ЛитРесПродолжительность: 04:22:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7E1878137F214AA765FCD07EBE79A9656DCDF98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851851   (1055591) от 06.02.2026
-
-Новый космический корабль SpaceX Dragon доставлен на стартовую площадку
-
->>След.
->>Новости
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055591.jpg" />
-</div>
-
-
-###  Подробнее
-
-Космический корабль Dragon доставлен в ангар на стартовой площадке № 40 перед предстоящим запуском миссии Crew-12, о чем рассказали в SpaceX.Запуск пилотируемой миссии Crew-12 к Международной космической станции, в состав которой входит космонавт Роскосмоса Андрей Федяев, состоится не ранее 11 февраля. Об этом сообщило NASA, уточнив, что старт возможен в 14:00 по (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852227   (1055590) от 06.02.2026
-
-Планета обезьян / Planet Of The Apes (2011 - 2024) UHD BDRip [AV1/2160p] [4K, HDR, Dolby Vision Profile 10.1, 10-bit] [Квадрология]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055590.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сага представляет собой получившую признание критиков современную перезагрузку оригинальной серии, повествующую о возвышении, правлении разумных обезьян и падении человеческой цивилизации, а так же о наследии Цезаря.Производство: США, Великобритания, Канада / 20th Century Fox Film Corporation, Chernin Entertainment, Ingenious Media, TSG Entertainment, Fox Studios Australia, Jason T. Reed Productions, Oddball EntertainmentЖанр: фантастика, боевик, триллер, драма, приключенияРежиссер: Руперт Уайатт, Мэтт Ривз, Уэс БоллАктеры: Энди Серкис, Карин Коновал, Терри Нотари, Тоби Кеббелл, Оуэн Тиг, Питер Макон, Фрейя АлланПеревод: Дублированный, Многоголосый профессиональный, Авторский, Одноголосый любительскийЯзык озвучки: русский, английскийСубтитры: русские (Forced, Full, Commentary), английские (Forced, Full, SDH, Commentary)Продолжительность: 01:44:56 | 02:10:24 | 02:20:09 | 02:24:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C8D0B73AC98700FE6E51DE83F88F19995CC241B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851528   (1055589) от 06.02.2026
-
-Себастьян Фитцек | Плейлист (2021) [FB2, EPUB, MOBI]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055589.jpg" />
-</div>
-
-
-###  Подробнее
-
-Себастьян Фитцек — главный автор психологических триллеров в Германии и настоящий литературный феномен. Его книги мгновенно становятся бестселлерами, а сам он по праву считается мастером саспенса, способным заставить читателя сомневаться в реальности до самой последней страницы.
-   Пятнадцатилетняя Фелин бесследно исчезла по дороге в школу. У полиции нет ни единой зацепки, (   Читать дальше...   )Жанр: Детектив, триллерПеревод: Иван ВисычЯзык: русскийИздательство: Droemer KnauФормат: FB2, EPUB, MOBIКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A3429C9ECB29874A5119BA1556C36DDDD418FCD
+magnet:?xt=urn:btih:145672374C55EEF556FE44555D83D91E7AC542FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

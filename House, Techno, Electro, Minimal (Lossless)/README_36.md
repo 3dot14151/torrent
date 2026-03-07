@@ -1,3 +1,119 @@
+###  Публикация: 1040580   (586492) от 05.08.2016
+
+VA - Mixmag Germany presents Einmusik (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pete Grace & Thomas Gandey - Carried On (Betoko remix) [07:32]
+02. Darlyn Vlys - Colours (feat Forrest - Tim Engelhardt remix) [07:48]
+03. Third Son - Atonal Impression (original mix) [06:11]
+04. Fat Sushi - Hana (original mix) [06:17](   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 02:55:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:291297818A0A6116C242727FBB22E77BB17E7850
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552901   (584751) от 23.05.2022
+
+VA - Anjunabeats Worldwide 10 (Mixed By Fatum) (2022) DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_584751.jpg" />
+</div>
+
+
+###  Подробнее
+
+[5:56] 01. Tinlicker - You Take My Hand
+[5:25] 02. Luccio - Try
+[3:29] 03. Rodg - Sola
+[4:05] 04. Genix - I'm Awake (Anden Remix)(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 01:35:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53AEF700ABBA3E8C81B4806FA3D371BE221389C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 919580   (583009) от 19.07.2015
+
+VA - Sirup House Anthems Las Vegas 2015 (2015) [FLAC|Lossless|WEB-DL]<Progressive House, House, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_583009.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lika Morgan - Relax (Don't Do It) (Short Edit) [2:44]
+02. Shanahan - Hold On (Radio Mix) [3:32]
+03. Esquire - Over Now (Darone Radio Mix) [3:39]
+04. EDX - Empathy (Radio Edit) [3:10](   Читать дальше...   )Жанр: Progressive House, House, Deep HouseПродолжительность: 01:01:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AC50C53502F0E9FD539F9A5E568626936263773
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 919457   (582863) от 19.07.2015
+
+VA - Ministry Of Sound: Sessions Twelve (Mixed By Tenzin & Generik) (2015) [FLAC|tracks + .cue]<Club House,House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_582863.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alison Wonderland - Run (Radio Edit) [3:35]
+02. What So Not - Gemini [3:32]
+03. Kygo feat. Conrad Sewell - Firestone [3:15]
+04. Duke Dumont - The Giver (Reprise) (Reprise) [3:17](   Читать дальше...   )Жанр: Club House,HouseПродолжительность: 01:15:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42F80ED3B8A7ED984D419CBB4522B8A07520841A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 919378   (582799) от 19.07.2015
 
 VA - Ministry Of Sound - Chilled House Ibiza 2015 (2015) [FLAC|Lossless|WEB-DL]<Club-House,House>
@@ -631,122 +747,6 @@ Rafael Cerato & The White Shadow - Distance (2016) [FLAC|Lossless|WEB-DL|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4EC2AD77F3BCA0F9313464DDC289C597DF4DC164
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922532   (569925) от 28.07.2015
-
-Alter Ego - Alter Ego (1995) [FLAC|tracks +.cue]<Techno, Acid Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569925.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soulfree (11:59)
-02. Atomic Playground (7:17)
-03. Sentimental Books (4:56)
-04. Nude Restaurant (13:00)(   Читать дальше...   )Жанр: Techno, Acid AmbientПродолжительность: 01:03:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23B94497DDA915A31A52C6817F121E60CBACC542
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 689841   (569841) от 15.08.2013
-
-VA - Eclettica (Compiled By Glass Coffee) - 2013 [FLAC|Lossless|WEB-DL|KLCD 081 ]<Deep House, Electronic>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569841.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Haraket - Taint (Mokadem remix)
-02. Glass Coffee - Shining Love
-03. Nosaj Thing - Eclipse/Blue (feat Kazu Makino)
-04. Allone - Look At The Doorway Boys(   Читать дальше...   )Жанр: Deep House, ElectronicПродолжительность: 01:15:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07502A6E5D9CC94FC78CBAFBE5673BBCEC791A85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304008   (569485) от 23.05.2019
-
-Useless - Urban Jungle (1997) Single [FLAC|Lossless|tracks + .cue] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569485.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Urban jungle (4:11)
- 02. Urban jungle (jungle mix) (4:39)
- 03. Envoie-moi au ciel Scotty (4:45)
- 04. Envoie-moi au ciel Scotty (acid mix) (9:59)Жанр: TechnoПродолжительность: 00:23:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A74165DA7C89A1A1AC1D22014417227C067F71D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152536   (565374) от 23.07.2017
-
-Calvin Harris - Funk Wav Bounces Vol. 1 (2017) [FLAC|Lossless|tracks + .cue] <Electronic, Funk, Dance-Pop>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565374.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slide (feat. Frank Ocean & Migos) (3:50)
-02. Cash Out (feat. D.R.A.M., PARTYNEXTDOOR & Schoolboy Q) (3:55)
-03. Heatstroke (feat. Ariana Grande, Pharrell Williams & Young Thug) (3:49)
-04. Rollin (feat. Future & khalid) (4:32)(   Читать дальше...   )Производство: Columbia – 889854 43422Жанр: Electronic, Funk, Soul, Dance-PopПродолжительность: 00:37:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C25ED8114084854EE3064A67354A37602FC8FB83
 ```
 
 https://mybot314.ru/tekegram_catalog/

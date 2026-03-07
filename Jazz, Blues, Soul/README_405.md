@@ -1,3 +1,235 @@
+###  Публикация: 1628234   (233322) от 22.04.2023
+
+George Shearing - Conception (1944 - 1958) 2015, Sound Of Yester Year [FLAC|Lossless|tracks + .cue] <Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_233322.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Move [3:20]
+02. I'll Never Smile Again [3:15]
+03. Swedish Pastry [2:53]
+04. I'll Be Around [3:16](   Читать дальше...   )Жанр: Bop, Piano JazzПродолжительность: 01:18:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E79B5579329025937338D2446079D5CBF599BF7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577119   (233291) от 17.09.2022
+
+Kenny Barron & Mulgrew Miller - The Art of Piano Duo: Live (2005, 2011) 3CD, 2019, Groovin' High [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_233291.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Stars Fell on Alabama [12:26]
+02. When Lights Are Low [14:11]
+03. Recordame [13:20](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 03:12:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B17F184530307032C7501009C61D6D0E0250227D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1644961   (233178) от 07.07.2023
+
+Brian Culbertson - The Trilogy, Pt. 3: White (2022) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_233178.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prelude
+02. Stars
+03. Step into Love
+04. Dance With Me Tonight(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:51:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86F1D0DD52292F99DF645EF680A3ACD6B80EE74E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642826   (233165) от 29.06.2023
+
+Sonny Rollins - Milestone Profiles (1972 - 2000) 2CD, 2006, Milestone [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_233165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joe Henderson - The Kicker [4:09]
+02. McCoy Tyner - Song for My Lady [7:33]
+03. Flora Purim - Dindi [3:37]
+04. Jim Hall & Ron Carter Duo - St. Thomas [4:48](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:56:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B50888EEDFB21EFD576C5E0231731744B2D4D9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645598   (233142) от 10.07.2023
+
+Charlie Byrd - Four Classic Albums (1957 - 1960) 2CD, 2014, Avid Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool, Latin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_233142.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bobby In Bassoonville [4:28]
+02. Satin Doll [4:43]
+03. Tri-X [4:31]
+04. Conversation Piece [3:34](   Читать дальше...   )Жанр: Mainstream Jazz, Cool, Latin JazzПродолжительность: 02:38:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B18D12F885F1061128195CBA8F9A723A3CF373A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1644902   (233130) от 07.07.2023
+
+Carlos Yebenes (Yébenes) & Dr. Blues Band - Las cosas de la vida (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_233130.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Las cosas de la vida (4:02)
+02. La Chica Del Metro (5:06)
+03. Mil Lágrimas (5:34)
+04. Su cabello negro (5:35)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80F547E052B70652E81084CC8FBF7DFEA2C179B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642896   (233118) от 29.06.2023
+
+Bill McGee - The Tree of Life (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_233118.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Christian De Mesones - Flight Time (4:31)
+02. Brandon Lane - Life Got In The Way (5:01)
+03. Ken Friend - Summers In Surry (3:43)
+04. Reco Winn - On And On (4:30)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:52:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:311F99A669595CDB4EA539AED0FD81C88007C661
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642901   (233105) от 29.06.2023
+
+Rob Zinn - Anything Can Happen (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_233105.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take That! (4:16)
+02. All In (3:47)
+03. Amante (5:41)
+04. Anything Can Happen (4:41)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:45:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C1CB44DA229D682E956164E0ACE99F06577F6BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1539841   (233093) от 27.03.2022
 
 Illinois Jacquet & His Big Band - Jacquet's Got It! (1987) Atlantic [WavPack|Lossless|image + .cue] <Mainstream Jazz, Big Band>
@@ -513,238 +745,6 @@ Sidney Bechet - 1949, Vol. 3 (2002) Classics [FLAC|Lossless|tracks + .cue] <Dixi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF9033F28ECAC0BD1427025B6BA117687A64E017
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541542   (232882) от 03.04.2022
-
-Lionel Hampton - The Complete Lionel Hampton Victor Sessions (1937 - 1941) 5CD, 2008, Mosaic Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232882.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01:
-01. My Last Affair [2:35]
-02. Jivin' The Vibres [2:22]
-03. The Mood That I'm In [2:42](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 05:21:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58357CC6DB3457209734690CA5F22ECCCD77ED7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605736   (232864) от 19.01.2023
-
-The Count Basie Orchestra directed by Scotty Barnhart - Live At Birdland (2021) 2CD, Candid Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232864.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Introduction [0:17]
-02. The Kid from Red Bank [3:13]
-03. Who, Me? [5:10](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 02:30:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:244C0B1DCE3C2C2BCBF894845DE3657AD25EAEBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606439   (232820) от 22.01.2023
-
-Eddie Condon - Bixieland (1955) 2005, Membran Music [FLAC|Lossless|tracks + .cue] <Dixieland, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. At The Jazz Band Ball [4:47]
-02. Ol' Man River [3:31]
-03. I'll Be A Friend With Pleasure [2:50]
-04. Singin' The Blues [4:20](   Читать дальше...   )Жанр: Dixieland, SwingПродолжительность: 00:39:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05470C07C4AAEF2903978CA8A8553CF6627B8E55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645397   (232800) от 09.07.2023
-
-The Jimmy Giuffre 3 - The Easy Way (1959) 2003, Verve Records [FLAC|Lossless|tracks + .cue] <Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232800.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Easy Way [5:57]
-02. Mack The Knife [4:55]
-03. Come Rain or Come Shine [4:32]
-04. Careful [6:30](   Читать дальше...   )Жанр: CoolПродолжительность: 00:40:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B6B8274DC072EDD790BE70768D4EF1E89AFA75D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639371   (232797) от 13.06.2023
-
-Kenny Drew Jr. Trio - Portraits Of Charles Mingus & Thelonious Monk (1995) Claves Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232797.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Work [5:18]
-02. Ruby My Dear [6:42]
-03. Peggy's Blue Skylight [9:05]
-04. Light Blue [3:50](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 01:00:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B9044DDA458A0FE08550AE45E12396A605A9A5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639363   (232761) от 13.06.2023
-
-Dizzy Gillespie Quintet featuring Lalo Schifrin - A Musical Safari (1961) 2015, Solar Records [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232761.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Announcements by Duke Ellington & Dizzy Gillespie [2:17]
-02. Desafinado [3:35]
-03. Lorraine [3:51]
-04. Long, Long Summer [8:48](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 01:19:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DFBA0E0EFB5BC1636AA2A1E457A34EA16E32176
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639374   (232716) от 13.06.2023
-
-Emmet Cohen - Uptown In Orbit (2022) Mack Avenue [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232716.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Finger Buster [4:11]
-02. Uptown in Orbit [8:13]
-03. My Love Will Come Again [5:37]
-04. Spillin' the Tea [7:06](   Читать дальше...   )Жанр: Mainstream Jazz, Post-Bop, Piano JazzПродолжительность: 00:56:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FA6EE8050BF3EDB72DCDE442DA5CA6E3D18C1BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607833   (232714) от 28.01.2023
-
-Fats Waller - 1937, Vol. 2 (1995) Classics [FLAC|Lossless|tracks + .cue] <Swing, Stride, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232714.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Keepin' Out of Mischief Now [3:14]
-02. Stardust [3:16]
-03. Basin Street Blues [2:34]
-04. Tea for Two [3:25](   Читать дальше...   )Жанр: Swing, Stride, Piano JazzПродолжительность: 01:07:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30D391390DBFA246705E8EF992B60973BDBA476A
 ```
 
 https://mybot314.ru/tekegram_catalog/

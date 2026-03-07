@@ -1,3 +1,116 @@
+###  Публикация: 964857   (280782) от 12.12.2015
+
+Hardwell - United We Are Remixed (Extended Mixes) (2015) [FLAC|Lossless|WEB-DL]<Trance, House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_280782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hardwell - Eclipse (Chocolate Puma Remix)
+02. Hardwell feat. Jason Derulo - Follow Me (Bingo Players Remix)
+03. Hardwell feat. Harrison - Sally (Frontliner Remix)
+04. Hardwell feat. Bright Lights - Let Me Be Your Home (Dave Winnel Remix)(   Читать дальше...   )Жанр: Trance, HouseПродолжительность: 01:14:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DA4D765E240BF670F048D696CBB9957230E54C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081974   (280754) от 11.12.2016
+
+VA - Mixmag Germany Presents Kittball (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_280754.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paji & Juliet Sikora - Dimension (original mix) (05:57)
+02. KANT - Never U Mind (original mix) (06:30)
+03. Purple Disco Machine - Walls (original mix) (06:38)
+04. Tube & Berger - Set Free (feat Ghost Loft) (06:50)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 03:30:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22FF990C5E12F629142AF8581BBCF9B228A88ADC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 272153   (280522) от 18.12.2010
+
+Opus III - Guru Mother (1994) [APE|Lossless]<Vocal House, Ambient, Electronica>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_280522.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Vocal House, Ambient, ElectronicaПродолжительность: 00:54:50
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336724   (279167) от 07.11.2019
+
+VA - From Disko to Disko (Winter 2018 Compilation) (2018) [FLAC|Lossless|WEB-DL|tracks] <House, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_279167.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Telussa & Tijssen - The Groove (5:59)
+02. Lophius Rec - Don't Wanna Be (Genaro Fernandez Remix) (6:50)
+03. Phonista - Dyadic (7:25)
+04. Denace 2 Society - Come On (6:22)(   Читать дальше...   )Жанр: House, TechnoПродолжительность: 01:56:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8247198AF9A5EE6D3B351F8F18E35F1B88BBCE78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1264847   (277664) от 25.11.2018
 
 Maruv - Black Water (2018) [FLAC|Lossless|WEB-DL|tracks] <Electro House, Pop, R'n'B>
@@ -627,122 +740,6 @@ VA - Kulor 001 (2018) Kulør [FLAC|Lossless|WEB-DL|tracks] <Techno>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66F55A6BBBBAE45A5A433EA796529168EAD28DEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338067   (270661) от 14.11.2019
-
-VA - Total Disco House, Vol. 1 (2019) [FLAC|Lossless|WEB-DL|tracks] <House, Nu-Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270661.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Discotron - Play That Funky Music (Original Mix) (5:48)
-02. Disko Junkie - Paradise (Original Mix) (5:36)
-03. Jack Le Funk - Vibin' (La Da Da) (Original Mix) (4:45)
-04. Discotron - Let's Get This Straight (Original Mix) (6:05)(   Читать дальше...   )Жанр: House, Nu-DiscoПродолжительность: 01:09:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06B7F42DF38810C9796D4700B5799E82E62A5B1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189537   (270421) от 06.12.2017
-
-Tale of Us - Endless Remixes (2017) Deutsche Grammophon [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient, Dub Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270421.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Definizione dell'impossibile (Monoloc Remix) (05:16)
-02. Alla sera (Kettenkarussell's Triangle Player Rework) (06:56)
-03. Ricordi (Rødhåd Remix) (06:40)
-04. Oltre la vita (SCB Introspection) (10:49)(   Читать дальше...   )Жанр: Techno, Ambient, Dub TechnoПродолжительность: 01:30:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11340B7E20CF9B4396F872B825D224E3981772EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189501   (270409) от 06.12.2017
-
-Fingers In The Noise - 11 Releases (2011-2017) [FLAC|Lossless|tracks+.cue, tracks] <Dub Techno, Ambient, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270409.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Monday (06:25)
- 02. Black Water (05:24)
- 03. Black Hole (04:18)
- 04. Black Coffee (06:30)(   Читать дальше...   )Тип издания: CD, WebЖанр: Ambient/Glitch/Dub Techno/DowntempoПродолжительность: 00:28:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F482C3017643BB7911520753B9932C586DBC397
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189414   (270280) от 06.12.2017
-
-Orbital - Live At the Eventim Hammersmith Apollo (02-12-2017) (2017) Live Here Now [FLAC|Lossless|WEB-DL|tracks] <Techno, Electro, Breakbeat, House, Techno Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270280.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lush 3 (07:58)
- 02. Impact (The Earth Is Burning) Pt1 (06:28)
- 03. Impact (The Earth Is Burning) Pt2 (01:32)
- 04. Copenhagen (05:25)(   Читать дальше...   )Жанр: Techno, Electro, Breakbeat, House, Techno AmbientПродолжительность: 01:43:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:554261542AB415E804A7BE6CE7339AF051C81964
 ```
 
 https://mybot314.ru/tekegram_catalog/

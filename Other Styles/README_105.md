@@ -1,3 +1,32 @@
+###  Публикация: 938404   (481829) от 18.09.2015
+
+Brian Crain - Impressions from Paris to Prague (2015) [MP3|320 кб/с]<Piano, Instrumental, New Age, Neoclassical>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_481829.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paris Lights
+02. Midnight Rain in Venice
+03. Light Hearts
+04. Reflections in the Windows(   Читать дальше...   )Жанр: Piano, Instrumental, New Age, NeoclassicalПродолжительность: 00:45:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19839CE9996199C231D30D5C897B938490A27BAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1244494   (481695) от 01.09.2018
 
 Yoshio Kimura & Hidehiko Matsumoto - Uta No Nai Ryukoka 150 (1969-1971) (2014) 6CD Box Set [FLAC|Lossless|image + .cue] <Easy Listening, Instrumental>
@@ -730,35 +759,6 @@ Apocalyptica - Aquarela (2019) [MP3|320 Kbps] <OST, Cello Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26E50B71718450F629F2F195EF9C59E01C3B10FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406562   (474910) от 03.09.2020
-
-Christopher Phillips - Piano Chill: Songs of Simon & Garfunkel (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474910.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. America (3:31)
- 02. The Sound of Silence (3:24)
- 03. Mrs. Robinson (3:29)
- 04. El Condor Pasa (If I Could) (3:18)(   Читать дальше...   )Жанр: New Age, Instrumental, PianoПродолжительность: 00:39:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:831D42D346AE54B989C22E09B3303BE2F1B3CCC1
 ```
 
 https://mybot314.ru/tekegram_catalog/

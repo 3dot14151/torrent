@@ -1,3 +1,32 @@
+###  Публикация: 1563804   (500499) от 18.07.2022
+
+VA - Teenage Mutant Ninja Turtles: Shredder's Revenge (Original Game Soundtrack) (2022) [MP3|~249-288 Kbps] <OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_500499.jpg" />
+</div>
+
+
+###  Подробнее
+
+Официальный саундтрек игры01. Teenage Mutant Ninja Turtles Theme
+02. The Wrecking Crew
+03. Jaw-Breaking News!
+04. Big Apple, 3 PM(   Читать дальше...   )Жанр: OSTПродолжительность: 00:52:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79A55F34E7851D276DDB99B7D04EBF1686248F03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1317455   (500408) от 01.08.2019
 
 VA - Modern Sound Orchestras - Melody in Love (1992) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
@@ -768,35 +797,6 @@ Bernward Koch - Touched by Love (2016) [MP3|320 Kbps] <New Age, Piano>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8FD3BF7FC474F24AF7B7576733913107F0535DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936937   (492265) от 13.09.2015
-
-Kevin Kendle - Illumination (2015) [MP3|320 кб/с]<Electronic, Ambient, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492265.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Emergence
-02. Divine Connection
-03. Arc
-04. Celestial Heart(   Читать дальше...   )Жанр: Electronic, Ambient, New AgeПродолжительность: 00:59:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FC565E6B60A3F88C883AAEB08C836DE0B4AEA36
 ```
 
 https://mybot314.ru/tekegram_catalog/

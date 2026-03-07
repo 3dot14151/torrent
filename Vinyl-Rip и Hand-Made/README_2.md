@@ -1,3 +1,177 @@
+###  Публикация: 1840951   (1047681) от 08.12.2025
+
+Senpais - Studio Albums (4 releases) (2020-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047681.jpg" />
+</div>
+
+
+###  Подробнее
+
+Senpais - метал-группа из Берлина, Германия, основана в 2018 году.2020 - Senpais
+2022 - Embers of Eternity (EP)
+2023 - Pandemonium (EP)
+2025 - By All MeansЖанр: Melodic Death MetalПродолжительность: 02:08:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EFD1645E841C43834A15436BEC27010E06FA8CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1840956   (1047680) от 08.12.2025
+
+Triskelyon - Studio Albums (3 releases) (2022-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047680.jpg" />
+</div>
+
+
+###  Подробнее
+
+Triskelyon - канадский трэш-метал проект, созданный Джеффом Уэйем в 2021 году..
+2022 - Downfall
+2023 - Artificial Insanity
+2025 - Maelstrom Of ChaosЖанр: Thrash MetalПродолжительность: 02:07:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E2E72718F04AF5F4B10DD6D78519948A4406ADE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1840349   (1047282) от 04.12.2025
+
+VA - Believe In Music. 20 Original Hits 20 Original Stars (1972) Series: 20 Original Hits 20 Original Stars [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1047282.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Faces - Stay With Me
+A2 O'Jays - Backstabbers
+A3 Free - All Right Now
+A4 Roxy Music– - Virginia Plain(   Читать дальше...   )Жанр: PopПродолжительность: 01:06:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D61527BFC57E760905C31509384B215484223971
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1840151   (1047159) от 03.12.2025
+
+VA - Britain's Hot 12 (Vocal), Vol. 6 (1971) Series: Britain's Hot 12 [[FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1047159.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Ted Pelkins - Another Time, Another Place
+A2 Sweet Cream - I Believe (In Love)
+A3 Ted Jenniff - Maggie May
+A4 Street Crew - Tweedle Dee - Tweedle Dum(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:39:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDAE29039F315E65988930F0E8E29278EC37262D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1840150   (1047157) от 04.12.2025
+
+VA - Britain's Hot 12. Vocal (1970) Series: Britain's Hot 12 [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1047157.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 E. K. Boone - Raindrops Keep Fallin' On My Head
+A2 Firerain - Young, Gifted And Black
+A3 The Olympics - Come And Get It
+A4 Danny Field's Corp. - I Can't Tell The Bottom From The Topa(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:35:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC382EC4BAA9CAAB71E519D9524506861127FA39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1840145   (1047156) от 04.12.2025
+
+Broken Fate - Studio Albums (5 releases) (2015-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1047156.jpg" />
+</div>
+
+
+###  Подробнее
+
+Broken Fate - швейцарская метал-группа из Цюриха, основана в 2007 году.2015 - The Bridge Between
+2018 - Reborn
+2021 - C-Digital Session 2020
+2023 - Fighters & DreamersЖанр: Melodic Death/Thrash MetalПродолжительность: 04:26:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80A6B6526201B19774B6DFD568231E390DF2CEDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1839985   (1046930) от 02.12.2025
 
 Nailed to Obscurity - Studio Albums (5 releases) (2007-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Doom/Death Metal>
@@ -571,180 +745,6 @@ A4 Лабиринт - Из Композиции «Сакартвело»(   Чи
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:106756CF4651A459CFE50AFD256ECA59293C0D68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612507   (1039841) от 17.02.2023
-
-Beyond The Black - Studio Albums (6 releases) (2015 - 2023) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Symphonic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039841.jpg" />
-</div>
-
-
-###  Подробнее
-
-Beyond the Black — немецкая метал-группа, исполняющая музыку в жанрах симфонический метал / пауэр-метал / альтернативный метал, образованная в 2014 году в Мангейме.2015 - Songs Of Love And Death
-2016 - Lost In Forever
-2019 - Heart of the Hurricane
-2020 - HorizonsЖанр: Symphonic MetalПродолжительность: 05:47:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5730B564F27F9B2BA76D1724B4318711BF71FDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614591   (1038352) от 23.02.2023
-
-Soilwork - Studio Albums (15 releases) (1998 - 2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Melodic Death Metal; Metalcore/Melodic Groove Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038352.jpg" />
-</div>
-
-
-###  Подробнее
-
-Soilwork (англ.) («Земледелие») — шведская группа из Хельсингборга.
-Группа Soilwork была образована в 1996 году и поначалу своей карьеры носила название Inferior Breed. Как объяснил вокалист группы Бьорн Стрид — их саунд в то время находился под влиянием таких известных коллективов как Pantera, Meshuggah и Carcass. В конце 1996 года коллектив поменял название на (   Читать дальше...   )1998 - Steelbath Suicide
-2000 - The Chainheart Machine
-2001 - A Predator's Portrait
-2002 - Natural Born ChaosЖанр: Melodic Death Metal; Metalcore/Melodic Groove MetalПродолжительность: 14:18:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A848C968B9D76F7EFD0561C5F38E2F3FFE9D44CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614174   (1038302) от 23.02.2023
-
-Пётр Лещенко - Поёт Петр Лещенко 1-4 (1988-1990) [FLAC 1.0|192/24|image +.cue|Vinyl-Rip] <Folk, Chanson>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038302.jpg" />
-</div>
-
-
-###  Подробнее
-
-..
-A1 Вернулась Снова Ты
-A2 Марфуша
-A3 Не Уходи(   Читать дальше...   )Жанр: шансонПродолжительность: 03:01:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA2FA90A47B2C7627CD93A4D0A9E2F3119EEE91B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440918   (1037922) от 20.01.2021
-
-Mark Knopfler - Tracker (2015) [DSD128 2.0|5,6MHz/1bit|tracks|Vinyl-Rip] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037922.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tracker — восьмой сольный студийный альбом британского певца, гитариста и композитора Марка Нопфлера. Альбом выпущен 16 марта 2015 года (в Северной Америке 17 марта).
-
-«Название альбома родилось из моих попыток расставить метки во времени, оглядываясь на людей, места и вещи из моего прошлого. А ещё из трекинга — записи треков в студии», — говорит Нопфлер. Некоторые (   Читать дальше...   )LP1Жанр: RockПродолжительность: 1:00:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FC3415C8A6125F97E81A46578E483192425E70F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615418   (1037581) от 26.02.2023
-
-Catamenia - Studio Albums (10 releases) (1998 - 2012) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Melodic Black Metal, Melodic Death/Gothic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037581.jpg" />
-</div>
-
-
-###  Подробнее
-
-Catamenia — финская мелодик-блэк-метал-группа из Оулу. Группа была образована в 1995 году вокалистом Микой Тённингом, гитаристами Рику Хопеакоски и Сампо Уккола, басистом Тимо Лехтиненом, клавишником Хейди Риихинен и барабанщиком Тони Тервоандом.1998 - Halls Of Frozen North
-1999 - Morning Crimson
-2000 - Eternal Winter's Prophecy
-2002 - EskhataЖанр: Melodic Black Metal, Melodic Death/Gothic MetalПродолжительность: 08:15:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C53D90BBD81CA7A1A40DD2E3D05722F2A0AADC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615691   (1037291) от 27.02.2023
-
-Mist Of Misery - Studio Albums (6 releases) (2013 - 2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Symphonic Black Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037291.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mist Of Misery - шведская симфоник-блэк-метал группа из Стокгольма, образованная в 2010 году Саймоном Шёландером и Андреасом Мортуцем Бернинге.2013 - Temple of Stilled Voices (EP)
-2016 - Absence
-2017 - Fields of Isolation (EP)
-2017 - Shackles Of Life (EP)Жанр: Symphonic Black MetalПродолжительность: 04:58:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B71D38FAF446F5C82C1CA9DCCF90A8F7B38A8E52
 ```
 
 https://mybot314.ru/tekegram_catalog/

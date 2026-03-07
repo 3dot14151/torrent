@@ -1,3 +1,32 @@
+###  Публикация: 1288452   (695548) от 11.03.2019
+
+Ilyin - Lie (2019) [MP3|320 Kbps] <Neo-Classical, Baroque>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_695548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ilyin - RF Constitution. Art. 21. Dignity
+02. Ilyin - RF Constitution. Art. 23. Personal immunity
+03. Ilyin - RF Constitution. Art. 45. The defence of rights
+04. Ilyin - RF Constitution. Art. 25. The house is untouchable(   Читать дальше...   )Жанр: Neo-Classical, BaroqueПродолжительность: 00:33:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8456A10349F0C5959AAF0EA5642B3E56BE5BF025
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1027848   (694292) от 20.06.2016
 
 Ensemble Il Trittico, David Greenlees - Joseph Joachim Raff: Piano Quartets (2011) [FLAC|Lossless|tracks] <Classical, Chamber Music>
@@ -724,35 +753,6 @@ New London Chorale - Young Christmas (2001) Reissue [FLAC|Lossless|image + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0FE1A0D8E305A7E7C7C04B8372231FE3FD43B6BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223769   (671516) от 06.05.2018
-
-VA - Angelica (1997) Compilation [FLAC|Lossless|image + .cue] <Rock, Crossover Classical, Vocal>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671516.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. O Mio Babbino Caro
-2. Jesu, Joy Of Man's Desiring
-3. Un Bel Di
-4. Der Holle Rache (Queen Of The Night)(   Читать дальше...   )Жанр: Rock, Crossover Classical, VocalПродолжительность: 00:47:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B27C176A1C2C442C7A47A348E28ED8A385839E6F
 ```
 
 https://mybot314.ru/tekegram_catalog/

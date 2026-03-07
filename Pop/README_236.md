@@ -1,3 +1,206 @@
+###  Публикация: 958782   (321364) от 22.11.2015
+
+Виктор Попов и Группа Твой День - Хит-Парад СССР - Лучшие Песни (2005) [MP3|320 кб/с]<Pop, Dance>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_321364.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ху-ан-хэ - Жёлтая река (В.Попов - М.Гуськов)
+02. Мама (В.Попов - М.Хлебородов)
+03. Ты не забывай (В.Попов - В.Попов, О.Колесниченко)
+04. Армейское письмо (В.Попов - В.Попов)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:07:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0983E9C71973AB81AA095F49E8BF060C8DAE6818
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 844165   (321358) от 24.11.2014
+
+VA - Much Dance 2015 (2014) [MP3|320 кб/с]<Pop, Electronic, Club, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_321358.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meghan Trainor - All About That Bass  (3:07)
+02. Maroon 5 - Maps  (3:08)
+03. Ariana Grande - Problem (Feat. Iggy Azalea)  (3:12)
+04. Iggy Azalea - Fancy (Feat. Charli XCX)  (3:14)(   Читать дальше...   )Жанр: Pop, Electronic, Club, DanceПродолжительность: 00:58:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBEA40E5AFF9A1DAD53E4B77CD9B55E41C1DB025
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259230   (321268) от 03.11.2018
+
+Savage Garden - Truly Madly Completely: The Best Of Savage Garden (2005) [FLAC|Lossless|tracks + .cue] <Electronic, Pop, Pop Rock, Synthpop, 90s>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_321268.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Want You (3:54)
+ 02. I Knew I Loved You (4:11)
+ 03. To The Moon And Back (5:42)
+ 04. Hold Me (4:53)(   Читать дальше...   )Жанр: Electronic, Pop, Pop Rock, Synthpop, 90sПродолжительность: 01:18:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA22EC7C213AC15E66F244D75D7D8527D8D409DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259235   (321266) от 03.11.2018
+
+Italove - Extended And Remixed (2018) Compilation [FLAC|Lossless|tracks + .cue] <Italo-Disco, Euro-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_321266.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Italove - Stockholm Is Calling (Extended Mix) (4:44)
+02. Italove - Follow Me To Mexico (Extended Mix) (4:43)
+03. Italove feat. TQ - Rhythm Of Love (Extended Mix) (7:11)
+04. Italove - Too Late To Cry (Matt Pop Club) (7:20)(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, Synth-popПродолжительность: 01:11:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9096F40ABB3AB8F5ABFF3C6CA3573F530CCE0D15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259452   (321261) от 03.11.2018
+
+Clodagh Rodgers - Come Back And Shake Me: The Kenny Young Years 1969-71 (2012) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_321261.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clodagh Rodgers & Kenny Young - Kenny & Clodagh Intro (00:09)
+02. Clodagh Rodgers - Come Back And Shake Me (02:37)
+03. Clodagh Rodgers - I Am A Fantasy (02:51)
+04. Clodagh Rodgers - Under The Boardwalk (03:43)(   Читать дальше...   )Жанр: PopПродолжительность: 01:06:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09924483F0E794DD6EEC7D1426E5E4979529B152
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259256   (320877) от 03.11.2018
+
+VA - Disco 80's Rare & Special Versions Vol. 2 (2016) Compilation [FLAC|Lossless|tracks + .cue] <Euro-Disco, Italo-Disco, Eurodance>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_320877.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. C.C. Catch - Jump In My Car (U.S. Club Special Promo Long Mix) (5:15)
+02. Blue System - Magic Symphony (Special Version) (4:27)
+03. Divine - Hard Magic (Remix) (4:39)
+04. Latin Lover - Laser Light (Unreleased Radio Mix) (3:42)(   Читать дальше...   )Жанр: Euro-Disco, Italo-Disco, EurodanceПродолжительность: 01:10:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37F93D564CD5960BE0094305123F19EC7E13FE6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1075468   (320800) от 22.11.2016
+
+Giants - 2 Albums (1979, 1981) LP [MP3|320 Kbps] <Electronic, Pop-Rock, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_320800.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нашумевший в свое время итальянский студийный проект D.B. Besquet & Ronnie Jackson.01. Backdoor Man (8:28)
+02. Everything Is Alright (4:58)
+03. The Night Shift (5:03)
+04. Do You? (4:57)(   Читать дальше...   )Жанр: Electronic, Pop-Rock, DiscoПродолжительность: 01:09:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C7363BBE9235ECDB7C95D9F8591919A79CFB848
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1075622   (320567) от 22.11.2016
 
 MBAND - Без фильтров (2016) [MP3|320 Kbps] <Pop>
@@ -555,209 +758,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B65E64B93E56CB1CB1D997147D319FBF50821BE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421480   (317480) от 05.11.2020
-
-Ольга Воронец - Гляжу в озера синие... (2002) [FLAC|Lossless|tracks + .cue]<Ретро>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317480.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Гляжу в озера синие...
-02. А где мне взять такую песню
-03. То не ветер ветку клонит
-04. Живет моя красотка(   Читать дальше...   )Жанр: РетроПродолжительность: 01:04:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82C3E66A77D1FD6648D66515CEA2C4B25B3225A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421482   (317478) от 05.11.2020
-
-Тамара Миансарова - Золотой век русской эстрады  (2003) [FLAC|Lossless|tracks + .cue]<Ретро>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317478.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Память
-02. Берёза
-03. Мой смешной Гаргантюа
-04. Бабушка, научи меня танцевать(   Читать дальше...   )Жанр: РетроПродолжительность: 00:55:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:928CF96BE61F7C6ECFC9E6D5799EF93307138A18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421319   (317475) от 05.11.2020
-
-VA - Rare80 Records - Rare80 Volume 1 (2012) 2CD, Unofficial Release [FLAC|Lossless|image + .cue] <Italo-Disco, New Wave, Synth-pop, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317475.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rare80 Volume 1 CD1
-01. Sign System - Man On The Run (Extended Version)
-02. One To One - There Was A Time (Dance-Mix)
-03. Style - Empty Bed (Full Version)(   Читать дальше...   )Жанр: Italo-Disco, New Wave, Synth-pop, DiscoПродолжительность: 02:36:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF887A78FFEC06EBC5BD274598FF37BD4A2D83A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421322   (317474) от 05.11.2020
-
-VA - Rare80 Records - Rare80 Volume 2 (2012) 2CD, Unofficial Release [FLAC|Lossless|image + .cue] <Italo-Disco, New Wave, Synth-pop, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317474.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rare80 Volume 2 CD1
-01. Shanghai - Ballerina (Club Mix)
-02. Andrea - Macho Man (Macho Man Version)
-03. Rewind - Rosalie (Pop & Go) (Extended Version)(   Читать дальше...   )Жанр: Italo-Disco, New Wave, Synth-pop, DiscoПродолжительность: 02:36:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EFFF599D4AAD54D4B729FD873A96691D2AF8AC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959406   (317210) от 24.11.2015
-
-Texas - Texas 25 (2015) 2CD Deluxe Edition [MP3|320 кб/с]<Pop, Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317210.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шотландцы Texas выпустили новый альбом «Texas 25». Стандартное издание включает в себя 12 треков, - в том числе восемь перезаписанных известных хитов (а ля «Black Eyed Boy», «Halo», «I Don't Want a Lover», «Say What You Want», «Summer Son» и «The Conversation») и четыре совершенно новых. Специально в честь юбилейного релиза, старые песни были переработаны и перезаписаны (   Читать дальше...   )01. Start A Family
-02. Black Eyed Boy
-03. Say What You Want
-04. Supafly Boy(   Читать дальше...   )Жанр: Pop, Pop-RockПродолжительность: 01:44:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10121EE9E296439A6316A5477D7CE2CC7EB3EFCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959420   (317206) от 24.11.2015
-
-Anastacia - Ultimate Collection (2015) [FLAC|tracks + .cue]<Pop, Pop Rock, Funk, Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317206.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Outta Love (04:04)
- 02. Left Outside Alone (04:17)
- 03. Sick and Tired (03:30)
- 04. Paid My Dues (03:21)(   Читать дальше...   )Жанр: Pop, Pop Rock, Funk, SoulПродолжительность: 01:15:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:879671592EBD72749C5082483E2CDA6C2A563D19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959261   (317083) от 24.11.2015
-
-VA - 538 Hitzone: Best Of 2015 (2015) 2CD [FLAC|image+.cue]<Pop, Dance, Top40>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317083.jpg" />
-</div>
-
-
-###  Подробнее
-
-К концу года многие радиостанции стали подводить итоги своих хит-парадов и публиковать серии Best Of. Не осталась в стороне и Нидерландская 538 Hitzone. Эта серия хорошо знакома нашим членам клуба, она давно и основательно прописалась на страницах нашего трекера. Тем интереснее послушать годовой топ.CD1:
-01. Years & Years - King  (3:34)
-02. OMI - Cheerleader (Felix Jaehn Remix)  (3:02)
-03. Major Lazer feat. MO & DJ Snake  - Lean On  (2:57)(   Читать дальше...   )Тип издания: 2CD, CompilationЖанр: Pop, Dance, Top40Продолжительность: 02:36:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C29F0E61D324681D8C9F00211FEE80486F00D0FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

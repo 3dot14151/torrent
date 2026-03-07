@@ -1,3 +1,119 @@
+###  Публикация: 1277957   (773166) от 24.01.2019
+
+Shakira - Laundry Service (2001) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_773166.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Objection - (Tango) (3:44)
+02.Underneath Your Clothes (3:45)
+03.Whenever, Wherever (3:16)
+04.Rules (3:40)(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E17998B6BCEDA3EC16492936A1DDB2FC2A5A5945
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391737   (772797) от 21.06.2020
+
+VA - NOW 100 Hits Summer (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_772797.jpg" />
+</div>
+
+
+###  Подробнее
+
+На машине будущего перенеситесь на несколько дней вперед - в 26 июня 2020 года. Именно тогда состоится релиз от известного лейбла NOW! Это те треки, которые будут вас сопровождать всё лето (а оно уже наступило). Слушайте хорошую музыку каждый день!001. Dua Lipa - Don't Start Now  (3:03)
+002. Doja Cat - Say So  (3:58)
+003. Justin Timberlake - CAN'T STOP THE FEELING! (from TROLLS)  (3:56)
+004. Shakira feat. Wyclef Jean - Hips Don't Lie  (3:37)(   Читать дальше...   )Тип издания: 5CD (пока вэб-релиз)Релиз состоялся: 26 июня 2020 годаЖанр: Pop, Rock, DanceПродолжительность: 06:02:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84875F42AAB1F6DD1222D93CEBD7BF11ECCFC47A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278228   (771829) от 25.01.2019
+
+VA - Dance Classics '80 Part I (1994) [FLAC|Lossless|image + .cue] <Euro-House>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_771829.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad Boys Blue - You're A Woman
+02. Hot Chocolate - You Sexy Thing
+03. Ottawan - Hands Up
+04. Boney M - Rasputin(   Читать дальше...   )Жанр: Euro-HouseПродолжительность: 01:15:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49F4EB2D647D11850316EE640CAE3C4062F8CFF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 779118   (771219) от 22.04.2014
+
+VA - 538 Hitzone 69 (2014) 2CD [FLAC|Lossless]<Top 40, Pop Compilation>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_771219.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clean Bandit feat. Jess Glynne - Rather Be (3:50)
+02. Katy Perry feat. Juicy J - Dark Horse (3:37)
+03. George Ezra - Budapest (3:23)
+04. Pharrell Williams - Marilyn Monroe (Radio Edit) (3:46)(   Читать дальше...   )Жанр: Top 40, Pop, Rock, Electronic, Ballad, Hip Hop, Electronic, Dance, Dancepop, Electro, Pop Rock, Alternative Rock, R&B, Soul, Hip Hop, Pop RapПродолжительность: 02:28:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F773F1A6470441A585CDEB5EFBC96D67DBFACEFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1392131   (769845) от 24.06.2020
 
 Carly Rae Jepsen - Dedicated Side B (2020) Japan Exclusive [FLAC|Lossless|tracks] <Pop>
@@ -629,119 +745,6 @@ The Beloved - Sweet Harmony: The Very Best of The Beloved (2011) 2CD, RM. [FLAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CED3A78B2ED87167D53AFF30641CD9514DC72D84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279973   (763520) от 01.02.2019
-
-Bananarama - The Greatest Hits Collection (Collector Edition) (2017) [FLAC|Lossless|WEB-DL|tracks] <Dance-pop, New Wave>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763520.jpg" />
-</div>
-
-
-###  Подробнее
-
-VOLUME 1:
-01. Venus (3:49)
-02. I Heard a Rumour (3:24)
-03. Love in the First Degree (3:31)(   Читать дальше...   )Жанр: Dance-pop, New WaveПродолжительность: 02:30:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4E304EB086CAEE16657C5C4D4E131333D381881
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214660   (763295) от 23.03.2018
-
-Bosson - RockStar (2004) [FLAC|Lossless|tracks + .cue] <Pop, Europop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Need Love (3:35)
-02. You Opened My Eyes (3:41)
-03. One Of A Kind (3:55)
-04. A Little More Time (3:56)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 01:18:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8537E2BE63DCC3877AD03E86B54EE10EA675448E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016397   (762943) от 16.05.2016
-
-Prince - 5 Albums (1978 - 2004) [APE|Lossless|image + .cue] <Pop, Soul, Funk, Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762943.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Musicology
-02. Illusion, Coma, Pimp & Circumstance
-03. A Million Days
-04. Life 'O' The Party(   Читать дальше...   )Жанр: Pop, Soul, Funk, DiscoПродолжительность: 03:20:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A357F012AEF9B9AB3EDC0F052E3CC1243FFF852B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 162431   (762544) от 25.05.2010
-
-Dusty Springfield - 7 альбомов (1963-2000) [FLAC|Lossless]<Pop, Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762544.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, SoulПродолжительность: 01:04:44
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

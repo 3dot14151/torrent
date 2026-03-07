@@ -1,3 +1,32 @@
+###  Публикация: 1212250   (776058) от 11.03.2018
+
+Greg Butler - Whispering Yiruma (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Classical, Romantic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776058.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Present (4:08)
+ 02. Falling (3:37)
+ 03. Spring Waltz (2:47)
+ 04. Maybe (3:48)(   Читать дальше...   )Жанр: New Age, Piano, Classical, RomanticПродолжительность: 01:01:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:520F9F2C0B847C9A4ECCBEF14DA7DDD4BE8A22D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1212313   (775791) от 12.03.2018
 
 John Camacho - Morning Calm (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age, Meditation>
@@ -716,35 +745,6 @@ The Gino Marinello Orchestra - Guitar Masterpieces (2000) [FLAC|Lossless|tracks 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B37C8E006F961F5DB95495170191317664D732F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213037   (771743) от 16.03.2018
-
-VA - Great Melodies From Great Musicals (1999) [MP3|320 Kbps] <Instrumental, Classical, Easy Listening>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771743.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The King And I Medely: Getting To Know You/I Whistle A Happy Tune/I Have Dreamed/Shall We Dance? (7:50)
-2. As If We Never Said Goodbye/With One Look From Sunset Boulevard (4:14)
-3. How Are Things in Glocca Morra? From Finian's Rainbow (3:45)
-4. I'm Still Here From Follies (2:54)(   Читать дальше...   )Жанр: Instrumental, Classical, Easy ListeningПродолжительность: 01:01:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:543E41273136D37CE89EB1051B979B8DAFA6EAC9
 ```
 
 https://mybot314.ru/tekegram_catalog/

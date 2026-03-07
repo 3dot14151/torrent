@@ -1,3 +1,29 @@
+###  Публикация: 419832   (302182) от 07.12.2011
+
+Simon Rattle & Berliner Philharmoniker - Чайковский: Щелкунчик (2011) [DSD 2.0 1bit/2822,4kHz |SACD-R]<Classical>
+
+>>Классика
+>>Классика (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_302182.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ClassicalПродолжительность: 01:26:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D35565819F75B72B8D8E3A5602CDAF9DA0196CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1078062   (302124) от 30.11.2016
 
 Antonio Vivaldi / Il giardino armonico - Le quattro stagion / The Four Seasons / Времена года (1994) Teldec Classics [FLAC|Lossless|image + .cue] <Classical, Concerto>
@@ -716,35 +742,6 @@ Julian Bream - Lute Music from the Royal Courts of Europe (volume 2) (1966-76) 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2143220DA0782A87275468A7F5CA8A55B1628006
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080170   (290076) от 06.12.2016
-
-Mozart, Herbert von Karajan, Berliner Philharmoniker - Requiem (1961) 1989 Deutshe Grammophon [FLAC|Lossless|image + .cue] <Vocal-symphonic>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290076.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I. Introitus: 'Requiem aeter...[6'01]
-  02.  II. 'Kyrie eleison' [2'51]
-  03.  IIIa. Sequenz: 'Dies irae'[1'59]
-  04.  IIIb. Sequenz: 'Tuba mirum'[4'24](   Читать дальше...   )Жанр: Vocal-symphonicПродолжительность: 00:56:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51E1ED3DF45EC4FC52A5741607024AB116F875E6
 ```
 
 https://mybot314.ru/tekegram_catalog/

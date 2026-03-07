@@ -1,3 +1,206 @@
+###  Публикация: 1176203   (371470) от 21.10.2017
+
+VA - По волне моей памяти: Том 1 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Ретро, Советская Эстрада>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_371470.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Александр Барыкин - 20.00  4:07
+02.  Юрий Лоза - Девочка в баре  3:24
+03.  Евгений Осин - Любовь одна виновата  3:30
+04.  Алла Пугачёва - Не отрекаются любя  4:15(   Читать дальше...   )Жанр: Поп, Ретро, Советская ЭстрадаПродолжительность: 02:17:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:130BA9C14318C0413E47E49DC9C2AF57CAF6FB99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1254053   (370810) от 15.10.2018
+
+VA - Music Exclusive And Supreme Urban (2018) [MP3|320 Kbps] <Pop, Dance, RnB, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_370810.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Beyonce - Deja Vu f. Jay-Z (Seelo Remix)
+002. Andre Pettipas & The Giants - The Swedish Motel - clean
+003. Childish Gambino - Summertime Magic (Anthem Kingz No Lie Bootleg)
+004. Capital Cities - Just Say When - clean(   Читать дальше...   )Жанр: Pop, Dance, RnB, RapПродолжительность: 08:45:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AAA7BB3C94C2A2632E0814AC27578B1452DBDE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575614   (370702) от 12.09.2022
+
+VA - Music News vol.214 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_370702.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Elira - Приму (03:15)
+ 002. Andreev - Не Как Все (03:06)
+ 003. BAGARDI feat. Samo & AliK - Baby's Dollar (03:08)
+ 004. Boehm - Otherside (02:30)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:41:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20E6A4C01E4CAC064FB51DDBA0E56B6F24BD65BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575625   (370688) от 12.09.2022
+
+VA - Music News vol.215 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_370688.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. AMELI - Сильная (02:44)
+ 002. ABI - Украду (02:20)
+ 003. Alle Farben feat. Moss Kena - Forgot How To Love (02:29)
+ 004. AMAS - Бэлла (02:46)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:40:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1FB022BEE6BCE40723DC2B8CCA75E3CC2F6E5C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575725   (370581) от 12.09.2022
+
+VA - В машине с музыкой Vol.301 (2022) MP3 (2022) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_370581.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eros Ramazzotti Feat. & Alejandro Sanz - Sono (03:32) 2022
+02. Graygiv Feat. & Bondy - В Белом Танце (Karmv Remix) (02:04) 2022
+03. Iger - Не Отпускай (03:00) 2022
+04. Vlny - Я Сегодня Утром Сошёл С Ума (03:40) 2022(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:27:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD89CBF0912BB86DF04A5A659C067A156E1C5201
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950537   (370390) от 26.10.2015
+
+VA - Absolute Busloops Tech Construction (2015) [MP3|320 кб/с]<Club, Progressive, Bigroom, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_370390.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Van De Laser - Hey Sexy Lady (Video Edit) 03:17
+02. Topic Feat. Marco Minella - Real Stars 03:26
+03. Tiesto & Dallask - Show Me (Original Mix) 04:24
+04. Thomas You Feat. Mc Trini - Will You Be There (Radio Edit) 03:34(   Читать дальше...   )Жанр: Club, Progressive, Bigroom, HouseПродолжительность: 06:55:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DCF17453DFB2AA58482581BCAE80FED830DD33C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069985   (370326) от 05.11.2016
+
+VA - Лучшие кавер-версии (часть 1) (2016) [MP3|320 Kbps] <Covers>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_370326.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Александр Грин - Возьми меня в лодку ((Styx - Boat on the river) (03:07)
+02. Евгений Омегин - Девушка с жемчужными волосами (Omega - White Dove) (05:51)
+03. Demis Roussos & Диана Гурцкая - From Souvenirs To Souvenirs (02:39)
+04. Ариана - Адажио (Ariana Dao - Adagio) (04:06)(   Читать дальше...   )Жанр: CoversПродолжительность: 03:09:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45B133D19856056FF5859A49AADCD91444A9B2A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1070042   (370324) от 05.11.2016
 
 VA - Лучшие кавер-версии (часть 2) (2016) [MP3|320 Kbps] <Covers>
@@ -575,227 +778,6 @@ VA - TOP 100 Club Hits #5 (2012) [MP3|320 кб/с]<Club, Dance, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60586D0F60F628D0E23A4FB4B5CC84FC5315A2AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 575850   (366458) от 16.11.2012
-
-VA - Осенние Русские Хиты (2012) [MP3|256 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366458.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. DJ Slon feat. LiLi - Krokodila
-002. Алина Гросу - Бросай
-003. Горячий Шоколад - За Тобой
-004. Светлана Лобода - 40 Градусов
-005. 140 ударов в минуту - Надышаться тобой
-006. Анастасия Стоцкая - Преступник
-007. Марка - Витамин С
-008. Artik pres. Asti - Сладкий Сон
-009. Ай-Q - Другая Мне Не Нужна
-010. Блестящие - Зеленые Глаза(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 5:59:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:761B1D94F37F2218178BDD54057EF3B0A57E1B76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 405844   (366008) от 05.11.2011
-
-VA - Beautiful Dubstep (2009-2011) [MP3|320 kbps]<Dubstep>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_366008.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Fuzzy Logic, Jada Pearl - All My Love (Xilent Remix)
-02.Gemini - Blue (Original Mix)
-03.Gemini - Elevate
-04.Gemini - Feel Stronger
-05.Gemini - Graduation
-06.Ghosts Of Paraguay - The Premise
-07.Hadouken! - Oxygen (Gemini Remix)
-08.Paper Crows - Follow The Leader (George Lenton Remix)
-09.Phaeleh feat. Soundmouse - Afterglow (Akira Kiteshi Remix)
-10.Xilent - Choose Me II (Original Mix)2009-2011Жанр: DubstepПродолжительность: 00:48:39
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951106   (365991) от 28.10.2015
-
-VA - Hits The Coast Of Miami (2015) [MP3|96-320 кб/с]<Club, Dance, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365991.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Tom Budin - Cheeky Charlie (Original Mix) 03:31
-002. Dj Dimixer - Lamantine (Mike Prado Remix) 04:19
-003. Bollocks Deejays, Hey Sam - Runnin (Hey Sam Remix) 04:14
-004. Martin Solveig & Laidback Luke Feat. Kryder - I Want You (Dj Evolexx Mash Up) 05:50(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 08:05:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C27D24E6B23B348C25A9DABFC625D6D1F432E19C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951012   (365644) от 28.10.2015
-
-VA - Piano Acoustic Version (2015) [MP3|320 кб/с]<Pop, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365644.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nash & Pepper Feat. Rogue Raven - Am I Wrong (Piano Acoustic Version)
-02. Amanda Fondell - True Colors (Piano)
-03. Austin Mahone - Heart in My Hand (Piano Version)
-04. Birdy - Skinny Love (Piano)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 06:48:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88A4A2D1325614567992425C5244D6E31023C3F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951091   (364716) от 28.10.2015
-
-VA - Танцевальная клубничка Клубный выпуск (2015) [MP3|320 кб/с]<Dance, Сlub>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364716.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bob Sinclar & Dawn Tallman - Feel The Vibe (DJ KIRILLICH & DJ PRIDE Remix)
-002. Marco Tolo - Get Ready (Original Mix)
-003. Major Lazer X Dj Snake - Lean on (DJ SHTOPOR & DJ OLEG PETROFF REMIX)
-004. Madeaux & A-Trak - Lost In Translation (Original mix)(   Читать дальше...   )Жанр: Dance, СlubПродолжительность: 08:13:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE4B190FEDC46BA11A01AE53F36F5AA34B9457DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 576369   (364339) от 17.11.2012
-
-VA - Зажигательная Dance Тусовка. Зарубежный (2012) [MP3|256 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364339.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Gary Caos Vs. Rico Bernasconi Feat. Edita Piekha - Party People (Nash Sosed) (Caos Radio Edi)
-002. Discomakers feat. Eric More - World Party (Crystal Lake Edit)
-003. MaxiGroove, Bhp feat Lexter - Wonderful World (Radio Mix)
-004. Selena Gomez And The Scene - Love You Like A Love Song
-005. Pharao - There Is A Star
-006. Laselva Feat. Angel - Your Life (Video Edit)
-007. Magic Deejays - One Love (Bims Studio Remix)
-008. Slin Project & Rene De La Mone - Taking Over The Dancefloor (Radio Edit)
-009. Culture Beat - Your Love (Radio Edit)
-010. DJ Fresh ft. Rita Ora - Hot Right Now(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:53:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E209517CBD0E8036CA3C1EE09D16393A986BD3E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576455   (363847) от 15.09.2022
-
-VA - Music News vol.216 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363847.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. DAASHA - Отбилась От Рук (02:43)
- 002. ЯD - Сухое Красное (02:38)
- 003. Adam - О Тебе Малая (02:18)
- 004. Alex Andreev - Думаю (03:06)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:25:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69548052DCEEAFF7AE59E4593096D0A1B8A5B985
 ```
 
 https://mybot314.ru/tekegram_catalog/

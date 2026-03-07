@@ -1,3 +1,32 @@
+###  Публикация: 1331343   (333646) от 14.10.2019
+
+Michel Pépé - La montagne sacrée (Michel Pepe - La montagne sacree) (2019) [MP3|320 Kbps] <New Age, Relaxation>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_333646.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Entre terre et ciel	05:59
+2. L'appel mystique	05:48
+3. L'ascension céleste	06:00
+4. Monts et merveilles	05:41(   Читать дальше...   )Жанр: New Age, RelaxationПродолжительность: 01:13:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B9728FD3488B65CFB3CFA853436D698360BEAF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 955423   (333602) от 11.11.2015
 
 Trevor Jones / Randy Edelman - Последний из могикан / The Last Of The Mohicans - Original Motion Picture Soundtrack (1992) [FLAC|Lossless]<Soundtrack, Score>
@@ -717,35 +746,6 @@ VA - Fast and Furious 7 (original motion picture soundtrack) (2015) [MP3|320 к�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A863EA48A44C489A5708203C493A2A99433A46CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957122   (327503) от 17.11.2015
-
-VA - TANGO. selected by Eduardo Makaroff (2007) / Wagram Music [FLAC|image+cue]<tango>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327503.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Quintento Real / Canaro En Paris    [0:02:50.59]
-02. Melingo / Noche Trasfigurada    [0:01:31.10]
-03. Ramiro Gallo Quinteto / Al Amiga Pablo Rago    [0:04:21.01]
-04. Carlos Gardel / Anclao En Paris    [0:02:07.12](   Читать дальше...   )Жанр: tangoПродолжительность: 01:04:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66C9F667DB7402B9E9CC074C1DABA4BCFD15131D
 ```
 
 https://mybot314.ru/tekegram_catalog/

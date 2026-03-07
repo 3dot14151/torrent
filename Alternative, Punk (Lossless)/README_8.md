@@ -1,3 +1,32 @@
+###  Публикация: 988310   (920952) от 20.02.2016
+
+Children Collide - Theory Of Everything (2010) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Indie Rock, Surf>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920952.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Future Monks
+02. Jellylegs
+03. Asleep On My Feet
+04. My Eagle(   Читать дальше...   )Жанр: Alternative Rock, Indie Rock, SurfПродолжительность: 00:42:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56FC75A06C15C3711C8F7C315FDB0B0C687DB009
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1096212   (920945) от 23.01.2017
 
 Aaron Gillespie - Out Of The Badlands (2016) [FLAC|Lossless|tracks] <Indie, Acoustic, Alternative>
@@ -719,35 +748,6 @@ HorrorPops - Hell Yeah! (2004) [APE|Lossless|image + .cue] <Rockabilly, Punk Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA02CFF0F41A576B3F84158D531517C4306B93B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100841   (897745) от 05.02.2017
-
-Highly Suspect - The Boy Who Died Wolf (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative rock, Hard Rock, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897745.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Name Is Human Explicit (04:19)
- 02. Look Alive, Stay Alive Explicit (02:10)
- 03. Little One (04:02)
- 04. For Billy (03:39)(   Читать дальше...   )Жанр: Alternative rock, Hard Rock, Progressive RockПродолжительность: 00:45:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:004E1B0C18C1E00E0E7F053A04B25E28B3047D93
 ```
 
 https://mybot314.ru/tekegram_catalog/

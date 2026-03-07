@@ -1,3 +1,239 @@
+###  Публикация: 473838   (84706) от 27.03.2012
+
+VA - Лучшая Клубная Музыка Марта (2012) [MP3|192 кб/с]<Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_84706.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Afrojack Feat. Eva Simons - Take Over Control (Ian Carey Remix).mp3
+ 02. Atb Feat. Jansoon - Move On (Airplay Edit).mp3
+ 03. Bob Sinclar And Raffaella Carra - Far Lamore (8club Mix).mp3
+ 04. Boris And Michi - Azzurro (The Cube Guys Molleggiato Mix).mp3
+ 05. Britney Spears - Criminal (Dj Sergey Fisun Bootleg Rmx) 2.mp3
+ 06. Britney Spears - I Wanna Go (Alex Dreamz Radio Edit).mp3
+ 07. Caro Emerald - Stuck (Kraak & Smaak St. Tropez Remix).mp3
+ 08. Energy 52 - Cafe Del Mar (Deadmau5 Remix).mp3
+ 09. Fidel Wicked - Wicked Angel.mp3
+ 10. Jai Alexander & Sarah - Ibiza Party.mp3(   Читать дальше...   )2012Жанр: Club, DanceПродолжительность: 02:33:29
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 473594   (84654) от 27.03.2012
+
+VA - Gagauz Relax Station I (2012) [MP3|~205-320 кб/с]<Chillout, Ambient, Lounge, Vocal Trance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_84654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dan Balan - Freedom (Katana Slow Version) [03:48]
+02. Aelyn - Believe In Us (Chillout Mix) [04:01]
+03. Ascesion - For A Lifetime(Chillout Mix) [06:09]
+04. Sunlounger - Lost(Chill) [04:23]
+05. Cosmic Gate & Emma Hewitt - Be Your Sound (Radio Edit) [04:14]
+06. Headstrong feat. Stine Grove - Tears (Acoustic Piano Chillout Mix) [03:38]
+07. Dash Berlin - Till The Sky Falls Down (Monokini Beach Mix) [05:53]
+08. Phaeleh - In the twilight [06:26]
+09. Sandra - Forgive Me (Chillout Remix) [03:51]
+10. Sunlounger - Lost (Chill Version) [05:27](   Читать дальше...   )2012Жанр: Chillout, Ambient, Lounge, Vocal TranceПродолжительность: 01:33:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80E3A4842BA61A686793171AE74AFF6C340D6147
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474050   (84651) от 27.03.2012
+
+VA - Горячая 70-ка в Машину (2012) [MP3|256-320 кб/с]<Electro-House, Club House, Dance, Club, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_84651.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Ian Carey & Rosette Ft. Timbaland & Brasco - Amnesia (Cazzette Another Sugar Hunt Mix)
+ 02 Sean Paul - She Doesnt Mind (LX-Tronix Remix)
+ 03 Jerry Rekonius - 10TH (Original Mix)
+ 04 Tom Moroca - Hello (Original Mix)
+ 05 DJ Dank - Midnight Moroder (Darth & Vader Remix)
+ 06 Electrixx - Some Beats (Original Mix)
+ 07 Project 46 - Jigsaw (Original Mix)
+ 08 Sean Paul - She Doesn't Mind (Mixshow Extended Mix)
+ 09 Dev feat. Enrique Iglesias - Naked (Proper Villains Remix)
+ 10 Skrillex & The Doors - Breakn' A Sweat (Zedd Remix)(   Читать дальше...   )2012Жанр: Electro-House, Club House, Dance, Club, PopПродолжительность: 06:07:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4439AFAC8903ECE59BE47F5BC1E4431D967A5C13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 473480   (84626) от 26.03.2012
+
+VA - 500 величайших песен всех времён по версии журнала Rolling Stone (2012) [MP3|320 kbps]<Pop|Rock|Soul|R&B|Punk|Hip-Hop|Folk|Country>
+
+>>След.
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_84626.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bob Dylan - Like A Rolling Stone ...(1965)
+02. The Rolling Stones - Satisfaction ...(1965)
+03. John Lennon - Imagine ...(1971)
+04. Marvin Gaye - What's Going On ...(1971)
+05. Aretha Franklin - Respect ...(1967)
+06. The Beach Boys - Good Vibrations ...(1966)
+07. Chuck Berry - Johnny B. Goode ...(1958)
+08. The Beatles - Hey Jude ...(1968)
+09. Nirvana - Smells Like Teen Spirit ...(1991)
+10. Ray Charles - What'd I Say ...(1959)(   Читать дальше...   )Жанр: Pop|Rock|Soul|R&B|Punk|Hip-Hop|Folk|CountryПродолжительность: 31:07:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:764A1A59995B50473B2403A4490DF2191E352596
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 473652   (84620) от 26.03.2012
+
+VA - XXXL Лучшая музыка для секса (2012) [MP3|224 kbps]<Pop|Sex music>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_84620.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Afromental - Pray 4 Love
+02. Everything But The Girl - Before Today
+03. Triangle Sun - Summer Of Our Love
+04. Plonn - Many Hours Passed
+05. Octowire - The New York Grill (In & Out Mix)
+06. 2raumwohnung - Alles Aus
+07. Aram Quartet - Walk On The Wild Side
+08. Ennio Morricone - Chi Mai
+09. Stargazer - Malkimono
+10. Enigma - Between Generations(   Читать дальше...   )2012Жанр: Pop|Sex musicПродолжительность: 07:24:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5189E1B917B9E82561FCA2EAF7E2B0F2F596B8EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 473238   (84563) от 26.03.2012
+
+VA - The Complete 90's Music Collection (10CD) (2012) [MP3|128 kbps]<Pop|Rock|Metal|Instrumental|Retro>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_84563.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD-1: (1990)
+
+01. 2 Live Crew - Me So Horny (1990)
+02. B52's - Love Shack (1990)
+03. B52's - Roam (1990)
+04. Bell Biv Devoe - Poison (1990)
+05. Bette Midler - From A Distance (1990)
+06. Billy Idol - Cradle Of Love (1990)
+07. George Michael - Praying for Time (1990)
+08. Glenn Medeiros & Bobby Brown - She Ain't Worth It (1990)(   Читать дальше...   )2012Жанр: Pop|Rock|Metal|Instrumental|RetroПродолжительность: 38:20:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED4DE7980F694CB8A1DF3F4280A9130AF49029C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 473459   (84531) от 26.03.2012
+
+Коллекция исполителей песни - Besame Mucho (2012) [MP3|128 кб/с]<Blues, Retro>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_84531.jpg" />
+</div>
+
+
+###  Подробнее
+
+2012Жанр: Blues, RetroПродолжительность: 2:56:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70A4F734FF8E25F933D1649C76397B3F0E61BF72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 472478   (84426) от 25.03.2012
 
 KeyGen Music(MP3) - 3139 треков (2000-2012) [MP3|192 кб/с]<8bit>
@@ -647,209 +883,6 @@ VA - Сборник песен о волках (1968-2011) [MP3|256 kbps]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03D7C70780BB10266E2C78BF4CA9B1E3E12E4214
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778652   (70859) от 09.02.2025
-
-VA - Music News For Forum vol.061 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70859.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. VENERA - После пары бокалов белого (Up Chi Remix) (02:35)
- 002. Alex Coffman feat. LIONA - На простынях (02:47)
- 003. Alina Eremia feat. Killa Fonic - Am Ales (03:17)
- 004. All That Remains - Kerosene (04:24)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:54:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26A6FD96DD7769922952A9E217CF8F16B0A8A1FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779507   (70626) от 14.02.2025
-
-Johnny Valdivia - Mandolin Cover Compilation (2025) [MP3|320 Kbps] <Instrumental, Easy listening, Cover>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70626.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Guetta, Johnny Valdivia - Lovers on the Sun
-02. Annalisa, Johnny Valdivia - Sinceramente
-03. Joe Dassin, Johnny Valdivia - Et Si Tu N'existais Pas
-04. Johnny Valdivia - The Beauty of Rose of Versailles(   Читать дальше...   )Жанр: Instrumental, Easy listening, CoverПродолжительность: 00:50:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC8546BB2F59AD5542BB850DE2CBC6729B68FDF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781387   (70286) от 22.02.2025
-
-VA - Electronic Lyrics (2025) [MP3|320 Kbps] <Synthpop, Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70286.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Interface - As Above, So Below (01:38)
- 002. Alan Sparhawk - Get Still (03:43)
- 003. Kazenga Khang - Voltage Lullaby (03:33)
- 004. Yodelice - Cutting Like A Knife (02:51)(   Читать дальше...   )Жанр: Synthpop, Pop, DanceПродолжительность: 11:15:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C986A8B93B9004361F2AB8ED3EDA32E5E3D2F73A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791210   (67937) от 12.04.2025
-
-VA - National Pop Dance Music Vol.103 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67937.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Babymonster - Sheesh (02:50)
- 002. Akasaki - Bunny Girl (03:31)
- 003. Soap - Amelie (02:26)
- 004. Still Charles - Amoretabacco (02:35)(   Читать дальше...   )Жанр: Pop, Folk, DanceПродолжительность: 12:36:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79A8CBC1D47D51DEB80FE6A04294CF2A1FF2E431
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792633   (67712) от 19.04.2025
-
-VA - Music News For Forum vol.075 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67712.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. NONNA - Vibe (02:41)
- 002. 104 feat. Alisha & Innasounnd - Королева (Remix) (03:07)
- 003. Adanowsky - La Pareja Y La Neurosis (03:28)
- 004. Adele And Robin - Courage (02:41)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 10:35:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDDF2109B35DD28E2451F6962A96DDA1280BBAA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794008   (67409) от 27.04.2025
-
-VA - Music News For Forum vol.077 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67409.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Halestorm - Darkness Always Wins (04:50)
- 002. Трепетно - Взаперти (02:18)
- 003. ADDA - Straine (02:26)
- 004. Aelyn - Only You (06:26)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 12:03:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20EFF666795381B1AD2950E426B465CFAC8BA64A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794305   (67331) от 28.04.2025
-
-VA - Musical kaleidoscope part 38 Easy listening (2025) [MP3|320 Kbps] <Instrumental, Electronic, Sax>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67331.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj Lava - Uncertainties of Fate
-02. Roxette &  Felicity Norway - It Must Have Been Love
-03. The Sound of Love - Deep Darkness
-04. Starship, Jk Sax - Nothing's Gonna Stop Us Now(   Читать дальше...   )Жанр: Instrumental, Electronic, SaxПродолжительность: 00:44:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE7767D8767F3490D23C42EAAD15853DC6E6B650
 ```
 
 https://mybot314.ru/tekegram_catalog/

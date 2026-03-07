@@ -1,3 +1,32 @@
+###  Публикация: 1547343   (600266) от 02.05.2022
+
+Archive - Call To Arms And Angels (2022) 2CD [MP3|320 Kbps] <Progressive Rock, Trip Hop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_600266.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Freedom
+02. All That I Have
+03. Frying Paint
+04. We Are The Same(   Читать дальше...   )Жанр: Progressive Rock, Trip HopПродолжительность: 2CD, 01:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84CE6B01B42587E4326C02BECF2A124FEBB3A5B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 913677   (600076) от 01.07.2015
 
 Tito & Tarantula - Lost Tarantism (2015) [MP3|320 кб/с]<Rock, Blues Rock>
@@ -723,35 +752,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D41EE13F8C0A895A5068FED1F68A2416E7AC9B65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918206   (587989) от 14.07.2015
-
-Exovex - Radio Silence (2015) [MP3|320 кб/с]<Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587989.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Stolen Wings
-2. Metamorph
-3. Seeker's Prayer
-4. The Last Orbit(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:43:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1B84D428F520B59AE7C45D6774AE83A5F19BD0D
 ```
 
 https://mybot314.ru/tekegram_catalog/

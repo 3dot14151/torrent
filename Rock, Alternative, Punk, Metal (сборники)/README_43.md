@@ -1,3 +1,38 @@
+###  Публикация: 596432   (131265) от 30.12.2012
+
+VA - Rockовое Нашествие-Русская версия (2012) [MP3|128 кб/с]<Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_131265.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 ДДТ - Напиши мне, напиши
+002 Алиса - Качели
+003 Король и Шут - На краю
+004 Сергей Шнуров - Sky Whisky
+005 Бригадный подряд, Король и шут, Пилот и Кукрыниксы - Питер рок-н-ролл
+006 Мельница - Дороги
+007 Браво - Вот и я
+008 Louna - Мама
+009 СерьГа - Берегите лес
+010 Чайф - Для него(   Читать дальше...   )Жанр: RockПродолжительность: 12:41:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3CE0FE43F95787647EE4AC6478067D6396215B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1683944   (127858) от 15.12.2023
 
 VA - Jingle Bell Rock (2023) [MP3|320 Kbps] <Hard Rock, Metal>
@@ -713,35 +748,6 @@ David Eugene Edwards - Best (as Part of 16 Horsepower, Wovenhand) (1995-2012) Co
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE3B6EBCAB312FF85C62C2CF499792E4C90D9A13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763514   (102816) от 01.12.2024
-
-Arctic Monkeys - Compilation (2005-2022) [MP3|320 Kbps] <Indie rock, Post punk, Psychedelic rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chun Li's Spinning Bird Kick (I Bet You Look Good On The Dancefloor EP 2005)
-02. 505 (Favourite Worst Nightmare 2007)
-03. 2013 (AM 2013)
-04. American Sports (Tranquility Base Hotel & Casino 2018)(   Читать дальше...   )Жанр: Indie rock, Post punk, Psychedelic rock, AlternativeПродолжительность: 03:04:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0DE5C1AC386D4A2B36EAEB54BE54ABC81A0ECB3
 ```
 
 https://mybot314.ru/tekegram_catalog/

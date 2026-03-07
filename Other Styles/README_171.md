@@ -1,3 +1,32 @@
+###  Публикация: 1717705   (58960) от 21.04.2024
+
+Sex Pistols - The Filth & The Fury (Original Motion Picture Soundtrack) (2024) [FLAC|Lossless|WEB-DL|tracks] <OST>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_58960.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. God Save The Queen [00:03:19]
+02. Submission [00:04:10]
+03. Don't Give Me No Lip, Child [00:03:27]
+04. Watcha Gonna Do About It [00:01:53](   Читать дальше...   )Жанр: OSTПродолжительность: 01:00:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF1F727DD49BF37A7A9AE521301E368154076C56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1719501   (57945) от 01.05.2024
 
 Brian Eno - Eno (Original Motion Picture Soundtrack) (2024)  [FLAC|Lossless|WEB-DL|tracks] <OST>
@@ -703,35 +732,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0EF60920FE5A71F534B36BF782E236422127888A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751740   (42293) от 26.09.2024
-
-Tantric Music Masters, Tantric Sex Background Music Experts - Erotic Oasis Tantric Arabic Music (2024) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42293.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tantric Music Masters - Sensual Sands (2:31)
-02. Tantra Healing Paradise - Desert Tantra (2:36)
-03. Tantric Sex Background Music Experts - Arabian Sensations (2:53)
-04. Tantric Music Masters - Oasis Rhythms (2:35)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:28:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:558B3D1BDA5ADE91D5A348A0135E2031C8C96958
 ```
 
 https://mybot314.ru/tekegram_catalog/

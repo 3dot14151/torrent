@@ -1,3 +1,32 @@
+###  Публикация: 921103   (577618) от 24.07.2015
+
+Bobby Fuller Four - Les Genies Du Rock - I Fought The Law (1994) [MP3|320 кб/с]<Garage Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_577618.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Not fade away (2:10)
+02.  Guess we'll fall in love (2:15)
+03.  Rock house (2:26)
+04.  A new shade of blue (2:55)(   Читать дальше...   )Жанр: Garage RockПродолжительность: 00:46:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:277AF2C3F8C49AEB11C270365EFC495C8AB4658E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 921124   (577608) от 24.07.2015
 
 Donovan -  Les Genies du Rock - Catch The Wind (1995) [MP3|320 кб/с]<Folk Rock, Psychedelic Rock>
@@ -733,35 +762,6 @@ Iggy Pop - Les Genies Du Rock - Live (1993) [MP3|320 кб/с]<Punk, Garage Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83B529712547938B7FB5291F03033EB7D39C7B51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922559   (568208) от 29.07.2015
-
-VA - Best Of Rock - Les Genies du Rock (1995) [MP3|320 кб/с]<Rock,Pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568208.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bo Diddley - Willie And Lillie (2:17)
-02. Spooky Tooth - Two Time Love (3:28)
-03. Muddy Waters - Walkin' Thru The Park (3:17)
-04. The Shangri-Las - Right Now And Not Later (2:35)(   Читать дальше...   )Жанр: Rock,PopПродолжительность: 00:42:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9C022FE44D2AC827A0ED8832E3B703A0BB050CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

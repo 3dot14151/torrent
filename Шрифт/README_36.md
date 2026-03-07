@@ -1,3 +1,29 @@
+###  Публикация: 1806032   (11905) от 10.07.2025
+
+Шрифты - MyFonts - Standard CT [TTF, OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_11905.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2008 году CastleType выпустила дополнительные шрифты семейства Standard CT, чтобы сделать его полным типографским решением с тремя ширинами (нормальная, сжатая, расширенная) по четыре начертания каждое (Regular, Medium, Bold и Extra Bold). Некоторые из исходных шрифтов Standard, особенно Standard Regular, по-видимому, были разработаны в спешке (или, возможно, слишком (   Читать дальше...   )Формат: TTF, OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0782C3A9E53A190C1C0086A67BF8216E334FF19D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1806319   (11711) от 12.07.2025
 
 Шрифты - MyFonts - Telegraph [TTF, OTF]
@@ -652,33 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6A032B16F30009B0DCC4BD954BAE232FCE6569B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808303   (10461) от 24.07.2025
-
-Шрифты - Behance - Alena Morgunova - CRAFT - 223720669 [OTF, TTF, WOFF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10461.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатный шрифт с кириллицей.
-Материал раздаётся с официальной документацией.Формат: OTF, TTF, WOFF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1CEE731025FBA35040B4D9B563F1BAC59C2DB3E
 ```
 
 https://mybot314.ru/tekegram_catalog/

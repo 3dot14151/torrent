@@ -1,3 +1,61 @@
+###  Публикация: 1079318   (292152) от 05.12.2016
+
+VA - Сливки хит-парадов №3 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_292152.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. James Arthur - Sober
+002. Raelynn - Diamonds
+003. Helena Paparizou - Zoi Mou
+004. Fly Project Feat. Andra - Butterfly(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D899058DFAF4E8504D280A0160BA1E856158E61C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079311   (292151) от 05.12.2016
+
+VA - Сотка модных хитов. Часть 7 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_292151.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Don Diablo Feat. Dave Thomas Jr. - Silence 3:30
+002.Olisha - Ой Мама 2:57
+003.Гарри Польский - Ну Погоди 3:16
+004.Hoodie Allen Feat. Max - Won't Mind 4:13(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DABEB347760FDAB8F726D913C635D6EEDBCAEB72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1079640   (292150) от 05.12.2016
 
 VA - Хитовый драйв. Музыкальный заряд. Часть 7 (2016) [MP3|256 Kbps] <Pop>
@@ -687,64 +745,6 @@ VA - Отрывайся с лучшими хитами - 4 (2016) [MP3|256 Kbps]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1299762F340E2911788D3CF1D0BE46AC3A23F28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964305   (283782) от 10.12.2015
-
-VA - Пацаны - Ваще Ребята! vol.22 (2015) [MP3|128-320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283782.jpg" />
-</div>
-
-
-###  Подробнее
-
-16. DJ Jedy feat. Ilaila - За Плечи (Future House Remix).
-17. Anton Mayer feat. Denis Rublev - Бьет По Глазам.
-18. Серебро - Отпусти Меня.
-19. Марсу Нужны Любовники - Её глаза (Dj Denis Rublev & Dj Anton remix).(   Читать дальше...   )Жанр: PopПродолжительность: 02:25:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A608C5BFA41C5A690531BC20DBFA9461CA42576
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964331   (283268) от 10.12.2015
-
-VA - Супер 100-ка Музыкальной дискотеки 50х50 (2015) [MP3|256-320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283268.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Паола - Новогодняя Сказка
-002. Fences - Dogs At The Table
-003. Бьянка - Любимый Дождь
-004. Hoodie Allen Feat. Alex Wiley - Sirens(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D9F2C3734BA30EF7865D4DCD695B4AE2CCFEC69
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -285,6 +285,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 165532   (982660) от 10.01.2010
+
+Shivaree - Дискография (8 CDs) (1999-2007) [FLAC|Lossless]<Indie, Rock, Alternative, Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_982660.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Goodnight Moon (4:05)
+02. Scrub (5:51)
+03. My Boy Lollypop (02:30)Жанр: Indie, Rock, Alternative, Pop-RockПродолжительность: 00:12:26
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 741850   (982261) от 04.01.2014
 
 Distant Dream - A New Beginning (2005) [MP3|320 кб/с]<Progressive rock>
@@ -747,35 +775,6 @@ VA - Rock Love (2020) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E343CC578AC4134E2DF1B2617DEE5611CCB71BE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980580   (956165) от 29.01.2016
-
-Vinnie Moore - Aerial Visions (2015) Japanese Edition [OGG|463-511 кб/с] <Instrumental Hard'n'Heavy Rock, Guitar Virtuoso, Shred>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956165.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mustang Shuffle (4:15)
-02. Now's the Time (4:12)
-03. Faith (4:22)
-04. Slam (4:37)(   Читать дальше...   )Жанр: Instrumental Hard'n'Heavy Rock, Guitar Virtuoso, ShredПродолжительность: 00:52:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9683594D52B09656BC44632A96B0ABBF0F34BA63
 ```
 
 https://mybot314.ru/tekegram_catalog/

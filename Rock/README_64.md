@@ -1,3 +1,32 @@
+###  Публикация: 1178804   (353965) от 29.10.2017
+
+Marcus Hook Roll Band - Tales Of Old Grand-Daddy (1973) Reissue, 1994, Albert Production [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_353965.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Natural Man
+02. Louisiana Lady
+03. Shot In The Head
+04. Can't Stand The Heat(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09E5E34EBC634D6061CA5561AF6506C8B251B88C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 953235   (351787) от 03.11.2015
 
 Fear Itself - Fear Itself (1968) / 2006, World In Sound / [MP3|320 кб/с]<Psychedelic, Blues Rock>
@@ -720,35 +749,6 @@ Pink Floyd - The Endless River (2014) [MP3|320 кб/с]<Progressive Rock , Ambie
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C974E1D0D0B8960F7DF22360E6A371BF4145D5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578501   (345939) от 23.09.2022
-
-Stratovarius - Eternal (2015) [OGG Vorbis|484 Kbps] <Rock, Power Metal, Ambient>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345939.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Eternal Dream
-02. Shine In The Dark
-03. Rise Above It
-04. Lost Without A Trace(   Читать дальше...   )Жанр: Rock, Power Metal, AmbientПродолжительность: 01:02:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E22CA09B5A1025FECC6DD00D9181D59D6DAB8CAC
 ```
 
 https://mybot314.ru/tekegram_catalog/

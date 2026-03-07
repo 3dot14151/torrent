@@ -1,3 +1,119 @@
+###  Публикация: 980518   (956156) от 29.01.2016
+
+Fancy - Five (1990) [FLAC|Lossless|tracks + .cue] <Pop, Synthpop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_956156.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.When Guardian Angels Cry
+2.Like You
+3.Second Hand Paradise
+4.All We Need Is to Believe(   Читать дальше...   )Жанр: Pop, Synthpop, DiscoПродолжительность: 00:45:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F726F2FE5F214C183FB3C415DC92C825385097E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980468   (956154) от 29.01.2016
+
+Nicole Scherzinger - Killer Love (2011) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Pop, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_956154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Poison [03:47]
+02. Killer Love [03:52]
+03. Don't Hold Your Breath [03:17]
+04. Right There [04:02](   Читать дальше...   )Жанр: Pop, R&BПродолжительность: 01:11:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0250677A7D62F3B56FF6A0E13052256136ADE02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980472   (956062) от 29.01.2016
+
+ABBA - Super Trouper (1980) West Germany 1st Press, 15 November 1982 [FLAC|Lossless|image + .cue] <Pop Music>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_956062.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Super Trouper    [04:11.90]
+02. The Winner Takes It All    [04:55.26]
+03. On and on and On    [03:40.62]
+04. Andante, Andante    [04:39.57](   Читать дальше...   )Жанр: PopПродолжительность: 00:42:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:687BF6BAA867AE1F01C72653F0CEA2D638628C45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980362   (955973) от 29.01.2016
+
+Pet Shop Boys - Very (1993) Licence to EMI Records Ltd. [FLAC|Lossless|tracks + .cue] <Pop, Synthpop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_955973.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Can You Forgive Her?
+2.I Wouldn’t Normally Do This Kind of Thing
+3.Liberation
+4.A Different Point of View(   Читать дальше...   )Жанр: Pop, SynthpopПродолжительность: 01:08:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E17EDF1DEC034A0084B99FFC1E35A2031D528D29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 980477   (955667) от 29.01.2016
 
 Sia - This Is Acting (Deluxe Edition) (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop, Indie>
@@ -627,122 +743,6 @@ VA - It Had To Be You • The Ultimate Love Songs (2014) 3CD [FLAC|Lossless|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08D0908087D68FDC080EAFDB9A12133EBB0453CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982933   (945295) от 05.02.2016
-
-Suzanne Vega - Retrospective: The Best Of Suzanne Vega (2003) [FLAC|Lossless|image + .cue] <Folk Rock, Indie Rock, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luka
-02. Tom's Diner (DNA Featuring Suzanne Vega)
-03. Marlene On The Wall
-04. Caramel(   Читать дальше...   )Жанр: Folk Rock, Indie Rock, Pop RockПродолжительность: 01:17:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B90DF1F2C3F1162E88EBC306ED04C4514B1DF48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 98717   (944935) от 26.02.2020
-
-Chilly - For Your Love(1978)-Come To L.A(1979)-Secret Lies(1982) [FLAC+Cue|940 kbps]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dimension 5 (3:18)
-02. Secret Lies (3:11)
-03. Ten Million Dollar Baby (2:40)
-04. Brain Storming (3:44)(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:518B8467F9DEB7EE9AD5F832F96225986A162BDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983283   (943729) от 06.02.2016
-
-Monica Naranjo - Lubna (2016) [FLAC|Lossless|tracks + .cue] <Latin,  Rock, Classical>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943729.jpg" />
-</div>
-
-
-###  Подробнее
-
-1	Lasciatemi Qui 3:38
-2	Apocalitica 2:55
-3	Ya Esta Bien 6:52
-4	Perdida 4:58(   Читать дальше...   )Жанр: Latin,  Rock, ClassicalПродолжительность: 01:07:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAA385A7EAD105C25164A31FFC6A4046ABE5D141
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983382   (943675) от 06.02.2016
-
-Nina Nesbitt - Modern Love (2016) EP [FLAC|Lossless|tracks] <Pop, Indie Pop, Female Vocal>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943675.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодая шотландская поп-певица Nina Nesbitt, 5 февраля 2016 года представила свой новый мини-альбом, который получил название "Modern Love".01. Chewing Gum (03:20)
- 02. Take You To Heaven (04:00)
- 03. Masquerade (Niightwatch Demo) (03:34)
- 04. Chewing Gum (Niightwatch Demo) (03:34)(   Читать дальше...   )Жанр: Pop, Indie Pop, Female VocalПродолжительность: 00:20:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A3EC11C20045F3F165EA793CBDCD41CC35805E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

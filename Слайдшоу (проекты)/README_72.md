@@ -1,3 +1,29 @@
+###  Публикация: 704835   (453198) от 28.09.2013
+
+VideoHive - Colors of Life - 4583370 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_453198.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красивый проект с прорисовкой каждого слайда.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF5ACA6C66CB9044EE823C1E9FBA46464342EA95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1060609   (452558) от 08.10.2016
 
 Проекты - VideoHive - Travel Reel With Titles - 17923569 [AEP]
@@ -646,32 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F685B37B322A612E8DAF40627FEF93782642C5DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062009   (443890) от 12.10.2016
-
-Проекты - VideoHive - Modern Opener - 17241697 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443890.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания слайдшоу. Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84722265C825D9B99F0AEE15BC3A0EA74CD87CCD
 ```
 
 https://mybot314.ru/tekegram_catalog/

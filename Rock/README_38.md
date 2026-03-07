@@ -1,3 +1,32 @@
+###  Публикация: 1229241   (628071) от 05.06.2018
+
+Polestar 1 - Flying Thru The Universe (1980) LP [MP3|320 Kbps] <Electronic, Progressive Rock, Space Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628071.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Flying Thru The Universe (6:43)
+02.  Sinful Place (6:56)
+03.  I Can See It (3:49)
+04.  Searching (3:43)(   Читать дальше...   )Жанр: Electronic, Progressive Rock, Space RockПродолжительность: 00:39:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AEE3B71B6FE092344E6E2E805FDB40CC64D1499
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1035344   (628034) от 16.07.2016
 
 Pink Floyd - Echoes - The Best Of Pink Floyd (2001) Remastered, 2016, Parlophone Records Ltd. / PFR20 [MP3|320 Kbps] <Progressive Rock>
@@ -719,41 +748,6 @@ The Wackers - Hot Wacks (1972) Reissue, 2005, Collectors' Choice Music [MP3|320 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60F26576003246FA903B5547A82CFA424037A6CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523179   (619032) от 15.07.2012
-
-VA - Jim Beam Authentic Rock - 50 Pub Jukebox Anthems (2012) [MP3|320 кб/с]<Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619032.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Rock, Classic RockПродолжительность: 01:10:29
-
-01. Faith No More — Easy
- 02. Foreigner — Urgent
- 03. Boston — More Than A Feeling
- 04. Baby Animals — One Word
- 05. Hunters & Collectors — Say Goodbye
- 06. The Angels — No Secrets
- 07. Live — Lightning Crashes
- 08. Tom Cochrane — Life Is A Highway(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B559AC3CD2340735F37BB7FB26CE87B779104560
 ```
 
 https://mybot314.ru/tekegram_catalog/

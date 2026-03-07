@@ -1,3 +1,119 @@
+###  Публикация: 1558887   (527745) от 23.06.2022
+
+Vanessa Mai - No Hard Feelings (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_527745.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Hard Feelings (2:38)
+02. Schwarze Herzen (2:24)
+03. Melatonin (2:19)
+04. Happy End (feat. Sido) (2:17)(   Читать дальше...   )Жанр: PopПродолжительность: 00:12:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F187E0A98438A047F092C5CBE82D955C191FCB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 810741   (527595) от 07.08.2017
+
+VA - The Best Projects Of Dieter Bohlen (1989) [APE|Lossless]<Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_527595.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sheree - Ronnie Talk To Russia ! 5:36
+02. The Clock-Work Toys - No 1 Hit Medley 6:28
+03. Copy-Right - You Can Win If You Want (Adult Mix) 9:49
+04. Heaven Knows - Lucky Guy 6:27(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:12:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B30AB3B9334D6F1D9D837AA8E4C17EE19228644C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1559276   (527062) от 24.06.2022
+
+Madonna - Finally Enough Love (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_527062.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Everybody (You Can Dance Remix Edit)
+02 - Into The Groove (You Can Dance Remix Edit)
+03 - Like A Prayer (7" Remix Edit)
+04 - Express Yourself (Remix Edit)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:17:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33657F2BB2C56DC504CB11CD72C5D84BB7039F5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1156667   (526963) от 08.08.2017
+
+Supermax - Dont Stop The Music (1976) Remastered, 2005, CD-Maximum <Electronic, Pop, Funk, Reggae>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_526963.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dance Dance Dance
+02. Push Push (Sexy Chocolate Girl)
+03. Watch Out South Africa, Here We Come
+04. Don't Stop The Music(   Читать дальше...   )Жанр: Electronic, Pop, Funk, ReggaeПродолжительность: 00:55:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBED198A8B507183DCF4F63E9D69709EFD4D57A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1053075   (526649) от 16.09.2016
 
 Maxi Dance Pool - Musikladen Eurotops (1988) [FLAC|Lossless|tracks + .cue] <Pop House, Disco>
@@ -639,122 +755,6 @@ Chris de Burgh - High On Emotion - Live from Dublin! (1990) Live [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:74C2592561583FEC6BEFFC3BAEC2EF987FE2B91F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242599   (514033) от 23.08.2018
-
-Chris de Burgh - Power of Ten (1992) [FLAC|Lossless|tracks + .cue] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514033.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Where We Will Be Going (4:30)
- 02. By My Side (4:25)
- 03. Heart Of Darkness (4:55)
- 04. In Your Eyes (4:40)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:52:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F05D2385056ED5A43458BF0B6A0064343607C2ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242601   (514031) от 23.08.2018
-
-Chris de Burgh - Eastern Wind (1980) [FLAC|Lossless|tracks + .cue] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514031.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Traveller (4:11)
- 02. The Record Company Bash (3:55)
- 03. Tonight (3:29)
- 04. Wall Of Silence (3:51)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:38:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1288A368CCDD54B33877A283092D717C5AB52B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242616   (513997) от 23.08.2018
-
-Chris de Burgh - Far Beyond These Castle Walls (1975) Reissue, 1987 [FLAC|Lossless|tracks + .cue] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513997.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hold On (4:07)
- 02. Key (4:09)
- 03. Windy Night (4:55)
- 04. Sin City (4:42)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:44:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CE69308E76A90D41EF21CB89F8F11C5C5E66F35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242619   (513991) от 23.08.2018
-
-Chris de Burgh - At the End of a Perfect Day (1997) Reissue, 1988 [FLAC|Lossless|tracks + .cue] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513991.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Broken wings (3:10)
- 02. Round and around (3:07)
- 03. I will (3:31)
- 04. Summer rain (4:01)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:35:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01C83AE2E9D3BA002F546EDF19582B74B59BA4EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

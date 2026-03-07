@@ -1,3 +1,32 @@
+###  Публикация: 945803   (31934) от 05.01.2025
+
+Tomas Lanquist - On Faery Wings (2015) [MP3|320 кб/с]<New Age, Electronic, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_31934.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Secret Paths
+02. Soul Flight
+03. On Faery Wings
+04. Twilight Moon(   Читать дальше...   )Жанр: New Age, Electronic, AmbientПродолжительность: 00:55:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57FD5B12107664E33A1BA6261AE35ECD173D0ACE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 911636   (31903) от 05.01.2025
 
 Eleni Violaris - Rainstriker (2015) [MP3|320 кб/с]<New Age, World>
@@ -716,35 +745,6 @@ VA - The Orient Collective: Ancient Beauty (2025) [FLAC|Lossless|WEB-DL|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45639DB9FE223B803FD5BE2E75E51BA6083FB285
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810815   (16840) от 07.08.2025
-
-Alabama - In Pictures (1995) [FLAC|Lossless|tracks + .cue] <Folk, Country Rock, Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_16840.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunday Drive    [0:02:31.68]
-02. She Ain't Your Ordinary Girl    [0:03:08.40]
-03. My Love Belongs to You    [0:03:35.00]
-04. I've Loved a Lot More Than I've Hurt    [0:03:13.32](   Читать дальше...   )Жанр: Folk, Country Rock, RockПродолжительность: 00:38:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63E5DEC3DD07F3C92C5E3E8DAC33E8D8FBE5AD3C
 ```
 
 https://mybot314.ru/tekegram_catalog/

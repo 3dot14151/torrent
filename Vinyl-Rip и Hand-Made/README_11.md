@@ -1,3 +1,177 @@
+###  Публикация: 1500378   (841290) от 06.10.2021
+
+Cinderella - Легенды Зарубежного Рока (2000) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_841290.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. Don`t Know What You Got
+02. Heartbreak Station
+03. Hard To Find The Words(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:53:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:858AA927F0CB1C3D96BE3612DBCC68414E724EE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 793368   (841272) от 04.04.2016
+
+Electric Light Orchestra - Secret Messages (1983)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_841272.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Secret Messages (4:45)
+A2. Loser Gone Wild (5:24)
+A3. Bluebird (4:09)
+A4. Take Me On And On (5:01)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:42:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7075669EA4FE93F57AACE74FEA887A0CB7036F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004105   (839899) от 05.04.2016
+
+Nini Rosso and His Orchestra/Нини Россо И Его Оркестр - Napoli/Неаполь (1983) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Latin>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_839899.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1	Душа И Сердце (Anema E Core)
+A2	Идёт Дождь (Chiove)
+A3	Неблагодарное Сердце (Core' Ngrato)
+A4	Страсть (Passione)(   Читать дальше...   )Жанр: Jazz, LatinПродолжительность: 00:39:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D91344BE128BA4E7707AAFAA8C1B1B48739E07A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112731   (839546) от 10.03.2017
+
+VA - RETROспектива, часть XIV. Мелодии и песни из кинофильмов III (1946-1966) [FLAC 1.0|48/24|tracks|Vinyl-Rip] <Retro, Soundtrack>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_839546.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Женск. вок. ансамбль - Песня подруг (из к.ф. ''Девчата'')
+02. Валентина Дворянинова - Прощайте, голуби (из к.ф.  ''Прощайте, голуби'')
+03. Оркестр п.у. Виктора Кнушевицкого - Медленный танец (из к.ф. ''Моя любовь'')
+04. Ефим Нейд (худ. свист) - Мелодии (из к.ф. ''Вернись в Соренто'')(   Читать дальше...   )Жанр: Retro, SoundtrackПродолжительность: 00:52:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40EFD35BD4FF786EA5919B69C05EF998CACA6CA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1500871   (837869) от 08.10.2021
+
+Rainbow - Легенды Зарубежного Рока (2000) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_837869.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. Catch To Rainbow
+02. All Night Long
+03. Starstruck(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:22:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29620E8B9A76C9B386E26505472F6641882AB606
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 879054   (835414) от 19.03.2015
+
+Elton John - Goodbye Yellow Brick Road (2014) [LPCM2.0 96/24, DTS96/24 5.1|Audio-DVD (BD-Audio)] <Rock, Glam Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835414.jpg" />
+</div>
+
+
+###  Подробнее
+
+• 2014 Stereo Remaster
+
+01 Funeral For A Friend/ Love Lies Bleeding (2014 Remaster) 11:10
+02 Candle In The Wind (2014 Remaster) 3:49(   Читать дальше...   )Жанр: Rock, Glam RockПродолжительность: 01:16:19 + 00:13:11 (4 bonus tracks)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B21594CD12BD637F55575E556F1FD53A9A80800
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1501310   (835028) от 10.10.2021
 
 Nirvana - Легенды Зарубежного Рока (2001) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Rock, Grunge>
@@ -577,184 +751,6 @@ A4. Fire Dance (4:31)(   Читать дальше...   )Производств�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3ADBCE6D9ADDB527CE6AC29CE084009EFF6027DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 656547   (815733) от 15.05.2013
-
-Halestorm - The Strange Case Of... (2012) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Hard Rock, Alternative Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815733.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Hard Rock, Alternative MetalПродолжительность: 00:40:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31A6D85ADF18C078F87C9048D9EE202F12BA895B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503985   (815567) от 21.10.2021
-
-Юрий Шевчук и группа ДДТ - Сборник песен (2021) Vinyl-Rip [FLAC|44/24|Lossless|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815567.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Белая река
-2. В последнюю осень
-3. Просвистела
-4. Что такое осень(   Читать дальше...   )Жанр: RockПродолжительность: 01:31:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63D60A49D14B3B04D4138F4963BE4BE5D5927FBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117989   (814903) от 24.03.2017
-
-Cinderella - Long Cold Winter (1988) [WavPack 2.0|192/32|image+.cue|Vinyl-Rip] <Hard Rock, Glam>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814903.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fallin' Apart at the Seams (5:19)
-02. Gypsy Road (3:55)
-03. Don't know What You Got (Till It's Gone) (5:54)
-04. The Last Mile (3:52)(   Читать дальше...   )Жанр: Hard Rock, GlamПродолжительность: 00:44:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96BE62B8CB643F25DE30384381B75B2F154AD46C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008740   (813553) от 19.04.2016
-
-Smokie - The Montreux Album, The Other Side Of The Road (1978, 1979) [PCM 2.0|96/24|Audio-DVD|Vinyl-Rip] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813553.jpg" />
-</div>
-
-
-###  Подробнее
-
-• The Montreux Album •
-
-01. The Girl Can't Help It  3:48
-02. Power of Love  1:58(   Читать дальше...   )Жанр: Rock
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67992160EA2E9783A7BD32C0A985BA50F6B2D98B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 657142   (813537) от 16.05.2013
-
-Alice Cooper - Welcome To My Nightmare (1975) [FLAC 2.0 24/96 |tracks (Vinyl-Rip)]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813537.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome To My Nightmare (5:16)
-02. Devil's Food (3:35)
-03. The Black Widow (3:37)
-04. Some Folks (4:15)
-05. Only Women Bleed (5:46)
-06. Department Of Youth (3:18)
-07. Cold Ethyl (2:53)
-08. Years Ago (2:51)
-09. Steven (5:47)
-10. The Awakening (2:25)(   Читать дальше...   )Жанр: Rock
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65DA53995E74B98AA39E14DC51B0B5FA07B18EEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 882873   (812853) от 31.03.2015
-
-Кино - запись студии "Тон" (1991) [FLAC 2.0 24/96|image (Tape-Rip)]<русский рок>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812853.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Это не Любовь
-02.Спокойная ночь
-03.Троллейбус
-04.Закрой за мной дверь я ухожу
-05.Попробуй спеть вместе со мной(   Читать дальше...   )Жанр: русский рокПродолжительность: 0:22:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9B9DFEF0958E0E409EF36361E761A7DC95B7479
 ```
 
 https://mybot314.ru/tekegram_catalog/

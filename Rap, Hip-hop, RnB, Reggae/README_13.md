@@ -1,3 +1,90 @@
+###  Публикация: 1279278   (765875) от 29.01.2019
+
+Группа «Антиреспект» - Тишина... (2018) [MP3|320 Kbps] <Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765875.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Заветная
+02 - Летай
+03 - Нарисуй (feat. Мафик)
+04 - Одинокие берега(   Читать дальше...   )Жанр: RapПродолжительность: 01:32:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3BE68C482DF1E622D61B59BDF1506D444CB25BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214715   (763927) от 22.03.2018
+
+Toni Braxton - Sex & Cigarettes (2018) [FLAC|Lossless|WEB-DL|tracks] <R&B, Soul>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>RnB, Reggae (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763927.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Deadwood 03:59
+2. Sex & Cigarettes 03:48
+3. Long As I Live 04:51
+4. FOH 02:47(   Читать дальше...   )Жанр: R&B, SoulПродолжительность: 00:30:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DF5D1C74B357872FFDCC33DD89BBE4A9C700D2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280073   (763517) от 01.02.2019
+
+MATRANG - DA (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763517.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Иди
+2. Луной
+3. Заменители
+4. Камень(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:27:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A936B4CE3C260E47DF9B95166D98DA48BFB34F76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1214703   (763169) от 23.03.2018
 
 Мот - Какие люди в Голливуде (Или премия "Оскар" с субтитрами) (2018) EP [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -656,93 +743,6 @@ N.W.A. - Greatest Hits (1996) [MP3|320 Kbps] <Hip-Hop, Rap>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0605574321170EFC7135D62B3A996A172FBF0103
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284692   (720787) от 26.02.2019
-
-Dr. Dre - 2001 (1999) [MP3|320 Kbps] <Hip-Hop, Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720787.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Lolo (Intro) ft Xzibit & Tray-Dee
-02.The Watcher
-03.F*ck You ft Devin a.k.a The Dude & Snoop Dogg
-04.Still D.R.E ft Snoop Dogg(   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 01:08:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49776E1BB5B176F96A02BDD6ABC48148E56B85CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399965   (719397) от 05.08.2020
-
-Pastor Napas - Азъ есмь (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719397.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Белый король [02:47]
-02. Я жив [02:34]
-03. Бьется снова [02:39]
-04. О мой Бог [03:15](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:29:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C62AC39913B76DD57FD4A4D23858DB41639E272
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399963   (719395) от 05.08.2020
-
-ЗАМАЙ - Lust Hero 2 (Deluxe) (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719395.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Дальнобойная [03:08]
-02. Instagram [02:53]
-03. Poker [03:10]
-04. Девочка похожая на сон [03:20](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:29:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7691DC6E4AF9E684F8287015E17B92A2CE60396
 ```
 
 https://mybot314.ru/tekegram_catalog/

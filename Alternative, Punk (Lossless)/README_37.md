@@ -1,3 +1,32 @@
+###  Публикация: 1322033   (452604) от 27.08.2019
+
+Pronoun - I'll Show You Stronger (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_452604.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You're Not Trying at All (03:34)
+02. Run (03:38)
+03. You Didn't Even Make the Bed (03:23)
+04. For the Story (01:45)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:41:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D010C3917027AD530F5DD867086F20133B97F768
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1408847   (451831) от 14.09.2020
 
 Fixation - Global Suicide (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
@@ -715,35 +744,6 @@ Rea Garvey - Neon (2018) Island Records [FLAC|Lossless|tracks + .cue] <Alternati
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A4FA821AABCEB295B7529511E1A24E9DAF77848
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410561   (429986) от 24.09.2020
-
-Portraits - At My Darkest (2020) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429986.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mortal Frame [00:01:36]
-02. Cleansing [00:03:42]
-03. Parasite In Me [00:04:17]
-04. Hands Of Guilt [00:03:59](   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:31:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13DB238D4F06FFDCBAE1186740A0B9C74D00C914
 ```
 
 https://mybot314.ru/tekegram_catalog/

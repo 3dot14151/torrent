@@ -1,3 +1,32 @@
+###  Публикация: 1694921   (120134) от 30.01.2024
+
+VA - Dramatic Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_120134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Katya Kramer-Lapin - Piano Sonata No. 14 in C-Sharp Minor, Op. 27 No. 2 Moonlight Sonata I. Adagio sostenuto (5:43)
+02. Misha Fomin - 12 Etudes, Op. 10 No. 12 in C Minor Revolutionary (2:38)
+03. Misha Fomin - Piano Sonata No. 8 in C Minor, Op. 13 Pathétique I. Grave - Allegro di molto e con brio (9:07)
+04. Misha Fomin - Piano Sonata No. 8 in C Minor, Op. (   Читать дальше...   )Жанр: ClassicalПродолжительность: 03:05:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:072611F24BF56D68BF07D5480E931BC00E1CC560
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1696981   (118792) от 07.02.2024
 
 VA - Intense Piano Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
@@ -706,33 +735,6 @@ Architects (UK) - Unmasking My Truth (2024) [FLAC|Lossless|WEB-DL|tracks] <Piano
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2422B90C345E23E987E2A504DADB26C46A9B3085
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721494   (109809) от 10.05.2024
-
-Trance Opera - 11 Albums (1995-2017) [FLAC|Lossless|WEB-DL|tracks] <Classical Crossover, Neoclassical, Opera, Trance>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Spente Le Steele (Vocal Club Mix)
-02 - Spente Le Steele (Club Dub)Жанр: Classical Crossover, Neoclassical, Opera, TranceПродолжительность: 11CD, 09:49:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:567CFE7CC4C6255F6A5EA0B5BA48A237B34CA1D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

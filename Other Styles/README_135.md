@@ -1,3 +1,32 @@
+###  Публикация: 1078825   (296246) от 03.12.2016
+
+Brian Tyler - Brake / Тормоз (Original Motion Picture Soundtrack) (2012) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_296246.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brake (Main Title) (02:09)
+02. Roulette (03:36)
+03. The Blind Watchmaker (03:26)
+04. Inside The Box (01:35)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:50:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D647FE65F73448567476B529CD50E4DB19E2739
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1078826   (296135) от 03.12.2016
 
 Brian Tyler - Brake / Тормоз (Original Motion Picture Soundtrack) (2012) [FLAC|Lossless|tracks+.cue]<Soundtrack>
@@ -713,35 +742,6 @@ Greg Maroney - The Light Within (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B0ABFCEE99E7D23DCEC44F588810C79A779D9A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079665   (291986) от 05.12.2016
-
-VA - Los clasicos argentinos - Tango - Vol.13 - Julio De Caro: El gran melodioso (1996) [MP3|128 Kbps] <Tango>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291986.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carlos Gardel - Tango argentino
-02. Sexteto Mayor - Verano porteno
-03. F.Ruiz-F.Rotundo - Milonguera
-04. Argentino Ledesma - Fuimos(   Читать дальше...   )Жанр: TangoПродолжительность: 00:46:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A143329D77F87873698EE56BEF2AF9D2D76EB03C
 ```
 
 https://mybot314.ru/tekegram_catalog/

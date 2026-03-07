@@ -1,5 +1,121 @@
 https://t.me/izofen
-###  Публикация: 1856641   (1059041) от 
+###  Публикация: 1857322   (1059515) от 05.03.2026
+
+VA - Lounge 2026 (Deep Strips) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1059515.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anton Ishutin - Show Me (Toly Braun Remix) (5:52)
+02. The Fly - No Go Back (2:43)
+03. Kevin Havis - Without (2:14)
+04. Sharapov - Bring Me Back (Mant Deep Remix) (5:00)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:55:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D46E08CC48161AAE025D1E8CE6912E8D9C3EA2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856891   (1059284) от 02.03.2026
+
+VA - Winter Dance Covers 2026 (SSL Music) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1059284.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stefan Celar - Yeah! (2:48)
+02. Devinity - Give Me The Night (3:18)
+03. Acko - Shape Of You (2:53)
+04. PHURS - Last Night (2:39)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 00:54:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E149D9BC7688D9F89D90C7D7FE9775DF808A5A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856783   (1059185) от 02.03.2026
+
+VA - Car Music Winter Dance Hits 2026 (SSL Music) (2026) [FLAC|Lossless|WEB-DL|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1059185.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MALØ - She Doesn't Mind (2:35)
+02. Old Jim - Beat It (2:30)
+03. RevoideN - Black Betty (2:06)
+04. Alperen Ocak - Sexyback (2:35)(   Читать дальше...   )Жанр: HouseПродолжительность: 00:45:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22FDDD9C54B847F464678FEF88437244C3A1D2ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856667   (1059138) от 02.03.2026
+
+Model 500 - Starlight (2008) CD [FLAC|Lossless|tracks] <Dub Techno, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1059138.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Starlight (Original) 6:19
+02. Starlight (Deepchord Remix) 12:14
+03. Starlight (Echospace Unreleased Mix) 7:09
+04. Starlight (Soultek Remix) 5:12(   Читать дальше...   )Жанр: Dub Techno, AmbientПродолжительность: 01:19:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:609C787ADB1B3276735DBA1E5F8A5C31BB5B4BBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856641   (1059041) от 01.03.2026
 
 VA - Tech House Winter Dance Hits 2026 (SSL Music) [FLAC|Lossless|WEB-DL|tracks] <House>
 
@@ -28,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856666   (1058985) от 
+###  Публикация: 1856666   (1058985) от 01.03.2026
 
 Martin Schulte - Forest (2014) [FLAC|Lossless|WEB-DL|tracks] <Dub Techno>
 
@@ -57,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856723   (1058967) от 
+###  Публикация: 1856723   (1058967) от 01.03.2026
 
 VA - Afro House Winter Dance Hits 2026 (SSL Music) [FLAC|Lossless|WEB-DL|tracks] <House>
 
@@ -628,122 +744,6 @@ VA - Winter Lounge Hits 2026 (Deep Strips) [FLAC|Lossless|WEB-DL|tracks] <House,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:976528B256B45A21E2FE9AD15A530CD11E1B1E8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848753   (1052895) от 18.01.2026
-
-VA - Winter Hits 2026 (Deep Strips) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052895.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anton Ishutin - Be My Lover (Radio Edit) (2:12)
-02. Cristian Ferrer - Careless Whisper (Radio Edit) (3:21)
-03. Dellahouse - It's a promise we will keep (3:39)
-04. Julian Runge - Let Me Go (3:10)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:45:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B50159C5EABDA377AB9ABFE279AC2F1561FD1AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848088   (1052600) от 15.01.2026
-
-VA - Lounge Hits 2026 (Deep Strips) (2025) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052600.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gorbunoff - Alive (2:02)
-02. The Grape - Secrets (2:51)
-03. Mant Deep - How Will I Know (5:14)
-04. YampolSky - Fly (Roland (UA) Remix) (6:22)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:48:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B443C3CEC5F35164FB7CD436FEFFADF49D51B616
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847691   (1052381) от 13.01.2026
-
-VA - Winter Dance Hits 2026 (Deep Strips) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052381.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Umut Torun - Rose (3:08)
-02. Jaytor - Lost Life & Love (5:01)
-03. Elegant Ape - Feel The Fire (3:58)
-04. Silvan7 - Summer Emotions (3:57)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:48:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D51D53082B71DCF393337E203FB41B6A1EFD676B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847555   (1052166) от 12.01.2026
-
-VA - Afro Hits 2026 (Deep Strips) (2025) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052166.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elegant Ape - Desert Bloom (3:09)
-02. Cristian Ferrer - Deep Inside (Radio Edit) (Radio Edit) (3:11)
-03. Cristian Ferrer - Osupa Ti (Radio Edit) (Radio Edit) (3:52)
-04. N.E.O.N - Yemaya Mama (Radio Edit) (Radio Edit) (3:30)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:44:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3960EF8294F07DD46B639AA68ACBC160E123A4A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

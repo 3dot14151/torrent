@@ -1,3 +1,119 @@
+###  Публикация: 1348444   (144432) от 27.12.2019
+
+VA - 100 Greatest Ballads (2019) [FLAC|Lossless|tracks] <Pop, Rock, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_144432.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот релиз прямо по старой журналистской поговорке - "Утром случилось - вечером в новостях". Сегодня этот релиз появился на Qobuz - и вот он уже на трекере, причем и в lossless и в lossy (стараниями комрада maykov). Новых треков не так уж много, но для тех кто готовится к предстоящему Новому году всерьез, ведь обязательно нужен сборничек в котором узнаваемые (   Читать дальше...   )01. Prince - Purple Rain  (8:41)
+02. Coldplay, Seeb - Everglow  (3:48)
+03. Foreigner - I Want to Know What Love Is (2013 Remaster)  (5:06)
+04. Spandau Ballet - TRUE (Single Edit)  (5:28)(   Читать дальше...   )Релиз состоялся: 27 декабря 2019 годаЖанр: Pop, Rock, DanceПродолжительность: 06:38:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:547B467D6B8FE17790F8BBE5436E5B4256006F37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088113   (142873) от 29.12.2016
+
+Elissa - A'ayashalak (2002) [FLAC|Lossless|tracks + .cue] <Lebanese Pop, Levantine Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_142873.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - A'ayashalak (04:38)
+02 - Ah Min Hawak (04:42)
+03 - Ajmal Ihssas (05:54)
+04 - Shaghilni (04:11)(   Читать дальше...   )Жанр: Lebanese Pop, Levantine PopПродолжительность: 00:46:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A31CC3BA19E46E043A69CB199A0BAB769B363E52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272668   (142814) от 28.12.2018
+
+Michelle Gurevich - Exciting Times (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dark-Romantic, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_142814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Way You Write (4:22)
+02 Fatalist Love (4:39)
+03 Something Has Changed (4:10)
+04 Almost Shared a Lifetime (5:07)(   Читать дальше...   )Жанр: Pop, Dark-Romantic, BalladПродолжительность: 00:39:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA81E85327521AFAC1E147F962E98554B13B7D50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435576   (142393) от 29.12.2020
+
+Peter Noone - Sings The Greatest Hits Of Herman's Hermits (1993) [FLAC|Lossless|image + .cue] <Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_142393.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm into something good (2:23)
+02. Dandy (1:57)
+03. There's a kind of hush (all over the world) (5:06)
+04. Listen people (2:38)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:49:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27003FA15B7F0BCC7AC61CA711195AFBF1332B5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1435573   (141976) от 29.12.2020
 
 Donovan - Till I See You Again (1993) [FLAC|Lossless|image + .cue] <Folk Rock, Pop>
@@ -630,122 +746,6 @@ Doris Day - 3 альбома (1995-2004) [FLAC|Lossless]<Pop, Oldes>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682764   (131050) от 08.12.2023
-
-Bryan Adams - Waking Up The Neighbours - Live At The Royal Albert Hall (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131050.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Is Your Mama Gonna Miss Ya? (Live At The Royal Albert Hall) [00:03:32]
-02. Hey Honey - I'm Packin' You In! (Live At The Royal Albert Hall) [00:03:15]
-03. Can't Stop This Thing We Started (Live At The Royal Albert Hall) [00:04:56]
-04. Thought I'd Died And Gone To Heaven (Live At The Royal Albert Hall) [00:03:35](   Читать дальше...   )Жанр: Pop-RockПродолжительность: 01:06:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83D7E384B500399E26D782FB9E59941654FAFEBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682860   (130832) от 09.12.2023
-
-Dalida - Vive le vent (2023) [FLAC|Lossless|tracks] <Pop, French Music>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vive le vent (Nouvelle orchestration 2023) (3:01)
-02. Pour Vous (3:28)
-03. Dans le bleu du ciel bleu (2:53)
-04. Le Petit Clair De Lune (2:40)(   Читать дальше...   )Жанр: Pop, French MusicПродолжительность: 01:08:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07F2A0611AA4183FE51E02617D0F5EA9DD13FC35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524779   (130378) от 18.01.2022
-
-Molly Nilsson - Extreme (2022) [FLAC|Lossless|WEB-DL|tracks] <Dream Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130378.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Absolute Power (03:49)
- 02. Earth Girls (04:11)
- 03. Fearless Like A Child (04:03)
- 04. Kids Today (04:05)(   Читать дальше...   )Жанр: Dream PopПродолжительность: 00:41:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:938E3E603B696ACF6E34F9526BE29425A0211AAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525129   (130036) от 19.01.2022
-
-Beach House - Once Twice Melody (2022) 3[EP] [FLAC|Lossless|WEB-DL|tracks] <Dream Pop, Indie Rock, Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130036.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunset (04:00)
- 02. Only You Know (04:50)
- 03. Another Go Around (03:42)
- 04. Masquerade (04:42)(   Читать дальше...   )Жанр: Dream Pop, Indie Rock, Indie PopПродолжительность: 01:02:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A51A5457A39D18F5DCED5C879890FD0622C3A52
 ```
 
 https://mybot314.ru/tekegram_catalog/

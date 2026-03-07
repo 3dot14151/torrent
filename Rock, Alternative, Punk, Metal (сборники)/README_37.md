@@ -1,3 +1,32 @@
+###  Публикация: 1624019   (242220) от 05.04.2023
+
+VA - Flower Power - Children of Flowers Best Of (2023) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_242220.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Mamas & The Papas - California Dreamin' [02:42]
+02. The Byrds - Turn! Turn! Turn! (To Everything There Is a Season) [03:49]
+03. The Doors - Soul Kitchen (New Stereo Mix; Advanced Resolution) [03:31]
+04. The Animals - House Of The Rising Sun [04:30](   Читать дальше...   )Жанр: RockПродолжительность: 09:42:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C60F2DECF11CF0D401C0E4D4C77F54749B531B79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1299595   (241512) от 15.04.2022
 
 Rainbow - The Platinum Collection (2019) 3CD [MP3|320 Kbps] <Rock>
@@ -716,35 +745,6 @@ VA - Rock The Stage (2019) [MP3|320 Kbps] <Rock, Alternative>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E981BD03813F2BD252CF84ED6C6EF17E7DF93D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585098   (222386) от 21.10.2022
-
-VA - Halloween Stories (2022) [MP3|320 Kbps] <Rock, Hard Rock, Heavy Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222386.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Danzig - Devil's Plaything (Album Version) [04:14]
-02. Lucifer - Crucifix (I Burn for You) [03:51]
-03. Black Sabbath - Electric Funeral [04:50]
-04. AC/DC - Hells Bells [05:12](   Читать дальше...   )Жанр: Rock, Hard Rock, Heavy MetalПродолжительность: 03:41:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7EF27991CB17F895DD6E7AD3324B967DEB814E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,61 +1,3 @@
-###  Публикация: 1802578   (66031) от 18.06.2025
-
-Pretenders - The Pretenders (1979) CD, Album, Reissue 1980 [FLAC|Lossless|tracks + .cue] <Rock, New Wave, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66031.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Precious    [0:03:37.00]
-02. The Phone Call    [0:02:29.40]
-03. Up the Neck    [0:04:27.72]
-04. Tattooed Love Boys    [0:02:59.53](   Читать дальше...   )Жанр: Rock, New Wave, Pop RockПродолжительность: 00:47:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DFD732BC970BE505F5A057B55872D2A946F4F7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804261   (65609) от 29.06.2025
-
-Scott Sellers - One and, and, and, and One and, and Three and, and (2025) [FLAC|Lossless|WEB-DL|tracks] <Punk / New Wave>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65609.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Now Or Never [00:02:35]
-02. Commit-Submit [00:03:03]
-03. Conquer [00:03:11]
-04. Feel Better [00:02:39](   Читать дальше...   )Жанр: Punk / New WaveПродолжительность: 00:39:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF8748DB7941904023D5671600A142245A61D88E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1804429   (65604) от 29.06.2025
 
 Awaken I Am - The Only Way Out Is Through (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative-Rock, Post-Hardcore>
@@ -745,6 +687,64 @@ Coldplay - британская рок-группа. Начав играть в 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF1CB068E83B8F46E1EE85B58F05248C6BC62708
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 913721   (40746) от 11.10.2024
+
+Muse - 12 Albums, 1 Box Set (1999 - 2022) [26 CD] [FLAC|Lossless|image + .cue|tracks + .cue]<Alternative, Progressive>
+
+>>След.
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_40746.jpg" />
+</div>
+
+
+###  Подробнее
+
+Muse – британская альтернативная рок-группа, образованная в 1994 году. Сегодня Muse называют одним из величайших наследий рок-музыки нового тысячелетия. Музыка, словно пришедшая к нам из другой Галактики: страстное исполнение, сильнейший театральный вокал, виртуозные гитарные партии, ураганной мощи живые выступления – всё это Muse! Группа состоит из трёх участников: (   Читать дальше...   )Список альбомов:
+1999 - Showbiz
+2000 - Random
+2001 - OriginЖанр: Alternative, ProgressiveПродолжительность: 22:08:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F3D16C0AC7FC9668267561A01EDE9D47888A6A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755810   (39990) от 18.10.2024
+
+The Offspring - Supercharged (2024) Deluxe Edition [FLAC|Lossless|tracks] <Rock, Alternative Rock, Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_39990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Looking Out For #1 [3:17]
+02 - Light It Up [2:53]
+03 - The Fall Guy [2:35]
+04 - Make It All Right [3:35](   Читать дальше...   )Жанр: Rock, Alternative Rock, PunkПродолжительность: 00:45:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA223FE3514211A0977B8881CA4208A37C34FB02
 ```
 
 https://mybot314.ru/tekegram_catalog/

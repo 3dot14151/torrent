@@ -1,3 +1,61 @@
+###  Публикация: 712606   (403223) от 19.10.2013
+
+Modern Talking - 25 Best Songs (2012) [MP3|228 - 267 кб/с]<Eurodisco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_403223.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You're My Heart, You're My Soul 1985-1
+02. Cheri Cheri Lady 1985-2
+03. Lady Lai 1986-1
+04. China In Her Eyes 2000(   Читать дальше...   )Жанр: EurodiscoПродолжительность: 01:36:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14F20322017E2F19599C41F9ACB1B215701289F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 712580   (403166) от 19.10.2013
+
+Michael Jackson - 25 Best Songs (2012) [MP3|235 - 272 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_403166.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Billie Jean 1982
+02. Beat It 1982
+03. Wanna Be Startin' Somethin' 1982
+04. Human Nature 1982(   Читать дальше...   )Жанр: PopПродолжительность: 01:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E54FC3C64C056711886B83104617C8B30639B95F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1169293   (403097) от 27.09.2017
 
 VA - Musical Dreams: Popular Session Of September (2017) [MP3|320 Kbps] <Pop>
@@ -801,76 +859,6 @@ VA - Ночная дискотека: Хитовый адреналин 100 хи
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:701276C9E8FB4A1A0A5633F75C4546D1FC76B67B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 565528   (400072) от 26.10.2012
-
-VA - Global Dance NRJ (2012) [MP3|128 кб/с]<Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_400072.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Arash feat. Sean Paul feat. Ice MC - She Makes Me Go (DJ Amor Remix)
-002. PSY feat. DJ Nejtrino & DJ Baur - Gangnam Style (Vadim Smile & Artem Onyx feat. Madis Mash-Up)
-003. Alex Ferrari - Bara Bara Bere Bere (Giulietto Kronika & Deejay Trip Remix)
-004. Sonny Flame - Sale el Sol (Bodybangers Remix)
-005. Miami Club feat. Nicci - Supernova (R.I.O. Radio Edit)
-006. Calvin Harris feat. Florence Welch - Sweet Nothing
-007. Linkin Park - Burn It Down (Bobina Remix Radio Edit)
-008. Bob Marley & The Wailers - Jammin (Benny Benassi Remix Edit)
-009. Christopher S Feat. Brian - Deymien (Christopher S Radio Mix)
-010. Michel Telo feat. Pitbull - Ai Se Eu Te Pego (If I Get Ya) (Smash Mode Remix Radio Edit)(   Читать дальше...   )Жанр: DanceПродолжительность: 12:14:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79E6A74E9235AB24761231077263ACCC5CA94BD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 565284   (400038) от 26.10.2012
-
-VA - Bravo Hits Vol. 79 (2012) [MP3|320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_400038.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Psy - Gangnam Style [3:40]
-02. The Wanted - Chasing The Sun (2012 Remaster) [3:14]
-03. Owl City & Carly Rae Jepsen - Good Time [3:23]
-04. Jonas Myrin - Day Of The Battle (Edit) [3:34]
-05. Conor Maynard feat. Ne-Yo - Turn Around [3:53]
-06. Ne-Yo - Let Me Love You (Until You Learn To Love Yourself) [4:14]
-07. Flo Rida - Let It Roll (Album Version) [3:15]
-08. Timbaland feat. Ne-Yo - Hands In The Air [4:02]
-09. Will.I.Am feat. Eva Simons - This Is Love [4:06]
-10. Jay Sean feat. Pitbull - I'm All Yours [3:37]Жанр: PopПродолжительность: 02:42:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F344491EB81AE3929559F7D00C6F03F0D14BAF17
 ```
 
 https://mybot314.ru/tekegram_catalog/

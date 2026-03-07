@@ -1,3 +1,32 @@
+###  Публикация: 1552254   (588492) от 19.05.2022
+
+Giovanni Marradi - Italian Love Songs (2006) [FLAC|Lossless|WEB-DL|tracks] <Piano, Instrumental, New Age>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_588492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Come Back to Sorrento (3:25)
+02. Santa Lucia (4:01)
+03. Tarantella (2:49)
+04. Intermezzo (3:27)(   Читать дальше...   )Жанр: Piano, Instrumental, New AgeПродолжительность: 00:44:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DAE8247AA1D4FEAE577CD4517BF7C02AF14BA12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1552261   (588479) от 19.05.2022
 
 Giovanni Marradi - The Best of Giovannii, Vol. 3 (2008) [FLAC|Lossless|WEB-DL|tracks] <Piano, Instrumental, New Age>
@@ -722,35 +751,6 @@ VA - Suicide Squad / Отряд самоубийц (The Album) (2016) [FLAC|Loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80D89690821D611D38F602C876B45048545017EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919429   (584030) от 18.07.2015
-
-Marcus Viana - Pleiadian Connections (2015) [MP3|320 кб/с]<New Age, Instrumental, Meditation>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584030.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Orion Calls
-02. No Tempo
-03. Pleione
-04. A Fonte das Estrelas(   Читать дальше...   )Жанр: New Age, Instrumental, MeditationПродолжительность: 00:59:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC8A15BC90C44DDF365129D6EBF5EC833AE0535A
 ```
 
 https://mybot314.ru/tekegram_catalog/

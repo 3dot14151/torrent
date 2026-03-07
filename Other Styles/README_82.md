@@ -1,3 +1,38 @@
+###  Публикация: 523557   (617109) от 16.07.2012
+
+VA - Ethnic Voices - Navahos Dreams (2005) [MP3|320 кб/с]<Native American, Ethnic, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_617109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Magec - Magic Mushroom (1:56)
+02. Marcel Thebach - One-World (5:00)
+03. Marcel Thebach - One-Ganjaland (5:50)
+04. G.E.N.E. - Wakonda (5:32)
+05. Ultrabass - Under Ancient Skies (7:31)
+06. Venja - Whentribal Wizard Dance (4:18)
+07. G.E.N.E. - Hte Flight Of The Clouds (5:10)
+08. Magec - Monguor Saman (3:44)
+09. Magec - Feelings (3:36)
+10. Magec - Fishbone Ceremony (4:28)(   Читать дальше...   )Жанр: Native American, Ethnic, New AgeПродолжительность: 01:04:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2DF66C232A866A618BF75B3E0AAF2C96F55A03D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1295803   (617005) от 14.04.2019
 
 Kevin Kern - More Than Words: The Best of Kevin Kern (2014) Real Music [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
@@ -743,35 +778,6 @@ Faun - Pagan (2022) [MP3|320 Kbps] <Folk, Medieval>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3195FBE49930C2A89AF845AB9AA7017A2CFB09D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147001   (611093) от 01.07.2017
-
-VA - The Real... Country Collection (The Ultimate Collection) (2016) 3CD [FLAC|Lossless|tracks + .cue] <Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611093.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-01. The Carter Family: Can The Circle Be Unbroken
-02. Jimmie Rodgers: In The Jailhouse Now
-03. Flatt & Scruggs: Foggy Mountain Breakdown(   Читать дальше...   )Жанр: CountryПродолжительность: 02:21:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2228D8D2D1EE4DC4F0E72A9C1BA69A606B978AD8
 ```
 
 https://mybot314.ru/tekegram_catalog/

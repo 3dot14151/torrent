@@ -1,3 +1,61 @@
+###  Публикация: 1277625   (785023) от 21.01.2019
+
+VA - German Top 100 Single Charts 28.01.2019 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785023.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Shindy - DODI
+002. Ava Max - Sweet but Psycho
+003. Capital Bra - Benzema
+004. Farid Bang - #niemalsantäuschen(   Читать дальше...   )Жанр: PopПродолжительность: 05:38:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7D83DB0F79E914A87B5F5311BBD0818CB9B0F23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205051   (784089) от 08.02.2018
+
+VA - German Top 100 Single Charts 09.02.2018 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_784089.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ed Sheeran - Perfect
+002. Bausa - Was du Liebe nennst
+003. Eminem - River (feat. Ed Sheeran)
+004. Camila Cabello - Havana (feat. Young Thug)(   Читать дальше...   )Жанр: PopПродолжительность: 05:40:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCEA2BC81BD7F311EEF8F3871D3F958CFFABBB8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1205107   (784050) от 08.02.2018
 
 VA - Pioneer Studio - World In My Eyes (2018) [MP3|320 Kbps] <Dance, Disco>
@@ -687,64 +745,6 @@ VA - Euro Best Hits N7 Top 100 (2016) [MP3|192-320 кб/с] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E77CE850A7C74EC9E04DBD3A99AC5FD4F61A0D6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013179   (777619) от 04.05.2016
-
-VA - Зажигательный молодежный музыкайф на Europa Plus - 4 (2016) [MP3|256 кб/с] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777619.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kat Deluna Feat. Jeremih - What A Night
-002. Элемент - Музыка
-003. Milena - One Two Three
-004. Катя Нова & Dee Flack - Я Буду С Тобой(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:06:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C4C66608D90228DF2F0377F696ACF30F4DD5C83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013349   (777613) от 04.05.2016
-
-VA - Return Of The 90s (2016) [MP3|320 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777613.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rozalla -  Everybody's Free (To Feel Good)  3:33
-02. Crystal Waters -  100% Pure Love  3:08
-03. Faithless -  Take The Long Way Home  4:06
-04. Elton John -  Can You Feel The Love Tonight  3:59(   Читать дальше...   )Жанр: PopПродолжительность: 05:55:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA310B9A2EEFC59D6388D58314E056A8D756CA4E
 ```
 
 https://mybot314.ru/tekegram_catalog/

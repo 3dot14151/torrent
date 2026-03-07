@@ -1,3 +1,90 @@
+###  Публикация: 1780504   (26995) от 20.02.2025
+
+Невзатяг - Бубнеж (2015) [MP3|320 Kbps] <Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_26995.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Нет денег
+02. Велосипед
+03. Песня пиратов
+04. Пробирает жуть(   Читать дальше...   )Жанр: Hip-HopПродолжительность: 00:24:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:663EF6B28FF2AC735BA48C675B45E203CD4A2CB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785084   (24685) от 14.03.2025
+
+Noize MC - Не все дома (2025) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_24685.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Не Все Дома
+02. Атлантида (feat. Дмитрий Емельянов)
+03. Криокамеры (feat. Монеточка, Витя Исаев)
+04. Страна Дождей(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:01:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A756898F44F7BE2BE8B170C1C0CCD9749026B774
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785075   (24679) от 14.03.2025
+
+Noize MC - Не все дома (2025) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_24679.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Не Все Дома
+02. Атлантида (feat. Дмитрий Емельянов)
+03. Криокамеры (feat. Монеточка, Витя Исаев)
+04. Страна Дождей(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:01:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62A88652CE0991FFE8A853C1CE0066F7DA71DACF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1786236   (24159) от 19.03.2025
 
 VA - Chillhop Essentials Spring (2025) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Chillhop, Trip Hop, Jazz Fusion>

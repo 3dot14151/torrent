@@ -1,3 +1,119 @@
+###  Публикация: 1556835   (556428) от 12.06.2022
+
+Armin van Buuren - Feel Again Part 1 (2022) [FLAC|Lossless|WEB-DL|tracks] <House, Progressive, Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556428.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren - Oumuamua (5:25)
+02. Armin van Buuren feat. Wrabel - Feel Again (2:58)
+03. Armin van Buuren & The Stickmen Project - No Fun (2:10)
+04. Armin van Buuren & Sam Gray - Human Touch (2:25)(   Читать дальше...   )Жанр: House, Progressive, TranceПродолжительность: 00:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7B35BCBFB25B7669F02E55A7F0F955E36DF76DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1236040   (556277) от 15.07.2018
+
+VA - Schneeweiss 9 (Presented by Oliver Koletzki) (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Monolink - Swallow (Oliver Koletzki remix) (07:16)
+02. Midas 104 - Carry On (07:45)
+03. Andhim - Stay Close To Me (feat Hogni) (07:28)
+04. Eagles & Butterflies - The Last Dance (09:24)(   Читать дальше...   )Жанр: Deep House, Tech House, TechnoПродолжительность: 03:20:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C141765342168FFC54442E6D95186591CE20CA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306867   (555488) от 06.06.2019
+
+Robag Wruhme - Venq Tolep (2019) Pampa Records [FLAC|Lossless|WEB-DL|tracks] <Tech House, Minimal, House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555488.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Advent (feat. Lysann Zander) (03:50)
+ 02. Westfal (feat. Lysann Zander) (02:16)
+ 03. Iklahx (02:36)
+ 04. Ak-Do 5 (04:41)(   Читать дальше...   )Жанр: Tech House, Minimal, HouseПродолжительность: 00:38:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEF116D9C5A7CBD50D37A5E1E6A7A04F7B236B4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1307375   (555079) от 09.06.2019
+
+Flying Cobra - Data (2019) Space Of Variants [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555079.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Emergence (05:38)
+ 02. Errors And Faults (06:11)
+ 03. Through The Digital Fog (08:28)
+ 04. Blossoms Showered As Rain (06:05)(   Читать дальше...   )Жанр: Dub Techno, AmbientПродолжительность: 00:58:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9B909E3BBC67A6A229FABB5A9C067C8F9B6410C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1236420   (554257) от 18.07.2018
 
 VA - Deep House Party 2018 (Summer Vibes) [FLAC|Lossless|WEB-DL|tracks] <House, Deep House>
@@ -628,122 +744,6 @@ VA - Cabana Lounge (Deep Chilled Holiday Moods) (2016) [FLAC|Lossless|WEB-DL|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E954621AC476579029CC8DB9404A03DE89E84000
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312098   (536502) от 02.07.2019
-
-Lemon Jelly ‎ - Lost Horizons (2002) 2003, Japanese Edition [FLAC|Lossless|tracks + .cue] <Downtempo, Chillout>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536502.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elements (08:41)
-02. Space Walk (07:03)
-03. Ramblin' Man (07:06)
-04. Return To Patagonia (08:41)(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 01:06:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:713D3608B8EFB977F07F1137C89A42022F787896
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239734   (535222) от 07.08.2018
-
-Helena Hauff - Qualm (2018) Ninja Tune [FLAC|Lossless|WEB-DL|tracks] <Techno, Electro>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535222.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Barrow Boot Boys (06:05)
- 02. Lifestyle Guru (05:43)
- 03. btdr-revisited (03:30)
- 04. Entropy Created You And Me (02:43)(   Читать дальше...   )Жанр: Techno, ElectroПродолжительность: 00:56:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:871D72964FB38C6BA1D92466C544989F54031112
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149772   (534085) от 03.07.2019
-
-The Nautilus Project - Discography 16 Releases (2008-2016) ZeECc, Forest Roots [FLAC|Lossless|tracks+.cue, tracks] <Dub Techno, Ambient, Minimal, Drone, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534085.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Between Space & Place (18:22)
- 02. Docking Station (09:40)
- 03. Colliding Stars (03:06)
- 04. Between Space & Place (Lars Leonhard Remix) (06:56)Тип издания: CD, Web •Жанр: Dub Techno, Ambient, Minimal, Drone, Techno •Продолжительность: 00:38:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B3E1936F1C6B0ACC6EB0C71EBC9DED7A93F6089
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239537   (533241) от 08.08.2018
-
-Modjo - Lady (Hear Me Tonight) (2000) Maxi-Single [FLAC|Lossless|tracks + .cue] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533241.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lady (Hear Me Tonight) (Radio Edit) (3:46)
-02. Lady (Hear Me Tonight)	(5:05)
-03. Lady (Hear Me Tonight) (Roy's Universal Soldiers Mix) (5:10)
-04. Lady (Hear Me Tonight) (Remix) (7:07)Жанр: HouseПродолжительность: 00:21:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1D3808BB30BA1846DB5360F6418E40D76555B58
 ```
 
 https://mybot314.ru/tekegram_catalog/

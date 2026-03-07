@@ -1,3 +1,94 @@
+###  Публикация: 1177705   (355946) от 28.10.2017
+
+Masami Okui - GIGS 2007 Masami Life (2009) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_355946.jpg" />
+</div>
+
+
+###  Подробнее
+
+Запись концерта Masami Okui - Live tour 2007 Masami Life, прошедшего в Shibuya O-East 20 октября 2007. Сам DVD был выпущен 25 марта 2009.
+
+Источник: лицензионный DVDIt's my life
+Limited War
+紫音-sion-
+GAIA2012(   Читать дальше...   )Производство: Япония, evolution/GodSpeed, dwango AG EntertainmentЖанр: J-Pop, J-RockСубтитры: отсутствуютПродолжительность: 01:42:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9A4E75CF6B82120BE1382FD7A838A80D850490C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1176551   (355942) от 28.10.2017
+
+Masami Okui - GIGS 2006 GodSpeed (2006) 2xDVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_355942.jpg" />
+</div>
+
+
+###  Подробнее
+
+Запись концерта Masami Okui - Spring tour 2006 God Speed, прошедшего в Shibuya O-East 13 марта 2016.
+
+Источник: perfect darkDISC-1
+
+God Speed
+SUBLIMINAL(   Читать дальше...   )Производство: Япония, evolutionЖанр: J-Pop, J-RockСубтитры: отсутствуютПродолжительность: 00:50:29 + 00:55:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C644555862398FC4618AA4A69EC2C4124C1F8D1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1177761   (355931) от 28.10.2017
+
+Testament - Dark Roots Of Thrash (2013) BDRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_355931.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концертное выступление Testament записанное в "The Paramount" (Хантингтон, США) 15.02.2013 и выпущенное на DVD/Blu-Ray 15.10.20131. Intro
+2. Rise Up
+3. More Than Meets The Eye
+4. Burnt Offerings(   Читать дальше...   )Производство: Nuclear Blast (Germany)Жанр: Thrash MetalПродолжительность: 01:42:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEA1EAAEE7A5D6A8298EF3C793FEEBA12E8961F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1178133   (355640) от 28.10.2017
 
 Kreator - Gods Of Violence: Live At Wacken 2014 (2017) BDRip [H.264/1080p-LQ]
@@ -652,90 +743,6 @@ Avantasia - The Flying Opera: Around The World In Twenty Days (2011) BDRip [H.26
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA4EE971407267EE944EFD49FFA90BC997DBB48D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 724547   (348423) от 21.11.2013
-
-ZZ Top - Definitely Then (Double Down) 1980 (2008) DVDRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348423.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это первый диск из альбома "ZZ Top - Double Down Live 1980/2008"01. I Thank You
-02. Waitin’ For the Bus
-03. Jesus Just Left Chicago
-04. Precious And Grace(   Читать дальше...   )Жанр: Hard & Blues RockПродолжительность: 01:32:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9B803698EC7A9DD9EB5FC64E111185EAB571D29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 408329   (348212) от 12.11.2011
-
-Lady Gaga - Marry The Night / MTV EMA 2011  (2011) HDTVRip [1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348212.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Electro-PopПродолжительность: 00:04:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBEF8F2380DF51C84C1878C8BDD2A1243F6615DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 724627   (347882) от 21.11.2013
-
-The Rolling Stones: Sweet Summer Sun - Hyde Park Live (2013) Blu-ray [1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347882.jpg" />
-</div>
-
-
-###  Подробнее
-
-Историческое и триумфальное возвращение Ролинг Стоунз в Гайд-Парк вне всяких сомнений было событием лета. Более 100 тысяч исступлённых фанатов всех возрастов набились в парк на два захватывающих концерта под открытым небом, чтобы увидеть то, что Мик Джаггер, Кейт Ричардс, Чарли Уотс и Рони Вуд делают лучше всего. «Камни» представили 5 звёздных концертов, которым (   Читать дальше...   )01. Interviews, Part 1
-02. Start Me Up
-03. It's Only Rock 'n' Roll (but I Like It)
-04. Street Fighting Man(   Читать дальше...   )Жанр: Classic RockФормат: BDMVПродолжительность: 01:57:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CCAB57DBF9A6F7BBEFBAB519A1F129536D7E88C
 ```
 
 https://mybot314.ru/tekegram_catalog/

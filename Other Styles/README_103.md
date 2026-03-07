@@ -1,3 +1,32 @@
+###  Публикация: 936937   (492265) от 13.09.2015
+
+Kevin Kendle - Illumination (2015) [MP3|320 кб/с]<Electronic, Ambient, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_492265.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Emergence
+02. Divine Connection
+03. Arc
+04. Celestial Heart(   Читать дальше...   )Жанр: Electronic, Ambient, New AgeПродолжительность: 00:59:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FC565E6B60A3F88C883AAEB08C836DE0B4AEA36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1243265   (492107) от 27.08.2018
 
 Lynn Tredeau - Fellowship of Solitude (2018) [MP3|320 Kbps] <Instrumental, Piano, New Age>
@@ -722,35 +751,6 @@ Didier Merah - Eden (2016) [MP3|320 Kbps] <New Age, Piano>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F34932858189272A1E0AB9BAA46383480D99932C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1055556   (485998) от 23.09.2016
-
-Borneo - Heart of Borneo - Spa and Relaxation (Instrumental) (2016) [MP3|320 Kbps] <New Age, Relaxation, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Heaven (4:29)
-02.  Kalimantan (3:30)
-03.  Forest In The Morning (4:54)
-04.  Lamoa (2:53)(   Читать дальше...   )Жанр: New Age, Relaxation, InstrumentalПродолжительность: 00:44:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:235307197848DB4AC6672433E85CC0AE2C4A1CCA
 ```
 
 https://mybot314.ru/tekegram_catalog/

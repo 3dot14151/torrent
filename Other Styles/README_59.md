@@ -1,3 +1,32 @@
+###  Публикация: 1023012   (726072) от 04.06.2016
+
+Steve Jablonsky - Teenage Mutant Ninja Turtles: Out of the Shadows (Music from the Motion Picture) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726072.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Squirrel Formation (03:02)
+02. Shredder (03:38)
+03. Tartaruga Brothers (03:00)
+04. Baxter Stockman (02:25)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:09:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6A6DBB8F52BF45108E2088CA6E29C8F0881199A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1023023   (725727) от 04.06.2016
 
 Steve Jablonsky - Teenage Mutant Ninja Turtles: Out of the Shadows / Черепашки-ниндзя 2 (Music from the Motion Picture) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
@@ -707,35 +736,6 @@ Jeronimo Jonas - Inner Journey to the Real (2017) [MP3|320 Kbps] <New Age, Ambie
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26465500B9DB1D80EE2CBDC64D5186EF51A710F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 177414   (720743) от 04.08.2020
-
-Santana - The Best Instrumentals (1995) [APE|Lossless|tracks] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720743.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Samba Pa Ti (C. Santana) (04:36)
-02. Aqua Marine (D. C. Santana - A. Pasqua) (05:31)
-03. Bella (C. Santana - C. Thompson - S. Crew) (04:31)
-04. Flor D'luna (Moonflower) (T. Coaster). (04:50)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:01:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F359BDA10C8070A374BF5CD13AADE38F1EF364D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

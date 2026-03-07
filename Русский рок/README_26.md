@@ -1,3 +1,233 @@
+###  Публикация: 1503085   (822924) от 17.10.2021
+
+Stay Away - Можно спрятаться, сбежать нельзя (2021) [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_822924.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Капитан
+2. Можно спрятаться, сбежать нельзя
+3. Ребята нашего двора
+4. Лёха вставай(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:53:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3458462489CBCE2933E10ECB35C1431DA3D4564
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116532   (822761) от 20.03.2017
+
+Zmey Gorynich - Malafya (2016) (EP) [MP3|320 Kbps] <Folkcore, Metalcore, Pagan Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_822761.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome To Mother Russia! (01:02)
+02. Морозобой (03:25)
+03. Ой, Лёли-Лёли! (04:07)
+04. Айнанэ (03:39)(   Читать дальше...   )Жанр: Folkcore, Metalcore, Pagan MetalПродолжительность: 00:28:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64B664E348E9C9F114A1454E761BBEE14B3573ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116630   (822609) от 20.03.2017
+
+Animal ДжаZ - Любовь к полётам (2017) EP [MP3|320 Kbps] <Rock, Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_822609.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Любовь к полётам
+2. ПитерЖанр: Rock, AlternativeПродолжительность: 00:08:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD3A93CC372E1966231BF8D03C3CDE989023090A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196628   (822410) от 03.01.2018
+
+Дальше в Лес - Проще (2017) [MP3|320 Kbps] <Art Rock, Indie Rock, Acoustic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_822410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Дальше в лес
+02. Бирюзовый
+03. Направление
+04. Не надоела(   Читать дальше...   )Жанр: Art Rock, Indie Rock, Acoustic RockПродолжительность: 00:29:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C29B29938C23D5DAABE908E1AC244F60126D1C4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382023   (822367) от 09.05.2020
+
+7Б - Я умираю, но не сдаюсь! (2020) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_822367.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Неизвестный солдат
+2. Кино
+3. Молодые ветра
+4. Некрещёная луна(   Читать дальше...   )Жанр: RockПродолжительность: 03:01:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFDD8F7C406404764D76C6CD132E36B0F4EAF847
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116968   (820796) от 21.03.2017
+
+bAbA yAgA - 3 альбома (1992-1999) [MP3|320 Kbps] <Folk-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_820796.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back In The U.S.S.R.
+02. Side To Side
+03. Red Bird
+04. Where Will You Go(   Читать дальше...   )Жанр: Folk-RockПродолжительность: 02:33:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:540C8F5AA96CAD8E35890F450FE5CBA191D00B23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196766   (820531) от 04.01.2018
+
+Хитобои (Волга-Волга) - Синий кент (2017) [MP3|320 Kbps] <Rock, Ska>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_820531.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Я или Путин
+2. Нас#сала
+3. Синий кент
+4. Пополам(   Читать дальше...   )Жанр: Rock, SkaПродолжительность: 00:24:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90637640C0324B3478A8EAAC05F82EDEC8DD6888
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007813   (819454) от 16.04.2016
+
+[виа] гагарин - Русский космос (2016) [MP3|192 кб/с] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819454.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Реченька
+03. Александр Сергеич, вставай!
+04. Будет всё не так(   Читать дальше...   )Жанр: RockПродолжительность: 00:47:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6335CE0F949B593F290B27E206D94AEFAF27890
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1503532   (819400) от 19.10.2021
 
 Гарин и Гиперболоиды - Экстрада (2021) [MP3|320 Kbps] <Rock>
@@ -507,235 +737,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A99F6828CC3D5A7930CF55A0F0C663AF1E1C4D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118914   (811489) от 26.03.2017
-
-VA - Охота 72 (2017) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Скворцы Степанова - Ж*па 2.0
-02. Свободный полёт/Павел Пиковский - Не ждал
-03. CL.EVER - Стены
-04. Fast-mo - Beat(   Читать дальше...   )Жанр: RockПродолжительность: 01:16:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEFB46F139D40BC426F0A3EA324A9DA9B41E98AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 883789   (811041) от 01.04.2015
-
-Jane Air - Чёрная гавань (2015) [MP3|320 кб/с]<Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811041.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. По первому снегу
- 02. Чёрная гавань
- 03. Небеса
- 04. Держим фарватер(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:52:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9504FAEAB5060371E00BDCD00DA8053D3F3E317
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383598   (810238) от 16.05.2020
-
-Декабрь feat. Jack Benzin - Дорога Победы (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810238.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Дорога ПобедыЖанр: RockПродолжительность: 00:03:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BC93C8D96965EE2885F8180E212FE5BCAC54AD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119303   (809135) от 27.03.2017
-
-GjeldRune - Правду За Порог (2017) [MP3|320 Kbps] <Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809135.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Оберег
-2. Молотом Битв
-3. Рагнарек
-4. Проклятье(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:43:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:477E8F46109FF29C2664AD666395C94FDCBFB038
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119085   (808886) от 27.03.2017
-
-Ольга Арефьева и Ковчег - Ангел и девочка (2017) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808886.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Полночь
-2. Пирамида Хео
-3. Моа-моа
-4. Двойное дно(   Читать дальше...   )Жанр: RockПродолжительность: 00:58:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:440BDFE2455F64A3BC0D56AFFA1D5C621D8797C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198441   (807864) от 11.01.2018
-
-Пилот - Пандора (2018) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807864.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Гаятри (feat. Пайлот Бабаджи)
-02. Пандора
-03. Нелюбовь
-04. 4 на 4(   Читать дальше...   )Жанр: RockПродолжительность: 01:17:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8413FDA161A63128719F99C354F3E84D93E34EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119701   (806963) от 28.03.2017
-
-Александр Иванов - Этой весной (2017) EP [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806963.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Этой весной
-02. Друг мой
-03. Городские цветы
-04. В облаках у водопадаЖанр: RockПродолжительность: 00:15:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEAC5D93142B95D7DFBA391DF2C7E8848EDA3385
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 884321   (806782) от 03.04.2015
-
-Александр Ф. Скляр - Годы и песни. Лучшее (2015) [MP3|320 кб/с]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806782.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Песни моряков
-02. Моя жизнь
-03. Люба-бабавая
-04. Вася-совесть(   Читать дальше...   )Жанр: RockПродолжительность: 03:32:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F21D59EF278A8F85E59563C010799097D875E042
 ```
 
 https://mybot314.ru/tekegram_catalog/

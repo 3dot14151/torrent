@@ -1,3 +1,32 @@
+###  Публикация: 1542140   (640873) от 05.04.2022
+
+VA - Fest Rebel Rock Radio , Vol.1 (2022) [MP3|320 Kbps] <Alternative, Progressive Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_640873.jpg" />
+</div>
+
+
+###  Подробнее
+
+Непрекращающиеся экспериментыв подходе к написанию песен, яркие эмоции во время их исполнения — это то, чем исполнители рок жанра заслужили внимание музыкальной общественности и преданную любовь своих слушателей.001. Slaves - Wasting My Youth
+002. Stoner Avenue - Last Poor Man's Pray
+003. La Femme - Tu T'en Lasses
+004. Fame On Fire - Headspace(   Читать дальше...   )Жанр: Alternative, Progressive RockПродолжительность: 08:20:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F69ACFD86E6580A1E788643ECBC5A2BD962D9A37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1033210   (639767) от 10.07.2016
 
 Glenn Hughes - The Voice of Rock (2014) 2CD [MP3|320 Kbps] <Hard Rock, Classic Rock>
@@ -716,35 +745,6 @@ VA - Evangelion: Metall Collection (2018) [MP3|320 Kbps] <Metall>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CED6667A45C26F00B0D99E59A9C45B72716F6B3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910985   (615654) от 23.06.2015
-
-VA - Мир русского рока 100 песен (2015) [MP3|320 кб/с]<Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Кино — Группа крови
-02. ДДТ — Что такое осень
-03. Аквариум — Город золотой
-04. Машина времени — Поворот(   Читать дальше...   )Жанр: RockПродолжительность: 06:42:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC0B7089853C7AEDA06D6C9B9FCA20A4F5445980
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1058149   (470697) от 30.09.2016
+
+Gabor Boldoczki - Oriental Trumpet Concertos (2016) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_470697.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. - Trumpet Concertino: I. Andante 3:55
+ 02. - Trumpet Concertino: II. Larghetto 3:55
+ 03. - Trumpet Concertino: III. Intermezzo 1:09
+ 04. - Trumpet Concertino: IV. Vivo ma non troppo 2:31(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:51:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:638A03985060635CE5F15852B850641B5F73461F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1063125   (436796) от 15.10.2016
 
 Johann Strauss - Romantic Classic (1999) [FLAC|Lossless|tracks + .cue] <Classical>
@@ -711,34 +740,6 @@ VA - Dramatic Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:072611F24BF56D68BF07D5480E931BC00E1CC560
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702300   (115560) от 26.02.2024
-
-VA - Peaceful Classical (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115560.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leonard Slatkin - Satie - 3 Gymnopédies - No. 1 in D Major (3:19)
-02. John O'Conor - Debussy - Préludes, Book 1, L. 117 - No. 8, La fille aux cheveux de lin (2:35)
-03. John O'Conor - Debussy - Suite bergamasque, L. 75 - III. Clair de luneЖанр: ClassicalПродолжительность: 03:55:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22A4DC888BA0BEF1C3D3BE06F59C6BE13987267B
 ```
 
 https://mybot314.ru/tekegram_catalog/

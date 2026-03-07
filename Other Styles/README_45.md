@@ -1,3 +1,32 @@
+###  Публикация: 1201875   (791557) от 26.01.2018
+
+Бузулук - Гордись, Русская Слава! (2008) [MP3|320 Kbps] <Folk, Казачья песня>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791557.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Гордись,гордись, русская слава (4:31)
+02. Вдоль по линии Кавказа (4:50)
+03. На речке Камышинке (4:26)
+04. Со горы горы (2:56)(   Читать дальше...   )Жанр: Folk, Казачья песняПродолжительность: 01:16:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92CA4E4D11752C322E5B43DC2B0D0B9908D6F24D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1201780   (791509) от 26.01.2018
 
 Calexico - The Thread That Keeps Us (2018) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Indie Folk>
@@ -715,35 +744,6 @@ Kvitka Cisyk - Two Colors (1989) Kacey Cisyk, Квитка Цисык [FLAC|Loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD5E9E6D993F5C44F9F637648A90703A97686269
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202903   (788646) от 01.02.2018
-
-Ernesto Cortazar - Blue Waters (2009) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Classical, Romantic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788646.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Remembrance (4:02)
- 02. Mournful Seaside (2:52)
- 03. Blue Waters (3:33)
- 04. Perpetual Breeze (3:29)(   Читать дальше...   )Жанр: New Age, Piano, Classical, RomanticПродолжительность: 00:38:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC2488799085856D7C227D375782658FA6682E86
 ```
 
 https://mybot314.ru/tekegram_catalog/

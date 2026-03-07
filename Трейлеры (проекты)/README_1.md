@@ -1,3 +1,29 @@
+###  Публикация: 1011223   (796607) от 27.04.2016
+
+Проекты - VideoHive - Trailer - 14231061 [AEP]
+
+>>Проекты
+>>Трейлеры (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796607.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания эпичного трейлера.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2799C6EBDF65C135BA6756FB79717625168BFEA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1011547   (795959) от 28.04.2016
 
 Проекты - VideoHive - Cinematic Teaser - 14593581 [AEP]
@@ -647,32 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4FFE7F7D4DF1DED4E59E52A536D69B1848FF30D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023093   (725537) от 04.06.2016
-
-Проекты - VideoHive - Special Trailer - 13542494 [AEP]
-
->>Проекты
->>Трейлеры (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725537.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания эффектного трейлера. Так же проект можно использовать для титров, слайд-шоу и многое другое.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30B506D4B50844E63F5C6762DF2AA3DA25D16FD2
 ```
 
 https://mybot314.ru/tekegram_catalog/

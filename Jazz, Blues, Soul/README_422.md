@@ -1,3 +1,235 @@
+###  Публикация: 1654429   (205125) от 21.08.2023
+
+Sonny Stitt - The Hard Swing (1959) 2001, Verve [FLAC|Lossless|tracks + .cue] <Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_205125.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Got Rhythm [3:10]
+02. What's New [3:42]
+03. Subito [3:59]
+04. If I Had You [4:09](   Читать дальше...   )Жанр: BopПродолжительность: 00:43:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D1147296FEFFB710197419DFB4F322F5B34785E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654730   (204895) от 22.08.2023
+
+Larry Young - Young Blues (1960) 1994, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_204895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Young Blues [6:28]
+02. A Midnight Angel [2:24]
+03. African Blues [4:55]
+04. Little White Lies [4:15](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 00:37:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:253A512CAB9DE4430998324DFEAA89154AB01BAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654679   (204876) от 22.08.2023
+
+Omar & The Howlers - What's Buggin' You? (2023) [FLAC|Lossless|WEB-DL|tracks] <Modern Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_204876.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Bad Monkey (00:03:26)
+02 - When Push Comes to Shove (00:02:36)
+03 - Clarksdale, Mississippi (00:07:00)
+04 - Gator Man (00:03:59)(   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 00:42:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0E4D6A813D72EBAAB0AC9D0642C6C424A1307F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1586040   (204817) от 25.10.2022
+
+Joe Bonamassa - Road To Redemption (2022) EP [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_204817.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Roses (05:02)
+ 02. The Ghost Of Macon Jones (05:24)
+ 03. Stronger Now In Broken Places (Band Version) (04:42)
+ 04. Deep In The Blues Again (04:46)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:31:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE720DD77E2242EA03A13ED30C7F37E482BA7792
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654980   (204728) от 23.08.2023
+
+Mohini Dey - Mohini Dey (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_204728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In-N-Out [00:04:45]
+02. Introverted Soul [00:05:28]
+03. Bombay Bong [00:05:44]
+04. Meat Eater [00:05:18](   Читать дальше...   )Жанр: Jazz RockПродолжительность: 00:44:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43198C1F15E44CEE19200FCB7261417040FF4687
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655115   (204643) от 24.08.2023
+
+The Greatest Show On Earth - Horizons (1970) Reissue, 1994, Repertoire Records [FLAC|Lossless|image + .cue] <Blues Rock, Psychedelic Rock, Prog Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_204643.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunflower Morning
+02. Angelina
+03. Skylight Man
+04. Day Of The Lady(   Читать дальше...   )Жанр: Blues Rock, Psychedelic Rock, Prog RockПродолжительность: 00:45:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6262D982D01826EF7B6AD666F642D2DAE8C82CF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655060   (204610) от 24.08.2023
+
+Sonny Criss - Rockin' In Rhythm (1968) 1999, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_204610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eleanor Rigby [5:38]
+02. When The Sun Comes Out [6:32]
+03. Sonnymoon For Two [4:56]
+04. Rockin' In Rhythm [4:45](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:39:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:900F07AE467CD85A478534CAC2C6E462F47621C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655489   (204319) от 26.08.2023
+
+V.A. - Magic Moments 16 (In the Spirit of Jazz) (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_204319.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nils Landgren - Chapter II
+02. Peter Somuah - Reincarnation
+03. Jakob Manz - Wade in the Water
+04. Matthieu Saglio - Irta(   Читать дальше...   )Жанр: JazzПродолжительность: 01:14:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37DF1B37A2601FC3E9C7E5F84E382F199FF9CD17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1655367   (204290) от 26.08.2023
 
 Marvin Gaye - Let's Get It On (1978) 5CD, Deluxe Edition, 2023, Motown [MP3|320 Kbps] <Soul, Funk, R&B>
@@ -513,238 +745,6 @@ Laurence Jones - Bad Luck & The Blues (2023) [FLAC|Lossless|WEB-DL|tracks] <Blue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2407AF46376C607D9395CA3D6DBC777766848E82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1656292   (203296) от 30.08.2023
-
-Wardell Gray - 1946 - 1950 (2002) Classics [FLAC|Lossless|tracks + .cue] <Bop, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203296.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dell's Bells [2:55]
-02. One For Prez [3:11]
-03. The Man I Love [3:05]
-04. Easy Swing [3:01](   Читать дальше...   )Жанр: Bop, SwingПродолжительность: 01:09:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D57036E7F73F24BABA927A611768F07592C91DD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1656320   (203284) от 30.08.2023
-
-Kevin Galway - Something Bartered Something Blue (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203284.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rider (5:34)
-02. Dead Man Blues (feat. Mike Palermo) (2:58)
-03. Nihilist Blues (4:11)
-04. Midnight Special (feat. Wally Knash) (4:12)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0E65FDCAC4700770AAD94A7DC6A1C806F875EF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1656319   (203269) от 30.08.2023
-
-Joel Astley - Seattle to Greaseland (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203269.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Born Cryin' (3:46)
-02. Candy Shop (3:47)
-03. Just Right (4:12)
-04. Karma Wheel (5:03)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F952C533AEB4B7DF785D805AB8A8A4E4B9E85270
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1656533   (203039) от 31.08.2023
-
-Mal Waldron - Left Alone (1959) 2000, Avenue Jazz [FLAC|Lossless|image + .cue] <Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203039.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Left Alone [6:07]
-02. Cat Walk [6:56]
-03. You Don't Know What Love Is [5:52]
-04. Minor Pulsation [8:14](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 00:38:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D680D8DA9666A3D55D92D301E98F1956C54DE4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1656887   (202832) от 01.09.2023
-
-Coco Montoya - Writing On The Wall (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Was Wrong
-02. Save It For The Next Fool
-03. You Got Me (Where You Want Me)
-04. (I'd Rather Feel) Bad About Doin' It(   Читать дальше...   )Жанр: BluesПродолжительность: 00:58:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4075CBDB03786BAEBA0BA319B4E834BE562806B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1656809   (202823) от 01.09.2023
-
-Tommy Flanagan - Something Borrowed, Something Blue (1978) 1990, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202823.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bird Song [4:48]
-02. Good Bait [4:07]
-03. Peace [6:14]
-04. Friday the 13th [3:52](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 00:38:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:336D5CC1A83FA3E2F4402599B8AEBA007E32A247
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612752   (202660) от 16.02.2023
-
-Joe Louis Walker - Weight of the World (2023) [MP3|320 Kbps] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202660.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Weight of the World (04:25)
- 02. Is it a Matter of Time- (03:11)
- 03. Hello, it's the Blues (06:46)
- 04. Waking Up the Dead (04:33)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D524CA2732E88EDDBB916D10F476AC0B463B6D74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1830451   (202480) от 26.10.2025
-
-Electro Swing - New York City of Swing (2025) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing, Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202480.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  New York City of Swing (3:13)
-02.  Neon Night Voyage (3:12)
-03.  Party Nights (3:05)
-04.  Ocean Sky (3:16)(   Читать дальше...   )Жанр: Electro Swing, JazzПродолжительность: 00:32:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D29ED0168D3792E657B0012AD4BCC9FB2A1316C
 ```
 
 https://mybot314.ru/tekegram_catalog/

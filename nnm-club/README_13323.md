@@ -1,73 +1,225 @@
-###  Публикация: 1401743   (494927) от 24.08.2020
+###  Публикация: 1565236   (496703) от 22.07.2022
 
-Любовь и прочие неприятности / Failure to Launch (2006) BDRip [H.265/1080p] [10-bit]
+Сапожки (2008) WEBRip
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_496703.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мотивам рассказа В.М.Шукшина.
+Он не просто купил жене сапожки стоимостью в ползарплаты. Он сделал нечто большее...Производство: РоссияЖанр: Короткометражный, экранизацияРежиссер: Сергей ВеликоредчанинАктеры: Валерий Афанасьев, Михаил Докин, Жанна ЧирваСубтитры: ОтсутствуютПродолжительность: 00:24:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB29B83DB0F4C3BECFC93E37DEA8D9CEE4EECA2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565180   (496702) от 22.07.2022
+
+Dreamtide - Drama Dust Dream (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_496702.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stop Being Deep
+02. Spin
+03. Around
+04. Ni Dos Ni Agua(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:53:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E04D27B5B0D61342BC62F895DB8C1F650FC22D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565164   (496701) от 22.07.2022
+
+Highway Sentinels - The Waiting Fire (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_496701.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm A Loser
+02. Face In The Crowd
+03. Afterlife
+04. Love And Hate(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:57:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8503618B5A24AA45F700042E50A370893EB573E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564919   (496700) от 22.07.2022
+
+VA - В машине с музыкой Vol.288 (2022) [MP3|320 Kbps] <Pop, Dance, Shanson, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_496700.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chepikk - Со Мной Так Нельзя
+02. I Prevail - Bad Things
+03. Magic Phase - Lonely
+04. Sanji & Абу  - Ты Ушла От Меня(   Читать дальше...   )Жанр: Pop, Dance, Shanson, RapПродолжительность: 02:32:13 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:096BF359806130AC4BEE2298CD7DEC2EB6ABD7C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565156   (496699) от 22.07.2022
+
+Lessmann/Voss - Rock Is Our Religion (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_496699.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Medicine Man
+02. Smoke Without A Fire
+03. Runaway Days
+04. Fight For Our Love(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:50:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:548F6DDF479DC5D491D1D86F28B36D8CAFAE1D36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565172   (496698) от 22.07.2022
+
+Fatal Vision - Once (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_496698.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In The Beginning/Heartbreaker
+02. Burning For You
+03. Open Your Eyes
+04. Into The Twilight(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:57:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01BA489D86F929A0C97EA310CF3C476DBE9CC0BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 235752   (496695) от 13.09.2010
+
+ООО "Хорошая погода" | Руководство холостяка [2007] [ISO]
+
+>>Мультимедийные материалы
+>>Мультимедийные справочники, Энциклопедии
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_496695.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в школу выживания истинного холостяка! Из этой электронной книги любой временно одинокий мужчина почерпнет массу полезной, а порой и жизненно важной информации.
+
+Например:
+- Как поддерживать чистоту в доме, ухаживать за одеждой, стирать ее и - о, ужас! - гладить.
+- Что это за странное место - кухня - и что там делают.
+- Как замаскировать беспорядок за 15 минут до прихода девушки и что такое настоящая генеральная уборка.
+- Как сделать так, чтобы кошка, собака и другие питомцы не сбежали на второй день пребывания в вашем жилище.
+- Как победить в неравной схватке с тараканами и прочей домашней нечистью.
+- Как встречать гостей, а также их выпроваживать, и, конечно, как подготовиться к встрече с девушкой своей (или чужой) мечты и произвести на нее желаемое впечатление.
+(   Читать дальше...   )Жанр: Справочное руководствоФормат: ISO
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 235651   (496692) от 13.09.2010
+
+Собака Баскервилей / The Hound of the Baskervilles (2002) DVDRip
 
 >>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494927.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_496692.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Несмотря на свои 30 с лишним лет, красавчик Трипп никак не решается покинуть отчий дом и обзавестись собственным семейным гнездышком. На это у него всякий раз находятся веские, по его мнению, причины.
-Но однажды родители Триппа сами взялись за устройство его судьбы. Они наняли красивую и талантливую девушку, надеясь, что их сын, влюбившись в нее, наконец оставит (   Читать дальше...   )Производство: США / Paramount Pictures, Scott Rudin Productions, Failure to Launch ProductionsЖанр: мелодрама, комедияРежиссер: Том ДейАктеры: Мэттью МакКонахи, Сара Джессика Паркер, Адам Алекси-Малл, Джастин Барта, Кэти Бэйтс, Терри Брэдшоу, Др. Мелисса Кодл, Кристи Эванс, Грег Кул, Брэдли КуперПеревод: Дублированный, многоголосый, двухголосый, авторскийЯзык озвучки: Русский, украинский, английскийСубтитры: АнглийскиеПродолжительность: 01:36:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7ACC9675088062143D17793E6DC1F9B94DF291F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404251   (494926) от 24.08.2020
-
-ВидеоМОНТАЖ 9.15 RePack (& Portable) by elchupacabra [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494926.jpg" />
-</div>
-
-
-###  Подробнее
-
-ВидеоМОНТАЖ - это невероятно доступный и удобный видеоредактор, позволяющий с лёгкостью создавать эффектные видеоролики и увлекательные фильмы в домашних условиях. Всего за 5 шагов вы получите отличное видео с красивыми переходами, титрами, эффектами и фоновой музыкой.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E23343B5638E05331FDCF3352BFA755C48687D8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404104   (494925) от 24.08.2020
-
-Тит Нат Хан | Бесстрашие. Мудрость, которая позволит вам пережить бурю (2018) [PDF, FB2, EPUB, MOBI]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_494925.jpg" />
-</div>
-
-
-###  Подробнее
-
-В своей новой книге буддийский мастер Тит Нат Хан размышляет о страхе. Вы узнаете, откуда берется это всепоглощающее чувство, почему важно примириться с прошлым, как справиться со страхом в трудные моменты. Упражнения, дыхательные техники и медитации помогут вам обрести дар бесстрашия и почувствовать себя свободным.
-
-На русском языке публикуется впервые.Жанр: Зарубежная психология, Саморазвитие / личностный ростПеревод: Юлия ГиматоваФормат: PDF, FB2, EPUB, MOBI
+Необычная экранизация классического детектива. Акцент сделан на мистические аспекты повести Конан-Дойла (есть даже спиритический сеанс). Холмс и Ватсон - это молодые и спортивные люди, живущие в середине тридцатых годов, гораздо ближе к оригинальным видением сэра Артура Конан-Дойля. Появились новые герои (супруга доктора Мортимера) и исчезли «старые» (Лора Лайонз). Для воплощения собаки Баскервилей на экране были использованы современные средства аниматроники и компьютерной графики...Жанр: Ужасы, Драма, Приключения, ДетективРежиссер: Дэвид ЭттвудАктеры: Ричард Роксбург, Иэн Харт, Джон Неттлз, Джералдина Джеймс, Ричард Э. Грант, Нив МакИнтош, Рон Кук, Лиза Тарбак, Пол Кинмен, Дэниэл Уэбб, Ричард Хоули, Джим Нортон, Дэвид МакНейлл, Каспар Зафер, Малкольм Шилдс, Том Фриман, Эдди Бриттейн, Стефан Бессант, Шен Бору, Питер РобертсПеревод: Многоголосый закадровый, професиональный
 
 ## Скачать торент
 ```bash
@@ -79,276 +231,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401612   (494924) от 24.08.2020
+###  Публикация: 1318188   (496677) от 05.08.2019
 
-Ливень / Hard Rain (1998) BDRip [H.265/1080p] [10-bit]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_494924.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вышедшая из берегов река становится причиной крупного наводнения в провинциальном американском городке. Мимо города следует инкассаторский автомобиль, перевозящий несколько миллионов долларов. Попав в засаду, неопытный охранник Том оказывается один на один с бандой «беспощадного Джима» и бушующей природной стихией.Производство: США, Великобритания, Дания, Франция, Япония, Новая Зеландия, Германия, Австралия / Paramount Pictures, Mutual Film Corporation, PolyGram Filmed EntertainmentЖанр: Боевик, триллер, драма, криминалРежиссер: Микаэл СаломонАктеры: Морган Фримен, Кристиан Слэйтер, Рэнди Куэйд, Минни Драйвер, Эдвард Аснер, Майкл А. Гурджиан, Дэнн Флорек, Рики Харрис, Марк Ролстон, Питер МёрникПеревод: Дублированный, профессиональный многоголосый, профессиональный двухголосый, авторскийСубтитры: Русские, украинские, английскиеПродолжительность: 01:36:35
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404090   (494923) от 24.08.2020
-
-Far Manager 3.0.5656 Final + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494923.jpg" />
-</div>
-
-
-###  Подробнее
-
-Far manager — бесплатный файловый менеджер с поддержкой UNICODE. Имеющий удобный интерфейс для работы с файловыми системами (реальными и эмулированными) и файлами. FAR Manager понимает длинные имена, корректно работает с русскими буквами (есть и перекодировщик WIN-KOI-ISO). Вмонтированный FTP-клиент, также настройка панелей по своему вкусу. Раскраска файлов, просмотр (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C89C0E6C40865600DF9EC7169AC6C5A6F0F7DC15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404281   (494922) от 24.08.2020
-
-BELOFF [dp] 2020.08.3 [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494922.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник программ для автоматической установки драйверов в Windows x86-x64.
-
-Приятного времяпрепровождения за компьютером!
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF13EDCD2363BC52503216D5FFC5CF5BE5D57461
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404297   (494921) от 24.08.2020
-
-Звуковые библиотеки - Audio Imperia - Areia [Kontakt, OGG]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_494921.jpg" />
-</div>
-
-
-###  Подробнее
-
-Areia - программный инструмент кинематографического ансамбля струнных инструментов, созданный для Kontakt, который сочетает в себе самые востребованные функции в одном продукте: детальный реализм с выразительными эмоциями и диапазоном, а также пышный голливудский звук - от нежного и мягкого до агрессивного и эпическогоФормат: Kontakt: NICNT, NKC, NKI, NKR, NKX; OGG
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 503733   (494920) от 24.08.2020
-
-Апостолы слова (2010) TVRip
-
->>Документалистика и Телепередачи
->>Религии и культы (Док/TV)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494920.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ежегодно 24 мая во всех славянских странах торжественно прославляют создателей славянской письменности Кирилла и Мефодия — учителей словенских. Это и светский и большой церковный праздник. Кто же они были такие - Кирилл и Мефодий? Этот фильм - рассказ о святых равноапостольных Кирилле и Мефодии, основателях славянской письменности. Созданный ими славянский алфавит (   Читать дальше...   )Жанр: Документальный, историяПродолжительность: 00:37:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:403B2F79758F448A179E5BE713D9F8E72C4EC72E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404218   (494919) от 24.08.2020
-
-PiterPy | Конференция PiterPy Online (2020) PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494919.jpg" />
-</div>
-
-
-###  Подробнее
-
-На PiterPy 2020 вы найдете только высоко технические доклады и реальные кейсы от спикеров со всего мира:
-Python & Web
-Python & Cloud
-Python & DevOps(   Читать дальше...   )Жанр: ПрограммированиеПродолжительность: 14:33:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55367208F17D8334F2D987683DF414860720B4F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318429   (494918) от 06.08.2019
-
-Oliver Jones - Yuletide Swing (1994) Justin Time [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_494918.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Santa Claus Is Coming to Town [4:58]
-02. I'll Be Home for Christmas [4:16]
-03. Silver Bells [5:07]
-04. All I Want for Christmas Is My Two Front Teeth [6:57](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:52:33
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318424   (494917) от 06.08.2019
-
-Guy Lafitte - Happy! (1979) 2004, Black & Blue [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_494917.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Put on a Happy Face (take 1) [5:26]
-02. My Foolish Heart [6:33]
-03. Make Someone Happy [6:29]
-04. Get Happy [4:29](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:06:49
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318432   (494916) от 06.08.2019
-
-Oliver Jones - Just For My Lady (2013) Justin Time [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_494916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Josee's Blues [4:17]
-02. You Look Good to Me [7:26]
-03. Lights of Burgundy [4:42]
-04. The Angel and Mr. Jones [4:59](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:57:51
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565239   (494915) от 23.07.2022
-
-Blizzard Hunter - The Path Of Triumph (2022) [MP3|320 Kbps] <Heavy, Speed Metal>
+Oddland - Origin (2016) [FLAC|Lossless|image + .cue] <Progressive Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494915.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_496677.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.	On the Warpath	01:52
-02.	Final Flash	05:07
-03.	The Path of Triumph	07:34
-04.	Screaming (My Bloody Anger)	04:40(   Читать дальше...   )Жанр: Heavy, Speed MetalПродолжительность: 00:58:46
+01. Esotericism (3:44)
+02. Thanatos (5:29)
+03. Penumbra (3:46)
+04. Untrue (6:14)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:45:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A2304A4091B7A7DADA0D9533E333BD05BE7DCBCD
+magnet:?xt=urn:btih:51D99803B68E0F2CC7A08B15E35164D72A8818BE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -356,284 +260,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565354   (494914) от 23.07.2022
+###  Публикация: 1318233   (496676) от 05.08.2019
 
-Алексей Арбузов | Только не бойся быть счастливым (1997) [MP3, Инна Флегантова м др.]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494914.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спектакль по пьесе Алексея Арбузова "Мой бедный Марат".
-События охватывают временной промежуток в долгие 17 лет – с 1942 по 1959 годы.
-
-В блокадном Ленинграде в полуразрушенном доме случайно встречаются трое: двое мужчин и женщина. Им кажется, что они стали дороги друг другу на всю жизнь. Война заканчивается... Герои встречаются вновь, но вместе с прошлым (   Читать дальше...   )Жанр: Драма, РадиоспектакльПродолжительность: 01:31:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03F26D583F6DD3AB43CE5162479022CFF187E063
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565352   (494913) от 23.07.2022
-
-Galleyboyz - Galleyboyz (1990) 2xCD, Reissue , 2022, MelodicRock Classics [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494913.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1 - Galleyboyz:
-01. You Get What You Pay For (3:36)
-02. Nothin’ To Lose (3:46)
-03. One Step Up (4:24)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:53:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23782874B5BAED83F5E4103ADC42AE9A638E4A12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565307   (494912) от 23.07.2022
-
-Ousey / Mann - Is Anybody Listening (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494912.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Flag (4:46)
-02. And So It Begins (4:53)
-03. Brave New World (4:38)
-04. I'll Tell You When To Stop (4:14)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:05:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE2D283D6E704BDB08048238CA51D43F803EA4A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565313   (494911) от 23.07.2022
-
-Минтранс (23.07.2022) SATRip
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494911.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа посвящена всем видам транспорта и тому, как ими пользоваться. От полезных лайфхаков до информации, которая поможет сохранить вам жизнь. Обо всем расскажет самый известный автожурналист России, экс-редактор легендарного журнала «За рулем» и основатель гоночной команды «ГАЗ Рейд Спорт» Вячеслав Субботин.Телекомпания: РЕН-TVЖанр: ТелепередачаПродолжительность: 00:47:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02C894E958E867A2193EFE7626661AF96E889098
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565311   (494910) от 23.07.2022
-
-Lazarus Dream - Lifeline (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494910.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dead End Symphony (6:29)
-02. Don't Look Down (4:48)
-03. Mind Like A Windmill (4:52)
-04. Freedom (5:23)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:11:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06F138B7E01A0FD77DAC5FC4BB37F2E87524BECA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565365   (494909) от 23.07.2022
-
-Гай Басс | Проблемы с воображением. Книга 1 (2022) [FB2, EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494909.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для тех, кто любит приключения с хорошим концом!
-Бен надеялся подружиться с кем-нибудь из своих новых одноклассников, поэтому пригласил весь класс к себе на день рождения. Но никто не пришёл. Расстроившись, Бен изо всех сил пожелал, чтобы к нему пришёл его лучший друг… воображаемый. И вдруг тот появился! В реальности! А за ним следом явилась целая толпа существ, (   Читать дальше...   )Жанр: Детская литература, ФантастикаПеревод: Мария СклярФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28E428AC6868FA3BF1555EFD2B26AC420B5B7031
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565356   (494908) от 23.07.2022
-
-Harlequin's Kiss - We've Been Expecting You (2022) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494908.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Insane 04:03
-02. Tonight 03:41
-03. The Soldier And The Spider's Web 03:29
-04. Are You Gonna Come Out? 04:45(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C1AC782003E825536661DA2278BC84A65DB7B3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565373   (494907) от 23.07.2022
-
-Compass - Theory of Tides (2022) [MP3|320 Kbps] <Progressive Rock, Progressive Metal, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494907.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mountains On The Moon (10:59)
-02. Searching For Answers (6:35)
-03. The Assayer (8:08)
-04. Once In A Lifetime (5:17)(   Читать дальше...   )Жанр: Progressive Rock, Progressive Metal, AORПродолжительность: 00:57:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08050D9C27431D3C796F81A75902282E0628A23D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565241   (494906) от 23.07.2022
-
-Jack White - Entering Heaven Alive (2022) [MP3|320 Kbps] <Blues Rock, Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494906.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Tip From You To Me
-02. All Along The Way
-03. Help Me Along
-04. Love Is Selfish(   Читать дальше...   )Жанр: Blues Rock, Folk RockПродолжительность: 00:40:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCF97E26C450B10049110034C039B05AD5986485
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565504   (494905) от 23.07.2022
-
-NEONNOONE - Noir & Jazz & Dark & Slow... (2022) [FLAC|Lossless|Web-DL|tracks] <Doom Jazz, Post Rock, Dark Ambient>
+Oliver Jones - A Class Act (1991) Justin Time [FLAC|Lossless|tracks + .cue] <Post-Bop, Mainstream Jazz, Piano Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494905.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_496676.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Nocturne (5:02)
-02. For A Film (5:19)
-03. Zen Noir (6:38)
-04. Car Crash On Sunday (5:58)(   Читать дальше...   )Жанр: Dark Jazz, Doom Jazz, Post Rock, Dark AmbientПродолжительность: 00:30:33
+01. Mark My Time [4:21]
+02. Everybody's Song But My Own [6:29]
+03. Scrambled [4:26]
+04. Very Early [5:52](   Читать дальше...   )Жанр: Post-Bop, Mainstream Jazz, Piano JazzПродолжительность: 00:50:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:350F320C9D18335DA9B5384866B88AF6C0197B61
+magnet:?xt=urn:btih:4158E5531740A73728C30F0BA85B25E2F947F5AE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -641,28 +289,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565432   (494904) от 23.07.2022
+###  Публикация: 1318240   (496675) от 05.08.2019
 
-Drownd - [AN]AESTHETIC (2022) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal, Coldwave>
+Hampton Hawes Quartet - All Night Session!, Vols. 1-3 (1956) 2CD, 2001, Victor [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
 
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494904.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_496675.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Palpitation
-02. Filth
-03. Save Yourself
-04. DeathwishЖанр: Industrial Metal, ColdwaveПродолжительность: 01:06:12
+CD1:
+01. Jordu [7:07]
+02. Groovin' High [5:48]
+03. Takin' Care [8:09](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 02:03:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:80A9FECD54DD7167C69923DCFD2D6B8AC4671A9F
+magnet:?xt=urn:btih:A7A3FE6679484CACEDF68B70A0F18192677F7A7A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -670,28 +318,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565227   (494903) от 23.07.2022
+###  Публикация: 1318198   (496674) от 05.08.2019
 
-Balls Gone Wild - Stay Wild (2022) [MP3|320 Kbps] <Hard Rock>
+Psycrence - A Frail Deception (2014) [FLAC|Lossless|image + .cue] <Progressive Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Hard Rock
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494903.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_496674.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Killing One (03:14)
-02. Hangman (04:05)
-03. School on Fire (04:45)
-04. Feel My Love (03:55)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:58
+01. A Losing Game (6:08 )
+02. Convergence (5:31)
+03. Forced Evolution (6:13)
+04. Moral Decay (5:37)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:56:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6A014291140BFD58C7626C633CED66109D975529
+magnet:?xt=urn:btih:43BC34397379357D572ACCDE16346F8B805FDBEC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -699,28 +347,379 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565121   (494902) от 23.07.2022
+###  Публикация: 1318201   (496673) от 05.08.2019
 
-Fame on Fire - Welcome to the Chaos (2022) [MP3|320 Kbps] <Alternative rock, Post-hardcore, Metalcore>
+Datacode - Wraithmachine (2017) MethLab Recordings [FLAC|Lossless|WEB-DL|tracks] <Experimental, Glitch, IDM, Drum & Bass, Dubstep>
 
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494902.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_496673.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Intro (1:24)
-02. Welcome to the Chaos (feat. Spencer Charnas of Ice Nine Kills) (3:28)
-03. Ketamine (2:52)
-04. Cut Throat (3:07)(   Читать дальше...   )Жанр: Alternative rock, Post-hardcore, MetalcoreПродолжительность: 00:38:14
+01. 起源 (Origin) (05:58)
+02. 隠さ (Hidden) (03:53)
+03. 侵入 (Intrusion) (06:11)
+04. 出力 (Output) (06:16)(   Читать дальше...   )Жанр: Experimental, Glitch, IDM, Drum & Bass, DubstepПродолжительность: 01:14:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D76F97EC2A2E2471BCF49421F377772A3CECC896
+magnet:?xt=urn:btih:B8C61C6D6A20EA472B2A44CE125414EA6AE8C196
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318235   (496672) от 05.08.2019
+
+Coleman Hawkins - Bean And The Boys (1950-e) HighNote [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_496672.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Disorder at the Border [6:40]
+02. Yesterdays [4:36]
+03. Bean and the Boys [5:35]
+04. Disorder at the Border [3:23](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:43:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB63E06BD253B0A9330A9F21B1ED242F202CB22B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318244   (496671) от 05.08.2019
+
+Matt Mauser And The Pete Jacobs Big Band - Perfectly Frank (2013) Whitestone Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_496671.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Come Fly with Me [3:10]
+02. Luck Be a Lady [4:55]
+03. The Best Is Yet to Come [2:59]
+04. The Way You Look Tonight [3:27](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:44:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CC96CE74630CB70197048D3FB89203C21B036D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318295   (496670) от 05.08.2019
+
+Glary Utilities Pro 5.125.0.150 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_496670.jpg" />
+</div>
+
+
+###  Подробнее
+
+Glary Utilities - функциональный набор системных твикеров и утилит, для тонкой настройки, повышения общего уровня производительности и защиты ПК. Данное приложение позволяет пользователю избавиться от ненужных файлов, от устаревших регистрационных записей и истории интернет-активности, посредством установки различных плагинов, можно добиться полной совместимости (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318220   (496669) от 05.08.2019
+
+VA - Billegal Beats Vol.0 (2019) Billegal Beats [FLAC|Lossless|WEB-DL|tracks] <IDM, Experimental, Glitch, Leftfield, Ambient>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_496669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aethek - Slowly But Surely (06:14)
+ 02. Mr. Bill - Feeble (04:06)
+ 03. The Flashbulb - Petiole (04:13)
+ 04. Boxcutter - On The Grid (Remix) (02:44)(   Читать дальше...   )Жанр: IDM, Experimental, Glitch, Leftfield, AmbientПродолжительность: 01:16:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF0C8686B60F1A6A7EBA930EE9FAF465B6327138
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318269   (496668) от 05.08.2019
+
+Алёша Птицын вырабатывает характер (1953) DVDRip
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Отечественные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_496668.jpg" />
+</div>
+
+
+###  Подробнее
+
+По одноименному произведению Агнии Барто. Ученик третьего класса решил заняться самовоспитанием. Отказавшись от опеки рассеянной бабушки и вредной сестренки, он начал с того, что самостоятельно пришел в школу, сорвал урок, устыдившись, сделал хорошее дело - вернул утерянную тетрадь владельцу и отправился показывать гостям столицу, красивую и чистую Москву, высотные (   Читать дальше...   )Производство: СССРЖанр: Детский, СемейныйРежиссер: Анатолий ГраникАктеры: Виктор Каргопольцев, Ольга Пыжова, Валентина Сперантова, Наталья Полинковская (Наталья Селезнева), Юрий Бубликов, Валентина Ушакова, Анна Лисянская, Екатерина Савинова, Тамара Алешина, Роза Макагонова, Александр Михайлов, Надежда Румянцева, Лидия СухаревскаяПродолжительность: 01:08:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:647E421EBAE23716A3B905BEAC001D8C2A2ED08D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318322   (496667) от 05.08.2019
+
+Журнал | Lowrider USA №10 (октябрь 2019) [PDF] [En]
+
+>>Автомобили
+>>Автомобильные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_496667.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lowrider - американский автомобильный журнал, фокусирующийся почти исключительно на стиле, известном как lowrider. Впервые он был выпущен в 1977 году в Сан-Хосе, Калифорния, тремя студентами из штата Сан-Хосе. Начиная с 2007 года он публикуется в Анахайме, штат Калифорния, и входит в состав Motor Trend Group.Жанр: Автомобильный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58E5A89C2EE733452044D428E8C999099F643E95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318275   (496666) от 05.08.2019
+
+Алёша Птицын вырабатывает характер (1953) DVD5
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_496666.jpg" />
+</div>
+
+
+###  Подробнее
+
+По одноименному произведению Агнии Барто. Ученик третьего класса решил заняться самовоспитанием. Отказавшись от опеки рассеянной бабушки и вредной сестренки, он начал с того, что самостоятельно пришел в школу, сорвал урок, устыдившись, сделал хорошее дело - вернул утерянную тетрадь владельцу и отправился показывать гостям столицу, красивую и чистую Москву, высотные (   Читать дальше...   )Производство: СССРЖанр: Детский, СемейныйРежиссер: Анатолий ГраникАктеры: Виктор Каргопольцев, Ольга Пыжова, Валентина Сперантова, Наталья Полинковская (Наталья Селезнева), Юрий Бубликов, Валентина Ушакова, Анна Лисянская, Екатерина Савинова, Тамара Алешина, Роза Макагонова, Александр Михайлов, Надежда Румянцева, Лидия СухаревскаяСубтитры: отсутствуютПродолжительность: 01:08:07
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318225   (496665) от 05.08.2019
+
+Mr. Cloudy - Wizards Gathered Once (2018) Space Of Variants [FLAC|Lossless|tracks+.cue] <Dub Techno, Ambient>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_496665.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (02:09)
+ 02. Memoria l (19:56)
+ 03. Memoria ll (18:06)
+ 04. Sprayer l (08:06)(   Читать дальше...   )Жанр: Dub Techno, AmbientПродолжительность: 01:04:50
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318265   (496664) от 05.08.2019
+
+Алёша Птицын вырабатывает характер (1953) DVDRip
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Отечественные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_496664.jpg" />
+</div>
+
+
+###  Подробнее
+
+По одноименному произведению Агнии Барто. Ученик третьего класса решил заняться самовоспитанием. Отказавшись от опеки рассеянной бабушки и вредной сестренки, он начал с того, что самостоятельно пришел в школу, сорвал урок, устыдившись, сделал хорошее дело - вернул утерянную тетрадь владельцу и отправился показывать гостям столицу, красивую и чистую Москву, высотные (   Читать дальше...   )Производство: СССРЖанр: Детский, СемейныйРежиссер: Анатолий ГраникАктеры: Виктор Каргопольцев, Ольга Пыжова, Валентина Сперантова, Наталья Полинковская (Наталья Селезнева), Юрий Бубликов, Валентина Ушакова, Анна Лисянская, Екатерина Савинова, Тамара Алешина, Роза Макагонова, Александр Михайлов, Надежда Румянцева, Лидия СухаревскаяПродолжительность: 01:08:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81FD51E02998F5E4E5B00722F9B8072136F6481A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318292   (496663) от 05.08.2019
+
+Q-Dir 7.73 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_496663.jpg" />
+</div>
+
+
+###  Подробнее
+
+Файловый менеджер с оригинальным четырехпанельным интерфейсом и широкими возможностями по работе с файлами. Работает с любого съемного устройства. Многоязычный интерфейс.
+Q-Dir позволяет получать быстрый доступ к часто используемым папкам с помощью ссылок "Quick-Link's", поддерживает функцию drag&drop, работает с буфером обмена, поддерживает следующие (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFFDE0BA8E26BD5A6551A5666B6C30E1891AF842
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318288   (496662) от 05.08.2019
+
+Журнал | Дачный клуб №6 (июнь 2019) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_496662.jpg" />
+</div>
+
+
+###  Подробнее
+
+В журнале собрана информация о том, как ухаживать за садом, огородом, цветником, раскрываются хитрости ландшафтного дизайна, даются оригинальные рецепты заготовок и блюд из урожая, собранного на своих грядках, а также советы народной аптечки.Жанр: Дом, сад, огород, дачаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2302D9D549CE0EBA0C2BE986FC8AD46948FC686A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318294   (496661) от 05.08.2019
+
+Магия черная и белая (1983) DVDRip
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Отечественные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_496661.jpg" />
+</div>
+
+
+###  Подробнее
+
+Закадычные друзья, четверокласники Сева Кухтин, неутомимый выдумщик и заводила, и солидный, степенный Витя Елхов всем надоели своими проказами. Эти два сорванца никак не угонятся за своей успеваемостью в школьном коллективе и поэтому новый классный руководитель решил сделать собрание на котором ребята класса решают их дальнейшую судьбу. Как тут, откуда не возьмись, (   Читать дальше...   )Производство: СССРЖанр: Детский, Комедия, СемейныйРежиссер: Наум БирманАктеры: Александр Леньков, Александр Суснин, Антон Гранат, Виктор Сухоруков, Денис Левин, Любовь Малиновская, Маргарита Иванова, Михаил Девяткин, Наталья Попова, Николай Волков мл., Павел ПлисовПродолжительность: 01:12:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:347C74E4325D936E6AD92551BB1FE390307E2209
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565179   (496660) от 22.07.2022
+
+Vivaldi 5.3.2679.70 + Автономная версия (standalone) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_496660.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интернет-браузер, созданный компанией Vivaldi Technologies на основе свободного браузера Chromium и движка Blink. Ряд функций, такие как боковая панель, режим отображения картинок на веб-странице, заметки, визуальные вкладки, корзина с закрытыми вкладками и многие другие были перенесены из последней версии браузера Opera 12, сделанного на движке Presto.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AF37AC3D6E76842A0FAC75EC3F18A6C680E24AC
 ```
 
 https://mybot314.ru/tekegram_catalog/

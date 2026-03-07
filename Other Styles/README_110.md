@@ -1,3 +1,33 @@
+###  Публикация: 154434   (446680) от 16.09.2020
+
+James Last - 16 альбомов (1987 – 2019) [FLAC|Lossless|image, track + .cue] <Jazz, Pop, Folk, World & Country>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_446680.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джеймс Ласт был лидером немецкого биг-бэнда с большим количеством фанов в Европе, хотя у него никогда не было подобной популярности в Соединенных Штатах. Фирменным знаком Ласта была аранжировка поп-хитов в стиле биг-бэнда. За свою карьеру он продал более 50 миллионов альбомов.
+Он научился играть на фортепиано в детстве, а подростком перешел на бас. Он присоединился (   Читать дальше...   )Альбомы:
+1987 James Last spielt Bach
+1988 Abendglocken (Вечерний звон)
+1990 James Last - Classics By Moonlight(   Читать дальше...   )Жанр: Pop, Easy Listening, InstrumentalПродолжительность: 37:21:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BA63E01C760892AC3DFB211AC77580EA3F6D6C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 706139   (446618) от 01.10.2013
 
 VA - Vargo Lounge Summer Celebration 1 (2013) [FLAC|Lossless|image + .cue]<Chillout, Lounge, Downtempo>
@@ -731,35 +761,6 @@ VA - The Best Of Native Indians (2CD) (1999) [MP3|320 кб/с]<Native American E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:46A2D7FB14F2C40D7BBE0DE28428F20D7DA85427
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410151   (438429) от 20.09.2020
-
-Александр Серов - Relax Instrumental Music (2006) [FLAC|Lossless|tracks + .cue]<Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Begin
-02. Remain
-03. Говори со мной
-04. Love me tender(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:19:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E6EC68889CD857F03042C49E18A9ADA428ADD8B
 ```
 
 https://mybot314.ru/tekegram_catalog/

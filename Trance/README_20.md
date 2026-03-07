@@ -1,3 +1,90 @@
+###  Публикация: 1229776   (622709) от 08.06.2018
+
+VA - Summer Hits (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622709.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roman Messer feat. Roxanne Emery - Lullaby (Extended Mix)
+02. LTN - Wind and Cloud (Extended Mix)
+03. Bogdan Vix - I Am Now (Original Mix)
+04. Ruslan Radriges - Revival (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:55:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5BA7053181507C20DE11B89D9956C54CD5BB150
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229930   (620969) от 09.06.2018
+
+VA - Trance Runner - Episode Seven (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_620969.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nick Off - Sunset (Radio Cut)
+02. Steve Bengaln - Broken Heart Phase 2 (Radio Cut)
+03. Inglide - Let Me Love You (Radio Cut)
+04. George Harrold - Ayuhuasca (Radio Cut)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:13:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E71CE6C50A3EE7D627B81C526D5BFB802D5D6561
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036690   (618900) от 21.07.2016
+
+VA - Amsterdam Trance Sessions Vol. 5 (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, Progressive>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618900.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Allen & Envy -  The Cry Within (Para X Remix) 8:02
+02. Dave Pearce -  Trance Sanctuary (Original Mix) 5:45
+03. Sean Truby -  Coyote (Ultimate And Moonsouls Remix) 6:47
+04. Merc -  Obsession (Original Mix) 7:41(   Читать дальше...   )Жанр: Trance, Uplifting Trance, ProgressiveПродолжительность: 02:39:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F247EF78257DC98337DC4CE00A009E2EC528727B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1230348   (617386) от 11.06.2018
 
 VA - Russian Trance 2018  [MP3|320 Kbps] <Trance, Uplifting Trance, Progressive Trance>
@@ -655,93 +742,6 @@ ATB - 57 Релизов (1998-2014) [MP3|320 kbps]<Trance, Progressive House, Do
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE2BD2FB527456FAB5ABCC6104D0302142294474
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231878   (603773) от 20.06.2018
-
-VA - Magic Of Trance Vol. 5 (Mixed By Vito Von Gert) (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603773.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Allan Dark - On Waves (NyTiGen Remix)
-02. Dan Smooth - Soar (Original Mix)
-03. Dan Smooth - Kapa (Original Mix)
-04. Dan Smooth - About Life (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:10:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F11E73E371F812A1CD58656E0D47F16CADFB20BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231885   (603772) от 20.06.2018
-
-VA - Progressive Trance Selections Vol. 05 (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603772.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Betelgeuze - A Bomb! (Original Mix)
-02. Alex Wright - Equinox (Extended Mix)
-03. Edelways - Changes (Extended Mix)
-04. Kiyoi, Eky - Everlong (Extended Mix)(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 02:44:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CE6298FD751CBD356B0BD5B54AB86243C4C2456
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232087   (602782) от 22.06.2018
-
-VA - Euphoric Trance (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602782.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Adam Ellis ft. Aylin - Jaehaerys (Extended Mix)
-02.James Dymond & Susana - Love You Are Made Of (Extended Mix)
-03.Stoneface & Terminal & Katty Heath - Love Sublime (Stargazers Dub)
-04.Saad Ayub & Cristina Soto - Daylight (Amir Hussain Dub)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:50:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9D79EBD93CDF6805E92E2A29CA8318655C3EDA3
 ```
 
 https://mybot314.ru/tekegram_catalog/

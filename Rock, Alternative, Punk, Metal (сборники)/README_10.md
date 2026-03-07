@@ -1,3 +1,32 @@
+###  Публикация: 1002073   (849932) от 30.03.2016
+
+Ленинград - Новинки (2016) [MP3|192 - 320 кб/с ] <Rock, Ska>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_849932.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Экспонат
+02. Самая любимая
+03. ЗОЖ
+04. Плачу(   Читать дальше...   )Жанр: Rock, SkaПродолжительность: 01:02:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:783872455387AB898ADBC613B75854136ECC3EDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1377770   (849576) от 23.04.2020
 
 Marilyn Manson - 100% Marilyn Manson (2020) 2CD [MP3|320 Kbps] <Rock, Industrial>
@@ -713,35 +742,6 @@ VA - Classic Pop-Rock Hits (2020) [MP3|320 Kbps] <Rock, Pop-Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9719C6898E4BCAC1C8A061230A915A3B0FC6B646
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380333   (835129) от 02.05.2020
-
-VA - Dreaming Up Life: Indie Rock Music (2020) [MP3|320 Kbps] <Indie, Pop Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835129.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Grotto Terrazza - Gestalt Bondage
-002. Los Retros - Oh Grace
-003. Night Flowers - I've Loved You
-004. Crushed Beaks - Jupiter(   Читать дальше...   )Жанр: Indie, Pop Rock, AlternativeПродолжительность: 08:15:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7443F99D67333C209D32F327B73F4A53A3F54E12
 ```
 
 https://mybot314.ru/tekegram_catalog/

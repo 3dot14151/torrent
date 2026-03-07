@@ -1,3 +1,119 @@
+###  Публикация: 1003352   (841493) от 04.04.2016
+
+Moderat - III (Box Set, 3CD, Limited Edition) (2016) [FLAC|Lossless|tracks+.cue] <Techno, IDM, Electro, Experimental>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_841493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eating Hooks (NGHT DRPS Remix) (05:16)
+ 02. Reminder (Hodges More Amor Remix) (05:44)
+ 03. Eating Hooks (Siriusmo Remix) (04:42)
+ 04. Fondle (04:51)(   Читать дальше...   )Жанр: Techno, IDM, Electro, Experimental •Продолжительность: 01:06:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BC1954655DDD8D565946635488E5E54945B81BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379605   (839556) от 29.04.2020
+
+Above & Beyond - Anjunabeats Essentials (2020) DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_839556.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Above & Beyond – Is It Love? (1001) (Grum Remix) (05:18)
+02. Boom Jinx – Phoenix From The Flames feat. Justine Suissa (Maor Levi Remix) (05:52)
+03. Gabriel & Dresden – Something Bigger (feat. Sub Teal) (04:45)
+04. Grum – Running (feat. Jinadu) (05:15)(   Читать дальше...   )Жанр: Progressive House, Tech TranceПродолжительность: 01:08:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0FD354E677374363BAD9F6C7C7C86566B7C28FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1246510   (838922) от 29.04.2020
+
+Wanderwelle - Discography 7 Releases (2015-2020) Silent Season [FLAC|Lossless|WEB-DL|tracks+.cue, tracks] <Dub Techno, Ambient, Techno, Techno Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_838922.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Decay (04:16)
+ 02. Reliquary (02:32)
+ 03. Shells (05:07)
+ 04. Vanitas (05:06)(   Читать дальше...   )Тип издания: CD, WebЖанр: AmbientПродолжительность: 04:53:51 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85E0162F8397DF60D386EE80A47A7F075AEBEBAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112906   (838641) от 11.03.2017
+
+Marbert Rocel - In The Beginning: Remixes (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_838641.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hold On (Deetron Dub) (6:08)
+ 02. Dawn Of The Day (Snacks Remix) (5:50)
+ 03. With Your Love (Quarion Remix) (7:05)
+ 04. Hold On (M.ono & Luvless Remix) (6:54)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:53:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8587E5545310842E1EE2D47F91FB1A9D430C7BED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1113364   (838543) от 11.03.2017
 
 V.A. - House Del Mar (2016) [FLAC|Lossless|WEB-DL|tracks] <House, Electro>
@@ -625,122 +741,6 @@ The New Deal - Mercury Switch (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4D16A552B571BBE9C4435E71ED8FD0AC36D3283
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502862   (824843) от 16.10.2021
-
-Miss Monique - FGIX (2020) DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Melodic Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824843.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miss Monique - FGIX (Continuous DJ Mix) (01:04:45)
- 02. Sergey Muzarks - Eclipse (7:32)
- 03. Evegrem - Skylab (9:01)
- 04. Bulk Beat - Flaming June (8:08)(   Читать дальше...   )Жанр: Progressive House, Melodic TechnoПродолжительность: 02:18:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC8D6A64B5DC08473D349C31B6C49CCCAEEF21FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116195   (824439) от 19.03.2017
-
-VA - Nu Disco, Volume 1 (2017) [FLAC|Lossless|WEB-DL|tracks] <Nu Disco, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824439.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anton Ishutin - Devil In My Head (feat Irina Makosh) [06:25]
-02. Ffunk - About You [03:48]
-03. NekliFF/Mary SK - First Dot (Tosel & Hale remix) [05:58]
-04. Tunnelvision - Popping Candy (Monrabeatz & Black Birdz remix)[05:50](   Читать дальше...   )Жанр: Nu Disco, Deep HouseПродолжительность: 04:29:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF5DFDFC7120E685318FD8112B747B6DD0F93A9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196267   (824235) от 02.01.2018
-
-VA - Yoshitoshi: Best Of 2017 (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824235.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yoshitoshi: Best Of 2017 (continuous DJ mix 1) [57:17]
-02. Yoshitoshi: Best Of 2017 (continuous DJ mix 2) [01:02:22]
-03. Aaaron - Black Arp (original mix) [07:05]
-04. PQM Feat. Cica - The Flying Song (UNER remix) [06:29](   Читать дальше...   )Жанр: Deep House, Tech House, MinimalПродолжительность: 04:23:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:330BDEAE2F416DC9271F8F76A2C2A020BBA1AE11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196300   (823888) от 02.01.2018
-
-Bob Moses - Days Gone By (Never Enough Edition) (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Downtempo, Dub House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823888.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Like It Or Not (6:20)
- 02. Talk (6:49)
- 03. Before I Fall (3:59)
- 04. Too Much Is Never Enough (5:25)(   Читать дальше...   )Жанр: Deep House, Downtempo, Dub HouseПродолжительность: 01:52:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6964C55E9A7D68118BFC90D5D628C379D5F9EAE
 ```
 
 https://mybot314.ru/tekegram_catalog/

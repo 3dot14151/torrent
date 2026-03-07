@@ -1,3 +1,32 @@
+###  Публикация: 1314122   (521322) от 12.07.2019
+
+Deva Epica - Freedom (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_521322.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Awakening (8:59)
+02. Freedom (4:40)
+03. Follow the Heart (3:37)
+04. Eternal Deva (5:45)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:15:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D15D40470BC68EC4B0A4B78EEAF472FA3DC37280
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1241319   (521071) от 16.08.2018
 
 Önder Bilge - Relaxing Guitar Heaven (2018) [FLAC|Lossless|WEB-DL|tracks] <New age, Relax>
@@ -725,35 +754,6 @@ VA - BEST of 100 OST (2015) [MP3|320 кб/с]<Soundtrack>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C6F21BE2B64229F09673A0026612B670C6AFC3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242329   (513972) от 23.08.2018
-
-Brian Kelly - Tomorrow's Daydream (2018) [MP3|320 Kbps] <Piano, Neo-Classical, Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513972.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tomorrow's Daydream 04:49
-02. Tracing Rainbows 05:16
-03. Dancing with the Moon 04:08
-04. Our Own Window 03:42(   Читать дальше...   )Жанр: Piano, Neo-Classical, InstrumentalПродолжительность: 00:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:995426FC52356363FA07E2E48377808F9537DC01
 ```
 
 https://mybot314.ru/tekegram_catalog/

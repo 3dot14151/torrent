@@ -1,3 +1,119 @@
+###  Публикация: 1347113   (154374) от 22.12.2019
+
+SC-164 - CH-003 (2019) [FLAC|Lossless|WEB-DL|tracks] <Electro, Experimental>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_154374.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 003-001 (06:26)
+ 02. 003-002 (06:33)
+ 03. 003-003 (06:27)
+ 04. 003-004 (06:05)Жанр: Electro, ExperimentalПродолжительность: 00:25:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB835CBB683202E18561130C200137BE81AB8492
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270878   (154324) от 21.12.2018
+
+Orbital - Live At Eventim Hammersmith Apollo (15.12.18) (2018) Live Here Now [FLAC|Lossless|WEB-DL|tracks] <Leftfield, Techno, Electro, House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_154324.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (01:46)
+ 02. Monsters Exist (06:21)
+ 03. There Will Come A Time (07:06)
+ 04. Impact (The Earth Is Burning) (09:33)(   Читать дальше...   )Жанр: Leftfield, Techno, Electro, HouseПродолжительность: 01:41:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4524293D37668E384BBD5E615DCD290A5C5AFD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347153   (154275) от 22.12.2019
+
+Octal Industries - Our Seasons (2019) Vertex Recordings [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_154275.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Borg Tekin (07:18)
+ 02. Thorp I Vanda (05:26)
+ 03. Roblegt (06:44)
+ 04. Dreki Flyr (06:44)(   Читать дальше...   )Жанр: Dub Techno, Ambient, TechnoПродолжительность: 00:55:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D191BFA0304127844CECB4E9460C78CC977F48CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518634   (154099) от 20.12.2021
+
+The Dreamhouse Orkestra - Synthesizer Dreamhouse Greatest Vol. 1 (1997) [FLAC|Lossless|tracks + .cue] <Dream House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_154099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Killing Me Softly (3:29)
+02. I Like Chopin (3:35)
+03. Bilitis (3:50)
+04. Children (5:23)(   Читать дальше...   )Жанр: Dream House, TranceПродолжительность: 01:13:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D61B53A01819F7AC57A2B1F3FCB235DB95C0F968
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1600991   (154027) от 29.12.2022
 
 Above & Beyond - Group Therapy Best Of 2022 pt.1 (2022) DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
@@ -626,122 +742,6 @@ Pete Tong - Ibiza Classics (with The Heritage Orchestra Conducted by Jules Buckl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC2249DF63514AED4EC3F3886D858321D028563D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195572   (142352) от 29.12.2017
-
-VA - Club Sounds The Ultimate Club Dance Collection Best Of 2017 [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Kygo & Selena Gomez - It Ain't Me [03:41]
-02 David Guetta & Cedric Gervais & Chris Willis - Would I Lie To You [03:19]
-03 Robin Schulz & David Guetta & Cheat Codes - Shed A Light [03:12]
-04 The Chainsmokers - Paris [03:41](   Читать дальше...   )Жанр: House, DanceПродолжительность: 03:35:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBDB95AEDE15A5AB8A8F3FD18706578439A0BD3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348624   (142061) от 29.12.2019
-
-VA - Schneeweiss 10 (Presented by Oliver Koletzki) (2019) DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142061.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lunar Plane - Jackal (7:17)
-02. Niko Schwind - Prima Lux (Palmfood Remix) (7:31)
-03. Rauschhaus, Peer Kusiv - Drowning (Bebetta Remix) (7:20)
-04. Prismode, Solvane - Alesis (5:36)(   Читать дальше...   )Жанр: Progressive House, Tech HouseПродолжительность: 03:06:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0FFB73C1E9C2B7C9B10BB6318C60B3DED85AAAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348765   (142040) от 29.12.2019
-
-VA - Steyoyoke Gems Solar 08 (2019) Compilation [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142040.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soul Button & Modeplex – Ardor (07:09)
-02. Clawz SG – Esperanza (08:21)
-03. Ceas – Dome (07:09)
-04. Jaen Paniagua – Butterfly (06:52)(   Читать дальше...   )Жанр: Progressive House, Tech HouseПродолжительность: 01:51:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC9BC893BBB65B9B80021E2B0B4950B683C3113A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348791   (142023) от 29.12.2019
-
-VA - Amnesia Ibiza-Underground 9 (2009) 2CD [FLAC|Lossless|tracks + .cue] <Electro, House, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142023.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tigerskin - Peter's Secret Weapon
-02. Patrick Specke - Naggin' Me
-03. Cesar Merveille - Crapette ( 3TC Miss Fitz Remix )
-04. Davide Squillace & Phutura - Pig Wings ( Audiofly Remix )(   Читать дальше...   )Жанр: Electro, House, TechnoПродолжительность: 02:36:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB9F9488DBFE014B68E8D1BD9F1FC949348BC44B
 ```
 
 https://mybot314.ru/tekegram_catalog/

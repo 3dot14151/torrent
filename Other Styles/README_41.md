@@ -1,3 +1,32 @@
+###  Публикация: 1120304   (801967) от 31.03.2017
+
+Cerrone - Brigade Mondaine: Original Soundtracks (1978-1980) 2014, Because Music, Remastered, 3 CD Box Set [FLAC|Lossless|image + .cue] <Disco, Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801967.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Give Me Love
+02. Phonic
+03. Cloe
+04. Deauville(   Читать дальше...   )Жанр: Disco, SoundtrackФормат: 3хCD, Box Set, Compilation, Limited Edition, Numbered, RemasteredПродолжительность: 01:32:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18B59C6C227A3FE2F7E89653750333B38FBE774E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1120625   (801881) от 31.03.2017
 
 VA - Ghost in the Shell / Призрак в доспехах (Music Inspired by the Motion Picture) (2017) [MP3|320 кб/с]<Soundtrack, Dance & Electronic>
@@ -716,35 +745,6 @@ David Arnold and Michael Price - Sherlock / Шерлок (Collection Original Te
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2E03AE893A3206B585512BE855DD41598E85CF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121231   (800424) от 02.04.2017
-
-VA - The Young Pope / Молодой Папа (Unofficial Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800424.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lele Marchitelli - Cardinals (02:12)
-02. Lele Marchitelli - Fear of God (03:08)
-03. Lele Marchitelli - Later (01:50)
-04. Lele Marchitelli - My Destiny (04:19)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 07:17:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBA5A88CBFF584AC13F5BA55E5582C33DADAEACE
 ```
 
 https://mybot314.ru/tekegram_catalog/

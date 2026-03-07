@@ -1,3 +1,116 @@
+###  Публикация: 1279973   (763520) от 01.02.2019
+
+Bananarama - The Greatest Hits Collection (Collector Edition) (2017) [FLAC|Lossless|WEB-DL|tracks] <Dance-pop, New Wave>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763520.jpg" />
+</div>
+
+
+###  Подробнее
+
+VOLUME 1:
+01. Venus (3:49)
+02. I Heard a Rumour (3:24)
+03. Love in the First Degree (3:31)(   Читать дальше...   )Жанр: Dance-pop, New WaveПродолжительность: 02:30:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4E304EB086CAEE16657C5C4D4E131333D381881
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214660   (763295) от 23.03.2018
+
+Bosson - RockStar (2004) [FLAC|Lossless|tracks + .cue] <Pop, Europop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Need Love (3:35)
+02. You Opened My Eyes (3:41)
+03. One Of A Kind (3:55)
+04. A Little More Time (3:56)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 01:18:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8537E2BE63DCC3877AD03E86B54EE10EA675448E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1016397   (762943) от 16.05.2016
+
+Prince - 5 Albums (1978 - 2004) [APE|Lossless|image + .cue] <Pop, Soul, Funk, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_762943.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Musicology
+02. Illusion, Coma, Pimp & Circumstance
+03. A Million Days
+04. Life 'O' The Party(   Читать дальше...   )Жанр: Pop, Soul, Funk, DiscoПродолжительность: 03:20:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A357F012AEF9B9AB3EDC0F052E3CC1243FFF852B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 162431   (762544) от 25.05.2010
+
+Dusty Springfield - 7 альбомов (1963-2000) [FLAC|Lossless]<Pop, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_762544.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, SoulПродолжительность: 01:04:44
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1017751   (760778) от 17.05.2016
 
 Jamala - Подих (2015) [FLAC|Lossless|tracks + .cue] <Pop>
@@ -630,119 +743,6 @@ Donna Summer - Live And More (1978) 1990, Reissue [FLAC|Lossless|tracks + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44F125752368853F745C150B617A37D3A0FEC6AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282409   (745313) от 12.02.2019
-
-Nelly Furtado - The Best Of Nelly Furtado (2010) Geffen Records [FLAC|Lossless|tracks + .cue] <Electronic, Pop, RnB, Latin>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745313.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Like A Bird (4:04)
- 02. Turn Off The Light (4:36)
- 03. Shit On The Radio (Remember The Days) (3:55)
- 04. Fotografia (Duet with Juanes) (4:01)(   Читать дальше...   )Жанр: Electronic, Pop, RnB, LatinПродолжительность: 01:14:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7E2830D38029B2D85427AE890679B20A1B295DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282494   (745255) от 12.02.2019
-
-Demis Roussos - 20 Golden Hits (1995) Unofficial Release [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745255.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. From Souvenirs to Souvenirs
-02. Goodbye My Love Goodbye
-03. My Friend the Wind
-04. Rain and Tears(   Читать дальше...   )Жанр: PopПродолжительность: 01:10:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC6C92E0EE8F88D5033BFE004CC510540848BF3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 665484   (744215) от 06.06.2013
-
-Lenka - Shadows (2013) [FLAC|Lossless]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744215.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:41:19
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282763   (743737) от 13.02.2019
-
-VA - Sanremo 2019: 69° Festival Della Canzone Italiana [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743737.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1:
-1. Loredana Bertè – Cosa Ti Aspetti Da Me (04:44)
-2. Ultimo – I Tuoi Particolari
-3. Patty Pravo & Briga – Un Pò Come Nella Vita (03:24)(   Читать дальше...   )Жанр: PopПродолжительность: 01:24:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7519C599B532E53EB0F4A616F566079B5F26A187
 ```
 
 https://mybot314.ru/tekegram_catalog/

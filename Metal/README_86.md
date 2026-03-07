@@ -1,61 +1,3 @@
-###  Публикация: 1609778   (244490) от 05.02.2023
-
-Victor Smolski - 3 Albums (2006-2023) [MP3|320 Kbps] <Neo-Classical, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244490.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2006 - Majesty & Passion
-2006 - The Heretic
-2023 - Guitar ForceЖанр: Neo-Classical, Progressive MetalПродолжительность: 3 CD, 02:36:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FCC26930D21F9FFFEB85E6FBB75463FFA8DBD3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625727   (244419) от 11.04.2023
-
-Center of the Earth - 4 Albums (2018-2023) [MP3|320 Kbps] <Psych, Stoner, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244419.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2018 - Tolkion
-2019 - Live from Rock the Church
-2019 - The Wizard Is Loose(   Читать дальше...   )Жанр: Psych, Stoner, Doom MetalПродолжительность: 4 CD, 04:43:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9772289BCB8FC2B4F9F74132C7D920F5657D602
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1452746   (244380) от 07.03.2021
 
 Drac Attack! - Drac Attack! (2021) [MP3|320 Kbps] <Power Metal>
@@ -745,6 +687,62 @@ Breakdowns At Tiffany's - Eternal Lords (2020) [MP3|320 Kbps] <Metalcore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD6A9C7773DED8FB434876376FEC5EE932442DEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374522   (241933) от 10.04.2020
+
+Vengeance - Retaliation (2020) EP [MP3|320 Kbps] <Metallic Hardcore, Beatdown Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241933.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bone Marrow , [03:17]
+02. Rattle Snake (Featuring Shaun and Liam of Daybreak) , [02:18]
+03. Retaliation (featuring Lochie Keogh of Alpha Wolf) , [03:25]
+04. Vultures , [03:53](   Читать дальше...   )Жанр: Metallic Hardcore, Beatdown HardcoreПродолжительность: 00:16:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6D78F27032DA0B1D5B57A79B10A00A9CDACE548
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374528   (241896) от 10.04.2020
+
+Solar Eruption - The End Is Near (Limited Edition) / Bloody Mary (2019-2020) [MP3|320 Kbps] <Technical Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241896.jpg" />
+</div>
+
+
+###  Подробнее
+
+2019 - The End Is Near (Limited Edition) (2CD)
+2020 - Bloody Mary (Maxi Single)Жанр: Technical DeathcoreПродолжительность: 00:44:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FFE95EDC96270485C35C5D83E1FE21EDAB00D4D
 ```
 
 https://mybot314.ru/tekegram_catalog/

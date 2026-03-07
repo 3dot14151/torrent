@@ -1,3 +1,29 @@
+###  Публикация: 966009   (222575) от 16.12.2015
+
+Обои - Fall scenery (Big Pack 1) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_222575.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои на тему осениФормат: JPGРазрешение файлов: 1920x1080 - 2560x1600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F944A98481D2CF6D5B76BEAF1584EE7112BAB3BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 966011   (222568) от 16.12.2015
 
 Обои - Wallpack 668 [JPG]
@@ -645,32 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9821C54BFBCFEDE332D0E2CF21374CA152FC1CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 588152   (217175) от 12.12.2012
-
-Демотиваторы '220V' (10.12.12)
-
->>Графика, Арт, Разное
->>Интернет-творчество
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217175.jpg" />
-</div>
-
-
-###  Подробнее
-
-Демотиваторы '220V'
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BD1C999274FEC04D5FB6F59CBE885B7AA0AF431
 ```
 
 https://mybot314.ru/tekegram_catalog/

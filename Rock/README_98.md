@@ -1,38 +1,3 @@
-###  Публикация: 455788   (77775) от 22.02.2012
-
-Elvis Presley - ELVIS GOLD - The Very Best Of The KING (1995) [MP3|320 kbps]<Rock'n Roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_77775.jpg" />
-</div>
-
-
-###  Подробнее
-
-ELVIS GOLD - The Very Best Of The KING
-
-DISK 1 - 00:47:11
-
-01. Heartbreak Hotel - 2:11
-02. My Baby Left Me - 2:13
-03. Tutti Frutti - 2:00
-04. Hound Dog - 2:17
-05. Don't Be Cruel - 2:03
-06. Love Me Tender - 2:42(   Читать дальше...   )1995Жанр: Rock'n RollПродолжительность: 1:40:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6314EC852F4C784DC01F2CD4F4FA472A3B310E26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 443148   (77055) от 19.02.2012
 
 UFO - Seven Deadly (2012), Too Hot To Handle: The Very Best Of UFO (2012) [MP3|320 kbps]<Classic Rock>
@@ -758,6 +723,35 @@ Around The World in 80 Days - Euphoria (2014) [MP3|320 Kbps] <Post-Rock, Ambient
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55F5C99149C1B78C0CD449FD2E21C45D596823B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803406   (65856) от 22.06.2025
+
+Obiymy Doschu - Vidrada (2025) [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_65856.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Діти (07:02)
+ 02 - На відстані (05:08)
+ 03 - Буревій (05:34)
+ 04 - Відрада (06:27)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:49:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CB1E3B1CF00E075F48020EAB56C133357693CB0
 ```
 
 https://mybot314.ru/tekegram_catalog/

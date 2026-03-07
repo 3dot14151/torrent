@@ -1,3 +1,61 @@
+###  Публикация: 1023096   (726356) от 04.06.2016
+
+VA - SpaceSynth & ItaloDisco Hits - 1 (2016) [MP3|320 кб/с] <Italo-Disco, Synth-pop, Hi NRG>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726356.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Digimax - Fading Memories (05:28)
+02. AMATERAS - Magellanic Stream (06:52)
+03. Baltimora - Tarzan boy (SlavaMaverick Rmx) (03:38)
+04. Alan Barry - Victim Of Love (04:59)(   Читать дальше...   )Жанр: Italo-Disco, Synth-pop, Hi NRGПродолжительность: 08:54:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3021E542D3718A45B59FAC948BAE29721CC352FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023248   (726195) от 04.06.2016
+
+VA - Новая Русская Дискотека - 5 (2016) [MP3|256-320 кб/с] <Поп, Танцевальный>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 140 ударов в минуту feat. DiscoBonus - Мурашки по телу (80-s rmx)
+02. Придет весна - Андрей Шпехт
+03. Ангел и Кот - А во дворе
+04. Сергей Хижняк и гр. Шоколад-Виктория - Дальнобойщик(   Читать дальше...   )Жанр: Поп, ТанцевальныйПродолжительность: 05:10:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EEF8F846C8C5AACC80444CE730F463D73FDACA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1217968   (725207) от 08.04.2018
 
 VA - German Top 100 Single Charts 06.04.2018 (2018) [MP3|320 Kbps] <Pop, Dance>
@@ -687,64 +745,6 @@ VA - Живи стильно! Наслаждайся музыкой с Hit FM (5
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5C96DC96B5869E6FE4C99EB48578E8875C7E830
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218454   (723007) от 09.04.2018
-
-Bad Boys Blue - Collection от ALEXnROCK (2018) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723007.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник делал по заказу слушателя. Он просил отобрать 80-90 песен. У группы много однообразно - скучного творчества, как одна длинная песня. Выбрал 53 годных трека. Ерунду всякую пихать, лишь бы заполнить, не стал. Весь материал взят с оригинальных CD альбомов, без убивающего звук ремастеринга. Да пребудет с нами качественная музыка! Все лучшее для вас. ALEXnROCK01 Queen Of Hearts
-02 Come Back And Stay
-03 All About You
-04 Someone To Love(   Читать дальше...   )Жанр: PopПродолжительность: 03:31:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8634D646B7535B7C8B7832C851E1BAA85F42FFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218460   (722940) от 09.04.2018
-
-VA - Двигай Попой! Лучшая танцевальная музыка (2018) [MP3|256-320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722940.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Guetta, Sia - Flames
-02. Arash - Dooset Daram (feat. Helena)
-03. Aris - S.O.S. (DJ Antonio Remix)
-04. Burak Yeter - Crash(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 07:18:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A023236D2BEB6C138B8461A7477740650C54471
 ```
 
 https://mybot314.ru/tekegram_catalog/

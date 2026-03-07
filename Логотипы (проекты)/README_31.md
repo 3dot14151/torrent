@@ -1,3 +1,55 @@
+###  Публикация: 928044   (522368) от 16.08.2015
+
+Проекты - MotionElements - 3D Carbon Logo Opener - Element 3D V2 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_522368.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шаблон для логотипа в современном элегантном стиле. Имеется видео-учебник.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2239A741D975843D6E7AECEE94C694CFAF3AC3A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314042   (520939) от 12.07.2019
+
+Проекты - VideoHive - The Beast Logo Reveal - 24099471 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_520939.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания демонстрации логотипа.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5A18AD9DF540B4AFE956F0C7CBADC2DCBE56A31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 533805   (520714) от 12.08.2012
 
 Проекты AE - Shape Animation Logo
@@ -621,58 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9FB780CB39D12DAEED990D30AD54062990DCBB30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318126   (497363) от 04.08.2019
-
-Проекты - VideoHive - Watercolor and Paint Logo - 22495513 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497363.jpg" />
-</div>
-
-
-###  Подробнее
-
-Watercolor and Paint Logo - это шаблон появления вашего логотипа или текста в "акварельном" стиле. Это отличное вступление для фильмов, трейлеров, тизеров, рекламных роликов и т.д. и т.п. Дерзайте!Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDF539B583D2AA9CBEFBE5C72F98E05B60024267
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935721   (497219) от 10.09.2015
-
-Проекты - VideoHive - Fast Logo Streaks Pack [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497219.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания логотипа. Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F308F132303F3DC0EF31D7F64761D6DB7225117
 ```
 
 https://mybot314.ru/tekegram_catalog/

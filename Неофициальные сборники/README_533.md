@@ -1,3 +1,293 @@
+###  Публикация: 1188621   (273431) от 03.12.2017
+
+VA - Союз 61 (2017) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273431.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Serebro  -  В Космосе 3:23
+02.  HammAli & Navai  -  Фары-Туманы 4:17
+03.  Дима Билан  -  Держи 3:41
+04.  Полина Гагарина  -  Обезоружена 3:48(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:00:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DDF4FDD2446B64C055E211135630D61CC493A78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337534   (273268) от 11.11.2019
+
+VA - Temptation: Popular Dance Music (2019) [MP3|320 Kbps] <Dance, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273268.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Newclaes - Wherever We Are (Keno Remix)
+002. Lawrence - No Drama
+003. Bailando Beat - Du Tragst Keine Liebe In Dir
+004. Jenny Rom - Hanky Panky (Cutty Short Mix)(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 10:16:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18FCFF0BC510C750A5D775EE9BA8D4662CE4CB21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188590   (273146) от 03.12.2017
+
+VA - My Favourite Hits of 1990 (24CD) от DON Music (2017) [MP3|320 Kbps] <Hard Rock, Pop, Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273146.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. AC/DC - Thunderstruck (04:51)
+002. Depeche Mode - World In My Eyes (04:19)
+003. Deep Purple - King Of Dreams (05:25)
+004. Supermax - World Of Tomorrow (04:58)(   Читать дальше...   )Жанр: Hard Rock, Blues Rock, Pop Rock, Synth-Pop, Pop, Reggae, Disco, ChansonПродолжительность: 29:17:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81754802AA068C7B5B001FF361A0DECF6E2F2E9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083575   (273062) от 16.12.2016
+
+VA - Звездная вечеринка. Зарядись хитами. Выпуск 4 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273062.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.S.N.E.G Feat. Evaloras - Эйфория 3:08
+002.Lupe Fiasco Feat. Sirah - Lilies 4:11
+003.Biffguyz - Ты Вкусно Пахнешь 3:22
+004.Astronomyy - The Secret 4:00(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5874E54AEDCF98697BAE1DE25E3C7275AAF44B6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1265799   (273051) от 29.11.2018
+
+VA - Empire Records - Recccord 2 (2018) [MP3|320 Kbps] <Future House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273051.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don Diablo - Anthem (We Love House Music)
+02. Tom Burns - Best In My Life (Original Mix)
+03. Leandro Da Silva - So Excited (Calippo Remix)
+04. Clean Vision - Close Your Eyes (Dub Mix)(   Читать дальше...   )Жанр: Future HouseПродолжительность: 02:00:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C2B03CC236E8795DD207EF4C73CE0AB2EB237E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188782   (273015) от 03.12.2017
+
+Григорий Лепс - Новое и лучшее (2017) [MP3|320 Kbps] <Шансон, Поп>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_273015.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Киллер (2017)
+02. Ты чего такой серьёзный (feat. Тимати) (2017)
+03. Самолёты, поезда или машины (feat. А.Лоик) (2017)
+04. Время (2017)(   Читать дальше...   )Жанр: Шансон, ПопПродолжительность: 04:37:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DAD81D95FBAA2CE9F818FB2F75561451F794344
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 426415   (272992) от 23.12.2011
+
+VA - Новогодний Кавказ (2011) [MP3|128 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_272992.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Азамат Цавкилов - Здравствуй, Новый Год!
+002. Абдула - Новогодняя
+003. Джанет - Новогодняя
+004. Tata Simonyan - Amenalav@ Du Es(   Читать дальше...   )Жанр: PopПродолжительность: 12:20:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D05BDC4DBC73AB7A89AD4AEFD0D68C4A92C4C5AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188840   (272935) от 03.12.2017
+
+VA - Дискотека 2017 Eurodance Club - Назад в 90-е (1990-2000) Reload! (от NNNB) (2017) [MP3|320 Kbps] <Eurodance, Pop, Dance и другие>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_272935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ace Of Base - All That She Wants
+02. Mr. President - Coco Jamboo
+03. Yaki-Da - I Saw You Dancing
+04. Jessica Jay - Casablanca(   Читать дальше...   )Жанр: Eurodance, Pop, Dance и другиеПродолжительность: 71:09:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7803C9B216A208844C4854CABD4210591F1845E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337689   (272626) от 12.11.2019
+
+VA - Female Vocal Trance: Hedkandi Mix (2019) [MP3|320 Kbps] <Vocal, Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_272626.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Darren Porter Feat. Ana Criado - Dream Like I Do
+02. Dream Travel - Transit (Radio Edit)
+03. Armin Van Buuren - Shivers
+04. Dream Travel - Coral Odyssey (Radio Edit)(   Читать дальше...   )Жанр: Vocal, Uplifting TranceПродолжительность: 04:53:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD4E0C04435BF8DF4D4F211548618F7B262D01EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337684   (272562) от 12.11.2019
+
+VA - Reggae On The Roof Vol. 07 (2019) [MP3|320 Kbps] <Reggae, SKA, Reggaeton>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_272562.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Upsetters - Tipper Special
+002.  Dizzy Vc & Gb - Vibe
+003. Burna Boy - Anybody
+004. Kapo Di'kaprio - Mary Jane(   Читать дальше...   )Жанр: Reggae, SKA, ReggaetonПродолжительность: 11:08:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6F07DDF3CF3D03B77D53668B1103EEFD1CBE330
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1083972   (272485) от 17.12.2016
 
 VA - Empire Records - Club Hit (2016) [MP3|268-320 Kbps] <Club, Dance>
@@ -455,293 +745,6 @@ VA - Tropical Trance (2017) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66911F66AEF630FC3E2BACB33C9A36E93D4328EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084014   (271342) от 18.12.2016
-
-VA - Новая сотка от Европы Плюс. Версия 50/50 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271342.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Naaz - Escape 2:45
-002.Filatov & Karas Feat. Masha - Лирика 2:56
-003.Согдиана - Подснежник 4:29
-004.Лизабэт - Забери Меня 3:14(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A009B8DF29BB7FD4A9430DF1D4FC5341E32E195C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189219   (271290) от 05.12.2017
-
-VA - Top 50 Brazil (2017) [MP3|~203-283 Kbps] <Latino>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anitta, J Balvin - Downtown - 03:14
-02. MC Jhowzinho e MC Kadinho - Agora Vai Sentar - 03:49
-03. Mc Don Juan - Amar Amei - 03:38
-04. Matheus & Kauan, MC Kevinho - Deixa Ela Beijar - 02:46(   Читать дальше...   )Жанр: LatinoПродолжительность: 02:41:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FCFDC030F86F691E5268BB99F07CAA4641D7030
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189229   (271288) от 05.12.2017
-
-VA - Reggaeton: Latin Direct Radio Show (2017) [MP3|320 Kbps] <Latin, Reggaeton, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271288.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Daddy Yankee - Shaky Shaky
-002. Los Chicos Playeros - Bamboleo
-003. J Balvin, Willy William - Mi Gente
-004. Juan Magan, BnK - Rapido, Brusco, Violento(   Читать дальше...   )Жанр: Latin, Reggaeton, DanceПродолжительность: 07:45:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:116EBEF8AE469DD54A275AE1F1AD5A23B650A0C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189329   (271282) от 05.12.2017
-
-VA - Cyberatonica: Ultimate Synthwave and Syntpop (2017) [MP3|192-320 Kbps] <Synthpop, Synthwave, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271282.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Danger mode - Meridian cruisin'
-002. Scandroid - Neo-Tokyo (Dance With The Dead Remix)
-003. Oscillian - Ad Astra
-004. NightStop - Flesh(   Читать дальше...   )Жанр: Synthpop, Synthwave, ElectronicПродолжительность: 08:25:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B46D4314B3B158B16B286081A34D5739530190AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189266   (271256) от 05.12.2017
-
-VA - По волне моей памяти 2: Том28 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Рок>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271256.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Чиж&C  -  На поле танки грохотали  3:50
-02.  Любэ  -  Дорога  5:01
-03.  А-Студио  -  Нелюбимая  3:31
-04.  Браво  -  Добрый вечер, Москва  2:53(   Читать дальше...   )Жанр: Поп, РокПродолжительность: 02:00:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FC6ACC2D458A6E09D60E7F8F629CA27D8B7C3A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 275176   (271244) от 25.12.2010
-
-VA - С музыкой, в Новый Год!!! (2010) [MP3|256-320 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271244.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 05:58:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D9D5A14B05256C96B0FB9ADB06EBFA0EB1A53BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189277   (271220) от 05.12.2017
-
-VA - По волне моей памяти 2: Том29 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Рок>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271220.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Браво  -  Дорога в облака  3:04
-02.  Дюна  -  Привет с большого бодуна  2:24
-03.  Рок-Острова  -  Весна по имени Светлана  3:49
-04.  Чиж&C  -  О любви  4:39(   Читать дальше...   )Жанр: Поп, РокПродолжительность: 01:59:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AE02510D65AED03BA453DA3AFCB876DFE5C3140
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189255   (271208) от 05.12.2017
-
-VA - Hit Music от Мяу: Зима (2017) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271208.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Fake Pictures  -  Tiger Park  3:09
-002.  Jason Derulo feat. French Montana  -  Tip Toe  3:08
-003.  Anitta & J Balvin  -  Downtown  3:14
-004.  Иракли  -  Online  3:40(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:52:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2787B3BCD97968F8006466AD0686A30CD2646CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189176   (271129) от 05.12.2017
-
-VA - Vintage Jazz Deluxe (2017) [MP3|320 Kbps] <Jazz, Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271129.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Aretha Franklin - Let It Be
-002. Bruno Patinho - Pra Machucar Meu Coracao
-003. John Coltrane - Giant Steps
-004. Paul Tuvman - Just When I Think I'm over Her(   Читать дальше...   )Жанр: Jazz, BluesПродолжительность: 07:38:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89270B9FC0598AA103BD41CFCA24BD8B108186D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189322   (271063) от 05.12.2017
-
-VA - Взаимные Лайки: Русский Сборник Популярных Хитов (2017) [MP3|256-320 Kbps] <Поп, Шансон>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271063.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Юля Шатунова - Играет Ночь
-002. Миша Майер - Выбираю Тебя
-003. Катя Ростовцева - Жизнь Продолжается
-004. Катя Бужинская - Просила Бога(   Читать дальше...   )Жанр: Поп, ШансонПродолжительность: 12:13:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF6A131235D9D92452FC2AA573EB45E524E27124
 ```
 
 https://mybot314.ru/tekegram_catalog/

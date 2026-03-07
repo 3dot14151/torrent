@@ -1,3 +1,119 @@
+###  Публикация: 1264002   (284359) от 21.11.2018
+
+VA - Romantic Easy Listening (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Vocal Jazz, Easy Listening>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_284359.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frankie Valli - Can't Take My Eyes Off You
+02. Shirley Bassey - (Where Do I Begin) Love Story
+03. Fred Astaire - My Eyes Adored You
+04. Vera Lynn - Besame Mucho (Kiss Me)(   Читать дальше...   )Жанр: Pop, Vocal Jazz, Easy ListeningПродолжительность: 01:19:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEC4DFEB769746577FCCE5D255EE20141468B106
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264014   (284334) от 21.11.2018
+
+Platinum Blonde - Standing in the Dark (1983) Remastered, 2014, Columbia [FLAC|Lossless|tracks] <Pop Rock, New Wave>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_284334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Doesn't Really Matter
+02. Standing in the Dark
+03. Sad Sad Rain
+04. Take It From Me(   Читать дальше...   )Жанр: Pop Rock, New WaveПродолжительность: 00:37:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F71AF4CD92D6A0934DBD7AE48644BB4EB88A12FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186431   (284239) от 26.11.2017
+
+Charlotte Gainsbourg - Rest (2017) [FLAC|Lossless|tracks + .cue] <Indie Pop, French Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_284239.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ring-a-Ring o' Roses (4:30)
+ 02. Lying with You (3:19)
+ 03. Kate (3:41)
+ 04. Deadly Valentine (6:05)(   Читать дальше...   )Жанр: Indie Pop, French Pop-RockПродолжительность: 00:48:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6543205967D66DC6474069D022EB27ADE710D7AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 964042   (283784) от 10.12.2015
+
+Sarah Brightman - The Trees They Grow So High (1998) [FLAC|image + .cue]<Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_283784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Early One Morning
+02. Come You Not from Newcastle? (Hullah's Song Book) (English)
+03. Sweet Polly Oliver (Old English Tune)
+04. The Trees They Grow So High (Somerset folksong)(   Читать дальше...   )Жанр: VocalПродолжительность: 00:52:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC52421A9036360E6D1275C9E53F0EB65DCBCFA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1264051   (282876) от 22.11.2018
 
 VA - Acoustic Winter (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Folk, Acoustic>
@@ -624,124 +740,6 @@ Disc 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C26CE72C02447DE91458041584D2A2AADB328A6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266398   (270961) от 01.12.2018
-
-VA - Top Of The Pops '1980 (2017) Box Set, 3CD [FLAC|Lossless|tracks + .cue] <1980s, pop, rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270961.jpg" />
-</div>
-
-
-###  Подробнее
-
-Собственно, вот мы и добрались до 80-х. Другое десятилетие, другие вкусы, другая музыка...
-Этот список треков является хронологическим списком популярных песен 80-х, исполняемых музыкантами и музыкальными ансамблями в Top of the Pops, еженедельной телевизионной программой BBC One, в которой представлены исполнители в основном из британского сингла.
-Эти программы (   Читать дальше...   )CD1:
-01. Adam & The Ants - Antmusic  (3:38)
-02. Dexy's Midnight Runners - Geno  (3:27)
-03. The Jam - Going Underground  (2:53)(   Читать дальше...   )Релиз состоялся: 31.10.2017Жанр: 1980s, pop, rockПродолжительность: 03:51:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF49B112FD1808CDB38DC6E251C9911CF7363057
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266462   (270046) от 02.12.2018
-
-Alessia Cara - The Pains Of Growing (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul, R&B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_270046.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Growing Pains
-02. Not Today
-03. I Don't Want To
-04. 7 Days(   Читать дальше...   )Жанр: Pop, Soul, R&BПродолжительность: 00:45:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45B18B9E0DCF42AB65EC050C0F5BC0F35CEC7A60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266460   (270042) от 02.12.2018
-
-Lily Allen - No Shame (2018) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_270042.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come On Then (03:10)
-02. Trigger Bang (feat. Giggs) (03:32)
-03. What You Waiting For? (03:06)
-04. Your Choice (feat. Burna Boy) (03:41)(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6258BAE30E568C56ABBD9A0E3CCDCE93EF8786BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266463   (270036) от 02.12.2018
-
-Akcent - King of Disco (2007) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_270036.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - King of Disco
-02 - Let's Talk About It
-03 - Religious Girl
-04 - Baby(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FF4A0E8FB3248ED52C70EFF78B8DFA89A05E7A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

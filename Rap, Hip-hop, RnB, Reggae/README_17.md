@@ -1,3 +1,90 @@
+###  Публикация: 1293827   (633349) от 05.04.2019
+
+N1NT3ND0 (Баста) - Папа на рэйве (2019) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633349.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Делуга
+02. Ствол дымится
+03. Сomsi comsa
+04. Какаду(   Читать дальше...   )Жанр: Hip-HopПродолжительность: 00:38:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70501BDF79BEB4326B89B0DDA2C4C316DCAFFC6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1543098   (631360) от 10.04.2022
+
+Guf - Опять (2022) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_631360.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Где он? (Интро) [03:36]
+02. Надоем [04:25]
+03. Глаза к небу (feat. Slim) [04:27]
+04. Улыбнись [02:46](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:42:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE45BA46D3CBDEBF41EE7F7B7BF53A81B9208FF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1542922   (631359) от 10.04.2022
+
+25/17 - Неизбывность (2022) EP [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_631359.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Будьте счастливы [00:01:48]
+2. Остаться [00:03:46]
+3. Кесарь [00:02:47]
+4. Россимон [00:03:27](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:21:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B24D8228C98F762BE54A6E6BB22D289A65B2264
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1168996   (627684) от 08.04.2019
 
 Слава КПСС - 7 Альбомов, 2 Микстейпа, 3 EP (2015-2019) [MP3|192-320 Kbps] <Hip-Hop, Rap>
@@ -658,90 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB094BCB35B9EF7407A51F63219DD3DE32414BAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 914661   (592194) от 05.07.2015
-
-5'nizza - Всё в одном (2015) 3CD [MP3|320 кб/с]<Acoustic Reggae>
-
->>Rap, Hip-hop, RnB, Reggae
->>RnB, Reggae
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592194.jpg" />
-</div>
-
-
-###  Подробнее
-
-Специальное издание для распространения в ходе тура "5'Nizza. Реюнион"01. I believe in you
-02. Вперёд
-03. АлеЖанр: Acoustic ReggaeПродолжительность: 02:10:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4EC79470F9442270B64FE9FDE5B72E12F2836A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550885   (591188) от 13.05.2022
-
-Guf - О’пять (2022) [FLAC|Lossless|WEB|tracks] <Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591188.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Где Он (Интро) (3:36)
-02. Надоем (4:24)
-03. Глаза К Небу (ft. SLIMUS) (4:27)
-04. Улыбнись (2:45)(   Читать дальше...   )Жанр: RapПродолжительность: 00:42:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E248B9FA88794E6185B564A1FFE66175F0E08E4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551222   (590625) от 14.05.2022
-
-25/17 - Комнатный. Новоселье (2022) Акустика [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590625.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Полёты (Акустика)
-2. Осень (Акустика)Жанр: Rap, Hip-HopПродолжительность: 00:44:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:471260458BE65B3D02D42C915A94E48F14F7D517
 ```
 
 https://mybot314.ru/tekegram_catalog/

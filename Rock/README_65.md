@@ -1,3 +1,32 @@
+###  Публикация: 1578501   (345939) от 23.09.2022
+
+Stratovarius - Eternal (2015) [OGG Vorbis|484 Kbps] <Rock, Power Metal, Ambient>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_345939.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Eternal Dream
+02. Shine In The Dark
+03. Rise Above It
+04. Lost Without A Trace(   Читать дальше...   )Жанр: Rock, Power Metal, AmbientПродолжительность: 01:02:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E22CA09B5A1025FECC6DD00D9181D59D6DAB8CAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1578520   (345938) от 23.09.2022
 
 Stratovarius - Nemesis (2013) [OGG Vorbis|484 Kbps] <Rock, Heavy Metal, Power Metal>
@@ -716,35 +745,6 @@ Lone Star Hippie - Mind Ride (2017) [MP3|320 Kbps] <Psychedelic Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24F58F81E23F303F15FEEBA941CC23C3C9C497C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954929   (337358) от 09.11.2015
-
-we.own.the.sky - Earths Collide (2015) [OGG| 429-502 кб/с]<Experimental Instrumental Post Metal, Post Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337358.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. УВБ-76
-02. Transmissions Of Static
-03. Muzzle
-04. Penny For Your Thoughts(   Читать дальше...   )Жанр: Experimental Instrumental Post Metal, Post RockПродолжительность: 00:54:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF7A271877FC477564394BE55ADA1629222674D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

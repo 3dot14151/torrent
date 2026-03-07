@@ -1,3 +1,119 @@
+###  Публикация: 1761221   (36859) от 18.11.2024
+
+VA - WORKOUT HITS (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36859.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Troye Sivan - Rush (2:36)
+02. Sam Smith - Unholy (2:36)
+03. James Hype - Ferrari (3:06)
+04. Jazzy - Giving Me (2:49)(   Читать дальше...   )Жанр: PopПродолжительность: 02:55:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63D63F801A4D209D4A470043559F6604379EE1CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761581   (36596) от 21.11.2024
+
+Cheryl - Only Human (2014) [FLAC|Lossless|tracks + .cue] <Pop, Dance-pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36596.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (1:50)
+02. Live Life Now (2:53)
+03. It's About Time (3:49)
+04. Crazy Stupid Love (3:46)(   Читать дальше...   )Жанр: Pop, Dance-popПродолжительность: 00:51:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCCD2602F79CCE056C311D98218D4E861C29FDFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761779   (36448) от 22.11.2024
+
+Bette Midler - Sings The Rosemary Clooney Songbook (2003) [FLAC|Lossless|tracks + .cue] <Pop, Vocal, Jazz>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36448.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bette Midler - You’ll Never Know (1:44)
+02. Bette Midler - This Ole House (3:03)
+03. Bette Midler with Barry Manilow - On a Slow Boat to China (2:32)
+04. Bette Midler - Hey There (3:31)(   Читать дальше...   )Жанр: Pop, Vocal, JazzПродолжительность: 00:30:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1A0BD3765EF8687B361C707E41E76CB6A3B92DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762340   (36155) от 25.11.2024
+
+Steve Lawrence & Eydie Gorme - The Best of Steve & Eydie (1990) CD, Compilation [FLAC|Lossless|tracks + .cue] <Pop, Vocal, Jazz>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Could Be The Start of Something Big (2:29)
+02. Besame Mucho (2:58)
+03. Cheek to Cheek (3:00)
+04. Side By Side By Side (2:35)(   Читать дальше...   )Жанр: Pop, Vocal, JazzПродолжительность: 00:27:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:406A75F777970812DB5C338994C03CC41479D5B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1762824   (35962) от 27.11.2024
 
 Michael Jackson - Love Never Felt So Good (2014) [FLAC|Lossless|tracks + .cue] <Pop>
@@ -628,122 +744,6 @@ VA - Morning Chill Lounge Vibes (Relaxing Background Music) (2025) [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0FE57F4D8F335C185F79509B44810C9EE6AE82D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771295   (31887) от 05.01.2025
-
-VA - Songs To Make You Sweat (2025) [FLAC|Lossless|WEB-DL|tracks] <Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31887.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Bruno Mars - APT. (2:50)
-02.  Dua Lipa - Falling Forever (3:43)
-03.  Lena Sue - Drum (feat. Lena Sue) (2:50)
-04.  Ava Max - Spot a Fake (2:48)(   Читать дальше...   )Жанр: DanceПродолжительность: 01:13:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08A6C1CD0503A0F4A66F8213FC5F5561AF472943
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771291   (31879) от 05.01.2025
-
-VA - Hello, 2025 (The Ultimate Party Mix) (2024) [FLAC|Lossless|WEB-DL|tracks] <Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31879.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Magnus - Lascivious (3:43)
-02.  Colette Van Sertima - The Drop (5:00)
-03.  Brain Purist - Shine Tonight (3:38)
-04.  Guy Scheiman - Feel You (3:04)(   Читать дальше...   )Жанр: DanceПродолжительность: 02:23:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A00E9C349DF11E7D7526C987A44E7863A2854BBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774537   (30219) от 21.01.2025
-
-VA - Top Songs - Hits 2025 [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30219.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rose - APT. (2:49)
-02. Teddy Swims - Bad Dreams (3:04)
-03. Charli XCX - Apple (2:31)
-04. Benson Boone - Beautiful Things (3:00)(   Читать дальше...   )Жанр: PopПродолжительность: 02:33:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AECC4E5D32B76ACEEA1EF1D001805F055147252B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774088   (30093) от 22.01.2025
-
-Kylie Minogue - Body Language (2003) [FLAC|Lossless|tracks + .cue] <Electronic, Pop, House>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30093.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Slow [3:18]
-02 - Still Standing [3:43]
-03 - Secret (Take You Home) [3:19]
-04 - Promises [3:20](   Читать дальше...   )Жанр: Electronic, Pop, HouseПродолжительность: 00:57:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BD6701C19A1C013A817ABBE1BA91418E6DA422C
 ```
 
 https://mybot314.ru/tekegram_catalog/

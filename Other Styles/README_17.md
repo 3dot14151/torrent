@@ -1,3 +1,32 @@
+###  Публикация: 1362469   (949562) от 23.02.2020
+
+Nathan Whitehead - Days Gone (Original Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_949562.jpg" />
+</div>
+
+
+###  Подробнее
+
+|03:41| 01. Days Gone
+|03:36| 02. The Freakshow
+|03:36| 03. We've All Done Things
+|03:07| 04. Rest in Peace(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:19:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F04830CAE3EDC15EA4A6D0F2107A86AAE34E456E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1362272   (949555) от 23.02.2020
 
 John Powell - The Call of the Wild / Зов предков (Original Motion Picture Soundtrack) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
@@ -722,35 +751,6 @@ Phil Thornton - Seven Rings (feat. Sika) (2017) [FLAC|Lossless|WEB-DL|tracks] <N
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA8451A35F0F0A27028EF98A1F2C35146A0D9E71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090517   (945857) от 07.01.2017
-
-Игорь Матвиенко - Викинг (Оригинальный саундтрек к фильму) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945857.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Молитва Владимира (feat. Малый симфонический оркестр "Симфониетта") (02:47)
-02. Испытание водой (feat. Малый симфонический оркестр "Симфониетта") (02:07)
-03. Штурм Полоцка (01:26)
-04. Плач (Вокализ) (03:57)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:54:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3D189D4751A240A181954F9DEC06B61470EB49D
 ```
 
 https://mybot314.ru/tekegram_catalog/

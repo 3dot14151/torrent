@@ -1,3 +1,61 @@
+###  Публикация: 1108435   (241992) от 25.02.2017
+
+VA - Музыкальный презент хорошей музыки от Европы Плюс (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241992.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Helena Shadia Feat. Cj One-X - Давай Сейчас Помечтаем 3:38
+002. Tiana - Мне Так Жаль 3:44
+003. Kami - Бегу 3:42
+004. Fargo Feat. Arma - Танцемания 3:40(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C45C9FC9F222216556DDFC1722993379E0AC26B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108474   (241860) от 25.02.2017
+
+VA - German Top 100 Single Charts 24.02. (2017) [MP3|320 Kbps] <Pop , Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_241860.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ed Sheeran - Shape of You 3:54
+002. Zayn & Taylor Swift - I Don't Wanna Live Forever (Fifty Shades Darker) 4:05
+003. Kygo & Selena Gomez - It Ain't Me 3:41
+004. The Chainsmokers - Paris 3:42(   Читать дальше...   )Жанр: Pop , DanceПродолжительность: 05:55:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F15B8484871195B767EB7510AB35928523426669
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1378404   (241516) от 25.04.2020
 
 VA - German Top 100 Single Charts 24.04.2020 [MP3|320 Kbps] <Pop>
@@ -699,64 +757,6 @@ VA - Soft Pop (2021) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE9C09FFC75A40B5FAB4365E5327B6C57424FC16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083996   (221069) от 18.12.2016
-
-VA - Radio Top musicFM - October (2016) [MP3|128-320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221069.jpg" />
-</div>
-
-
-###  Подробнее
-
-LOVE радио - Тор 20
-01. Max Barskih - Туманы (3:26)
-02. DJ Snake ft. Justin Bieber - Let Me Love You (3:26)
-03. MONATIK - Кружит (3:17)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 20:46:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AA5340743FA6901E107F3A9EDEEB375CEAC12A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083901   (221014) от 18.12.2016
-
-VA - Top 100 Amnezia Hits (2016) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221014.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Marcus & Martinus feat. Samantha J. - Light It Up 3:15
- 002. Enrique Iglesias feat. Tinashe & Javada - Duele El Corazon 3:20
- 003. BBX feat. Tony T & Alba Kras - Crazy (Radio Edit) 3:20
- 004. Mohombi - InfinityЖанр: Pop, DanceПродолжительность: 05:47:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0842CF0EA8275CFBE2208D073FF7F0F98259418E
 ```
 
 https://mybot314.ru/tekegram_catalog/

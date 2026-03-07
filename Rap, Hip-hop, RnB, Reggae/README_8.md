@@ -1,3 +1,90 @@
+###  Публикация: 1372700   (883851) от 04.04.2020
+
+ЗАМАЙ - Lust Hero, Vol. 2 (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_883851.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Air Tuapse [04:14]
+02. Странные вещи [02:50]
+03. Instagram [02:53]
+04. Голуби [03:23](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:19:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9AAF80D7DD5191CCAA0E7B99DC8F8D3B89109AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372656   (883783) от 04.04.2020
+
+тима ищет свет - бойня (2020) [MP3|320 Kbps] <Rap, Hip-Hop, Alternative>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_883783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. слова (скит) [00:46]
+02. клоун [02:55]
+03. татуировка змеи [03:33]
+04. темный [03:44](   Читать дальше...   )Жанр: Rap, Hip-Hop, AlternativeПродолжительность: 00:38:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA46F3B8454FFC287112BED6ACAF8C097925F394
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372732   (883754) от 04.04.2020
+
+AKTHESAVIOR & Leon Fanourakis - FLATBU$H ¥EN (2020) [MP3|320 Kbps] <Rap, Hip-Hop, Mumble>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_883754.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. INTRO [01:19]
+02. KONNICHIWA [03:14]
+03. CHICHI [02:37]
+04. PICCOLO [02:29](   Читать дальше...   )Жанр: Rap, Hip-Hop, MumbleПродолжительность: 00:20:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C296821FB54A31B19F090B5FA6AEA4EC761D008E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1372736   (883627) от 04.04.2020
 
 Becko - Genesis (2020) [MP3|320 Kbps] <Rap, Rapcore, Nu Metal>
@@ -656,93 +743,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C7E24666679AE8A4554F823048E1A86DB0CD5D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376211   (860491) от 17.04.2020
-
-RAM (Грязный Рамирес) - SADEASTWOOD (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Импульс [01:41]
-02. Black Hawk (feat. RAYBAX) [03:46]
-03. Грязь [03:10]
-04. Секта [02:28](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:41:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E84D5D97543E38C5FBE5DEFEC4777C0FA3B08DCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376432   (860490) от 17.04.2020
-
-R.A. The Rugged Man - All My Heroes Are Dead (2020) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860490.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All My Heroes Are Dead (The Introduction) (2:33)
-02. Legendary Loser (4:21)
-03. Golden Oldies (feat. Slug of Atmosphere and Eamon) (3:32)
-04. Wondering (How To Believe) (feat. David Myles) (4:01)(   Читать дальше...   )Производство: Nature SoundsЖанр: Hip-HopПродолжительность: 01:16:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:384A7678FA9080AAB0B729D5C47608E757D1BDBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376338   (860373) от 17.04.2020
-
-Shabazz Palaces - The Don Of Diamond Dreams (2020) [MP3|320 Kbps] <Abstract Hip-Hop, Experimental>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860373.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Portal North: Panthera [00:18]
-02. Ad Ventures [04:42]
-03. Fast Learner (feat. Purple Tape Nate) [05:36]
-04. Wet [03:20](   Читать дальше...   )Жанр: Abstract Hip-Hop, ExperimentalПродолжительность: 00:42:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:148D420983509EF30206EE9A535F334261A74751
 ```
 
 https://mybot314.ru/tekegram_catalog/

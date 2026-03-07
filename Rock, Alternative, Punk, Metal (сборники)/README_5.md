@@ -1,3 +1,32 @@
+###  Публикация: 1365749   (928903) от 08.03.2020
+
+VA - Rock Drive 9  (2020) от DON Music [MP3|320 Kbps] <Hard Rock, Rock, Blues Rock, AOR>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_928903.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cold Chisel - Drive
+02. Eclipse - Never Gonna Be Like You
+03. Beth Hart - Bad Woman Blues
+04. CoreLeoni - Mountain Mama(   Читать дальше...   )Жанр: Hard Rock, Rock, Blues Rock, AORПродолжительность: 05:00:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E12E41680353986BF360D1A1421F94DF85CC4D62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 932925   (928440) от 15.02.2016
 
 VA - Новый РусРок. То, что не купишь в магазине [40 выпусков] (2008-2016)[MP3|32-320 кб/с]<Русский Рок>
@@ -720,35 +749,6 @@ VA - Alternative Winter by Evaluator (2016) [MP3|128 - 320 кб/с] <Alternative
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5984BBCDE60453A8232B80E769652DE109587A19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 867174   (902196) от 08.02.2015
-
-ДДТ - Коллекция легендарных песен (2014) [MP3|320 kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Прекрасная любовь
-02. Что такое осень
-03. Дождь
-04. Ветер(   Читать дальше...   )Жанр: RockПродолжительность: 05:55:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AB7CDA896129C15774427A2999DA8C4CC5706F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

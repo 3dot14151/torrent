@@ -1,3 +1,81 @@
+###  Публикация: 1243347   (493806) от 26.08.2018
+
+3D модели - TurboSquid - F1 Renault RS17 2017 - 1138353 [MAX, OBJ, FBX]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_493806.jpg" />
+</div>
+
+
+###  Подробнее
+
+3d модель автомобиля марки RenaultФормат: MAX, OBJ, FBX
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B895560DE78B969E9B5B14A04877F8B0507C9BA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243362   (493681) от 26.08.2018
+
+3D модели - Hum3D - BMW 8 Series (G15) M850i coupe 2019 [V-Ray|*.max, 3DS, C4D, FBX]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_493681.jpg" />
+</div>
+
+
+###  Подробнее
+
+3d модель автомобиля марки BMWФормат: Mental Ray|Scanline|V-Ray|*.max, 3DS, C4D, FBX, LWO, OBJ, MB, STL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56C30A9C0F26459D984CF37AB3BBAE3F4CB25203
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243934   (485946) от 30.08.2018
+
+3D модели - Cubebrush - Toycar Pack [Mental Ray|*.max, FBX, OBJ]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_485946.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коллекция игрушечных автомобилей из 8 видов. С высокой детализацией полигонов моделей. Render: mental ray включает текстуру для 3 автомобилей.Формат: Mental Ray|*.max, FBX, OBJ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B50F1DF81671B3C39B87AA7E3EF02142774349E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1243959   (485851) от 30.08.2018
 
 3D модели - CGTrader - Aston Martin Vantage 2019 [Mental Ray|V-Ray|*.max, 3DS, C4D, FBX]
@@ -600,88 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:371D6A82CD6C464D114AE1671459637002F18CAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 142786   (458564) от 27.09.2009
-
-3D модели - Evermotion - Archmodels Vol. 064 [V-Ray|*.max]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458564.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередной сборник 3d моделей от Evermotion!
-
-В данный сборник вошли высокополигональные модели декоративных статуэток и ваз в колличестве 41 шт.Формат: V-Ray|*.max
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247043   (456537) от 13.09.2018
-
-3D модели - ArtStation - Electric locomotive - model 441-316 [UE4] [MAX, FBX, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456537.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель Electric locomotive (Электровоз)Формат: MAX, FBX, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BE008C0232D8844E75300EBE19AA9121C92B27B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942791   (452832) от 01.10.2015
-
-3D сцены - Evermotion - Archinteriors Vol. 035 [V-Ray|*.max]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452832.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередной сборник сцен интерьеров от компании Evermotion!
-
-Данный сборник содержит 10 сцен, полностью затекстуренных и готовых к рендерингу. А так же файлы .psd с примерами пост-обработки сцен!Формат: V-Ray|*.max
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EF28145B28AD6650A5DDCA00C09EBC829DF5833
 ```
 
 https://mybot314.ru/tekegram_catalog/

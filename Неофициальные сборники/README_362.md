@@ -1,3 +1,295 @@
+###  Публикация: 924485   (557668) от 04.08.2015
+
+VA - The Sounds Of The Underground 03 (DJ Mix By Deeper82) (2015) [MP3|320 кб/с]<Deep House, Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557668.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arctic Night - Wake Me Up (Adam-P Still Dreaming Remix)
+02. Techtower - Wonderland (Original Mix)
+03. 10dens Feat. Velb - Scila (Original Mix)
+04. Jallen - Far From Here (Original Mix)(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 01:15:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B85FFC9E9A848BB344394CBDB292C906920EC2AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 924664   (557667) от 04.08.2015
+
+VA - Resident Advisor Top 50 Charted Tracks July (2015) [MP3|320 кб/с]<Techno, Minimal, Electronica, Tech House, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557667.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. &ME - Woods (Original Mix) [07:58]
+02. DJ Koze - XTC [08:20]
+03. Freaks - Situations (Dave Aju Remix) [09:30]
+04. Frankey & Sandrino - Acamar (Original Mix) [08:21](   Читать дальше...   )Жанр: Techno, Minimal, Electronica, Tech House, Deep HouseПродолжительность: 06:10:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32A6884FFBBE0B82582CB806EE4D40886377520C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 924686   (557626) от 04.08.2015
+
+VA - Extra Lounge (episode 10) (2015) [MP3|320 кб/с]<Lounge, Chill Out, Easy Listening, Deep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557626.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steven Solveig - Long Journey (06:04)
+02. Alina Baraz & Galimatias - Unfold (04:33)
+03. Soulful-Cafe - Giani Sent His Donkey (02:51)
+04. Conjure One feat. Aruna - Still Holding On (Chill Mix) (05:55)(   Читать дальше...   )Жанр: Lounge, Chill Out, Easy Listening, DeepПродолжительность: 01:38:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:276D67EC522F8617BB460291FC129F104C7693A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 924618   (557623) от 04.08.2015
+
+VA - Music For Everyone - Electro house & Progressive Vol.4 (2015) [MP3|320 кб/с]<Electro House, Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557623.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Virtual Riot - Sugar Rush (Centron Remix)
+2. Rob Gasser - No Funk (Original Mix)
+3. Clean Bandit - Rather Be (Elephante Remix)
+4. Steerner, Gson & Abley - Life (Radio Edit)(   Читать дальше...   )Жанр: Electro House, Progressive HouseПродолжительность: 02:00:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:574AACCF03B235676EFAEE40FDAE3FCD277666E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 924698   (557622) от 04.08.2015
+
+VA - Hologram Sound (2015) [MP3|320 кб/с]<Progressive, Club House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557622.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Javi Ortiz, Tony Cox & X-Guerrero - Chords of Life
+02. Patrick Hofmann - Noon (Dario Rodriguez Edit)
+03. Tvardovsky - Black Ocean
+04. Alex Adair - Make Me Feel Better (Don Diablo & Cid Remix Radio Edit)(   Читать дальше...   )Жанр: Progressive, Club HouseПродолжительность: 09:46:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E31D4D5A911054F266AED4C5762937989829C616
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 924631   (557608) от 04.08.2015
+
+VA - Hits For Chill (2015) [MP3|320 кб/с]<Deep House, Chill House, Chill Out>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hoboken - Lampedusa Lounge (02:47)
+02. Deep Walls - Deep House Mykonos (03:49)
+03. Il Greco - Nippon Horn (02:47)
+04. Hoboken - Magaluf Lounge (03:09)(   Читать дальше...   )Жанр: Deep House, Chill House, Chill OutПродолжительность: 01:29:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B2412020ECFBC537CBACE82E0B58098521594D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045784   (557483) от 24.08.2016
+
+ABBA - The Best Songs (2016) [MP3|320 Kbps] <Pop, Disco, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557483.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dancing Queen  3:51
+02. Take A Chance On Me  4:07
+03. Angel Eyes  4:23
+04. Waterloo  2:47(   Читать дальше...   )Жанр: Pop, Disco, DanceПродолжительность: 01:18:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A390C44AFB900362FC662851923F9A0D6092E04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 924573   (557474) от 04.08.2015
+
+VA - The Official UK Top 40 Singles Chart (31.07.2015) [MP3|320 кб/с]<Pop, Dance, Rock, R&B, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557474.jpg" />
+</div>
+
+
+###  Подробнее
+
+Достаточно много времени прошло с момента размещения на трекере последнего Топ-40. 31 июля 2015 года опубликован очередной UK Singles Chart  - официальный хит-парад синглов Великобритании, отсортированных по результатам продаж за неделю.
+Все изменения за прошедшую неделю Вы можете сами посмотреть здесь.
+Во все треки вшиты обложки альбомов.01. Little Mix - Black Magic  (3:32)
+02. Years & Years - Shine  (4:16)
+03. Lost Frequencies - Are You With Me  (2:19)
+04. Sigma - Glitterball (feat. Ella Henderson)  (3:46)(   Читать дальше...   )Жанр: Pop, Dance, Rock, R&B, OtherПродолжительность: 02:27:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B845B0B6DC1AB828B75BF804D152537CEC97481
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 924613   (557463) от 04.08.2015
+
+VA - Зарубежные Новинки Интернета (2015) [MP3|320 кб/с]<Pop, Dance, R&B, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557463.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Great Big World, Futuristic - Hold Each Other
+02. Eminem, Gwen Stefani - Kings Never Die
+03. Pharrell Williams - Freedom
+04. Duran Duran - Pressure Off (feat. Janelle Monae and Nile Rodgers)(   Читать дальше...   )Жанр: Pop, Dance, R&B, RapПродолжительность: 06:17:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7916F1609585609B9163C4158CC607611A458010
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045573   (557415) от 24.08.2016
+
+VA - Дискотека 80-90 годов по - новому (Зарубежный выпуск - 37 ) (2016) [MP3|192 Kbps] <Pop, Disco, Eurodance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad Boys Blue  -  Still In Love (X-Tended UltraTraxx Remix)  9:54
+02. Modern Talking  -  Bells Of Paris (Longer UltraTraxx Mix)  10:35
+03. Blue System  -  Body To Body (UltraTraxx System Mix)  9:25
+04. London Boys  -  Harlem Desire (UltraTraxx Long Version)  11:57(   Читать дальше...   )Жанр: Pop, Disco, EurodanceПродолжительность: 04:53:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2735A21BC83F6E2C72547CF76E868FC72080EF2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 924779   (557373) от 04.08.2015
 
 VA - Самые шикарные летние хиты 6 (2015) [MP3|256 кб/с]<Pop>
@@ -455,296 +747,6 @@ VA - Romantic Songs: Summer Edition (2017) [MP3|320 Kbps] <Pop, RnB, Lyric Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1948F5E8E3C1A9524CAA4147D84490950F178083
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045876   (556840) от 25.08.2016
-
-VA - Country Family Book (2016)3CD [MP3|320 Kbps] <Country, Blues, Rock Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556840.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Willie Nelson - Funny How Time Slips Away.mp3
-02. Steven Tyler - Love Is Your Name.mp3
-03. Willie Nelson - Shotgun Willie.mp3(   Читать дальше...   )Жанр: Country, Blues, Rock BluesПродолжительность: 02:41:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E31B1C7BCBE4E5288C4E5ACE35029C8034625D18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045830   (556719) от 25.08.2016
-
-Avantasia - All the Best (2015) [MP3|320 Kbps] <Symphonic Power Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556719.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Breaking Away (4:36)
- 02. Farewell (6:33)
- 03. The Final Sacrifice (5:04)
- 04. Neverland (5:01)(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:16:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07B8DC691A2862FB8934CA1522269D3119ACBAF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045903   (556673) от 25.08.2016
-
-W.A.S.P. - Until You Like It (2016) [MP3|320 Kbps] <Heavy Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556673.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Mephisto Waltz.mp3
- 02 - I Wanna Be Somebody.mp3
- 03 - Fuck Like a Beast.mp3
- 04 - School Daze.mp3(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:19:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79123ABA50F21A6DFA80EA385127434731CB4B85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235703   (556612) от 14.07.2018
-
-VA - Transcentence: Psychedelic Compilation (2018) [MP3|320 Kbps] <Psychedelic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556612.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Astrix - Sahara
-002. Braincell - Flying Saucers
-003. Mina - Black Or White
-004. Symphonix - Body Effect(   Читать дальше...   )Жанр: PsychedelicПродолжительность: 12:06:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EC8116683B9E3AB6EA12CD978E3302DBD57F48A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235871   (556606) от 14.07.2018
-
-VA - The Official UK Top 40 Singles Chart 13.07.2018 (2018) [MP3|320 Kbps] <Pop, Dance, Euro>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556606.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Years & Years - If You're Over Me
-02. George Ezra - Shotgun
-03. Clean Bandit feat. Demi Lovato - Solo
-04. Jonas Blue feat. Jack & Jack - Rise(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:17:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:388192EC27F03C53866F1C806399BED7C2089650
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235869   (556604) от 14.07.2018
-
-VA - German Top 100 Single Charts 13.07.2018 (2018) [MP3|320 Kbps] <Pop, Rap>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556604.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bushido - Für Euch alle (feat. Samra & Capital Bra)
-002. Dynoro & Gigi D'Agostino - In My Mind
-003. El Profesor, Hugel - Bella ciao (HUGEL Remix)
-004. Clean Bandit - Solo (feat. Demi Lovato)(   Читать дальше...   )Жанр: PopПродолжительность: 05:33:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD98B68AB6DC9D563556DE093ADD922B589CA9C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235497   (556595) от 14.07.2018
-
-VA - Billboard Hot 100 Singles Chart 14.07.2018 (2018) [MP3|320 Kbps] <Pop, Dance, Euro>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556595.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Drake, Big Freedia, 5thward Weebie - Nice For What
-002. Drake - Nonstop
-003. Cardi B, Bad Bunny & J Balvin - I Like It
-004. Drake - God's Plan(   Читать дальше...   )Жанр: Pop, Dance, EuroПродолжительность: 05:44:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41D04152A087E25B1CC6D9890BBC9F3F0F64F07A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556703   (556435) от 12.06.2022
-
-Techno Project & Dj Geny Tur - Deep House (2022) [MP3|320 Kbps] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556435.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Right (2:45)
-02. Body (3:02)
-03. Arabic Night (3:36)
-04. My Play (3:44)(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 03:11:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:589510959A8395C0B502442730BE66A3027B2AA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556729   (556427) от 12.06.2022
-
-Brothers Osborne - Compilation (2022) [MP3|320 Kbps] <Rock, Country>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heart Shaped Locket
-02. I Smoke Weed (Feat. Ashland Craft & Brothers Osborne)
-03. Shoot From The Hip
-04. Skeletons(   Читать дальше...   )Жанр: Rock, CountryПродолжительность: 00:57:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA400B19DF7D7A8B4A9B1D10199C9951B03F20DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236011   (556287) от 15.07.2018
-
-VA - German Top 100 Single Charts 16.07.2018 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556287.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Clean Bandit - Solo (feat. Demi Lovato)
-002. Namika - Je ne parle pas franais (feat. Black M) (Beatgees Remix)
-003. El Profesor Hugel - Bella ciao (HUGEL Remix)
-004. Calvin Harris Dua Lipa - One Kiss(   Читать дальше...   )Жанр: PopПродолжительность: 05:35:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D526DA2536E96CA36AF2B4A7FC6F9A63A963F27
 ```
 
 https://mybot314.ru/tekegram_catalog/

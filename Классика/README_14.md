@@ -1,3 +1,32 @@
+###  Публикация: 999558   (848595) от 31.03.2016
+
+Viktor Merzhanov - Russian Piano School (1995) [FLAC|Lossless|tracks] <Classical, Keyboard>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_848595.jpg" />
+</div>
+
+
+###  Подробнее
+
+• Johannes Brahms - Variations on a Theme by Paganini Op.35
+01. Sketch-book 1   11:53
+02. Sketch-book 2   09:59
+(   Читать дальше...   )Жанр: Classical, KeyboardПродолжительность: 00:46:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C31B8515D2F2BA21E6AC229211226E6F976FFDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1002319   (848529) от 31.03.2016
 
 Frederic Chopin - The Complete Works (2008) 16CD, Compilation [FLAC|Lossless|image + .cue] <Classical>
@@ -713,35 +742,6 @@ Bruce Brubaker - Glass Piano (2016) Extended Version [FLAC|Lossless|WEB-DL|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:726DA86CE3A9FDFAF95854BEE115F31BA5C80DCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004997   (834160) от 08.04.2016
-
-Narciso Yepes, Melos Quartett - Luigi Boccherini: 3 Gitarren-Quintette (1971) 1990, Deutsche Grammophon [FLAC|Lossless|tracks] <Classical>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834160.jpg" />
-</div>
-
-
-###  Подробнее
-
-Quintet No.4 for Guitar and Strings in D G.448 - "Fandango"
-01. Allegro Maestoso   04:53
-02. Pastorale   05:18
-03. Grave assai - Fandango    07:13Жанр: ClassicalПродолжительность: 01:01:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86F1D587A2B1A00CCFD300BEDAA300302A6079D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

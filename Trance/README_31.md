@@ -1,3 +1,90 @@
+###  Публикация: 824713   (376874) от 23.10.2015
+
+Sensorica - 6 Albums , 7 Compilations (2007 - 2015) [MP3|320 кб/с]<Trance, Chillout, Ambient, Psy-Trance, Progressive House>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_376874.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introduction (1:25)
+02. The Artifact (7:20)
+03. Sensation (8:17)
+04. Turning Back (8:40)(   Читать дальше...   )Жанр: Trance, Chillout, Ambient, Psy-Trance, Progressive HouseПродолжительность: 00:47:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88C748D269DA37FCCC116300BBF6F193E01E5671
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1327275   (376726) от 24.09.2019
+
+Ahmed Romel - RUYA (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_376726.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ahmed Romel - Be My Eyes (03:39)
+02. Ahmed Romel - Dystopia (05:13)
+03. Ahmed Romel - Vanya (03:54)
+04. Ahmed Romel & Simon O'Shine - The Love Potion (04:06)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:12:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC9BF3DCF46876ED8D347043F9B5921FC50AEC58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175321   (376270) от 19.10.2017
+
+VA - Armin van Buuren Live At Ultra Mexico 2017 (Highlights) (2017) [MP3|320 Kbps] <Trance, Progressive>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_376270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Armin van Buuren - Live At Ultra Mexico 2017 (Mix Cut) (Intro)  1:33
+02.  ID - ID (Mix Cut)  4:30
+03.  Armin van Buuren feat. Kensington - Heading Up High (Mix Cut) (First State Remix)  4:04
+04.  Super8 & Tab - Cosmo (Mix Cut)  2:02(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 01:18:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47D35ADFDAEAE77D2340A2EC43076037271AE541
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1175625   (376267) от 19.10.2017
 
 VA - Top 10 Secret Radio Weapons Vol.5 (2017) [MP3|320 Kbps] <Trance>
@@ -658,90 +745,6 @@ VA - Trance Pioneers  001 - 009 (2010 - 2015) [MP3|320 кб/с]<Trance , Uplifti
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:54A639F5FF98C8DFD2857DDCE88510395812ECE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417091   (362856) от 18.10.2020
-
-VA - Black Hole Trance Music 10-20 (2020) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362856.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dennis Sheperd & Sunlounger - I Can Feel (extended mix) 05:17
-02. Boris Foong & Blu Eyes - I Wish (extended mix) 05:19
-03. Johan Gielen - Balearic Reflection (extended mix) 05:39
-04. Leon Bolier - Kronos (extended mix) 05:59(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:45:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7D90A57BB659B6CD9E7094B5AF475CF12F63F85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255726   (361637) от 19.10.2018
-
-VA - Markus Schulz - Global DJ Broadcast: Top 20 October (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361637.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Markus Schulz & JES - Calling For Love (DRYM Extended Remix)
-02. Artento Divini - Mangrove (Extended Mix)
-03. Arkham Knights - Into The Fire (Extended Mix)
-04. Jam El Mar - Spectral Semblance (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:16:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D288E760E00270697F63757EC22EDBEBEA99572E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 703412   (360974) от 01.11.2014
-
-Solarstone - 6 Albums , 17 Compilations (2001 - 2014) [MP3|256 - 320 кб/с]<Trance, Downtempo, Chillout>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360974.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Trance, Downtempo, ChilloutПродолжительность: 05:51:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C268B6A9D25232F61C1982FC80B9500D6B9B2B61
 ```
 
 https://mybot314.ru/tekegram_catalog/

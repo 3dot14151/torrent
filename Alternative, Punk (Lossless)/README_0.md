@@ -1,3 +1,32 @@
+###  Публикация: 1438353   (1041186) от 08.01.2021
+
+Bury Tomorrow - Cannibal (2020) [FLAC|Lossless|image + .cue] <Melodic Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041186.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Choke
+02. Cannibal
+03. The Grey (VIXI)
+04. Imposter(   Читать дальше...   )Жанр: Melodic MetalcoreПродолжительность: 00:42:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1FF63E9A9FEC5253F805C40893118F1D45D42AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1612049   (1040603) от 14.02.2023
 
 Zahna - Stronger Than Death (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Alternative Metal, Female Vocal>
@@ -717,35 +746,6 @@ Blue October - Approaching Normal (2009) [FLAC|Lossless|tracks + .cue] <Rock, Al
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4005FDE9684C1E189D08783ED7E4E59B5E5781BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446083   (1033051) от 08.02.2021
-
-Sacha Korn - Nokout (2009) [FLAC|Lossless|image + .cue] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033051.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lass Mich Gehn
-02. Nackt Und Kalt
-03. Wer Wir Waren
-04. Du & Ich(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:39:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EC569C7BDBE08E7A9D511541924124946FF7C12
 ```
 
 https://mybot314.ru/tekegram_catalog/

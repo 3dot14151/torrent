@@ -1,3 +1,29 @@
+###  Публикация: 1422729   (305888) от 10.11.2020
+
+Red Hat Enterprise Linux 7.9
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_305888.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания Red Hat выпустила дистрибутив Red Hat Enterprise Linux 7.9 (о новой версии неделю назад объявлено только на портале access.redhat.com, в списке рассылки и в разделе пресс-релизов анонс так и не появился). Установочные образы RHEL 7.9 доступны для загрузки только зарегистрированным пользователям Red Hat Customer Portal и подготовлены для архитектур x86_64, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4518A735EEEA3B187639CB04A56D30ED581A5D43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1422732   (305727) от 10.11.2020
 
 Red Hat Enterprise Linux 8.3
@@ -684,32 +710,6 @@ Red Hat Enterprise Linux 7.7
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:425F4F78DA953919F6A07C4FEF4A837FC2EDE870
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1082617   (275404) от 14.12.2016
-
-CentOS 7.3(1611) [x86_64] 4xDVD + 2xCD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275404.jpg" />
-</div>
-
-
-###  Подробнее
-
-Состоялся выпуск дистрибутива CentOS 7.1611, вобравшего в себя изменения из Red Hat Enterprise Linux 7.3. Напомним, что номер версии 7.1611 связан с введением в практику ежемесячной сборки rolling-обновлений установочных образов и отражает время очередной сборки, при том, что в рамках подготовки данной сборки репозиторий был переведён на пакетную базу RHEL 7.3, т.е. (   Читать дальше...   )Разработчик: CentOS Linux AltArch SIG (Special Interest Group) и © Red Hat Inc
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79E910DD5DDF4F4C020D5BDFCCB53B793B8F5AFE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1723583   (56134) от 18.05.2024
+
+ABBA - Wembley Arena 1979 (Live) (2014) Reissue, 2024, The Media Champ [FLAC|Lossless|WEB-DL|tracks] <Europop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_56134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Voulez-Vous (Live) [00:05:10]
+02. Knowing Me, Knowing You (Live) [00:04:34]
+03. Chiquitita (Live) [00:05:47]
+04. Gimme!, Gimme!, Gimme! (A Man After Midnight) (Live) [00:05:37](   Читать дальше...   )Жанр: EuropopПродолжительность: 00:56:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE34F1ECA4BE0314C572A79A48B2EC8E8F5AE5A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729362   (53714) от 10.06.2024
+
+Taylor Swift - The Tortured Poets Department (2024) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_53714.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fortnight
+02. The Tortured Poets Department
+03. My Boy Only Breaks His Favorite Toys
+04. Down Bad(   Читать дальше...   )Жанр: PopПродолжительность: 01:09:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CF888B613193C769A3174DA954C8B5E54B88291
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139276   (53163) от 16.06.2024
+
+Francoise Hardy - The Real... Francoise Hardy (2016) 3CD [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_53163.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+1. Tous Les Garcons Et Les Filles
+2. Oh, Oh Cheri
+3. Je Suis D'Accord(   Читать дальше...   )Жанр: PopПродолжительность: 01:30:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F9A30A0A5079CAD2BC9F8F01DBF272468301A0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731025   (52786) от 19.06.2024
+
+Leah Kate - Super Over (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_52786.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Super Over (2:45)
+02. Space (2:49)
+03. Unbreakup (3:18)
+04. Desperate (2:37)(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB33419368225BDAF36DE31C1DDFB0B26164D728
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1732406   (52016) от 25.06.2024
 
 Duran Duran - My Own Way (1981) Remaster, 2024, Rhino [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -629,122 +745,6 @@ Cher - Forever Fan (2024) Compilation, Remaster [FLAC|Lossless|WEB-DL|tracks] <P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09DF48DCFDDC573A71E8B08939D6DF6B50C337B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751865   (42261) от 27.09.2024
-
-Modern Talking - Modern Talking 40 (2024) Compilation [FLAC|Lossless|WEB-DL|tracks] <Pop, Euro Dance, Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42261.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Cheri Cheri Lady [3:46]
-02 - Brother Louie [3:39]
-03 - You're My Heart, You're My Soul [5:31]
-04 - Brother Louie Mix '98 (Radio Edit) [3:25](   Читать дальше...   )Жанр: Pop, Synth-Pop, Euro Dance, DiscoПродолжительность: 02:32:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:383511BB1CCF0F4E223964B8E15636978340E016
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751860   (42214) от 27.09.2024
-
-Sting - Brand New Day (1999) Expanded Edition, 2024, A&M [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42214.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Thousand Years [00:05:57]
-02. Desert Rose [00:04:45]
-03. Big Lie Small World (Album Version) [00:05:05]
-04. After The Rain Has Fallen (Album Version) [00:05:03](   Читать дальше...   )Жанр: Pop RockПродолжительность: 02:56:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:179E59B31A418FACBF0AB027C623A93B74186080
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752071   (42089) от 28.09.2024
-
-Mylene Farmer - Nevermore (2024) Live [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prologue
-02. Du temps
-03. Peut-être toi
-04. Libertine(   Читать дальше...   )Жанр: PopПродолжительность: 01:41:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2768C3395C25DC545B4361E884B85017F7884D71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752200   (41994) от 29.09.2024
-
-VA - Let's Party (1988) [FLAC|Lossless|WEB-DL|tracks + .cue] <Pop, Disco, Funk, Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sly & The Family Stone - Dance To The Music (3:01)
-02. Kool & The Gang - Celebration (4:56)
-03. Earth, Wind & Fire - Let's Groove (4:05)
-04. Hot Chocolate - You Sexy Thing (3:58)(   Читать дальше...   )Жанр: Pop, Disco, Funk, SoulПродолжительность: 01:12:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:810AC842A43D4B7ADEAF7B7D533E1896B4E57CBE
 ```
 
 https://mybot314.ru/tekegram_catalog/

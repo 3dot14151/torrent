@@ -1,3 +1,206 @@
+###  Публикация: 1461430   (1021729) от 10.04.2021
+
+VA - ЕвроХит Топ 40 Europa Plus 09.04.2021 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021729.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thomas Gold - Pump Up The Jam (2:33)
+02. Topic & A7S & Lil Baby - Why Do You Lie To Me (2:51)
+03. RAYE & Rudimental - Regardless (3:17)
+04. Masked Wolf - Astronaut In The Ocean (2:12)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:02:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFA91EEF1C851A876EB727FE786BF3855F198A39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461698   (1021591) от 11.04.2021
+
+VA - Remix Deck (2021) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021591.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Petit Biscuit, Jai Wolf - Drivin Thru the Night (Jai Wolf Remix) (4:09)
+02. David Guetta, Sia, DJs From Mars - Let's Love (Djs From Mars Remix) (3:10)
+03. MEDUZA, Becky Hill, Goodboys, Pink Panda - Lose Control (Pink Panda Remix) (2:51)
+04. Arizona Zervas, Swae Lee - ROXANNE (Remix) (2:54)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:32:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:977D93D09BACD8F964A1E1241220F73A053455DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461675   (1021586) от 11.04.2021
+
+VA - The Official UK Top 100 Singles Chart 09.04.2021 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021586.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lil Nas X - Montero (Call Me By Your Name) 2:18
+02. Justin Bieber, Daniel Caesar, Giveon - Peaches 3:18
+03. Nathan Evans, 220 Kid, Billen Ted - Wellerman (Sea Shanty / 220 Kid X Billen Ted Remix) 1:57
+04. A1 X J1 - Latest Trends 2:38(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:20:19 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:735DFDF47FA28F34E01BD8393B7AC12F75E2FE1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461816   (1021577) от 11.04.2021
+
+VA - 30(3) Новые Песни (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021577.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tujamo - Take Control (Original Mix) (2:23)
+02. Ramil' - Сон (Lavrushkin & Silver Ace Radio mix) (3:08)
+03. Loboda - Родной (Leo Burn Radio Edit) (2:45)
+04. Elisey Lehman feat. GERVALD - Dreams (4:09)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 01:33:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B8D332CC31F4CEE779F2278AB429FDE1BFFB14F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462116   (1021238) от 13.04.2021
+
+VA - Громкие новинки Апреля (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021238.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moby, Jim James - Porcelain (Reprise Version) (5:53)
+02. Монатик - Ресницы безопасности (4:54)
+03. Taylor Swift - Mr. Perfectly Fine (4:37)
+04. БАСТА, РЕМ ДИГГА, Каста, Белый Будда - Годы неправды (4:23)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:51:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D5600DBBBF5B141CBD1B5AAA85FCE20925DB963
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462545   (1021228) от 14.04.2021
+
+Gruро Altо Pоdеr - Zona Rossa (2021) [MP3|320 Kbps] <Latino, Folk Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021228.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сами музыканты утверждают, что жанр, в котором они сочиняют и исполняют свои композиции, имеют в своей основе элемент народного творчества и состоит главным образом из латинских гармоний.01. Sin Fortuna (En Vivo)
+02. El Hp
+03. Saldrй Adelante (feat. Scooby Y Sus Aguachiles)
+04. Si No Te Hubieras Ido(   Читать дальше...   )Жанр: Latino, Folk PopПродолжительность: 04:16:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A136385C112B699E83F5D2B657DA40EA56EC49D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462447   (1021167) от 14.04.2021
+
+VA - Music News vol.91 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021167.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ольга Шультайс - Пофиг (03:09)
+ 002. A.T & Merik & BoSton - Холодная Как Лёд (02:33)
+ 003. Abro - For the Night (02:59)
+ 004. AcroniX & Jonas Eb - Your Words (02:34)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 09:23:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5056FBF42A0F84388D3268C4EC08926108D1CFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1462378   (1021136) от 14.04.2021
 
 VA - Remix NNM (2021) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -542,209 +745,6 @@ Richard Jacques, TJ Davis & Planet Perfecto - Metropolis Street Racer (1996-2021
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:412492E36478BCC863AC118C9229F4CB0DFD10F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467170   (1017945) от 03.05.2021
-
-VA - Red & Black: Hardstyle DJ Zone (2021) [MP3|320 Kbps] <Hardstyle, Hard Dance, Electrocore>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017945.jpg" />
-</div>
-
-
-###  Подробнее
-
-Умение переносить всю хард-энергетику семи нот в один гармоничный коктейль в наши дни настолько стало популярным явлением, что в одной только Европе артистов, проповедующих данный стиль и сделавших на этом имя больше, чем в мире коммерчески направленных музыкантов, практикующих танцевально-карамельную субстанцию.001. Ophidian - Electric Resonance
-002. Bratkilla - Corona Virus
-003. Insane S - Natural Selection
-004. Darwin & Aos - What R U Waiting 4(   Читать дальше...   )Жанр: Hardstyle, Hard Dance, ElectrocoreПродолжительность: 11:00:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9756B9A21C46D7DD01D71FF2157E9DEFC7615E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467265   (1017841) от 03.05.2021
-
-VA - Shazam Хит-парад World Top 200 Апрель (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017841.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bruno Mars - Talking to the Moon (3:37)
-002. Lil Nas X - MONTERO (Call Me By Your Name) (2:17)
-003. Masked Wolf - Astronaut In The Ocean (2:12)
-004. Bruno Mars, Anderson .Paak, Silk Sonic - Leave The Door Open (4:02)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 10:56:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27BD2423141503C7C1D68A1EE063CD74F1C6CDE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467571   (1017714) от 04.05.2021
-
-VA - Music News vol.97 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017714.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mariana - Non Stop (03:09)
- 002. 21 Savage - Spiral (02:53)
- 003. Adina & Sultan Ilyaz - Как Хочешь (03:16)
- 004. Alamo & Julia Hallasen - Da Bop (02:45)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 05:31:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E6A2A91E2A30396D5222F0A3655D29B6D2F7A7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467456   (1017648) от 04.05.2021
-
-VA - Shazam & Apple Music Chart (Россия Топ 100 Апрель) (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017648.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ramil' - Сон (2:57)
-002. Egor Kreed - (Не)идеальна (2:38)
-003. escape, Konfuz - Не смотри (2:32)
-004. HammAli & Navai - Нет твоей вины (2:30)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:01:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2655371B682BDEE7DA977FB39BAE065F077AB222
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467664   (1017186) от 07.05.2021
-
-VA - Новинки Русских Ремиксов Май (2021) [MP3|320 Kbps] <Dance, Electro, Remixes>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017186.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Amchi - Уже всё равно (DJ Safiter Remix)
-02.Artik - Asti - Бла Бла (Shnaps and Kolya Funk Remix)
-03.Artik and Kacher - Bailame (Yudzhin Remix)
-04.Dabro - Мой Путь (Misha Slam & Alexey Ezh Remix)(   Читать дальше...   )Жанр: Dance, Electro, RemixesПродолжительность: 02:25:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CDC0F78744C3371E486623E2565C6D6B1B9E6F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469010   (1016718) от 10.05.2021
-
-VA - 30(4) Новые Песни (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016718.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inna - Hot (DJ Ramirez Mike Temoff Radio Remix) (2:50)
-02. Far East Movement ft. The Cataracs DEV - Like A G6 (DBL Remix) (4:03)
-03. DeepSystem - Dame Locura (Robber DJ Remix) (2:56)
-04. Мэвл - Не бои774ся (Glazur XM Remix) (2:49)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 01:28:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:908D836903E6075BBBDDBBA9B956A7B7E8899AE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469859   (1016055) от 14.05.2021
-
-VA - Most live performances (2021) 10CD [MP3|320 Kbps] <Rock, Pop, Blues>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016055.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peter Gabriel - Sledgehammer (Live)
-02. Fleetwood Mac - Go Your Own Way (Live on PBS in Boston 2004)
-03. Billy Joel - Allentown (Live at Shea Stadium, Queens, NY - July 2008)
-04. Seal - Bring It On (Live in Paris)(   Читать дальше...   )Жанр: Rock, Pop, BluesПродолжительность: 67:27:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C1C5A28A71293AEBD0460460EBEF459FAA599EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

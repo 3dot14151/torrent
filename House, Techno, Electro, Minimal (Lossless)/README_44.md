@@ -1,3 +1,117 @@
+###  Публикация: 1571795   (429666) от 23.08.2022
+
+VA - Summer Compilation 2022 (2022) [FLAC|Lossless|WEB-DL|tracks] <Deep Progressive House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_429666.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Kebin van Reeken -  Sound Leak  (7:27)
+02.  FiveP -  Running With You  (6:50)
+03.  Home Shell, Olven -  Shaman  (6:26)
+04.  L E N K E -  Revelation  (7:23)(   Читать дальше...   )Жанр: Deep Progressive House, Tech HouseПродолжительность: 01:19:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC16488B1E8395324C95DA063BF7BFF11761D028
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1064309   (428366) от 19.10.2016
+
+VA - Mixmag Germany Presents Dantze (Curated by Nicone) (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_428366.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moosefly – Ohmagine (6:47)
+02. Autotune – Revolution (Ryan Mathiesen Interpretation) (7:07)
+03. Sid Le Rock – Boulder Holder (6:40)
+04. Stefan Mint & Leman & Dieckmann – Mayan (Jonas Saalbach Remix) (7:53)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 01:19:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC68063C141E4BC4C29C91EE6AFF3714BBE98EB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1250298   (427183) от 27.09.2018
+
+VA - Mark Slee plays 7v (2018) Seven Villas Music [FLAC|Lossless|WEB-DL|tracks] <Deep House, Deep Techno, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_427183.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nikita Great – Russwans (06:59)
+02. Pablo Bolivar & Ben Preisinger – Rainy Dawn Lights (08:12)
+03. Pablo Bolivar – Vibrations (06:42)
+04. Information Ghetto – Romantic Balance (07:57)(   Читать дальше...   )Жанр: Deep House, Deep Techno, DowntempoПродолжительность: 02:32:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:273EF2692265FBB40B61786C48E89EF61FB33BAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1166095   (426918) от 16.09.2017
+
+Thomas Gandey - Lovemachine (2017) Single [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_426918.jpg" />
+</div>
+
+
+###  Подробнее
+
+01/02. Lovemachine (Original Mix) (7:54)
+ 02/02. Lovemachine (Re.you & Pleasurekraft Remix) (7:43)Жанр: Deep House, Tech HouseПродолжительность: 00:15:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:246E7D4E488E3A6596BEC45D117BB308120C54E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1166199   (426655) от 16.09.2017
 
 VA - Deep House Summer Essentials 2017 (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Chill House>
@@ -633,122 +747,6 @@ VA - Seven Stories: The Quest (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE4B2452DAC77A91E9DD8BFDA5E83457C37CBA5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252174   (409321) от 05.10.2018
-
-VA - Incepto Deep Hybrid (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Chill House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409321.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. MaurizioG - Lust (original mix) (6:39)
-02. Ultraverse - Sensorica (Nio March remix) (6:29)
-03. Alec White - My Friend, What's up - (Ah)! (original mix) (7:25)
-04. Misha - The Groove (original mix) (4:11)(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 00:56:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC1DDF714E933996D90AC7F3ACAAC25DFC9F2A78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168620   (408887) от 24.09.2017
-
-VA - Summer Vibes - Part VI (2017) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Deep House, Techno, Dubstep>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408887.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ed Marquis – Alone (Proone Remix) (04:55)
-02. MISIGII – Solomon (Oliver Petkovski Remix) (06:22)
-03. Matthew Damon – Open Space (Volkan Erman Remix) (09:25)
-04. Rabbit One – N33d U (07:28)(   Читать дальше...   )Жанр: Progressive House, Deep House, Techno, DubstepПродолжительность: 01:54:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7B3483FCA83CB66BCB04A7C3C65D2FD94DCFA72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325899   (408704) от 17.09.2019
-
-VA - Different Styles Vol. 9 (2019) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech House, Deep House, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408704.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Natune & Radar Detector – Dive into My World | Fly & Sasha Fashion Remix (05:09)
-02. Rayan Myers – Impatient (08:40)
-03. VetLove – Sunrise (05:49)
-04. Furkan Senol – Words Unspoken (07:30)(   Читать дальше...   )Жанр: Progressive House, Tech House, Deep House, DowntempoПродолжительность: 01:15:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61099159315BE7C3BAB89FB3279E94658E7C52DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252576   (407990) от 06.10.2018
-
-Andrea Parker - Discography 18 Releases (1995-2011) Touchin' Bass, Mo Wax [FLAC|Lossless|tracks+.cue, tracks] <Electro, Abstract, Leftfield, IDM, Downtempo, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andrea Parker / David Morley - After Dark (04:39)
- 02. Andrea Parker - Empty Words (04:52)
- 03. Clatterbox - Peripheral Vision (03:08)
- 04. Two Sandwiches Short Of A Lunchbox - Too Good To Be Strange (01:14)(   Читать дальше...   )Жанр: Electro/IDM/ExperimentalПродолжительность: 01:17:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:312F56B6B2182CFE937787D98EFAFE3195220086
 ```
 
 https://mybot314.ru/tekegram_catalog/

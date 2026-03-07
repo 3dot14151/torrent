@@ -1,3 +1,32 @@
+###  Публикация: 1263359   (286299) от 20.11.2018
+
+Thomas E Rouch - Портал/Alpha Gateway (Original Motion Picture Soundtrack) (2018) Web-DL [MP3|320 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_286299.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alpha Gateway
+02. Some Would Call That Magic
+03. Matt and Jane
+04. The Accident(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:01:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D4CC01849FF9EDA479875E36D1FEB61D4E47A70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1081012   (286265) от 08.12.2016
 
 Achillea - The Nine Worlds (2005) [MP3|320 Kbps] <Enigmatic, New Age, Downtempo>
@@ -718,35 +747,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94BD22F2D13287B3240B446EB7D1793F754E4128
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081760   (280909) от 11.12.2016
-
-Dr. Mary Anderson - Meditations for the Journey Within (2016) [MP3|320 Kbps] <New Age, Meditation>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280909.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 -  Introduction [00:02:00]
-02 -  Love [00:11:02]
-03 -  Faith [00:10:02]
-04 -  Trust [00:10:02](   Читать дальше...   )Жанр: New Age, MeditationПродолжительность: 01:14:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F70A4539F951CBF451C87A1C14D3E2FEDEFD7D4F
 ```
 
 https://mybot314.ru/tekegram_catalog/

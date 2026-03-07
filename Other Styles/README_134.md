@@ -1,3 +1,32 @@
+###  Публикация: 961621   (299087) от 02.12.2015
+
+Astrocolor - Lit Up - Music for Christmas (2015) [MP3|320 кб/с]<New Age, Easy Listening>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_299087.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Do You Hear What I Hear?
+02. We Three Kings
+03. Rudolph the Red-Nosed Reindeer
+04. Sleigh Ride(   Читать дальше...   )Жанр: New Age, Easy ListeningПродолжительность: 00:39:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:823980506B846EA0982F31A5C9E0FCB8A7ADBD30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1423560   (299056) от 13.11.2020
 
 Riccardo Cocciante - Notre Dame De Paris, Opera Tratta Dal Romanzo Di Victor Hugo (2001) Italian Version [FLAC|Lossless|image + .cue] <Musical>
@@ -716,35 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B80F5A6F227E70C31A68F7E3E613D3C75FCA6C47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078825   (296246) от 03.12.2016
-
-Brian Tyler - Brake / Тормоз (Original Motion Picture Soundtrack) (2012) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296246.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brake (Main Title) (02:09)
-02. Roulette (03:36)
-03. The Blind Watchmaker (03:26)
-04. Inside The Box (01:35)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:50:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D647FE65F73448567476B529CD50E4DB19E2739
 ```
 
 https://mybot314.ru/tekegram_catalog/

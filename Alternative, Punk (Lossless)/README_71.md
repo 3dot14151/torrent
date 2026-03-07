@@ -1,61 +1,3 @@
-###  Публикация: 913721   (40746) от 11.10.2024
-
-Muse - 12 Albums, 1 Box Set (1999 - 2022) [26 CD] [FLAC|Lossless|image + .cue|tracks + .cue]<Alternative, Progressive>
-
->>След.
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40746.jpg" />
-</div>
-
-
-###  Подробнее
-
-Muse – британская альтернативная рок-группа, образованная в 1994 году. Сегодня Muse называют одним из величайших наследий рок-музыки нового тысячелетия. Музыка, словно пришедшая к нам из другой Галактики: страстное исполнение, сильнейший театральный вокал, виртуозные гитарные партии, ураганной мощи живые выступления – всё это Muse! Группа состоит из трёх участников: (   Читать дальше...   )Список альбомов:
-1999 - Showbiz
-2000 - Random
-2001 - OriginЖанр: Alternative, ProgressiveПродолжительность: 22:08:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F3D16C0AC7FC9668267561A01EDE9D47888A6A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755810   (39990) от 18.10.2024
-
-The Offspring - Supercharged (2024) Deluxe Edition [FLAC|Lossless|tracks] <Rock, Alternative Rock, Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Looking Out For #1 [3:17]
-02 - Light It Up [2:53]
-03 - The Fall Guy [2:35]
-04 - Make It All Right [3:35](   Читать дальше...   )Жанр: Rock, Alternative Rock, PunkПродолжительность: 00:45:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA223FE3514211A0977B8881CA4208A37C34FB02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1758459   (38493) от 02.11.2024
 
 Klokwise - Klok in. (2024) [FLAC|Lossless|WEB-DL|tracks] <Rapcore, Nu-Metal>
@@ -744,6 +686,64 @@ Manic Street Preachers - 20 альбомов (1992 - 2025) 39 CD [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F47F3561ACFED312B430E36084B1ED41698E7380
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790943   (21765) от 11.04.2025
+
+The Birthday Massacre - Pathways (2025) [FLAC|Lossless|WEB-DL|tracks] <Gothic Rock, Alternative Rock, Industrial Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_21765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Sleep Tonight [4:34]
+02 - All Of You [4:39]
+03 - The Vanishing Game [3:52]
+04 - Pathways [3:26](   Читать дальше...   )Жанр: Gothic Rock, Alternative Rock, Industrial RockПродолжительность: 00:33:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D406D6A2B0DF3912D35D5CF9E3F4203CAFD1E79A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793585   (20259) от 25.04.2025
+
+Billy Idol - Dream Into It (2025) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_20259.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dream Into It
+02. 77 (feat. Avril Lavigne)
+03. Too Much Fun
+04. John Wayne (feat. Alison Mosshart)(   Читать дальше...   )Жанр: Punk Rock, RockПродолжительность: 00:34:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBE44ECD36A3EE09F19E06F1DB9ADB7A855E4121
 ```
 
 https://mybot314.ru/tekegram_catalog/

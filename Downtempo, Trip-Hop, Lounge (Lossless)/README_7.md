@@ -1,3 +1,32 @@
+###  Публикация: 1375813   (863869) от 15.04.2020
+
+Jens Buchert - Cocoon (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambient Dub, Downbeat, Trip-Hop, Deep House>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_863869.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cocoon (4:33)
+ 02. Ground Vibrations (4:56)
+ 03. Five Zero (6:08)
+ 04. Squarehead (5:46)(   Читать дальше...   )Жанр: Electronic, Ambient Dub, Downbeat, Trip-Hop, Deep HouseПродолжительность: 01:11:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:175C96C991744AE30242DE8A94D69C845DD6220C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1376097   (862265) от 16.04.2020
 
 Pacific Coliseum - Blue Universe (2019) Coastal Haze [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo, Balearic>
@@ -713,35 +742,6 @@ VA - Happy Moments Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B71CD1CBF2209E0650D9CFAA5CA66C593F342F96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383459   (811576) от 15.05.2020
-
-Moby - All Visible Objects (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811576.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Morningside
-2. My Only Love
-3. Refuge
-4. One Last Time(   Читать дальше...   )Жанр: Electronic, DowntempoПродолжительность: 01:12:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45DF55518D8F5C17A894CD357D75D870597C33DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

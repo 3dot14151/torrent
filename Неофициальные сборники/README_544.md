@@ -1,3 +1,299 @@
+###  Публикация: 499920   (256873) от 22.05.2012
+
+VA - Клубные Новинки Vol.82 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_256873.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Damabiah – La Machine Humaine (Cid Inc. Remix)
+02. Zymosis & Tentura - Magic Species (Dub Magic Remix)
+03. Nuera - Magnolia (Original Mix)
+04. Woo York - DubMode (Woo York Tool)
+05. Legamen - Snow Rain (Original Mix)
+06. Medina - Forever (Svenstrup & Vendelboe Remix)
+07. Audien - Keep This Memory (Johan Malmgren Remix)
+08. Nathan C & Kash - Follow (Original Vocal Mix)
+09. Julian Jordan & TV Noise - Oxford (Extended Mix)
+10. Taymar - Dont Let Me Be Misunderstood (Fredi Gloster V Rider & Notthoff Remix)2012Жанр: Club, DanceПродолжительность: 04:29:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBD43DD7F162CA2A582D08E04905EEEAC694D18A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837248   (256851) от 15.11.2025
+
+VA - No name compilation part 8 Soulful Blues Ballad (2025) [MP3|320 Kbps] <Soul Blues, Soulful Blues Ballad, Soothing Soul Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_256851.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Rosie Malone - River of Mercy
+02 - Josephine Carter - Deep River of Peace
+03 - Eleanor Nora Jackson - Whispers in the Sanctum
+04 - Josephine Carter - River of My Soul(   Читать дальше...   )Жанр: Soul Blues, Soulful Blues Ballad, Soothing Soul BluesПродолжительность: 01:33:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9DD2267ECBF2A0DCD87873B55598A4476DF27E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837186   (256850) от 15.11.2025
+
+VA - No name compilation part 7 Soulful Blues Ballad (2025) [MP3|320 Kbps] <Soul Blues, Soulful Blues Ballad, Soothing Soul Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_256850.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Josephine Carter - Shadows on My Pillow
+02 - Hazel Johnson - The Dust on My Shoes
+03 - Eleanor Nora Jackson - Rust on This Old Heart
+04 - Eleanor Nora Jackson - Evening Grace(   Читать дальше...   )Жанр: Soul Blues, Soulful Blues Ballad, Soothing Soul BluesПродолжительность: 01:50:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF753AA04ADDE19BAF34D09C5DAA3ACE1D319F35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837088   (256848) от 15.11.2025
+
+VA - No name compilation part 6 Blues, Soul (2025) [MP3|320 Kbps] <Blues, Soul, Ballads>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_256848.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Ruby Sinclair - Last Shelter
+02 - Stevie Ray Vaug - Thunder in My Soul
+03 - Enlly Blue - Love That Burns
+04 - Loretta Mae Calloway - Falling Like Rain(   Читать дальше...   )Жанр: Blues, Soul, BalladsПродолжительность: 00:43:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:983F5CD665985C11ACDC4F4F354BF079FB8012F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837086   (256847) от 15.11.2025
+
+Delih - Favorites Collection (2025) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_256847.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Rise
+ 02 - More You
+ 03 - Universe
+ 04 - Lost Without You(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:00:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCCD35EBED8A7CE6E50C14E8D69A768FA1AE01FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837084   (256846) от 15.11.2025
+
+VA - No name compilation part 5 Electronic, Other, AI (2025) [MP3|320 Kbps] <Electronic, Other, AI>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_256846.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Dj Lava - On Our Way
+02 - D-Beats - Night & Day
+03 - Novi - Belongs to You
+04 - Diazza - November Rain(   Читать дальше...   )Жанр: Electronic, Other, AIПродолжительность: 01:15:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78737F1226D9BC3FB7BFB6D6EE122A3448E4ED63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837206   (256845) от 15.11.2025
+
+VA - 60 minutes. Old School Dance Music vol.31 (mixed by Dj V) (2025) [MP3|320 Kbps] <Progressive Trance, Vocal Trance, Euro Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_256845.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Alucard - Lighthouse (Original Mix)
+02-Ronski Speed & Sebastian Sand - Sole Survivor (Sebastian Sand Mix)
+03-Reflekt Feat. Delline Bass - Need To Feel Loved (12'' Club Mix)
+04-Nalin & Kane - Open Your Eyes (Re-Worked Club Mix)(   Читать дальше...   )Жанр: Progressive Trance, Vocal Trance, Euro TranceПродолжительность: 01:00:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9751B52C1B4772BBD030C33EBB9B11D0F298441A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837292   (256833) от 15.11.2025
+
+VA - Music News For Forum vol.147 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_256833.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Лера Вокс feat. Gracciano DJ & AKORD - В этот вечер (03:27)
+ 002. Afonso Dubraz - Pedaco De Bom Caminho (02:44)
+ 003. Феодор - Снежный ком (03:44)
+ 004. Ahmet Kilic - No Communication (Indie Dance Mix) (05:55)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 13:41:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEEE5D0D7347566F8DEBFC0CA8DEE02EDB0F9BAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837372   (256722) от 16.11.2025
+
+VA - Santa Baby Sexy New Year (2025) [MP3|320 Kbps] <Insrumental, Easy Listening, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_256722.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Christmas Songs - Christmas Eve (Soulful Music) [03:42]
+002. Lounge 50 - New Years Party [04:09]
+003. New Years Eve Djs Collective - New Years Party Music Mix - Techno House [03:30]
+004. Mont Blanc Apres Ski Lounge Cafe - Senses Forever [02:55](   Читать дальше...   )Жанр: Insrumental, Easy Listening, PopПродолжительность: 06:45:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EED478F731AF70FAFBCE879F98CEF7F5E069AC3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837330   (256721) от 16.11.2025
+
+VA - Solo Projects From Queen (1973-2025) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_256721.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. (You're So Square) Baby I Don't Care ❂ Live At Wembley Stadium 1986
+02. A Human Body (B-Side) ❂ The Game 1980
+03. Big Spender ❂ Live At Wembley Stadium 1986
+04. Bohemian Rhapsody-Radio Ga Ga ❂ Queen At Live Aid 1985(   Читать дальше...   )Жанр: RockПродолжительность: 27:54:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11A428B6E7C1E209F727221166251ED05DD478A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1837099   (256675) от 14.11.2025
 
 VA - Sexy Bath 7 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -515,296 +811,6 @@ VA - Музыкальные летние хиты (2012) [MP3|256 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6368C688259339555DE146404CA966A51F2E1975
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836936   (255698) от 13.11.2025
-
-Oblivion - Collection (2021) [MP3|320 Kbps] <Spacesynth>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255698.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. First Orbit (Around The Earth) (4:57)
-02. Dancing With The Morning Sun  (Pulse Version) (6:07)
-03. End Of Journey (5:59)
-04. Exclusion Area  (Radioactivity Theme) (7:27)(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 04:40:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9177B8EB8B543887ACE91EFE403C013FE469CFF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836871   (255629) от 13.11.2025
-
-VA - Weekend Freestyle (2025) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255629.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Roxette - Dressed For Success (04:10)
- 002. Winona Oak - He Don't Love Me (03:31)
- 003. Unwritten Law - She Says (03:58)
- 004. Nickelback - Burn It To The Ground (03:31)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 10:47:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60937999CC76C8092B1BBA463BC1DA861C5E2EB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623938   (255373) от 09.04.2023
-
-VA - The Official UK Top 100 Singles Chart 06-04-2023 [MP3|320 Kbps] <Pop, Dance, Rock, Hip Hop, RnB>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255373.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ed Sheeran - Eyes Closed (New Entry)
-002. Miley Cyrus - Flowers
-003. Calvin Harris, Ellie Goulding - Miracle
-004. Libianca - People(   Читать дальше...   )Жанр: Pop, Dance, Rock, Hip Hop, RnBПродолжительность: 05:28:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A6A4343E9E6FEC0F96B66A23D9AEA3BB1BE5B3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625561   (255294) от 11.04.2023
-
-VA - Лучшие рок баллады 20-го века Vol.1 (2023) [MP3|320 Kbps] <Rock, Ballads>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255294.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Berlin - Take My Breath Away (04:17)
-02. Billy Idol - Sweet Sixteen (04:15)
-03. Damn Yankees  - High Enough (04:46)
-04. Dire Straits - Romeo And Juliet (06:00)(   Читать дальше...   )Жанр: Rock, BalladsПродолжительность: 02:30:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C914AAB8BA6DCA789D2D78045D8676642559069
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627336   (255059) от 18.04.2023
-
-VA - Disco Party Weekend Plays (2023) [MP3|320 Kbps] <Indie Dance, Soulful, Disco, Chicago House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255059.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Filizola, Andy Bach - The Mind Is Crazy (Original Mix)
-02. Dionigi - Pulsamood (Original Mix)
-03. Ken@Work - Sweeter Than Before (Original Mix)
-04. Even Funkier - Long and Slender (Original Mix)(   Читать дальше...   )Жанр: Indie Dance, Soulful, Disco, Chicago HouseПродолжительность: 04:54:03 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3DBA9059BA3922C04E745054FBC2A53D7110B1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627470   (255017) от 19.04.2023
-
-VA - Disco Generation Freedom (2023) [MP3|320 Kbps] <Disco, House, Soulful, Nu-Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255017.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sylvain Le Kick - The Man (Original Mix)
-02. Dionigi - Hypnotische Augen (Original Mix)
-03. Tj Edit - Prime Disco (Original Mix)
-04. Noil Rago - Intruder (Original Mix)(   Читать дальше...   )Жанр: Disco, House, Soulful, Nu-DiscoПродолжительность: 02:13:59 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4F69D1510826BD93402DF57F722EDE27F76E329
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627918   (254945) от 21.04.2023
-
-VA - Vocal Melodic House For U (2023) [MP3|320 Kbps] <Progressive House, Techno House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254945.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Will Atkinson - If I Spoke Your Language - Grum Remix (3:38)
-02. VIVID & Nazzereene - Secrets (Extended Mix) (4:00)
-03. Tastexperience - Seven Wonders - Driftmoon Remix (6:37)
-04. Siskin - Always You (2:45)(   Читать дальше...   )Жанр: Progressive House, Techno HouseПродолжительность: 05:40:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57B93D0EA59AE93810E29D48336E7B9DA2CD15FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627907   (254918) от 22.04.2023
-
-VA - Swing Jazz Wonder Of Romance (2023) [MP3|320 Kbps] <Swing Jazz, Nu Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254918.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wynton Marsalis - Come On Children [03:25]
-02. The Italian Swing - Quel Motivetto Che Mi Piace Tanto [02:56]
-03. Jive Aces - Rock 'n' Roll Movie Star [03:18]
-04. Down South Jazzband - Shim Me Sha Wabble [04:14](   Читать дальше...   )Жанр: Swing Jazz, Nu JazzПродолжительность: 05:09:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25DAAD0769FC083717FB32F7554EFCCB04A8B252
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627827   (254917) от 22.04.2023
-
-VA - Compilation  part 17 Rock (2023) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254917.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dark Horses - Alone
-02. Jamie N Commons - Not Gonna Break Me Valor
-03. L.A. Guns - I  Love to Change the World
-04. Stephane Huguenin - Stay By My Side(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30DECE352B23EB4DEDFC5402AD31C8B96FD25D1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330417   (254899) от 22.04.2023
-
-VA - Понемногу отовсюду by Yuridar #O-P-Q (1962-2023) Compilation Album [MP3|320 Kbps] <Rock, Blues, Others>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254899.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. O.M.F.O. - Trans Balkan Express
-02. Oasis - Sunday Morning Call
-03. Okolokolo - Ekahalat
-04. Oliver Shanti & Friends - Shamboo Wokantonka(   Читать дальше...   )Жанр: Rock, Blues, OthersПродолжительность: 06:57:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D0E7E5BA8E7D425B45FB967BA7D19226AE15E16
 ```
 
 https://mybot314.ru/tekegram_catalog/

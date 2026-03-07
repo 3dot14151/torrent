@@ -1,3 +1,32 @@
+###  Публикация: 1654971   (204487) от 25.08.2023
+
+Danny Bryant - Compilation (2023) [MP3|320 Kbps] <Rock, Blues Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_204487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Best of Me
+02. Blood Money (Feat. Walter Trout)
+03. Revelation
+04. Between the Lines(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 02:10:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:228B9A1640ED38C1BF75378C8084B9806E46AC9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1602550   (204393) от 06.01.2023
 
 VA - Лучшие песни Наше радио за 2022 год (2023) [MP3|320 Kbps] <Rock>
@@ -713,35 +742,6 @@ VA - Music For You vol. 25 (2022) [MP3|320 Kbps] <Rock, Metal, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3BC59202C7FBBEC3A6412F0D2D29131DADA4F519
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427686   (181505) от 30.11.2020
-
-VA - Alternative Rock Music Event (2020) [MP3|320 Kbps] <Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181505.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Machine Gun Kelly - My Ex's Best Friend
-002. Glass Animals - Tokyo Drifting
-003. Kandle - Just To Bring You Back
-004. Even As We Speak - Someone(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 07:45:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4A9D01E69CA3FDC83852D56882ABC8B3E250C8D
 ```
 
 https://mybot314.ru/tekegram_catalog/

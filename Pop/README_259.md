@@ -1,3 +1,206 @@
+###  Публикация: 1193802   (261803) от 23.12.2017
+
+VA - Euro Disco - The Lost Legends Vol. 2 (2017) [MP3|320 Kbps] <Euro-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261803.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bam Boo - Foreign East Love (5:42)
+02. Claudia Benn - Mister Hasta La Vista (6:14)
+03. Alberto D'Arco - Dai Dai Dai (Dolce Vita) (6:21)
+04. Nadia Dorine - Help Is On It's Way (5:53)(   Читать дальше...   )Жанр: Euro-Disco, Synth-popПродолжительность: 01:16:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B490F9AF53D014881030C8521433567474F8B585
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193865   (261799) от 23.12.2017
+
+VA - Euro Disco: The Lost Legends Vol.7 (2017) [MP3|320 Kbps] <Euro-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Elvin  -  Luggi, Luggi, Ludwig  5:26
+02.  First Cut  -  Tell Me Tell Me  7:14
+03.  Thai Break  -  Flowers In The Rain  5:38
+04.  Kenny Masters  -  Time To Fly (Sing My Song)  6:02(   Читать дальше...   )Жанр: Euro-Disco, Synth-popПродолжительность: 01:14:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0E59EF46014199B3F35BA633370448FB027BC66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193894   (261797) от 23.12.2017
+
+Faydee - Patterns (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Pop, House>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261797.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. More (3:16)
+ 02. Friendzone (feat. Demarco) (3:15)
+ 03. Patterns (3:29)
+ 04. When I'm Gone (3:13)(   Читать дальше...   )Жанр: Pop, HouseПродолжительность: 00:16:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E33E5C4B145A30DD995E3D0574AFEDC9227669A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193690   (261795) от 23.12.2017
+
+VA - Italo Disco: The Lost Legends Vol.10 (2017) [MP3|320 Kbps] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Tony Moore D.J.  -  Tonight  7:06
+02.  Paciscopi  -  Love's Harmony  6:40
+03.  David Gray  -  I Wanna Fly (Only For DJ)  5:33
+04.  F & M  -  Te Gusta  5:26(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:18:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD3A03AEA876B14764B099DF42AD1B9A01155CAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193872   (261791) от 23.12.2017
+
+VA - Euro Disco: The Lost Legends Vol.8 (2017) [MP3|320 Kbps] <Euro-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261791.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Phantom Of The Blue  -  Silent Killer  6:08
+02.  The Back Bag  -  Dial My Number  5:35
+03.  Good News  -  You Turn Me On (Girl You Drive Me Crazy)  7:31
+04.  Scala  -  The Perfume Of Love  6:57(   Читать дальше...   )Жанр: Euro-Disco, Synth-popПродолжительность: 01:19:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BCBFDD3ABB55168446A20BF54EC33573EFB449F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193893   (261787) от 23.12.2017
+
+VA - Euro Disco: The Lost Legends Vol.10 (2017) [MP3|320 Kbps] <Euro-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261787.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Kerim Khan  -  Seaside Rendezvous  5:54
+02.  Avenue  -  Voices Of Animals  6:09
+03.  Rio  -  Beside You  5:43
+04.  Anouschka Renzi  -  Robot Love  6:49(   Читать дальше...   )Жанр: Euro-Disco, Synth-popПродолжительность: 01:19:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EF0A09168543DD34FD9E325EAE7D70F967288F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193745   (261781) от 23.12.2017
+
+VA - Euro Disco: The Lost Legends Vol.1 (2017) [MP3|320 Kbps] <Euro-Disco, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_261781.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Men Of Romantic  -  Girls Destroy Hearts  3:43
+02.  Steven Dale  -  Together Forever  5:53
+03.  Wanda Cross  -  Dancing In The Desert  6:32
+04.  Kashmir  -  I Want To Be  7:03(   Читать дальше...   )Жанр: Euro-Disco, Synth-popПродолжительность: 01:15:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D020BBA5C6A547EAA9914DA4A4A444347E591106
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1193825   (261780) от 23.12.2017
 
 VA - Euro Disco - The Lost Legends Vol. 4 (2017) [MP3|320 Kbps] <Synth-pop, Hi NRG, Italo-Disco>
@@ -566,227 +769,6 @@ VA - Formel Eins - Double Fun (1990) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C92787E37CF21FAA4D225FAC9E317EAA3880A996
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838060   (257745) от 20.11.2025
-
-VA - Always And Forever (1987) [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop, Soft Rock, Ballad>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257745.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chris De Burgh - The Lady In Red     04:18
- 02. Atlantic Starr - Always     03:59
- 03. Janet Jackson - Let's Wait A While     04:37
- 04. Peter Cetera - Glory Of Love     04:21(   Читать дальше...   )Жанр: Rock, Funk / Soul, Pop, Soft Rock, BalladПродолжительность: 01:05:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B0216A683427E86E62F5BC6F5D3ACF6BB475CE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837615   (257697) от 18.11.2025
-
-VA - Wow! 91 International (1991) 2 CD [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop, Soul, Funk, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257697.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Queen - Innuendo     06:33
- 02. Roxette - Joyride     04:00
- 03. Chesney Hawkes - The One And Only     03:42
- 04. The KLF - Last Train To Trancentral     03:38(   Читать дальше...   )Жанр: Rock, Funk / Soul, Pop, Soul, Funk, DiscoПродолжительность: 02:23:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D442CFEF35B0FECED0DCEA6648385ADD6AEB0386
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837467   (257567) от 16.11.2025
-
-VA - Пульс эпохи (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257567.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Натали - Облака (3:20)
-02. Марина Хлебникова - Полоска взлётная (3:32)
-03. Наташа Королёва и Игорь Николаев - Ночной бульвар (4:19)
-04. Божья Коровка - Стюардесса (3:54)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:15:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC7E837C00A5F1D8A66902F1DC83669637AC2552
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 500310   (257187) от 23.05.2012
-
-Regina Spektor - What We Saw From The Cheap Seats (2012) [MP3|320 кб/с]<Indie, Piano, Pop, Folk, Singer-Songwriter, Female Vocal>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257187.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Small Town Moon
-2. Oh Marchello
-3. Don't Leave Me (Ne Me Quitte Pas)
-4. Firewood
-5. Patron Saint
-6. How
-7. All The Rowboats
-8. Ballad Of A Politician
-9. Open
-10. The Party(   Читать дальше...   )Жанр: Indie, Piano, Pop, Folk, Singer-Songwriter, Female VocalПродолжительность: 00:37:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BE5979D6D5A9820496F2F036005EFAAEA2F32EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 499452   (257002) от 22.05.2012
-
-Скрябін (Скрябин) - Радіо любов (2012) [MP3|320 кб/с]<Alternative Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257002.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Говорили і курили (03:33)
-02. Не думай про завтра (04:36)
-03. Місця щасливих людей (05:31)
-04. Сліди (02:52)
-05. Мам (04:50)
-06. Ніби в раю (03:53)
-07. Радіо Любов (04:34)
-08. Тримай її за руку (04:53)
-09. А під Новий Рік (03:46)
-10. Історії двох (03:26)2012Жанр: Alternative PopПродолжительность: 00:41:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10E5AA0D4E07B62E8E47B7FC3469305CB3FCB8DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 499992   (256991) от 22.05.2012
-
-Foster The People - Torches (2011) [FLAC|Lossless]<Indie Pop, Alternative>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256991.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Helena Beat
-2. Pumped Up Kicks
-3. Call It What You Want
-4. Color On the Walls (Don't Stop)
-5. Waste
-6. I Would Do Anything for You
-7. Houdini
-8. Hustling (Life On the Nickel)
-9. Miss You
-10. Warrant(   Читать дальше...   )Жанр: Indie Pop, AlternativeПродолжительность: 00:45:36
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 552318   (256732) от 16.11.2025
-
-ВИА "Сябры" - 16 альбомов (1978-2010) [MP3|320 кб/с] <Pop, Folk, Retro>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256732.jpg" />
-</div>
-
-
-###  Подробнее
-
-В свое время популярность "Сябров" была, пожалуй, даже выше, чем у "Песняров", которые увлеклись крупными формами. А вскоре художественный руководитель и солист ансамбля Анатолий Ярмоленко получил звание Заслуженного артиста Белорусской ССР. В 1985 году появился очередной диск-гигант "Сябров" - "Шумите березы", а в 1986 - "Далекий (   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 00:54:10
-
-01. Сваяк (3:09)
-02. А я лягу-прылягу (4:41)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C824976E61F45389D62F12B0657CAE768791624F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1210411   (778712) от 03.03.2018
+
+Hennie Bekker - Jabula (The Joyful Spirit Of Southern Africa) (1998) Avalon Music [MP3|320 Kbps] <New Age, Tribal, African>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778712.jpg" />
+</div>
+
+
+###  Подробнее
+
+Канадский мульти-инструменталист Hennie Bekker начинал свою карьеру в Лондоне, как гитарист в местой музыкальной команде, игравшей на дискотеках и вечеринках. Однако вскоре он стал тяготеть к исполнению классических мелодий, попробовав себя в качестве пианиста и аранжировщика музыки к документальным фильмам на BBC и National Geographic. Композитор много путешествовал (   Читать дальше...   )01. Helelele 4:30
+02. Swazi Sunset 4:55
+03. Rain Dance 5:15
+04. Mbira Song 3:47(   Читать дальше...   )Жанр: New Age, Tribal, AfricanПродолжительность: 00:54:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D22DE30E604774C5939C4F1A0591B74593D8714
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1210596   (778710) от 03.03.2018
 
 Giovanni - Love Me Tender (1998) Reissue, 2000, New Castle [FLAC|Lossless|image + .cue] <New Age, Instrumental, Easy Listening>
@@ -716,35 +745,6 @@ Francis Goya - Musica Espectacular (2016) [FLAC|Lossless|WEB-DL|tracks] <Easy-Li
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C17997FDAAD78532303D119F521BB8F6F7443AA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211273   (777564) от 07.03.2018
-
-Maximus & Felix - 2 Albums (1993, 1996) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777564.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Praeludium (The Time Of The Time) (3:28)
-02. 11:11 Rendezvous (4:07)
-03. Desert (4:25)
-04. Cosmic Love (3:59)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:53:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD0C657E6F476B99086ED6B1F42B5373F34A3A58
 ```
 
 https://mybot314.ru/tekegram_catalog/

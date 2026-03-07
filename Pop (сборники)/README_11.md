@@ -1,3 +1,61 @@
+###  Публикация: 1363366   (935664) от 03.03.2020
+
+VA - 100 Hits Of The 70's & 80's & 90's (2020) [MP3|320 Kbps] <Rock, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_935664.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Jacksons - Blame It On The Boogie 3:34
+002. Boney M. - Rivers Of Babylon (Single Version) 4:00
+003. Elvis Presley - Burning Love (Live) 2:57
+004. Billy Swan - I Can Help 3:58(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 19:10:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8128756D49711DD3BCAB44F58320A199711C8AE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984379   (935518) от 11.02.2016
+
+VA - Evolution of Disco - CD1 (1964-2015) [MP3|128-320 кб/с] <Funk,Disco,House>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_935518.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Billy Paul - Me and Mrs. Jones  04:51
+02. Jerry Butler - One Night Affair  03:28
+03. Diana Ross - Where Did Our Love Go  02:36
+04. The O'Jays - Now That We Found Love  04:42(   Читать дальше...   )Жанр: Funk,Disco,HouseПродолжительность: 05:12:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CEEADD9CC9A37311C16AFE12125CF3DCD77EFD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1093252   (935338) от 14.01.2017
 
 VA - German Top 100 Single Charts 13.01.2017  [MP3|320 Kbps] <Pop>
@@ -684,64 +742,6 @@ VA - Звездная вечеринка. Выпуск № 8 (2017) [MP3|256 Kbp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68E41BDB0F3AFEBEC677F1960FF0D7DBC128B801
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 862714   (928720) от 24.01.2015
-
-VA - Winter Music 2015 (2015) [MP3|320 кб/с]<Pop, Dance, Other>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_928720.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Robin Schulz - Prayer in C  (3:09)
-02. Nico & Vinz - Am I Wrong  (4:08)
-03. Джиган & Юлия Савичева - Любить больше нечем  (3:24)
-04. ZHU - Faded (Radio Edit)  (2:48)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 01:46:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD396685A8D46394E10262BF88D1C6C02BF8592B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094105   (927714) от 19.01.2017
-
-VA - Зимний драйв. Зарубежная версия (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927714.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mako & Rat City Feat. Natalola - Run For Your Life 3:20
-002. Attlas - Blood Work 3:07
-003. Yade Lauren - Love & War 3:00
-004. The Chemical Brothers - C-H-E-M-I-C-A-L 3:19(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7791A7557044EC0CDEDAED4AC32E052BD52610F
 ```
 
 https://mybot314.ru/tekegram_catalog/

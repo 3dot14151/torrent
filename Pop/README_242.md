@@ -1,3 +1,206 @@
+###  Публикация: 1078153   (302423) от 30.11.2016
+
+VA - Nostalgie Disco Fever: Les 50 Plus Grands Titres Disco-Funk ! (2016) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_302423.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ottawan - Disco 03:15
+02. Amii Stewart - Knock On Wood 04:10
+03. Barry White - You're The First, The Last, My Everything 04:31
+04. Donna Summer - Hot Stuff 05:18(   Читать дальше...   )Жанр: PopПродолжительность: 03:37:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:954AE1BC9FEAAEF68BC30DCF83544B114414C040
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423318   (302218) от 12.11.2020
+
+Disco Circus - 2 Albums (1978, 1980) Reissue CD, Lollipop Records [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_302218.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In A Gadda Da Vida/Garden Of Eden  (7:15)
+02. Dig It  (6:26)
+03. Soul Sister  (3:51)
+04. Over And Over  (6:07)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 01:14:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B859D5A18D468160954619B4144ECC8DC90E5F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 267285   (301853) от 07.12.2010
+
+E-Type - Greatest Hits / Greatest Remixes (1999) 2CD [FLAC|Lossless]<Eurodance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_301853.jpg" />
+</div>
+
+
+###  Подробнее
+
+E-Type (Bo Martin Erik Eriksson) - Профессионально занимается музыкой уже давно, но его успешная сольная карьера началась в 1994 году.01. This Is The Way (Waterdreamix)
+02. Back In The Loop (Antiloop Snap Out Of It Mix)
+03. I Just Wanna Be With You (Andre's Boogie Buster Short Mix)
+04. Calling Your Name (Antiloop Garage Club Mix)(   Читать дальше...   )Жанр: EurodanceФормат: 2 х CD, CompilationПродолжительность: 02:02:53
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333746   (301583) от 26.10.2019
+
+VA - Ballermann Frühlingsalarm 2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_301583.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tobee - Cordula Grün
+02. Almklausi,Specktakel - Mama Laudaaa (Harris & Ford Remix)
+03. Honk! - Joana
+04. Peter Wackel - I Love Malle(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 03:01:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23C8EDC1697C7E18FB0A440E54454D7CBABB435F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333925   (301459) от 26.10.2019
+
+Tanja Lasch - Lebensecht (2015) [FLAC|Lossless|image + .cue] <Pop, Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_301459.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Du lebst gefahrlich neben mir
+02. Ich fall aus den Wolken
+03. 7 Tage 7 Nächte
+04. Vagabund(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 00:47:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E9DD8DCAF5ECBE90202D6D4363EF1308E1D14B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333633   (301455) от 26.10.2019
+
+Chameleon - Superdoop (1981) LP [MP3|320 Kbps] <Electronic, Disco, Space-Age>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_301455.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Superdoop (2:25)
+02. Expedition (2:58)
+03. Savage (2:28)
+04. Balladette (2:40)(   Читать дальше...   )Жанр: Electronic, Disco, Space-AgeПродолжительность: 00:38:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0597318C9288C41E912EB1514D4245A79EFC4BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333134   (301450) от 26.10.2019
+
+Andre Morgunoff & Keyorchestra - The Very Best Of (2007) [FLAC|Lossless|tracks + .cue] <Pop, Electronica>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_301450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. North Land
+02. Bouquet Of Fantasies
+03. E-SoundTrack
+04. Duduk(   Читать дальше...   )Жанр: Pop, ElectronicaПродолжительность: 01:13:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CB0D9CB88FC4240CF005DA2BBACF6A7DEEEC029
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1333758   (301435) от 26.10.2019
 
 Rick Astley - The Best Of Me (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -542,209 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C22A4F5B2C6003994054C117171406B5AEA4A9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333278   (298850) от 27.10.2019
-
-СашаЧ - СашаЧ (1999) MDM Studio [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298850.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ты Сегодня Не Придешь
-02. Танцует Лето
-03. Белый Кораблик
-04. Музыка Дождя(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC65A93A281C49D1E4064D87C79EB070D5889BB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262024   (298757) от 13.11.2018
-
-Pia Mora - ... Perchè no?... (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Jazz>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298757.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Perchè no
-02. Insieme
-03. Anche per te
-04. Io e te da soli(   Читать дальше...   )Жанр: Pop, JazzПродолжительность: 01:01:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90B08D938AC93360EB60C51CF4270BE193C5E4F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261892   (298753) от 13.11.2018
-
-VA - Disco Heaven (2018) [MP3|320 Kbps] <Disco, Nu Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298753.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Discotron - Disco Gettin' Jacked (Original Mix) (6:14)
-02. Audio Jacker - You Say (Original Mix) (6:17)
-03. Disko Junkie - Destiny (Original Mix) (5:26)
-04. Discotron - Disco Power (Original Mix) (4:49)(   Читать дальше...   )Жанр: Disco, Nu DiscoПродолжительность: 01:13:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31401E6E10B4B83CEF4F2445E3E93024CB9573DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261900   (298749) от 13.11.2018
-
-People's Choice - We Got The Rhythm (1976) LP [MP3|320 Kbps] <Disco, Funk>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298749.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Here We Go Again (4:56)
-02. Jam, Jam, Jam (All Night Long) (3:38)
-03. We Got The Rhythm (3:31)
-04. Cold Blooded & Down-Right-Funky (4:19)(   Читать дальше...   )Жанр: Disco, FunkПродолжительность: 00:33:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C14EBCB8AF0E800C29DE73EF3203707780E5CE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334109   (298744) от 27.10.2019
-
-Горячие Головы - Джентльмены удачи (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298744.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Далеко ли до Таллинна! (3:00)
-02. А я люблю тебя (3:16)
-03. Тоска (3:49)
-04. Горячие головы (3:19)(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C16654DB449AAF862D3D6AAAC06872ABB7422308
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334008   (298738) от 27.10.2019
-
-Надежда Бабкина - 7 Альбомов (1994 - 2007) [FLAC|Lossless|tracks + .cue]<Pop, Folk>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298738.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Старый клён ( Н. Бабкина и Е. Шифрин )
-02. На горе колхоз ( Н. Бабкина и С. Павлиашвили )
-03. Ах вы, кони мои вороные ( Н. Бабкина и Н. Басков )
-04. По диким степям Забайкалья ( Н. Бабкина и А. Буйнов )(   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 07:05:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:488A3E9A1F2B7C70FC1F19902FB4C694AA338B39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262100   (298591) от 13.11.2018
-
-Tanita Tikaram - Tanita Tikaram (Acoustic) (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop. Acoustic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298591.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – My Love (Acoustic)
-02 – Valentine Heart (Acoustic)
-03 – Wonderful Shadow (Acoustic)
-04 – Only the Ones We Love (Acoustic)(   Читать дальше...   )Жанр: Pop. AcousticПродолжительность: 00:31:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D5C48BCC71F83DE8868B69AEEB456FA7480E905
 ```
 
 https://mybot314.ru/tekegram_catalog/

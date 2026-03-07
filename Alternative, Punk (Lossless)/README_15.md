@@ -1,3 +1,32 @@
+###  Публикация: 1276780   (787230) от 18.01.2019
+
+The Twilight Sad - It Won/t Be Like This All The Time (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Indie Rock, Post-Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. [10 Good Reasons for Modern Drugs] (4:08)
+02. Shooting Dennis Hopper Shooting (3:25)
+03. The Arbor (4:19)
+04. VTr (4:16)(   Читать дальше...   )Жанр: Alternative Rock, Indie Rock, Post-PunkПродолжительность: 00:46:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:926DD880DACBE2185345189CD91F9922551FD1F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1276798   (787224) от 18.01.2019
 
 Sharon Van Etten - Remind Me Tomorrow (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock>
@@ -715,35 +744,6 @@ Vance Joy - Nation of Two (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock, Pop 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FBB47CB334FFB43B2C85C343C91C6372D24888BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014896   (776019) от 08.05.2016
-
-Radiohead - A Moon Shaped Pool (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Burn The Witch
-02. Daydreaming
-03. Decks Dark
-04. Desert Island Disk(   Читать дальше...   )Жанр: Alternative, Indie RockПродолжительность: 00:52:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92932EAF589FA09E212133F27AE2F22A00684408
 ```
 
 https://mybot314.ru/tekegram_catalog/

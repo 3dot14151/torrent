@@ -1,3 +1,118 @@
+###  Публикация: 1487917   (1002826) от 08.08.2021
+
+Saive - Closer (2021) Click Records [FLAC|Lossless|WEB-DL|tracks] <Tech House, Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002826.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Saive - Closer (06:37)
+ 02. Saive - Stay (08:38)
+ 03. Saive & Jan Bleidorn - Unknown Land (08:28)
+ 04. Saive & Kleiber - Cyode (06:14)Жанр: Tech House, Progressive HouseПродолжительность: 00:29:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:885152DC953E0C021160FAAFE0AD50AB21CA9F72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351059   (1002761) от 08.01.2020
+
+VA - Poker Flat Recordings: Best of 2019 (2019) Compilation [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002761.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frankey – Dream (08:51)
+02. Steve Bug & Uner – Mantis On The Moon (07:35)
+03. Tim Toh, youANDme & Lisa Toh – Voyager (07:34)
+04. Francesca Lombardo – Flumen (08:49)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 01:27:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA65931DCA62AEE2F1DB468B4B31004FE6F06DCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488270   (1002284) от 10.08.2021
+
+Faithless - All Blessed (2021) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Downtempo, Trip-Hop>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002284.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Poetry (feat. Suli Breaks) (3:39)
+ 02. Gains (feat. Suli Breaks) (3:27)
+ 03. I Need Someone (feat. Nathan Ball & Caleb Femi) (4:54)
+ 04. Remember (feat. Suli Breaks & LSK) (7:05)(   Читать дальше...   )Жанр: Progressive House, Downtempo, Trip-HopПродолжительность: 02:00:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:063A91A4AA33D29F381916FC9BAF7B969ABF04CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1487977   (1002272) от 10.08.2021
+
+TheFatRat - Discography (2011-2021) [FLAC|Lossless|WEB-DL|tracks] <Electro, Glitch-hop, Game Soundtrack>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002272.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Do Be Do Be Do (5:28)
+02. Less Than Three (5:18)
+03. Some Body (4:55)Жанр: Electro House, Electro Pop, Dubstep, Happy Hardcore, Glitch-hop, Game SoundtrackПродолжительность: 04:19:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F0449CC8FE41596C1FD6F7510861FD82EE45468
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1351346   (1002170) от 10.01.2020
 
 Blank & Jones - #WhatWeDoAtNight 2 (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech House>
@@ -629,117 +744,6 @@ Lawrence - Jill (2009) [FLAC|Lossless]<Deep House>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 610450   (990378) от 29.01.2013
-
-Full Tilt - Take Me Away (2012) [FLAC|Lossless]<Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990378.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take Me Away (Original Mix) (7:17)
-02. Take Me Away (Andrew Bayer & James Grant Remix) (6:16)Жанр: Progressive HouseПродолжительность: 00:13:33
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 610455   (990323) от 29.01.2013
-
-Martin Roth - Beautiful Life / Make Love To Me Baby (2012) [FLAC|Lossless]<Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990323.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beautiful Life (8:15)
-02. Make Love To Me Baby (9:33)Жанр: Deep HouseПродолжительность: 00:17:47
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355017   (985967) от 24.01.2020
-
-Boris Brejcha - Space Diver (2020) Ultra Records [FLAC|Lossless|tracks] <Tech House, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985967.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gravity (9:24)
- 02. Happinezz (7:52)
- 03. Never Look Back (8:02)
- 04. Lieblingsmensch (8:44)(   Читать дальше...   )Жанр: Tech House, MinimalПродолжительность: 01:34:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4473F591E6F0251592E1E0ECE1CC926A36EF3AEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971737   (984651) от 04.01.2016
-
-Dirty Vegas - Days Go By (2002) [FLAC|Lossless|tracks + .cue] <Progressive House, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984651.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Dirty Vegas - Days Go By (7:12)
- 2. Dirty Vegas - Days Go By (Scumfrog Vocal Remix) (7:09)
- 3. Dirty Vegas - Days Go By (Paul Oakenfold Vocal Remix) (5:32)Жанр: Progressive House, Deep HouseПродолжительность: 00:19:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EE33F70C2AA9848D550C45D1453170AFCA91A13
 ```
 
 https://mybot314.ru/tekegram_catalog/

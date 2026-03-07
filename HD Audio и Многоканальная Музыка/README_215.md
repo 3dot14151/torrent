@@ -1,3 +1,177 @@
+###  Публикация: 1706052   (63180) от 12.03.2024
+
+ВИА «Синяя птица» - От сердца к сердцу (1978) [FLAC 24/192|Lossless|tracks] <Pop, Retro>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_63180.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 сторона.
+01. От сердца к сердцу (В. Лозовой — И. Машбаш, перевод В. Твороговой)
+02. Это ошибка (Я. Френкель — И. Шаферан)
+03. Не обещай меня любить (А. Днепров — В. Харитонов)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:38:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B9C0376F5D25C7D3478792AEC8F4716AB4E6C99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706048   (63173) от 12.03.2024
+
+The Shocking Blue - Golden Hits (1991) [FLAC 24/192|Lossless|tracks] <Classic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_63173.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Venus
+02. Shocking You
+03. Send Me A Postcard
+04. Long & Lonesome RoadЖанр: Classic RockПродолжительность: 00:38:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67C3F7DE59797203D595855C2402E1F08BB0979A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706042   (63162) от 12.03.2024
+
+The Beatles - Magical Mystery Tour, Yellow Submarine (Волшебное таинственное путешествие, Желтая субмарина) (1967, 1969) 1992 [FLAC 24/192|Lossless|tracks] <Classic Rock, Soundtrack>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_63162.jpg" />
+</div>
+
+
+###  Подробнее
+
+Волшебное таинственное путешествие.
+Сторона 1.
+01 - Волшебное таинственное путешествие. (Джон Леннон - Пол МакКартни)
+02 - Дурак на холме. ( Джон Леннон - Пол МакКартни)(   Читать дальше...   )Жанр: Classic Rock, SoundtrackПродолжительность: 00:36:35, 00:39:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96C5536862A076106547220FC45BFBE996D92805
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706308   (63159) от 12.03.2024
+
+VA - А любовь жива (1980) [FLAC 24/192|Lossless|tracks] <Pop, Retro>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_63159.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 сторона.
+01. Кружатся диски (5.18) Д. Тухманов — И. Кохановский
+Валерий Леонтьев
+02. Эти летние дожди (4.10) М. Минков — С. Кирсанов(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:35:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EBC25FE439715ECCCBDF461F3A7B6D610E0486A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1648172   (63055) от 13.03.2024
+
+Black Label Society (Zakk Wylde; Zakk Sabbath) - Studio Albums (17 releases) (1994-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Southern Rock, Groove Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_63055.jpg" />
+</div>
+
+
+###  Подробнее
+
+Black Label Society — сольный проект гитариста Закка Уайлда, известного по своей работе с Оззи Осборном.1999 - Sonic Brew
+2000 - Stronger Than Death
+2002 - 1919 Eternal
+2003 - The Blessed Hellride(   Читать дальше...   )Жанр: Hard Rock, Heavy Metal, Southern Rock, Groove MetalПродолжительность: 17:48:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4AB29AD4F19B22344E0F74F15607E0927936591
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706802   (62971) от 14.03.2024
+
+VA - Песни Давида Тухманова (1979) [FLAC 24/192|Lossless|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_62971.jpg" />
+</div>
+
+
+###  Подробнее
+
+I сторона
+1. Так не должно быть (Л. Дербенев)
+М. Боярский и О. Зарубина
+Вокальный ансамбль(   Читать дальше...   )Жанр: PopПродолжительность: 00:12:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FB6A01139B3F3A95C8EEA49DB337232782F839C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1707639   (62639) от 17.03.2024
 
 Кино - Это не любовь (1985) Remake, 2024, Цой В.Р. (наследники) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
@@ -571,180 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69C024F4716C42DAA660D4396DD7B863641B3088
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603099   (61626) от 27.03.2024
-
-Гран-КуражЪ - Студийные альбомы (13 изданий) (2006-2024) hand made [restored, declipped] [FLAC|16/44.1|tracks +.cue] <Heavy/Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61626.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гран-КуражЪ (с 1999 по 2007 «КуражЪ») — российская хеви-пауэр-метал группа, основанная в 1999 году в городе Бронницы Московской области гитаристом Михаилом Бугаевым. Изначально коллектив не имел широкой известности и выступал исключительно в родном городе. Набирать обороты группа стала в 2004 году, когда образовался так называемый «золотой» состав, сохранявшийся (   Читать дальше...   )2006 - Вечная Игра
-2008 - Новой Надежды Свет
-2012 - Сердца В Атлантиде
-2016 - Жить как никто другойЖанр: Heavy/Power MetalПродолжительность: 07:35:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5BF2149C4B1A82CACB8BE44CF7BDC1AF8FF0F34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711141   (61402) от 29.03.2024
-
-Deep Purple - Machine Head (Super Deluxe) (2024) [FLAC 24/96.0, 48.0, 44.1 kHz|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61402.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1: Machine Head (2024, Remix & Remaster):
-01. Highway Star (2024 Remix) (6:10)
-02. Maybe I'm a Leo (2024 Remix) (4:51)
-03. Pictures of Home (2024 Remix) (5:05)(   Читать дальше...   )Жанр: RockПродолжительность: 03:58:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5934A58F57BC3540433E2AB22754E044F56D9F4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711254   (61393) от 29.03.2024
-
-Sheryl Crow - Evolution (2024) Deluxe [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61393.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alarm Clock
-02. Digging In The Dirt (feat. Peter Gabriel)
-03. Do It Again
-04. Love Life(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:41:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD23D9D51BEC5997D03CDC4D15779CF8DC385E8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711069   (61391) от 29.03.2024
-
-De-Phazz - Pit Sounds (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Nu Jazz, Trip Hop, Lounge>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cherry Golden Waters (feat. Marcus Bartelt)
-02. While the Moon
-03. Afternoon Tune
-04. Jazz with Boom(   Читать дальше...   )Жанр: Nu Jazz, Trip Hop, LoungeПродолжительность: 00:43:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBF7D09FFEB2089D3336AB48D311F7C4C3D924F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619837   (61093) от 01.04.2024
-
-Sum-41 - Studio Albums (9 releases) (2000-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Punk Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61093.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sum 41 — канадская рок-группа из города Эйджакс, Онтарио. Была образована в 1996 году2000 - Half Hour Of Power (EP)
-2001 - All Killer, No Filler
-2002 - Does This Look Infected
-2004 - ChuckЖанр: Punk RockПродолжительность: 07:41:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BAC64F7915A47CE9989B7080A05AD955659E633
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1712205   (61012) от 02.04.2024
-
-Dire Straits - On Every Street (1991) SACD, Remastered, 2024, Mobile Fidelity Sound Lab  [DSD64 2.0|1bit/2822,4kHz|SACD-R] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61012.jpg" />
-</div>
-
-
-###  Подробнее
-
-Взятый из оригинальных мастер-лент и помещенный в мини-упаковку для пластинок, гибридный SACD On Every Street от Mobile Fidelity представляет альбом таким, каким он всегда предназначался для восприятия: в аудиофильском звуке эталонного уровня. Записанный в AIR Studios в Лондоне и спродюсированный лидером Dire Straits Марком Нопфлером, он включает в себя все звуковые (   Читать дальше...   )01. Calling Elvis 6:26
-02. On Every Street 5:01
-03. When It Comes To You 5:00
-04. Fade To Black 3:47(   Читать дальше...   )Жанр: RockПродолжительность: 00:59:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D631088071F9B4D3B555516DC6F3A65A7B3D1237
 ```
 
 https://mybot314.ru/tekegram_catalog/

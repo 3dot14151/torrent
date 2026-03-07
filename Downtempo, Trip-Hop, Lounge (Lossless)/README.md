@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1857021   (1059422) от 03.03.2026
+
+VA - Smooth Vibes Chillout Edition (2026) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1059422.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Wermuth - Urban Agreement (04:16)
+ 02.  Logophilia - Nightline Vibes (04:29)
+ 03.  Quadra Montres - Thoughtshift (04:16)
+ 04.  Uralkauz - In the Fade (04:20)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:23:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71D8488F2678FE569C1FA20B69DA0BD718BB7E44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1856552   (1059103) от 28.02.2026
 
 VA - The Orient Collective: Temple Stories (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
@@ -717,35 +746,6 @@ VA - The Orient Collective: Oasis Dreams (2026) [FLAC|Lossless|WEB-DL|tracks] <W
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21C1EE2AF972D0EB045C00F14FE1460713566075
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848762   (1052855) от 18.01.2026
-
-VA - Relaxing Background Music for Spa & Lounge (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052855.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Klasse XXI - Journey to You (04:16)
- 02 - Elan Vital - Still Horizons (04:22)
- 03 - Azulejo - Urban Drift (04:19)
- 04 - The Foxtrot Effect - Echoes of Dusk (04:19)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:48:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C1E39CF36C88FE26445AC77BBA25092E3B4CD13
 ```
 
 https://mybot314.ru/tekegram_catalog/

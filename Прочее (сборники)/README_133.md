@@ -1,3 +1,206 @@
+###  Публикация: 1261263   (305451) от 10.11.2018
+
+VA - The Official UK Top 40 Singles Chart 09.11.2018 (2018) [MP3|320 Kbps] <Pop, Dance, Other П>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_305451.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ariana Grande - Thank u, next
+02. Lady Gaga & Bradley Cooper - Shallow
+03. Little Mix - Woman Like Me (feat. Nicki Minaj)
+04. Calvin Harris & Sam Smith - Promises(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:16:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28A557DA080D34EC35D6FB2F67A474A28F660C11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261038   (305449) от 10.11.2018
+
+VA - ЕвроХит Топ 40 Europa Plus 09.11.2018 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_305449.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Calvin Harris & Dua Lipa  -  One Kiss
+02.  Imagine Dragons  -  Natural
+03.  Bebe Rexha  -  Self Control
+04.  Dynoro & Gigi D'Agostino  -  In My Mind(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:12:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C31D11653FA56A10201079612985AABAEEC2A112
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1183914   (305137) от 15.11.2017
+
+VA - Старые песни по - новому (2017) [MP3|320 Kbps] <Eurodance, Euro-House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_305137.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  2 Brothers On The 4th Floor - Never Alone (Necola Remix)  3:03
+002.  Ace of Base - Beautiful Life (Scorpio & Scrooge Rework)  3:31
+003.  ATB - 9PM (DJ ZeD Reboot)  3:41
+004.  Scooter - How Much Is The Fish (Yastreb Radio Edit)  3:44(   Читать дальше...   )Жанр: Eurodance, Euro-HouseПродолжительность: 07:50:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F7A75C381A3555879F09471DA05B90D06C80740
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1077831   (305099) от 29.11.2016
+
+VA - All Around: Pump It Up Euro Hits (2016) [MP3|236-320 Kbps] <Hands Up, Electronica, Bigroom, Tropical, Club, Progressive>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_305099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 4Ngus - Dream Bass (Original Mix) 03:30
+02. Dakova Dae - Nibiru (Original Mix) 05:38
+03. Ali Fox - Free (Chris Young Remix) 03:11
+04. Aqeel Ali & Rishabh Feat. Neeti Mohan - Full On 02:41(   Читать дальше...   )Жанр: Hands Up, Electronica, Bigroom, Tropical, Club, ProgressiveПродолжительность: 03:55:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A5B9164E7F39872057B3392F724863B85D775B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261206   (305050) от 10.11.2018
+
+VA - Best Of Classic Music Vol.3 (2018) [MP3|320 Kbps] <Classical>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_305050.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jean-Bernard Pommier - Piano Sonata No. 11 in A major K331-K300i; III. 3:42
+002. Anne-Sophie Mutter & English Chamber Orchestra - Concerto No. 2 in G minor (L'estate- Summer) RV315 (Op. 8 No. 2); III. Presto 2:48
+003. Martin Sieghart & Alfred Brendel Orchestra - Bagatelle For Piano in A Minor 'Fur Elise', WoO 59 2:45
+004. Sir Neville Marriner - Serenade (   Читать дальше...   )Жанр: ClassicalПродолжительность: 06:55:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:774E8272E4969EFFFFD443F799CA13D68A2C9452
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 960829   (304565) от 29.11.2015
+
+VA - Everybody Dance Now!!! (2015) [MP3|320 кб/с]<Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_304565.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Plazma - One Life (RMX) (03:59)
+02. DJ Dean & Brooklyn Bounce - Balla Nation Reborn (Pulsedriver Bounce Mix) (04:34)
+03. Ranger - You (Angel In My Heart) (Extended Maxi Mix) (06:57)
+04. The Klaim ft. Federica - Candy Girl (Tony Costa Remix) (05:46)(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 01:52:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D4CF0E053227A2A7DD4B3B94DD93AE389D33E13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 960965   (304561) от 29.11.2015
+
+VA - Старое по новому (2015) [MP3|320 кб/с]<Pop, Dance, Cover>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_304561.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Storm DJs & Александр Гужов - Без любви (Руки Вверх! Cover) (04:28)
+02. Иванушки International - Реви (FuzzDead Reboot) (05:53)
+03. Леприконсы - Хали Гали (Alexx Slam Rework) (04:54)
+04. Юра Шатунов - Белые розы (DJ Tarantino ReFresh) (05:09)(   Читать дальше...   )Жанр: Pop, Dance, CoverПродолжительность: 01:22:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1178C4E82B725F509855F4F8001268986DFBA82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1261210   (304426) от 10.11.2018
 
 VA - Новинки С Разных Популярных MP3 Сайтов ver.78 (01.11.2018) [MP3|320 Kbps] <Club, Dance, Disco, Pop, Rap, RnB, Rock>
@@ -548,206 +751,6 @@ VA - The Official UK Top 40 Singles Chart 25.10.2019 [MP3|320 Kbps] <Pop, Dance,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0FB5B778BC90FEB163D4129C41A480F9924A91BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961760   (298920) от 02.12.2015
-
-VA - TOP November (2015) [MP3|320 кб/с]<Electronic, Lounge, Chillout, Deep>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298920.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spennu - Something In The Air (Jero Nougues Remix) (06:29)
-02. Flight Facilities - Down To Earth (Youngr Live Mix) (03:37)
-03. Chromatics - Girls Just Wanna Have Fun (03:47)
-04. Kid Francescoli - Blow Up (Plaisir de France Remix) (04:22)(   Читать дальше...   )Жанр: Electronic, Lounge, Chillout, DeepПродолжительность: 01:42:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7FE3A769364D11A2CD8D7C338123F6B5185CEE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333575   (298840) от 27.10.2019
-
-VA - не Громкие новинки недели 40 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298840.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Akim - Не Гадай (3:14)
-2.ANIKV - Ярко (2:41)
-3.Arik - Помни Обо Мне (3:44)
-4.Bezorbit - Что Ты Наделала (3:12)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:45:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:852DD3C2518B55839BF5FB5189A97D27C1565F0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184693   (298774) от 18.11.2017
-
-VA - The Best Of 80's (2014) [MP3|320 Kbps] <Disco, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298774.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  ABBA - Super Trouper  4:14
-02.  K.B.Caps - Do You Really Need Me  7:27
-03.  Pet Shop Boys - Was It Worth It  4:24
-04.  Blue System - My Bed Is Too Big  3:15(   Читать дальше...   )Жанр: Disco, PopПродолжительность: 06:07:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:633C07216AB8298ECFC5D87D98C364DD4DAB73E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333696   (298747) от 27.10.2019
-
-VA - ЕвроХит Топ 40 Europa Plus 25.10.2019 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298747.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shawn Mendes & Camila Cabello - Senorita 3:11
-02. Tones And I - Dance Monkey 3:30
-03. Tiesto & Jonas Blue feat. Rita Ora - Ritual 3:19
-04. C-BooL - Catch You 3:13(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:07:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE56C7F64AE1B5ECFCECA48CE906315332D80C7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961509   (298351) от 02.12.2015
-
-VA - Отличные Песни / Радио 7 на семи холмах (2015) [MP3|256 кб/с]<Рор, Шансон, Alternative>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298351.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Queen - I Want To Break Free (2011 Remaster)
-02. Everything But The Girl - Missing (Todd Terry Remix Blanco _ Eternal Radio
-03. Lionel Richie - Say You, Say Me (Album Version)
-04. Maroon 5 - This Love(   Читать дальше...   )Жанр: Рор, Шансон, AlternativeПродолжительность: 07:44:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBED64957206506094EF649847538672BDADDD01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333705   (298244) от 27.10.2019
-
-VA - Radio DFM Top D-Chart Октябрь 2019 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298244.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shawn Mendes & Camila Cabello - Senorita (Qodes Remix) 3:25
-02. Tones and I - Dance Monkey (Remix) 3:33
-03. C-BooL - Catch You 3:13
-04. SAINt JHN - Roses (Imanbek Remix) 3:58(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:36:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCC3F6E48CDB22F3DCA7A3D52A88B63FEF360D77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423675   (297327) от 14.11.2020
-
-Joel Nielsen - Black Mesa (2012-2019) Soundtracks Collection [MP3|320 Kbps] <Soundtrack>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297327.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ScoreПродолжительность: 01:44:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC6D97E42B16B97EB5A9481C766F699C8F8993A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 245735   (1029247) от 24.02.2021
+
+Orbital - Discography 120 Releases (1989-2019) FFRR, Internal, ACP Recordings [FLAC|Lossless|tracks+.cue, tracks]<Techno, Breakbeat, Leftfield, Electro, House, Ambient>
+
+>>След.
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029247.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beached (feat. Angelo Badalamenti) (06:45)
+ 02. Nothing Left Out (06:05)
+ 03. Doctor? (05:33)
+ 04. The Saint (04:32)(   Читать дальше...   )Тип издания: CD, Web, VinylЖанр: Techno, Breakbeat, Leftfield, Electro, House, Ambient •Продолжительность: 93:19:32 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6B1892F2389285C30E58981D37B1237E6D484AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451317   (1028559) от 01.03.2021
+
+VA - Paerels (2017) Nous'klaer Audio [FLAC|Lossless|WEB-DL|tracks] <Electro, Ambient, Leftfield, IDM, Tech House, Acid>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028559.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. upsammy - Wish I Could Still.. (03:10)
+ 02. Oceanic - Drums (Instrumental) (06:22)
+ 03. Vtothed - Okay (Livecut) (05:39)
+ 04. Melatonin Man - Garrol (07:26)(   Читать дальше...   )Жанр: Electro, Ambient, Leftfield, IDM, Tech House, AcidПродолжительность: 01:20:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01E110516BD33FD93816A524B9A0848F9279E529
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451369   (1028545) от 01.03.2021
+
+E-Talking - Techno Man's Land (2021) Going Good [FLAC|Lossless|tracks+.cue] <Electro, Ambient, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028545.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Open Up Your Psyche (03:24)
+ 02. Insider (03:46)
+ 03. The Vaults (03:11)
+ 04. A Sinuous Dream (03:53)(   Читать дальше...   )Жанр: Electro, Ambient, TechnoПродолжительность: 00:56:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:320095AD71790756998C5A2F242BBCEA0FDB9187
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451316   (1028540) от 01.03.2021
+
+VA - Paerels II (2020) Nous'klaer Audio [FLAC|Lossless|WEB-DL|tracks] <Tech House, Leftfield, Ambient, Electro, IDM, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028540.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mattheis - Prism1 (Tidal Fields Version) (03:53)
+ 02. Ben Buitendijk - Timetraveler (07:28)
+ 03. Koraal - Vuurduin (06:59)
+ 04. Amandra - Falbala (06:53)(   Читать дальше...   )Жанр: Tech House, Leftfield, Ambient, Electro, IDM, TechnoПродолжительность: 01:00:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74F5AEFEB04706EA43535F0E1F7BED8B276C26E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1238334   (1028507) от 01.03.2021
 
 Guy Andrews (iambic, iambic², The Moving Dawn Orchestra) - Discography 20 Releases (2007-2021) [FLAC|Lossless|tracks+.cue, tracks] <Techno, Experimental, IDM, Post Rock, Minimal, Ambient>
@@ -625,122 +741,6 @@ Martin Nonstatic | EskoStatic - Discography 34 Releases (2011-2021) [FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D71CB6B9B89A7F528F2089388EC8837849550F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458647   (1023861) от 29.03.2021
-
-Iiney - Emperor of Will (Remix Version) (2021) Liberty Rhythm [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023861.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chance (Aveorm Dub Flying Remix) (10:14)
- 02. Whiteness (Alex Zender Remix) (13:06)
- 03. Whiteness (R.Hz Remix) (10:05)
- 04. Snow (Specdub Remix) (09:08)(   Читать дальше...   )Жанр: Dub Techno, AmbientПродолжительность: 01:10:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7716D80D7FCBB35A306273CB13BFE0802488783F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458603   (1023822) от 29.03.2021
-
-Lycoriscoris - Chiyu (2021) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Organic House, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023822.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Senkai (5:30)
- 02. Shizumu (3:52)
- 03. Chiyu (4:56)
- 04. Omokage (5:23)(   Читать дальше...   )Жанр: Tech House, Deep House, Organic House, AmbientПродолжительность: 00:51:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6BD2C46F3A877E449D1763E27802999C62E4B24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065091   (1023552) от 30.03.2021
-
-Ellen Allien - Discography 72 Releases (2000-2021) BPitch Control [FLAC|Lossless|tracks+.cue, tracks] <Techno, Electro, Minimal, Experimental, Tech House>
-
->>След.
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023552.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Todd Terje - Snooze 4 Love (05:52)
- 02. Nicolas Jaar - Space Is Only Noise If You Can See (Dave Aju Remix) (03:15)
- 03. Kris Wadsworth - Barefoot (Jozif Remix) (05:41)
- 04. Hot Natured Featuring Ali Love - Forward Motion (feat. Ali Love) (04:43)(   Читать дальше...   )Тип издания: CD, Web, VinylЖанр: Techno, Electro, Minimal, Experimental, Tech House •Продолжительность: 39:12:57 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B2E9672F573C762AB181F89D413BC1088F25C1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459553   (1023165) от 02.04.2021
-
-Zeu5 - Landscape Remixes (2021) ONESUN Yellow [FLAC|Lossless|WEB-DL|tracks] <Techno, Dub Techno, Minimal, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023165.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Landscape (08:22)
- 02. Landscape (R.Hz Remix) (09:05)
- 03. Landscape (Andrey P. Remix) (08:16)
- 04. Landscape (Kirill Torno Remix) (08:57)(   Читать дальше...   )Жанр: Techno, Dub Techno, Minimal, AmbientПродолжительность: 01:36:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F039BFCCC45FE217FFB4564A88E89D15E5D9DCE
 ```
 
 https://mybot314.ru/tekegram_catalog/

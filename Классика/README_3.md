@@ -1,3 +1,38 @@
+###  Публикация: 615037   (977309) от 08.02.2013
+
+Antonio Lucio Vivaldi- The 37 Bassoon Concertos: English Chamber Orchestra Daniel Smith 5CD (1986-1991) /1996, ASV [WavPack (iso.wv)|Lossless]<Chamber>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_977309.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1Жанр: ChamberПродолжительность: 01:10:22
+
+CONCERTO No.7 in A minor (RV497)
+1.	Allegro molto	3.20
+2.	Andante molto	3.08
+3.	Allegro	2.34
+CONCERTO No.8 in F (RV485)
+4.	Allegro non molto	4.04
+5.	Andante	2.39
+6.	Allegro molto	2.32(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1BBE9871DA5286C112C4EB340FBF0BB80354AC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 611441   (977305) от 08.02.2013
 
 Liszt - Complete Tone Poems Vol.1 & Vol.2 (Bernard Haitink & London Philharmonic Orchestra) (1993) 4CD [FLAC|Lossless]<Classical, Romantic Period, Symphony, Tone Poem>
@@ -756,35 +791,6 @@ VA - Новогодняя ночь (2008) Ридерз Дайджест 4CD [MP3
 01. Silent Night
 02. В лесу родилась елочка
 03. Lo, How a Rose E're Blooming(   Читать дальше...   )Жанр: Classical, VocalПродолжительность: 04:30:54
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 154210   (960618) от 25.01.2016
-
-VA - 100 Best Baroque  (2006) 6CD Box-set,  серия "Best 100" [FLAC|Lossless]<Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960618.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот Box-Set из 6 CD представляет собой всесторонний обзор музыки барокко и может служить прекрасным "пособием" для тех, кто хотел бы узнать больше о стиле барокко. Здесь представлены лучшие произведения Баха, Генделя, Пёрселла, Вивальди, Скарлатти, Пахельбеля, Телемана, Боккерини и других композиторов... в исполнении Андрэ Морис, Арлин Оджер, Кристи Вильямс, (   Читать дальше...   )CD 1: ENGLAND AND THE BAROQUE
-CD 2: THE BEST OF ITALIAN BAROQUE
-CD 3: TREASURES OF THE MEDITERRANEAN BAROQUE
-CD 4: THE GLORY OF THE FRENCH BAROQUE(   Читать дальше...   )Жанр: ClassicalПродолжительность: 07:41:11
 
 ## Скачать торент
 ```bash

@@ -1,3 +1,177 @@
+###  Публикация: 1034402   (634132) от 13.07.2016
+
+Mickey Hart - The Best of Mickey Hart: Over the Edge and Back (2002) [DTS 5.1 CD-DA|44.1/16|image+cue|DVD-Audio] <Electronic, Worldbeat, Fusion>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_634132.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Angola 04:50
+2. Where Love Goes 07:34
+3. Down the Road 05:25
+4. Sweet Sixteen 08:05(   Читать дальше...   )Жанр: electronicПродолжительность: 00:47:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3D724F3FBFE71B008A608526D3D1244099F560C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228835   (633541) от 02.06.2018
+
+Henry Mancini - The Return of the Pink Panther & Symphonic Soul (2017) 1975 [DTS 4.0 CD-Audio|44.1/16|image+.cue|SACD] <Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633541.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Return of the Pink Panther
+
+01. The Pink Panther Theme (Mancini) Soloist: Tony Coe (Tenor Sax)    [0:03:06.06]
+02. The Greatest Gift (Mancini; David) Instrumental Version    [0:02:20.69](   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 01:10:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E920CC869DD5F3028EDFA61E469B633DC14488B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1543215   (631375) от 10.04.2022
+
+Аида Ведищева и Ансамбль п/у В. Людвиковского - Александр Зацепин – Музыка Из Кинофильма «Кавказская Пленница» (1967) [FLAC 1.0|96/24|image+.cue|Vinyl-Rip] <Soundtrack, Theme, Score>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_631375.jpg" />
+</div>
+
+
+###  Подробнее
+
+А1 Аида Ведищева – Песенка О Медведях
+А2 Ансамбль под упр. В. Людвиковского – Дорога
+В1 Ансамбль под упр. В. Людвиковского – Встреча
+В2 Ансамбль под упр. В. Людвиковского – На Танцевальной Площадке(   Читать дальше...   )Жанр: Soundtrack, Theme, ScoreПродолжительность: 00:10:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8CF10AA50B300402F89823344E282237B761DDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1543465   (629373) от 11.04.2022
+
+Муслим Магомаев - Сумерки Зеленые/Прощай, Любовь Моя (1983) [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629373.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сумерки Зеленые
+(А. Мажуков - Е. Митасов)
+02. Прощай, Любовь Моя
+(А. Мажуков - О. Шамхалов, перевод Н. Горохова)(   Читать дальше...   )Жанр: PopПродолжительность: 00:10:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C85997CC5FC2605B8D46AABA8C767540C76C0B98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143821   (629152) от 21.06.2017
+
+Dire Straits - ExtendeDancEPlay (1982) [FLAC 2.0|192/24|tracks|Vinyl-Rip] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629152.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Twisting by the Pool (3:30)
+02. Badges, Posters, Stickers, T-Shirts (4:54)
+03. Two Young Lovers (3:23)
+04. If I Had You (4:16)Жанр: RockПродолжительность: 00:16:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63EC11C1F8317AB11F08FBF560769CCFDCF4CD8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 802489   (628788) от 05.07.2014
+
+The Who - Face Dances (1981)  [FLAC 2.0 24/192|image (Vinyl-Rip)]<Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628788.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. You Better You Bet (5:38)
+A2. Don't Let Go The Coat (3:43)
+A3. Cashe Cashe (3:56)
+A4. The Quiet One (3:09)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:38:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D4BBB4A420ABA0305F29469CA3488B47FDC7C5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 887298   (627585) от 12.04.2022
 
 Acker Bilk - Klarinet (1980) [FLAC 2.0 (image+.cue)|Vinyl-rip (24/96)]<Pop>
@@ -568,176 +742,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30CD32FFA936B8A847263D598351BB8C2FC54A7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033055   (620588) от 20.07.2016
-
-Jethro Tull - Aqualung (1971) 2 ADVD, 40th Anniversary Adapted Edition, 2016 [PCM 2.0| DTS 5.1, AC3] <Progressive rock, Folk rock, Hard rock>
-
->>HD Audio и Многоканальная Музыка
->>Blu-ray Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620588.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lick Your Fingers Clean (2:49)
- 02. Just Trying To Be (1:38)
- 03. My God (Early Version) (9:43)
- 04. Wond'ring Aloud (13th  December 1970) (1:52)(   Читать дальше...   )Жанр: Progressive rock, Folk rock, Hard rock
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA56A7C0695D00E7E28FCDA0C50C559ED7C56366
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205059   (620346) от 12.04.2019
-
-Queen - Hot Space (1982) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620346.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Staying Power (4:13)
-02. Dancer (3:48)
-03. Back Chat (4:36)
-04. Body Language (4:32)(   Читать дальше...   )Производство: EMI Records - EMA 797Жанр: RockПродолжительность: 00:43:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD7841371A88F4E0F2E1E81CD4B2F373FF0B96D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072817   (620203) от 16.04.2022
-
-Джаз-квинтет п/у Я. Валясека - Импровизированный джаз (1955) Shellac-78rpm [FLAC 1.0|96/24|tracks|Vinyl-Rip] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620203.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Чай Вдвоём, фокстрот
-02. Знаю одно средство, фокстротЖанр: JazzПродолжительность: 00:06:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D336984AC1CB96C0F77ACC92BDF252DE8FDFFD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071518   (620201) от 16.04.2022
-
-Концертный Ансамбль п/у Фердинанда Криша - Записи 1941 года (1951) Repress [FLAC 1.0|96/24|tracks|Vinyl-Rip] <Latin, Tango, Retro>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620201.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Танго соловья, солист Таиса Савва (художественный свист)
-02. Романтическое тангоЖанр: Latin, Tango, RetroПродолжительность: 00:06:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F9E024105677E772DF14B445D007991E7D08F09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059522   (620053) от 16.04.2022
-
-Roxy Music - Flesh + Blood (1980) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip]  <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620053.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 In The Midnight Hour
-A2 Oh Yeah
-A3 Same Old Scene
-A4 Flesh And Blood(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:42:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B83BAB6E66B9436BADA4446EFB99F23D9659D80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 846687   (620042) от 16.04.2022
-
-Николай Басков - Посвящение... (2000) [FLAC|Lossless]<Pop, Classical>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620042.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1	Памяти Карузо
-A2	Гранада
-A3	О, Натали...
-A4	История Любви(   Читать дальше...   )Жанр: Pop, ClassicalПродолжительность: 00:43:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1E65B9B856742027C7E9D86F3727932BD599739
 ```
 
 https://mybot314.ru/tekegram_catalog/

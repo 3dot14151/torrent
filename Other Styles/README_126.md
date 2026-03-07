@@ -1,3 +1,32 @@
+###  Публикация: 1257826   (343293) от 27.10.2018
+
+Trobar De Morte - Legends Of Blood And Light (2008) Reissue, 2016 [FLAC|Lossless|tracks + .cue] <Modern Classical, Medieval, Neofolk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_343293.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Return (5:00)
+ 02. Talisman (4:11)
+ 03. Morrigan (4:36)
+ 04. In Nomine Filius Mortis (4:42)(   Читать дальше...   )Жанр: Modern Classical, Medieval, NeofolkПродолжительность: 00:57:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CD8297D5F7C5AA12C2C198344957CE718F0BD14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1257540   (343133) от 27.10.2018
 
 Atom Music Audio - Underworld (2018) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
@@ -719,35 +748,6 @@ Horizon Twilight (2017)Жанр: Soundtrack, Epic Trailer Music, ScoreПродо
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:52C9D91E742C46A44E33AF98BD5FD762527C2D58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258160   (338514) от 29.10.2018
-
-Really Slow Motion & Instrumental Core - Existentia (2018) [MP3|320 Kbps] <Soundtrack, Instrumental, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338514.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Existentia [04:20]
-02. Mechanical Heart [05:13]
-03. Eden [03:59]
-04. Roots [03:20](   Читать дальше...   )Жанр: Soundtrack, Instrumental, ScoreПродолжительность: 01:07:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:256BD3C0889C5D8FFAE6AF581A6B4CD69AE828BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

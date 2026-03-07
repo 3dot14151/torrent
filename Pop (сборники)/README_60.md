@@ -1,3 +1,61 @@
+###  Публикация: 1296617   (610123) от 18.04.2019
+
+Spice Girls - The Best (2019) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_610123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wannabe
+02. Viva Forever
+03. Let Love Lead The Way
+04. Right Back At Ya(   Читать дальше...   )Жанр: PopПродолжительность: 01:13:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62C4729D6BB3C17EC4E68029E7CCB2E28F0E1368
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1147229   (609176) от 02.07.2017
+
+VA - German Top 100 Single Charts 30.06.2017 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_609176.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Luis Fonsi – Despacito (feat. Daddy Yankee)
+002. Robin Schulz – OK (feat. James Blunt)
+003. Imagine Dragons – Thunder
+004. DJ Khaled – Wild Thoughts (feat. Rihanna Bryson Tiller)(   Читать дальше...   )Жанр: PopПродолжительность: 05:54:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0333BE904B673B31F30FCE8C8C53B78CC8D3B4B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 912889   (608677) от 27.06.2015
 
 VA - Дискотека забытых хитов (зарубежная) - 13 (2015) [MP3|246 - 269 кб/с]<Pop, Disco>
@@ -699,64 +757,6 @@ VA - Лето Безлимит: Русский Популярный Микс (20
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C0580B598524305E765469DDDFD02018420DAB06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299177   (600030) от 01.05.2019
-
-VA - German Top 100 Single Charts 06.05.2019 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600030.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lil Nas X - Old Town Road 01:53
-02. Capital Bra - Rolex (feat. Summer Cem & KC Rebell ) 03:56
-03. Rammstein - Deutschland 05:22
-04. Capital Bra - Cherry Lady 02:15(   Читать дальше...   )Жанр: PopПродолжительность: 05:16:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EE8CB9C05300B82DAB842E9CDE2577F371298AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039188   (598072) от 31.07.2016
-
-Another Cynthia - Collection (2006 - 2009) [MP3|256 Kbps] <Indie Pop Rock, Synth Pop, Electronic Rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598072.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Little Love
-02. Donkey Kong
-03. One Way Out
-04. Whore(   Читать дальше...   )Жанр: Indie Pop Rock, Synth Pop, Electronic RockПродолжительность: 01:39:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FF0CEEB124785B66CD0FF3184B9806B2B32694A
 ```
 
 https://mybot314.ru/tekegram_catalog/

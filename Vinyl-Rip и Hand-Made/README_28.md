@@ -1,3 +1,174 @@
+###  Публикация: 935045   (500208) от 07.09.2015
+
+Kiss - Dynasty (1979) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Glam Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_500208.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. I Was Made For Lovin' You (4:31)
+A2. 2,000 Man (4:54)
+A3. Sure Know Something (4:01)
+A4. Dirty Livin' (4:19)(   Читать дальше...   )Производство: Casablanca Records / Victor MusicalЖанр: Glam RockПродолжительность: 00:38:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD6B8E15EEBBB4778040C7F6550D6E4867E9DF60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 235001   (498480) от 11.09.2010
+
+Pink Floyd - The Wall. 1979. (LPCM, 96 kHz, 24 bit, stereo) [Audio-DVD from Vinyl Rip]
+
+>>След.
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_498480.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот Audio-DVD (музыкальный DVD-Video) диск был сделан мною на основе материала, предоставленного уважаемым Dr. Robert. Этот человек известен своим тщательнейшим отношением к звуку, да и техника, использованная им при риппинге, заслуживает глубочайшего уважения. Формат DVD-Video был выбран мною для авторинга из-за несомненных удобств, предоставляемых им: возможности (   Читать дальше...   )Жанр: Rock, какого не было
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 820471   (496444) от 10.09.2014
+
+Foreigner - 4 (1981) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_496444.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Night Life (3:51)
+A2. Juke Box Hero (4:20)
+A3. Break it Up (4:14)
+A4. Waiting for a Girl Like You (4:52)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AADACB392DFD3487C52CE9E329BE6620AA9574C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 935944   (496384) от 11.09.2015
+
+Rey Dorset & Mungo Jerry - Golden Orpheus Festival Live (1978) [FLAC 2.0 24/96|image+.cue (Vinyl Rip)]<Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_496384.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1	Всичко Се Люлее (Everything Swing)
+A2	Лейди Роуз (Lady Rose)
+A3	Жената, Облечена В Черно (The Woman Dressed In Black)
+A4	Блус За Залива Сан Франциско (A Blues For The San Francisco Bay)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:40:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FFEF3FB9080A47E408374A3E2A816C4A9DBF525
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243001   (495893) от 25.08.2018
+
+Yes - Magnification (2001) [FLAC 2.0|96/24|tracks|DVD-Audio] <Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_495893.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Magnification
+02 - Spirit Of Survival
+03 - Don't Go
+04 - Give Love Each Day(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:12:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5459338B71F0F2A4AE869C225A963C18337E41A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1157784   (495428) от 14.08.2017
+
+VA - Мельница - Песни Игоря Николаева (1987) [DSD2.0|5,64MHz/1bit|image+.cue|Vinyl-Rip] <Pop, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_495428.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Игорь Николаев - Незнакомка (04:18)
+02. Александр Кальянов - Старый друг (06:56)
+03. Алла Пугачева - Любимчик Пашка (03:20)
+04. Игорь Скляр - Понедельник (02:54)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:35:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7CB922EAE8B71F9F5347E5FD3A4BCB4E23CB8AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1404264   (494936) от 24.08.2020
 
 Rainbow - On Stage (1977) 2LP [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Hard Rock>
@@ -571,180 +742,6 @@ A4. Highway For Fools (3:14)(   Читать дальше...   )Производ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B04EFF9E43E8745087B9197BBE12DCA581528BA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 823783   (473389) от 21.09.2014
-
-The Cars - Heartbeat City (1984)  [FLAC 2.0 24/96|image (Vinyl-Rip)]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473389.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Hello Again (3:46)
-A2. Looking For Love (3:52)
-A3. Magic (3:57)
-A4. Drive (3:54)(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10474A267B5E17CB39D435849E7E70C776752E93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939680   (473210) от 22.09.2015
-
-Marie Laforet - Viens, Viens (1973) [FLAC 2.0 24/96|image+.cue (Vinyl Rip)]<Pop/Chanson>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473210.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Viens, Viens
-Written-By – H.R. Barnes, R. Bernet, Sven-Linus
-02.	Arlequin
-Written-By – D. Gerard, H.R. Barnes, R. BernetЖанр: Pop/ChansonПродолжительность: 00:07:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AEE0E8208925C43244D34F399E72D0F17804CC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939749   (473093) от 22.09.2015
-
-David Gilmour - Rattle That Lock (2015) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]<Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473093.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. 5 A.M (3:04)
-A2. Rattle That Lock (4:56)
-A3. Faces Of Stones (5:32)
-A4. A Boat Lies Waiting (4:34)(   Читать дальше...   )Производство: Columbia RecordsЖанр: Progressive RockПродолжительность: 00:49:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2BDE3AB596AA4C8412E5D38A8415926E557351D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567593   (472248) от 03.08.2022
-
-Thunderstone - Studio Albums (2002 - 2016) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472248.jpg" />
-</div>
-
-
-###  Подробнее
-
-Thunderstone — финская англоязычная пауэр-метал-группа, образованная в 2000 году в Хельсинки гитаристом Нино Лауренне.2002 - Thunderstone
-2004 - The Burning
-2005 - Tools of Destruction
-2007 - Evolution 4.0Жанр: Power MetalПродолжительность: 05:35:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BFC7CA10275ED994DED6D706FF5CB9928819E4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320246   (470791) от 18.08.2019
-
-Walter Trout - Survivor Blues (2019) [FLAC 2.0|192/24|tracks|Vinyl-Rip] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470791.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Me, My Guitar And The Blues[7:02]
- 02 - Be Careful How You Vote[3:56]
- 03 - Woman Don't Lie[5:27]
- 04 - Sadie[4:45](   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:05:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CE2E97977248B4A73A38A5F2ED7A72A00288B53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 702389   (469994) от 21.09.2013
-
-Хвост & Аукцыон - Чайник вина (1992) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Рок / Авангард>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469994.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Орландина (4:20)
-A2. И ночь и день (2:11)
-A3. Тайна (3:01)
-A4. Слепой (1:57)(   Читать дальше...   )Жанр: Рок / АвангардПродолжительность: 00:39:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:506E6A04F5BB2BBB92AFF19BB721F51E5BE209C0
 ```
 
 https://mybot314.ru/tekegram_catalog/

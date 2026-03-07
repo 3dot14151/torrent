@@ -1,3 +1,287 @@
+###  Публикация: 1110556   (852078) от 03.03.2017
+
+VA - Весна пришла. Лучшие хиты. Сборник № 10 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_852078.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Прогульщики - We Are Young 4:03
+002. Volkonsky - Нежная 4:03
+003. Ринат Каримов - Расскажи 4:04
+004. Kvazar - Независима 3:30(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D88C0656137F86488D18EDE66B267F00BD38A1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001527   (852044) от 29.03.2016
+
+VA - Instrumental Covers (Chillout, Lounge, Nu Jazz, Bossa Versions of Pupolar Hits) (2016) [MP3|320 кб/с] <Nu Jazz, Lounge, Bossa Nova, Easy Listening>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_852044.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. St Project - Clocks (03:07)
+02. Gazzara - Wave (04:09)
+03. St Project - Wake up Everybody (03:09)
+04. The Sniffers - Dune Buggy (02:54)(   Читать дальше...   )Жанр: Nu Jazz, Lounge, Bossa Nova, Easy ListeningПродолжительность: 01:57:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AC092670EA5D180A3B0D80B0D9CE95B11DB5E90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001342   (851924) от 29.03.2016
+
+AC/DC - Bedlam In Belgium (2016) EP [MP3|320 кб/с] <Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_851924.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Shake Your Foundations
+02 – The Furor
+03 – Danger
+04 – Burnin’ Alive(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:34:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95D2D4BFB1D18D4D731D2A36F19A2375ABC1002D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110375   (851912) от 03.03.2017
+
+Buddy Guy - 30 most slow Blues (2017) 2CD [MP3|320 Kbps] <Blues, Chicago Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_851912.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heavy Love
+02. I Smell A Rat
+03. Now You're Gone
+04. First Time I Met The Blues(   Читать дальше...   )Жанр: Blues, Chicago BluesПродолжительность: 05:14:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4F8E6D9FF12A92043B0FB7CA4FC0406343867A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110590   (851838) от 03.03.2017
+
+Eric Clapton - 30 most slow Blues (2017) 2CD [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_851838.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Father's Eyes
+02. Still Got The Blues
+03. See What Love Can Do
+04. Worried Life Blues(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 04:43:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:545FF43D4F81EC5A4F196DF3249C1241D6AF0630
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110655   (851772) от 03.03.2017
+
+Михаил Шуфутинский - Ресторанный хит (2016) [MP3|320 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_851772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Наколочка
+02. Марджанджа
+03. Незаконченный роман
+04. Левый берег Дона(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:19:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:195E5E74AD1255BBA8AFB6B4A85E2FD57A359C9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 378639   (851753) от 03.03.2017
+
+VA - Arabic Music {2011} [MP3|160 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_851753.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 10:41:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D604518412589175E54A797585CC5F5B4162F53C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376727   (851739) от 22.04.2020
+
+VA - Great Artists of My Heart Vol. 02 (2020) [MP3|320 кб/с]<Modern Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_851739.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Great Artists of My Heart" это спин-офф сборника01. The Unguided - Inherit The Earth (04:47)
+02. The Unguided - Inception (03:51)
+03. The Unguided - Enraged (04:23)
+04. The Unguided - Death's Sting (03:49)(   Читать дальше...   )Жанр: Modern MetalПродолжительность: 08:34:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D624758DE2F2EF605C6DC800637B2515ECA1F0CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377643   (851637) от 22.04.2020
+
+VA - Hard Rock Ballads (2020) [MP3|320 Kbps] <Rock, Ballads>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_851637.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bon Jovi - Never Say Goodbye 4:49
+02. Guns N' Roses - Don't Cry (Original) 4:45
+03. Whitesnake - Is This Love (2017 Remaster) 4:45
+04. Def Leppard - Hysteria 5:55(   Читать дальше...   )Жанр: Rock, BalladsПродолжительность: 03:58:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCA73C0E69D84804C13F4E15085049B5150EBD51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377587   (851634) от 22.04.2020
+
+Motley Crue - 100% Motley Crue (2020) [MP3|320 Kbps] <Rock, Hard Rock, Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_851634.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Dirt (Est. 1981)Жанр: Rock, Hard Rock, MetalПродолжительность: 03:22:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB191FCA402841DDDF5660F8225CFC5B1A50E10E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1377546   (851632) от 22.04.2020
 
 Twisted Sister - 100% Twisted Sister (2020) [MP3|320 Kbps] <Rock, Glam Rock, Hard Rock>
@@ -457,297 +741,6 @@ B.B. King - 30 most slow Blues (2017) 2CD [MP3|320 Kbps] <Blues, Chicago Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9AAAE0365C7F4EC88BA6143683E93FBC4B9C36D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377878   (850096) от 23.04.2020
-
-VA - Beatport Club Techno: Sound Pack #67 (2020) [MP3|320 Kbps] <Tech House, Techno, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850096.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Firelite & Game - Wild & Free
-002. Prisma Storm - Bright Light
-003. Matthias Saihttam - Pain (Original Mix)
-004. Jose Ayen - Gramsci (Original Mix)(   Читать дальше...   )Жанр: Tech House, Techno, Club, DanceПродолжительность: 11:48:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C2CCBDD1164A56023F7AD2799103D4E93D5905B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377728   (850082) от 23.04.2020
-
-VA - Perfect Riddim: April Reggae Party (2020) [MP3|320 Kbps] <Reggae, Dancehall>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850082.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rdx - Pro Box
-002. Tommy G feat. Berbbie - Roll Up
-003. King Daddy Yod - Faut Pas Taper La Doudou
-004. East Coast Family - Pression(   Читать дальше...   )Жанр: Reggae, DancehallПродолжительность: 08:38:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B294E252206AE4CA30EEE162A8784BD6232ECEB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377732   (850003) от 23.04.2020
-
-VA - Vocal Chillout Exquisite Style (2020) [MP3|320 Kbps] <Chillout, Vocal, Relax>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850003.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Buddha Chillout - Take A Chill Pill
-002. Thomas Méreur - For Centuries
-003. The Black Queen - Porcelain Veins
-004. Concorde - 8 Pm(   Читать дальше...   )Жанр: Chillout, Vocal, RelaxПродолжительность: 08:35:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:410E0050DE1D15205B66D4BA7ED71CF3B4EAC435
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377729   (849999) от 23.04.2020
-
-VA - Popular Euro Song Vol.02 (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849999.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bukahara - Canaries In A Coal Mine
-002. Yoo San Seul - Bus Stop Of Farewell
-003. Taurus - Callin' You
-004. Desi Valentine - Altar(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 10:08:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EE4DFDA0267DFE4DBF83C662BA33F6208EB3D65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002073   (849932) от 30.03.2016
-
-Ленинград - Новинки (2016) [MP3|192 - 320 кб/с ] <Rock, Ska>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849932.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Экспонат
-02. Самая любимая
-03. ЗОЖ
-04. Плачу(   Читать дальше...   )Жанр: Rock, SkaПродолжительность: 01:02:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:783872455387AB898ADBC613B75854136ECC3EDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377726   (849903) от 23.04.2020
-
-VA - Beatport Trance: Electro Sound Pack #68 (2020) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849903.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Shivalayam - Mille Plateaux
-002. Luna Park - Gemini
-003. Kojun - Astral (Original Mix)
-004. Matthias Bishop - Tribute To Cyril Ryaz(   Читать дальше...   )Жанр: TranceПродолжительность: 09:09:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99236000663EE4A661BFEDE1EE5D1EDC53AD16C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377770   (849576) от 23.04.2020
-
-Marilyn Manson - 100% Marilyn Manson (2020) 2CD [MP3|320 Kbps] <Rock, Industrial>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849576.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet Dreams (Are Made Of This) (Album Version)
-02. The Beautiful People (Album Version)
-03. KILL4ME
-04. Tainted Love(   Читать дальше...   )Жанр: Rock, IndustrialПродолжительность: 07:04:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B4A27913CFED92A573617CF34206661BA6AFAF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498589   (849527) от 01.10.2021
-
-VA - Cores vs. Mandala vs. Code vs. Nuclear Hyde vs. Nostrum (2021) mixed by aQuaLuna [MP3|320 Kbps] <Trance, Hard Trance, Acid>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849527.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Commander Tom - Round My Brain (100 BPM Symphony) [1997]
-02. Commander Tom - Destination - Chicago (Original Mix) [2002]
-03. Commander Tom - The Cow (Original Mix) [1999]
-04. Mirage - Syrus (Original Mix) [1998](   Читать дальше...   )Жанр: Trance, Hard TranceПродолжительность: 05:01:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08FFD90E77253702DF3EEB038E3E0FDB3E12677F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 876575   (849257) от 11.03.2015
-
-VA - 50 Оттенков Шторма (2015) [MP3|128 кб/с]<Chillout, Chillstep, Downtempo, Acoustic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849257.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lifehouse - Storm
-02. LuQus feat. Magdalena Wolk - Cinders
-03. Movement - Us
-04. Holobody - Fantasy (Mariah Carey Cover)(   Читать дальше...   )Жанр: Chillout, Chillstep, Downtempo, AcousticПродолжительность: 01:40:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6802934FD796E41B284D44FCE1EDC484D4F90CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 877249   (849160) от 11.03.2015
-
-VA - Billboard Top 25 Hot Rock Songs (14-03-2015) [MP3|320 кб/с]<Pop, Dance, Rock, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849160.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал Billboard опубликовал  новые чаты за 14 марта 2015 года, из которых представляю Вашему вниманию Top 25 Hot Rock Songs - официальный хит-парад США в котором участвуют песни рок-мейнстрима и альтернативного рока.
-Топ создается в соответствии с ранжированнием в радиоэфире во всех форматах, а также на основе данных о продажах и потоковом воспроизведении треков. (   Читать дальше...   )01. Hozier - Take Me to Church  (4:03)
-02. Fall Out Boy - Centuries  (3:52)
-03. Vance Joy - Riptide  (3:20)
-04. WALK THE MOON - Shut Up and Dance  (3:19)(   Читать дальше...   )Жанр: Pop, Dance, Rock, OtherПродолжительность: 01:34:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E90CAA2C89A9A3283626619E29EE201BAF95561D
 ```
 
 https://mybot314.ru/tekegram_catalog/

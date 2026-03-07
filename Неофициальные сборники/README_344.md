@@ -1,3 +1,273 @@
+###  Публикация: 359627   (581153) от 07.07.2011
+
+VA - Русская Ночная Супердискотека №4 (2011) [MP3|256 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_581153.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 06:00:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4246190E8B3A5CDFE17B9F26C73145402AE089F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 359460   (581152) от 07.07.2011
+
+VA - Загорелое Лето (2011) [MP3|256 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_581152.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 06:25:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:079C7E8EC275082A6F153A607AFAE38700A532CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 359843   (581150) от 07.07.2011
+
+VA - Взорви танцпол 4 (2011) [MP3|256 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_581150.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 05:42:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3F7D1BE54E472B3B8C70541158E2FA027ABE79E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 920249   (581112) от 21.07.2015
+
+VA - Trance Desire Volume 51 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_581112.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 5ugar & Eva Kade - All Around (Original Mix) (08:16)
+02. Alex M.O.R.P.H. feat. Natalie Gioia - The Reason (Extended Mix) (07:41)
+03. Audiocells & Eskova - Breathing (Original Mix) (07:41)
+04. Colonial One feat. Eva Kade - Where You Are (Original Mix) (08:17)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:08:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77E664CCA477D6B04B2F2B9655DC041223FD1A15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 360344   (581104) от 07.07.2011
+
+VA - In Da Club Vol.53 (07.07.2011) [MP3|320 kbps]<Vocal Trance, Uplifting Trance, Dream Trance, Trance, Classic Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_581104.jpg" />
+</div>
+
+
+###  Подробнее
+
+VA - In Da Club Vol.53 (07.07.2011)
+Год: 07.07.2011
+Жанр: Vocal Trance, Uplifting Trance, Dream Trance, Trance, Classic Trance
+Продолжительность: 01:43:46Кодек: MP3
+Битрейт: 320 kbps
+Тип битрейта: CBRТрек лист:
+001. Steve Anderson feat. Pippa - Always More (Extended)
+002. Andy Duguid feat. Lea - Miracle Moments (Original Mix)(   Читать дальше...)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56B1A0270E0A240A75321B9D2DE439D2BE4A1E77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 360191   (581094) от 07.07.2011
+
+VA - Летний прикид! Русский (2011) [MP3|256 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_581094.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 06:01:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06E67895D727207C155239C47484C794427F1E9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 359882   (581090) от 07.07.2011
+
+VA - Песня Года Vol.2 (2011) [MP3|128 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_581090.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 11:48:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5311714253693D748CCD62F8ABDB75E91B24952D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 360019   (581087) от 07.07.2011
+
+VA - Шансон: избранное (2011) [MP3|128 kbps]<Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_581087.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ШансонПродолжительность: 12:21:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8762AADE3BCAE774A2E3C672E2A91A1B944E8ACF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 359473   (581033) от 07.07.2011
+
+VA - 200-ка Master Hit Europa Plus 50/50 (2011) [MP3|128 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_581033.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 12:20:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6945B37C4ECD104F2DC0FA9FC30504AB51B4EAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 359344   (580960) от 07.07.2011
+
+VA - Музыкальная энергия пиратских станций (2011) [MP3|128 kbps]<Pop,Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_580960.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop,DanceПродолжительность: 12:32:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46E9D2105063BD8320AAE6AF99815AB15DFC66C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 920233   (580914) от 21.07.2015
 
 VA - Car Audio. Атмосфера таинственных 80-ых. (Sound Clinic - Special Edition) (2015) [MP3|320 кб/с]<Synthwave, New Wave, Dreamwave>
@@ -443,296 +713,6 @@ VA - Drum & Bass - Gold Collection (2016) [MP3|320 Kbps] <Drill and Bass, Liquid
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:379C18C832ACE7CF46539CBA423BCE3200DD682E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042052   (580422) от 11.08.2016
-
-VA - I Like An Indian (Indian Heart) (2016) [MP3|256-320 Kbps] <Native american, Ethnic, Folk>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580422.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gerry Freeman - The long Ride
-02. Ecuador Manta - Wayramanta
-03. Medwyn Goodall - Blue Jay
-04. Alborada del Inka - Five Spirith (Ivan Rafo)(   Читать дальше...   )Жанр: Native american, Ethnic, FolkПродолжительность: 04:48:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB9FFCA9DF17394CB4EB28DCC48200704526C7F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302417   (580317) от 16.05.2019
-
-VA - Options Remake Of Tracks May -A- (2019) [MP3|320 Kbps] <House, Progressive, Tropical>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580317.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Mana Ft. Jessica Ess - Panic
-02. Druce & Hidden Tigress - I Need Your Love
-03. Alexey Union - Mgla
-04. Matteo Monero - Embracing The Fear (Original Mix)(   Читать дальше...   )Жанр: House, Progressive, TropicalПродолжительность: 06:06:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:426117EDEDDCEE98905C8A1038AF8107363699FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302340   (580316) от 16.05.2019
-
-VA - Epic Trance (2019) [MP3|320 Kbps] <Trance, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580316.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jimmy Chou - Nevermore
-002. Michael Milov - Follow The Light
-003. Nrgmind - Trip To Infinity
-004. Nevro - First One(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 10:15:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56BC5521F7483D9FA599D8D1E9B4905115980810
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302510   (580260) от 16.05.2019
-
-VA - Guitar And Soul (2019) [MP3|320 Kbps] <Lyric, Guitar, Pop, Soul>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580260.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tommy Sands - Where Have All The Flowers Gone
-02. John Stewart - Bay Of Mexico
-03. Kim & Reggie Harris - Wade In The Water
-04. Danny Glover - Keep Your Lamps Trimmed And Burning(   Читать дальше...   )Жанр: Lyric, Guitar, Pop, SoulПродолжительность: 03 :30 :22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:711D22302D9C93C61F7A1BA29EDE84E2CF9F2FEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302519   (580258) от 16.05.2019
-
-VA - Records That You Play (2019) [MP3|320 Kbps] <Pop Dance, Electro Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580258.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Feel Ikx - E.D.P.
-002. Cooki - I Love You (Radio Edit)
-003. Wilson Netto - Flute
-004. Greazy Puzz - Broccoli(   Читать дальше...   )Жанр: Pop Dance, Electro DanceПродолжительность: 09:57:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FC0999763A643AD2CF196B07D5AA8DF1008661C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302672   (580247) от 16.05.2019
-
-VA - не Громкие новинки недели 15 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580247.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.5sta Family - Плечи (Lavrushkin & Max Roven Remix) (2:42)
-2.Aize - В Невесомости (3:20)
-3.Alesta - Темнота (3:59)
-4.AMCHI - Медленно (2:46)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:47:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F0AC74FDE71B6BD2055F2EB68D2CCD3D9068F3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302521   (580166) от 16.05.2019
-
-VA - Classic Rock Giganten (2019) [MP3|320 Kbps] <Classic Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580166.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Queen - We Will Rock You
-002. Toto - Africa
-003. Sum 41 - In Too Deep
-004. Third Eye Blind - Charmed Life(   Читать дальше...   )Жанр: Classic Rock, AlternativeПродолжительность: 09:08:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E198986C130DE532833FB8B9D124FBBA3ABFD91E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553723   (580016) от 28.05.2022
-
-VA - Armada Club Rising (2022) [MP3|320 Kbps] <House, Trance, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580016.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anyma - Running (feat. Meg Myers) (6:25)
-02. DJ Oyster - Citrus (Gerd Janson Mix) (5:59)
-03. Borgore - Shadows (4:44)
-04. Eelke Kleijn - Electric Eel (4:42)(   Читать дальше...   )Жанр: House, Trance, DanceПродолжительность: 04:26:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6176B8E2F817EDB04F752E85A690760AFCEF3369
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553747   (580015) от 28.05.2022
-
-VA - Armada Music: New Dance Now (2022) [MP3|320 Kbps] <House, Trance, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580015.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chicane - Sunstroke (Disco Citizens Evolution Mix) (3:12)
-02. MUNTII - Matter Of Time (2:50)
-03. Signum - Beyond This Earth (Richard Durand Remix) (4:18)
-04. Bond - Focus (4:31)(   Читать дальше...   )Жанр: House, Trance, DanceПродолжительность: 03:13:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0D8571E6ED3D44E2CB9DD7CD7E736CEEEFB1433
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920287   (580005) от 22.07.2015
-
-VA - Дискотека 2015 Deep House - The Best (2015) [MP3|320 кб/с]<Deep, Progressive House, NuDisco, Indie Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580005.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ZHU - Faded (Original Mix)
- 02. Feder feat. Lyse - Goodbye (Maxim Kurtys Remix) (DEEP ONE radio edit)
- 03. Kadebostany - Castle In The Snow (Ivan Spell Radio Mix)
- 04. Charming Horses feat. Emma Carn - You And I (Original Mix)(   Читать дальше...   )Жанр: Deep, Progressive House, NuDisco, Indie DanceПродолжительность: 15:20:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40D99FEE1BFFA3AC01307789058BA316FEB23B35
 ```
 
 https://mybot314.ru/tekegram_catalog/

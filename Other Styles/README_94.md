@@ -1,3 +1,32 @@
+###  Публикация: 1237750   (550552) от 25.07.2018
+
+Nigel Stanford (John Stanford) - Discography (1999-2017) [MP3|320 Kbps] <Downtempo, Ambient, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550552.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Watchers (9:26)
+02. Deep Space (8:09)
+03. Aurora (9:58)
+04. Sea Of Tranquility (7:42)(   Читать дальше...   )Жанр: Downtempo, Ambient, New AgeПродолжительность: 04:13:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE99E2BEC1CD1A1705E14BB32A0962BF633EBBB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1237756   (550380) от 25.07.2018
 
 Nigel Stanford (John Stanford) - Discography (1999-2017) [FLAC|Lossless|tracks + .cue] <Downtempo, Ambient, New Age>
@@ -713,35 +742,6 @@ Brian Tyler - Мумия / The Mummy (2017) Dеluхе Еditiоn [FLAC|Lossless|W
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4C248E98BBA3A3FC46CE0A66196AB16F0A80ECD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154063   (542653) от 29.07.2017
-
-Артель Роса - Ляпота (2017) EP [MP3|320 Kbps] <Russian Urban Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542653.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ляпота
-02. Тюря
-03. Чучело
-04. Ляпота (Instrumental)(   Читать дальше...   )Жанр: Russian Urban FolkПродолжительность: 00:20:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F15966906DFEE4A5322E7534A61DFEFE7834EB6D
 ```
 
 https://mybot314.ru/tekegram_catalog/

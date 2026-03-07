@@ -1,3 +1,90 @@
+###  Публикация: 1330711   (338985) от 11.10.2019
+
+VA - Markus Schulz - Global DJ Broadcast Top 20 October (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_338985.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz feat. Nikki Flores - We Are The Light (Artento Divini Extended Remix)
+02. Fisherman - Nature vs. Nurture (Extended Mix)
+03. Giuseppe Ottaviani - Empty World (Extended Mix)
+04. DIM3NSION - Gaman (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:19:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9F3A574DA723A3A6F202F650932C76793840E7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1258342   (338813) от 29.10.2018
+
+VA - Suanda Music Radio Top 20: (October / November) (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_338813.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roman Messer feat. Christina Novelli - Fireflies (Eximinds Extended Remix)
+02. Adip Kiyoi - Start With A Dream (Extended Mix)
+03. Betsie Larkin - Unite (Ruslan Radriges Extended Remix)
+04. Elite Electronic - Bloom (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:53:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0BB870FE38F99ED2AE59072CBCAB815CDC7DEB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1258362   (338690) от 29.10.2018
+
+VA - United Colors of Trance Vol.12 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_338690.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Corrie Theron & Barend Stapelberg - Concord (Original Mix)
+02. Fashion Police - Right There (Original Mix)
+03. ManMadeMan - Do You Believe in UFOs? (Cybered Remix)
+04. Digital Sun - Lunatic Journey (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:37:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1609469AF3F36DD497EDE503D3E73156344E5CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1074618   (338427) от 19.11.2016
 
 VA - Armin van Buuren Presents: Armind Best Of (2016) [MP3|320 Kbps] <Trance, Vocal Trance>
@@ -655,93 +742,6 @@ VA - Armin Van Buuren Presents: A State Of Trance Best Of (2015) [MP3|320 кб/�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8430137D59C5034A848F05132ECB6AC6AE70555F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958143   (324999) от 20.11.2015
-
-Dominik Von Francois - Last Resort (2015) [MP3|320 кб/с]<Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324999.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Another Chance (Original Mix) (7:35)
-02. Over The Sky (Original Mix) (8:27)
-03. Last Resort (Original Mix) (9:11)
-04. Hopeful Dreams (Original Mix) (7:58)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:18:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D11DBB0B09F63B774BE043B29CEE301F750C75F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958145   (324916) от 20.11.2015
-
-VA - In Search Of Sunrise 13.5 - Amsterdam (Mixed by Richard Durand with BT) (2015) [MP3|320 кб/с]<Trance, Progressive Trance, Progressive House>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vidda Deborras - Tower Of Tears (Intro) (3:04)
-02. Michael Badal with Sue McLaren - Recapture (5:58)
-03. Alex O'Rion - Electrifying Love (7:09)
-04. Moonbeam feat. Sopheary - Heaven (4:42)(   Читать дальше...   )Жанр: Trance, Progressive Trance, Progressive HouseПродолжительность: 05:47:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A554095D5BAE042213FEF0041662805CAA5ADA29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958490   (324031) от 21.11.2015
-
-VA - Uplifting Trance Essentials Vol. 6 (2015) [MP3|320 кб/с]<Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324031.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moonsouls - Sparkles (Cold Rush Remix) (06:29)
-02. Airborne Angel - Perfect State (Original Mix) (08:53)
-03. Raminio - Spacestate (UDM Remix) (07:48)
-04. CJ SN - Together We Are (Lusvin Alexander Remix) (08:12)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 03:07:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51E5C17E2C7985B559FCFFA725566AAF588E549C
 ```
 
 https://mybot314.ru/tekegram_catalog/

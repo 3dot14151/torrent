@@ -1,3 +1,30 @@
+###  Публикация: 1808453   (64964) от 25.07.2025
+
+Шрифты - Behance - OMG SSG STUDIO - OMG SANS - 214130687 [OTF, TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_64964.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный шрифт с кириллицей.
+Материал раздаётся с официальной документацией.Формат: OTF, TTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FD5CD2ADE8FE4C04B760F929DEDC0688485F65E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1808644   (64961) от 25.07.2025
 
 Шрифты - Behance - Korak Studio - KS Bistra - 229469813 [TF, OTF, WOFF, WOFF2]
@@ -659,32 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3190FF9EC2B5E29A8EF3F5F233BF39F296977F25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770526   (32307) от 01.01.2025
-
-Шрифты - Lovely Font Bundle Vol.02 [OTF, TTF, SVG]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32307.jpg" />
-</div>
-
-
-###  Подробнее
-
-30 интересных шрифтов, которые придадут креативности и веселья вашим проектам.Формат: OTF, TTF, SVG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:973500279E0F96C6AEE1A1A811F55BDE3039CC67
 ```
 
 https://mybot314.ru/tekegram_catalog/

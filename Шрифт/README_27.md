@@ -1,3 +1,31 @@
+###  Публикация: 1789914   (68214) от 06.04.2025
+
+Шрифты - MyFonts - Pink Flemigos [OTF, TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_68214.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ощутите беззаботную атмосферу 80-х с The Flemingos, сжатым шрифтом без засечек, который излучает ретро-шарм и тропическую привлекательность.
+
+Кириллица не поддерживается.Формат: OTF, TTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B23A07D36EFD8AB1209F3E04855446F106AADEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1790003   (68192) от 07.04.2025
 
 Шрифты - Creative Market - Solomon Serif Font Family - 3918490 [OTF, TTF, WOFF]
@@ -670,33 +698,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:42BCDFF97DC144CB93F12D4EA2F1C618DAEEDBEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808453   (64964) от 25.07.2025
-
-Шрифты - Behance - OMG SSG STUDIO - OMG SANS - 214130687 [OTF, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64964.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатный шрифт с кириллицей.
-Материал раздаётся с официальной документацией.Формат: OTF, TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FD5CD2ADE8FE4C04B760F929DEDC0688485F65E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 1218239   (724901) от 08.04.2018
+
+3D модели - Daz 3D - Сборник 3D моделей #4 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724901.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор 3d моделей для DAZ 3D - из 50шт, категории Clothing, People, Animation, Jewelry.Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:948AD8A3BBA2603D12CCC0FB63317114166CA57A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218252   (724899) от 08.04.2018
+
+3D модели - CGStudio - Land Rover Defender Expedition - 3581 [MAX, 3DS, C4D, FBX, LWO, OBJ]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724899.jpg" />
+</div>
+
+
+###  Подробнее
+
+3d модель автомобиля марки Land RoverФормат: MAX, 3DS, C4D, FBX, LWO, OBJ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7A0A7DE2B9224AA79E3EFBB1EB6EF6E60F9C27F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218227   (724894) от 08.04.2018
+
+3D модели - Daz 3D - Сборник 3D моделей #3 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724894.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор 3d моделей для DAZ 3D - из 50шт, категории Clothing, People, Props, Interiors, Structures.Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A0A95F6F9398B4FC54769DF4440C97F31689D1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1218247   (724764) от 08.04.2018
 
 3D модели - Hum3D - Peterbilt 379 Tractor Truck 1987 3D model [Scanline|V-Ray|*.max, 3DS, C4D, FBX, LWO, MB, OBJ]
@@ -604,90 +682,6 @@ Each month we deliver sets of presupported STL's and RPG game supplements that c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F83AED023A99A803F2EABA8B1A3E98521C012CCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535551   (684102) от 07.03.2022
-
-3D print - Gambody - Cylon Raider - Diorama [SLT]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684102.jpg" />
-</div>
-
-
-###  Подробнее
-
-Gambody is the online marketplace where you can download video game and comic book models in STL file format. High-poly, amazingly detailed and absolutely error-free 3D models files optimized for all types of 3D printers.
-
-Gambody — это онлайн-магазин, где вы можно скачать модели из видеоигр/комиксов/фильмов/сериалов в формате STL для 3D печати. Высокополигональные, (   Читать дальше...   )Формат: STL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92F8296C3C74AF481638C6E17DD16FF294FB510E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535493   (683967) от 07.03.2022
-
-3D print - Gambody - Pyramid Head - Диорама [STL]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683967.jpg" />
-</div>
-
-
-###  Подробнее
-
-Gambody is the online marketplace where you can download video game and comic book models in STL file format. High-poly, amazingly detailed and absolutely error-free 3D models files optimized for all types of 3D printers.
-
-Gambody — это онлайн-магазин, где вы можно скачать модели из видеоигр/комиксов/фильмов/сериалов в формате STL для 3D печати. Высокополигональные, (   Читать дальше...   )Формат: STL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A48E7C54277DF830F5EC414A2F86FCDF2A09FA86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535590   (683963) от 07.03.2022
-
-3D print - Gambody - Hollow Knight - Diorama [STL]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683963.jpg" />
-</div>
-
-
-###  Подробнее
-
-Gambody is the online marketplace where you can download video game and comic book models in STL file format. High-poly, amazingly detailed and absolutely error-free 3D models files optimized for all types of 3D printers.
-
-Gambody — это онлайн-магазин, где вы можно скачать модели из видеоигр/комиксов/фильмов/сериалов в формате STL для 3D печати. Высокополигональные, (   Читать дальше...   )Формат: STL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:980A63ECF2B3CD06FBE55E348B5F7BD82C9A17D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

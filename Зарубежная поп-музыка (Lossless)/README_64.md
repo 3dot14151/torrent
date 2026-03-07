@@ -1,3 +1,120 @@
+###  Публикация: 1260157   (314350) от 06.11.2018
+
+VA - 90s 00s and 10s Love Songs (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_314350.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meg Birch - One Last Time
+02. The Shaken Bakers - Love Will Keep Us Alive
+03. Shannon & Keast - Yours
+04. Karizma Duo - A Thousand Miles(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00AAB8A708D1AE7DAA2982034F8BA620C4CEC1A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1260050   (314218) от 06.11.2018
+
+VA - Just Acoustic (2018) 4CD [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_314218.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+01. Coldplay - The scientist
+02. Alanis Morissette - Hand in my pocket
+03. Dua Lipa - New rules(   Читать дальше...   )Жанр: PopПродолжительность: 04:51:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0ECF01E0AB955BCB300CEE81FE1013D677E14F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332395   (313875) от 20.10.2019
+
+VA - Bravo The Hits 2019 [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_313875.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Shawn Mendes & Camila Cabello - Senorita 3:11
+02. Ava Max - Sweet But Psycho 3:07
+03. Lil Nas X feat. Billy Ray Cyrus - Old Town Road (Remix) 2:51(   Читать дальше...   )Жанр: PopПродолжительность: 02:37:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65E6E21108068DE9F9A3F5CB3E31AE1FDE5AC500
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1260252   (313806) от 06.11.2018
+
+VA - Top Of The Pops '1978 (2018) Box Set, 3CD [FLAC|Lossless|tracks + .cue] <1970s, pop, rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_313806.jpg" />
+</div>
+
+
+###  Подробнее
+
+После довольно продолжительного перерыва продолжаю серию путешествий по победителям топов прошлого века (ссылки на предыдущие релизы смотрите внизу).
+Этот список треков является хронологическим списком популярных песен, исполняемых музыкантами и музыкальными ансамблями в Top of the Pops, еженедельной телевизионной программой BBC One, в которой представлены исполнители (   Читать дальше...   )CD1
+01. John Travolta & Olivia Newton-John - You're The One That I Want  (2:51)
+02. ABBA - Take A Chance On Me  (4:04)
+03. Boney M - Rivers Of Babylon  (4:16)(   Читать дальше...   )Релиз состоялся: 16.03.2018Жанр: 1970s, pop, rockПродолжительность: 02:50:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:362B0C2798C78EA930A6E4AF85C16C4DED8A7913
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1076351   (313686) от 25.11.2016
 
 Prince - 4Ever (2CD) (2016) [FLAC|Lossless|image + .cue] <Pop, Rock, Funk>
@@ -629,123 +746,6 @@ Fitness Forever - Tonight (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electropop,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99E659EC69B6D66511933CE80496B9BCDAB8A5CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261625   (303095) от 11.11.2018
-
-VA - Top Of The Pops '1979 (2018) Box Set, 3CD [FLAC|Lossless|tracks + .cue] <1970s, pop, rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303095.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наконец нашлось время на продолжение серии путешествий по победителям топов прошлого века (ссылки на предыдущие релизы смотрите внизу).
-Этот список треков является хронологическим списком популярных песен, исполняемых музыкантами и музыкальными ансамблями в Top of the Pops, еженедельной телевизионной программой BBC One, в которой представлены исполнители в основном (   Читать дальше...   )CD1:
-01. The Buggles - Video Killed The Radio Star  (3:15)
-02. M - Pop Muzik  (4:55)
-03. Blondie - Sunday Girl  (3:15)(   Читать дальше...   )Релиз состоялся: 07.03.2018Жанр: 1970s, pop, rockПродолжительность: 03:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23B378850A9D8A0C60306017B131BCCF986CD2DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333925   (301459) от 26.10.2019
-
-Tanja Lasch - Lebensecht (2015) [FLAC|Lossless|image + .cue] <Pop, Schlager>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Du lebst gefahrlich neben mir
-02. Ich fall aus den Wolken
-03. 7 Tage 7 Nächte
-04. Vagabund(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 00:47:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E9DD8DCAF5ECBE90202D6D4363EF1308E1D14B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333758   (301435) от 26.10.2019
-
-Rick Astley - The Best Of Me (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301435.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Every One of Us
-02. Never Gonna Give You Up
-03. Whenever You Need Somebody
-04. When I Fall in Love(   Читать дальше...   )Жанр: PopПродолжительность: 01:50:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F64F09C71529C8B5F14F6F8E8B6CE6085397F0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184042   (301382) от 17.11.2017
-
-Chante Moore - The Rise of the Phoenix (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, R&B, Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301382.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome to the Journey - Interlude 1:09
-02. Chasin' 3:36
-03. On His Mind 3:38
-04. I'd Be a Fool 3:53(   Читать дальше...   )Жанр: Pop, R&B, SoulПродолжительность: 00:53:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46A8A2633EFDB3F541A883F488B2C3E1140ED894
 ```
 
 https://mybot314.ru/tekegram_catalog/

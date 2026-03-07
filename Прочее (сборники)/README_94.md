@@ -1,3 +1,206 @@
+###  Публикация: 1305859   (555870) от 02.06.2019
+
+VA - 100 хитов в дорогу. Русский выпуск часть 2 (2019) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555870.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. IOWA - Пой (Eleonora Kosareva Remix) 3:29
+002. Anivar - Крыльями 3:24
+003. ALEKSEEV - Моя звезда (ARROY & Sergey Raf Remix) 3:03
+004. Artik & Asti - Привет (Lavrushkin & Max Roven Remix) 4:23(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:50:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1713ABCD76B61F2B10493CEC67EE0083A883D70F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306007   (555861) от 02.06.2019
+
+VA - Громкие новинки Июня vol.1 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555861.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Иван Дорн - Страсть (5:13)
+2.КняZz - Бывший раб (4:43)
+3.Taron Egerton - Rocket Man (4:30)
+4.Kaiser Chiefs - Record Collection (4:17)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:55:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A23BB40F0265A703A14FDCC74CA663D3C1D2CBFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306306   (555796) от 03.06.2019
+
+VA - Прокачай Уши BASS 2019 vol. 1 [MP3|320 Kbps] <Hip-Hop, Heavy Metal, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555796.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Grave Digger - Frontline (4:38)
+2.The Upbeats - SWEEPER (4:31)
+3.Gazirovka - black (dj krytov remix) (4:19)
+4.Manamiz, Nvikto, Rico Act - READY OR NOT (4:03)(   Читать дальше...   )Жанр: Hip-Hop, Heavy Metal, OtherПродолжительность: 01:38:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CDECFF1DAD6257D35C7A07F630FFE48A7BBAA5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306408   (555657) от 04.06.2019
+
+VA - Прокачай Уши BASS 2019 vol. 2 [MP3|320 Kbps] <Bass, Drum'n'Bass, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555657.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Total Destruction - Mechanical warriors (6:52)
+2.Junkie XL - Heart Of Darkness (6:48)
+3.Neoid - My Life (Original Mix) (6:47)
+4.Spy - By your side (6:34)(   Читать дальше...   )Жанр: Bass, Drum'n'Bass, OtherПродолжительность: 02:24:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5973B46A75F9099BE10EACC5210884F317C7CB1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306850   (555210) от 08.06.2019
+
+VA - не Громкие новинки недели 19 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555210.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Слава Благов feat. Владимир Павлещук - Vера, Nадежда, Lюбовь (5:15)
+2.Олег Попков - Виновато Вино (4:34)
+3.Sokratova feat. Kson & Ditro - Небо Чёрного Цвета (4:10)
+4.Mark Ovski - Двойной Апероль (4:09)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:48:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:495ED3932A06B1D14E23240D9DBED294C567A233
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1307746   (554637) от 11.06.2019
+
+VA - Top 100 Drum & Bass Vol.1 (2019) [MP3|320 Kbps] <Liquid Funk, Drumfunk, Soulful D&B>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_554637.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Afrik & Vanger - Waiting For A Wonder (Original Mix)
+002. ALB - Movements (Original Mix)
+003. Alibi feat. Lorna King - You (nCamargo Remix)
+004. Apollon feat. Shiva - Can`t Hide (Original Mix)(   Читать дальше...   )Жанр: Liquid Funk, Drumfunk, Soulful D&BПродолжительность: 07:49:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8743808C40607A8247BD2313A11240805CC040BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1236338   (554602) от 16.07.2018
+
+VA - Зайцев.нет: Музыкальные новинки Июль 2018 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_554602.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Orlando - #нучтодавай 3:08
+002. Lil Kate - Три Осени 2:46
+003. Блокбастер - Лето без вопросов 3:35
+004. Dante - Молекулы (Radio Edit) 3:46(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:11:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:283991963896F9711CEACAF7D4762E697435ED7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1308014   (554470) от 12.06.2019
 
 VA - не Громкие новинки недели 20 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -545,209 +748,6 @@ VA - Flowers Inside (2019) [MP3|320 Kbps] <Pop, Rock, Indie>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F725B29D9F5E5B0EA4B8D88C04680BEF35223BAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237811   (549726) от 26.07.2018
-
-VA - Billboard Hot 100 Singles Chart 28.07.2018 (2018) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549726.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Drake - In My Feelings
-002. Cardi B, Bad Bunny & J Balvin - I Like It
-003. Maroon 5 - Girls Like You (feat. Cardi B)
-004. Drake, Big Freedia, 5thward Weebie - Nice For What(   Читать дальше...   )Жанр: Pop, Dance, Euro, Indie, Folk, Hip-Hop, RnBПродолжительность: 05:54:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7AAE31D36BAB6F94F000B097F528E90283E086B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309675   (549187) от 21.06.2019
-
-VA - Дискотека 2019 Dance Club Vol. 191 от NNNB (2019) [MP3|320 Kbps] <Club, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549187.jpg" />
-</div>
-
-
-###  Подробнее
-
-Part 1 (Discoteka 2019!):
-
-001. DJ Layla feat. Sianna - Poison
-002. Styline - FIRE!(   Читать дальше...   )Жанр: Club, Dance, OtherПродолжительность: 14:53:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80A87EF1602A28A24829F51C2D9DB5A480EFFCB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048013   (548430) от 31.08.2016
-
-VA - Beyond The Love Downspace (2016) [MP3|320 Kbps] <Electronica, Chill House, Trip Hop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Southern Groove - You Took My Love 06:11
-02. Scerbas - Lamberet 07:23
-03. Sascha Braemer - Touchdown 05:40
-04. Sergey Silvertone & Magic Surfer - On This World (Audio Luxury Remix) 07:36(   Читать дальше...   )Жанр: Electronica, Chill House, Trip HopПродолжительность: 02:43:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33026ED5631D7351C8FA4F64CE48665CCA803740
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047924   (548268) от 31.08.2016
-
-VA - Workout Tribute to Summer Hits (2016) [MP3|320 Kbps] <R&B, Disco, Funk>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548268.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daniel Powter - Crazy All My Life (Dj Denis Rublev & Dj Anton Remix) 01:19
-02. Vasiliy Francesco X Wildmilk X Iggy Azalea - Team (John Rocks Mash Up) 02:47
-03. Blu Cantrell Feat. Sean Paul - Breathe (Remphil & Leo Bass Remix) 02:52
-04. Sia - Unstoppable (Stylezz & Denis Agamirov Remix) Radio 02:51(   Читать дальше...   )Жанр: R&B, Disco, FunkПродолжительность: 04:56:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:552BA8B189355ADF4E3A8202D9FFC29AB8866F61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048257   (547044) от 01.09.2016
-
-VA - Новая Жажда Скорости. Полный Драйв! (2016) [MP3|320 Kbps] <Club, Dance, Hands Up>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547044.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Audiosonik X Jerome - Thong Song
-02. Flo Rida - Right Round (Crystal Sea Remix)
-03. Nick Skitz & Raverockerz Feat. Brooklyn Bounce - Rock The Party (Original Mix)
-04. Real Club Mafia - Hi Russia! (From Sweden)(   Читать дальше...   )Жанр: Club, Dance, Hands UpПродолжительность: 05:43:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DA6AAA9AACE8CFB72F2135128BE73435D1D5FAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189892   (547032) от 29.07.2018
-
-VA - По волне моей памяти 2: Том35 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Рок>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547032.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Смысловые Галлюцинации  -  Звёзды 3000  4:21
-02.  Жанна Агузарова и 'Браво'  -  Ленинградский рок-н-ролл  2:26
-03.  Чиж&C  -  Перекресток  7:01
-04.  Ва-Банкъ  -  Маршруты московские  4:40(   Читать дальше...   )Жанр: Поп, РокПродолжительность: 02:10:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:247AE37944BA3B72D35983A395C7F091302E35D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310515   (546951) от 24.06.2019
-
-VA - Premium 2019 Weekend Feelings (2019) [MP3|320 Kbps] <Electro, Disco, Reggaeton, Country, Latin>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546951.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. DJ Snake ft Ozuna, Cardi B & Selena Gomez - Taki Taki (CK Intro - Dirty)
-002. Halsey ft Juice WRLD - Without Me (Remix) Clean
-003. Halsey ft Juice WRLD - Without Me (Remix) CK Intro - Clean
-004. Halsey - Without Me (ILLENIUM Remix) CK Intro - Dirty(   Читать дальше...   )Жанр: Electro, Disco, Reggaeton, Country, LatinПродолжительность: 08:49:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1AB60BFCBA113F338413378E5CC60CFEF34F1AB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1393892   (766369) от 02.07.2020
+
+Trapt - Shadow Work (2020) [MP3|320 Kbps] <Alt.Rock, Modern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_766369.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Make It Out Alive (03:30)
+ 02. I Want To Want What I Want (03:54)
+ 03. Tell Me How You Really Feel (04:10)
+ 04. Too Little Too Late (04:04)(   Читать дальше...   )Жанр: Alt.Rock, Modern RockПродолжительность: 00:44:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBE80784BF3D348B7279DAD4006A9DEBACD645F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1279461   (766124) от 29.01.2019
 
 Apocalypse - Apocalypse (1969) Remastered, 2003, Longhair [MP3|320 Kbps] <Heavy Psych-Prog Rock>
@@ -716,35 +745,6 @@ Shiver - Under Skin (2002) Remastered Deluxe Edition, 2019, Shiver [MP3|320 Kbps
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:454DAC01021ADC1079E4AB2A8C485646F1811717
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281073   (755090) от 06.02.2019
-
-Тінь Сонця - Буремний край (2016) [MP3|320 Kbps] <Folk Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755090.jpg" />
-</div>
-
-
-###  Подробнее
-
-[03:19] 1 Ромко Живий
-[03:39] 2 Громом І Вогнем
-[04:17] 3 На Відблисках Мого Меча
-[06:14] 4 Промінь Волі(   Читать дальше...   )Жанр: Folk Rock, Heavy MetalПродолжительность: 00:40:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F03769AB9EF6F0704242B1A3884A6B34E2721288
 ```
 
 https://mybot314.ru/tekegram_catalog/

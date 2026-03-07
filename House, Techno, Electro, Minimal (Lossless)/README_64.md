@@ -1,3 +1,117 @@
+###  Публикация: 1735889   (106757) от 10.07.2024
+
+Empyre One Feat. Scarlet - I Turn To You 2k20 (2020) [FLAC|Lossless|tracks] <Electro Pop, Electro House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106757.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Empyre One Feat. Scarlet - I Turn To You 2k20 (3:00)
+02. Empyre One Feat. Scarlet - I Turn To You 2k20Жанр: Electro Pop, Electro HouseПродолжительность: 00:06:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7350A6082340831592A23BA2CB8EEF56A90EE90C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736168   (106727) от 11.07.2024
+
+CVN - 4 Albums (2016-2024) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Experimental, Abstract>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106727.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2016 - Matters
+CVN - 2019 - I.C.
+2020 - 2019 _ 1897 Split Series, Vol. V(   Читать дальше...   )Жанр: Electronic, Experimental, AbstractПродолжительность: 4 CD, 02:33:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13607E78BEF238C5795500BAC34BFB602BEAB4C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737124   (106562) от 16.07.2024
+
+Oscar Mulero - Have you ever retired a human by mistake? (2024) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106562.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Disappear inside [00:02:36]
+02. A hundred baby spiders came out [00:05:53]
+03. Take the pleasures from the serpent [00:05:33]
+04. No termination date [00:08:51](   Читать дальше...   )Жанр: Electronic, TechnoПродолжительность: 00:55:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3655FBFB8245CB0056B6A80D526E69D1E35C2D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738421   (106342) от 22.07.2024
+
+Gorgon City - 6 Albums (2014-2024) [FLAC|Lossless|WEB-DL|tracks] <House, Tech House, Melodic House & Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_106342.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+Gorgon City - 2014 - Sirens (Deluxe)
+Gorgon City - 2018 - Escape
+Gorgon City - 2021 - Olympia (Remixes)(   Читать дальше...   )Жанр: House, Tech House, Melodic House & TechnoПродолжительность: 6 CD, 05:15:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2734CA99A742A2DCEDEA6054327DBEBB6203BD1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1742448   (105568) от 11.08.2024
 
 Braille - Triple Transit (2024) [FLAC|Lossless|WEB-DL|tracks] <experimental, electronic, house, idm>
@@ -628,138 +742,6 @@ VA - MAYDAY (2011) [FLAC|Lossless]<Progressive House>
 08. Toper & Andrian - Laziness
 09. The BeatThiefs - Umbungo (Chocolate Puma Remix)
 10. Jochen Miller - Troucid(   Читать дальше...   )2011Жанр: Progressive HouseПродолжительность: 01:11:02
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488331   (90862) от 26.04.2012
-
-VA - Luxury Session Ibiza 2011 (2011) [FLAC|Lossless]<Lounge, Downtempo, House, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_90862.jpg" />
-</div>
-
-
-###  Подробнее
-
-VA - Luxury Session Ibiza 2011 (2011)
-Год: 2011
-Жанр: Lounge, Downtempo, House, Deep House
-Продолжительность: 02:19:50Кодек: FLAC
-Битрейт: Lossless
-Тип битрейта: CBRТрек лист:
-Продолжительность: 01:04:29
-СD1 - Lounge(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480775   (87513) от 10.04.2012
-
-Kato - Discolized (2010) [FLAC|Lossless]<Electronic, House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My House [04:19]
-02. Turn The Lights Off [02:57]
-03. Desert Walk [03:31]
-04. Makka [05:07]
-05. Discolized [03:21]
-06. Alive [05:50]
-07. It's My Life [03:22]
-08. Opa [04:13]
-09. Remember My Name [03:37]
-10. Crowd Control [06:10](   Читать дальше...   )2010Жанр: Electronic, HouseФормат: CD, AlbumПродолжительность: 01:01:23
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479127   (86918) от 07.04.2012
-
-Jam & Spoon - Remixes & Club Classics (2CD) (2006) [APE|Lossless]<Trance, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86918.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Age Of Love - The Age Of Love (Watch Out For Stella Mix) [06:45]
-02. Moby - Go (Jam & Spoon's Delirium Mix) [06:07]
-03. Dr. Alban feat. Leila K - Hello Africa Remix (Tech-Makossa-Mix) [07:40]
-04. Giorgio Moroder vs Jam & Spoon - The Chase (Jam & Spoon Club mix) [08:43]
-05. Quincy Jones - Back On The Block (Club Trip Part One) [09:11]
-06. Pet Shop Boys - Yesterday, When I Was Mad (Jam & Spoon mix) [09:20]
-07. Frankie Goes To Hollywood - Relax (Jam & Spoon Trip-O-Matic Fairytale Mix) [07:47]
-08. Enigma - Age Of Loneliness (Jam & Spoon Remix) [06:27]
-09. Marilyn Manson - The Nobodies (Burn 36 Mix) [05:39]
-10. Jam & Spoon's Hands On Yello - You Gotta Say Yes To Another Excess [03:57]2006Жанр: Trance, TechnoФормат: 2xCD, CompilationПродолжительность: 02:22:44
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477277   (85980) от 02.04.2012
-
-Orbital - Wonky (2012) [FLAC|Lossless]<Electronic/Leftfield/Dubstep/Techno/Electro>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85980.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. One Big Moment
-2. Straight Sun
-3. Never
-4. New France2012Жанр: Electronic/Leftfield/Dubstep/Techno/ElectroПродолжительность: 00:50:41
 
 ## Скачать торент
 ```bash

@@ -1,3 +1,32 @@
+###  Публикация: 1589387   (190264) от 09.11.2022
+
+Andrea Bocelli - My Christmas (2022) Fireside Edition [FLAC|96/24|Lossless|WEB-DL|tracks] <Pop, Classical Crossover>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_190264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silent Night (Fireside Version)
+02. White Christmas
+03. Angels We Have Heard On High
+04. Santa Claus Is Coming To Town(   Читать дальше...   )Жанр: Pop, Classical CrossoverПродолжительность: 01:39:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EFEBCB504CDD78BBB26946712B41C5BC23B7932
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1589912   (188801) от 14.11.2022
 
 Andrea Balzani, Francesco Digilio - Wings of Wind (2022) [FLAC|Lossless|WEB-DL|tracks] <Classical>
@@ -715,35 +744,6 @@ Divna Ljubojeviс / Дивна Любоевич & Melodi - In Search Of Divine L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D485F91EC26C3E58A313389B9BE5F58EC84CB4C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270935   (154136) от 21.12.2018
-
-Nino Gurevich - Piano (2018) [FLAC|Lossless|WEB-DL|tracks] <Classical, Piano>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154136.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Partita No. 1 in B-flat Major, BWV 825
-02 – Piano Sonata No. 30 in E Major, Op. 109: I. Vivace, ma non troppo
-03 – Piano Sonata No. 30 in E Major, Op. 109: II. Prestissimo
-04 – Piano Sonata No. 30 in E Major, Op. 109: III. Andante molto cantabile ed espressivo(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 01:14:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B685EB01507BEDBF583D93C6E6DACAD775208887
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,116 @@
+###  Публикация: 1030213   (674567) от 30.06.2016
+
+VA - Ultimate... Christmas (2015) Box Set, 4CD  [FLAC|Lossless|tracks + .cue] <Pop, Jazz, Soul, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_674567.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, Jazz, Soul, DiscoПродолжительность: 04:16:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:341D6306477011C1F01E054CAFF04EDC9B2A1B6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290984   (674346) от 22.03.2019
+
+VA - Sophisticated Ladies (2018) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_674346.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Edith Piaf - La Vie en Rose
+02. Margaret Whiting - Moonlight in Vermont
+03. Peggy Lee - I've Got You Under My Skin
+04. Sarah Vaughan - Come Rain or Come Shine(   Читать дальше...   )Жанр: PopПродолжительность: 01:04:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0BA2D8DF8161A2933E47F13B4F46EF061139345
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290854   (674340) от 22.03.2019
+
+Tamaryn - Dreaming The Dark (2019) [FLAC|Lossless|WEB-DL|tracks] <New-wave, Dream-Pop, Synth-Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_674340.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angels of Sweat
+02. Terrified
+03. Path to Love
+04. Fits of Rage(   Читать дальше...   )Жанр: New-wave, Dream-Pop, Synth-PopПродолжительность: 00:36:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4131D6F7A12259BE3DD0F4D4CD526D9EFB3FAC20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290934   (674329) от 22.03.2019
+
+Alessandro Safina - Insieme A Te (1999) 2001 Universal [FLAC|Lossless|image + .cue] <Pop, Classical>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_674329.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luna
+02. La Sete di Vivere
+03. Aria E Memoria (Radio Edit)
+04. Siena(   Читать дальше...   )Жанр: Pop, ClassicalПродолжительность: 01:00:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B622B1A9463033D652EE50F519F9FF1E482BA9AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290763   (674328) от 22.03.2019
 
 Alice Merton - Mint (2019) [FLAC|Lossless|tracks + .cue] <Pop, Indie Pop>
@@ -629,122 +742,6 @@ West End Players and Singers - Highlights from Grease (2000) [FLAC|Lossless|imag
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6FD52C0EEA786807C365E7A9FCC0D6A6ABE8F896
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137568   (667880) от 26.05.2017
-
-Вelindа Сarlislе - The Соlleсtiоn (2002) Japanese Edition [WV|Lossless|image + .cue] <Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667880.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heaven Is A Place On Earth (4:07)
-02. I Get Weak (4:52)
-03. World Without You (4:42)
-04. Runaway Horses (4:42)(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 01:08:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:308B4EBF2ED4C5AC40DBDF82D4D8B451D0433D81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537506   (667835) от 16.03.2022
-
-VA - Spring Hits 2022 [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667835.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tame Impala - Eventually (5:18)
-02. Glass Animals - Heat Waves (3:58)
-03. Sean Paul - No Lie (3:41)
-04. Elton John - Cold Heart (PNAU Remix) (3:22)(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39F79A18FB470249B9E8355054A4C7213105700E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137704   (666221) от 27.05.2017
-
-Shakira - El Dorado (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Latin>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666221.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Me Enamoré
-02. Nada
-03. Chantaje (Ft. Maluma)
-04. When A Woman(   Читать дальше...   )Жанр: Pop, LatinПродолжительность: 00:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4308CC023328717E4B6658763845EF47E862E24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224463   (666059) от 10.05.2018
-
-The Pointer Sisters - In Concert (2007) Compilation, Unofficial Release [FLAC|Lossless|image + .cue] <Funk, Soul, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666059.jpg" />
-</div>
-
-
-###  Подробнее
-
-1	Happiness
-2	Automatic
-3	Fairytale
-4	Slow Hand(   Читать дальше...   )Жанр: Funk, Soul, PopПродолжительность: 01:14:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23354BEC31696FA2FD4CB482A13E08D47E678B61
 ```
 
 https://mybot314.ru/tekegram_catalog/

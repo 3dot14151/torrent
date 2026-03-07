@@ -1,3 +1,206 @@
+###  Публикация: 1166451   (425965) от 16.09.2017
+
+VA - Легенды Ретро FM Vol.2 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Disco, Eurodance, Pop, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_425965.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Sandra - Stop For A Minute (Single Version)  4:11
+002.  A-Teens - Mamma Mia  3:45
+003.  Joy - Hello  4:12
+004.  Modern Talking - You're My Heart, You're My Soul  5:39(   Читать дальше...   )Жанр: Disco, Eurodance, Pop, RockПродолжительность: 07:30:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8E5614EE74490E8CFA29D0EC892FC7DE209244F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572131   (425596) от 25.08.2022
+
+VA - Simply Dance Vol. 02 (2022) [MP3|320 Kbps] <Europop, Dance, Groove, Future House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_425596.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul Jacobson, Dennis Wonder - Without You
+02. Antonio Gregorio - Lost Soul
+03. Channing - Push For The Money
+04. Hot Pixels - On My Mind(   Читать дальше...   )Жанр: Europop, Dance, Groove, Future HouseПродолжительность: 01:39:20 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BD19E22D478BA34E2E1EE43DAA1CA145CBC4BF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572155   (425594) от 25.08.2022
+
+VA - Simply Tech House Vol. 02 (2022) [MP3|320 Kbps] <Microhouse, Minimal, Jackin, Tech House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_425594.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Malante (UK) - Follow
+02. Agonia Music - I Know Ya
+03. Diego Rva - Time
+04. DJ Alexis Freites - Lost Time(   Читать дальше...   )Жанр: Microhouse, Minimal, Jackin, Tech HouseПродолжительность: 02:06:58 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07C3AFBA33842A0300EDEEDECE4AFD63C44E0932
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572130   (425589) от 25.08.2022
+
+VA - Simply Dance Vol. 01 (2022) [MP3|320 Kbps] <Europop, Dance, Groove, Future House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_425589.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Antonio Gregorio - When Your Gone
+02. Sonalyis - Back In The 2000s (Radio Edit)
+03. Skuado, Freaky DJs, Mert Harmankaya, Elation - I Still Love You
+04. Kidd Ross - I Just Wanna (Extended Mix)(   Читать дальше...   )Жанр: Europop, Dance, Groove, Future HouseПродолжительность: 01:29:02 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1AB17DA2A35210541A6DB3B72B430F44B41004A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572133   (425520) от 25.08.2022
+
+VA - Simply Dance Vol. 03 (2022) [MP3|320 Kbps] <Europop, Dance, Groove, Future House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_425520.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brooke Lee - Little Bird (Radio Edit)
+02. Fhe - True Faith
+03. Playpat & King - Final Constructions
+04. Justin Lawson - Come Back To Me(   Читать дальше...   )Жанр: Europop, Dance, Groove, Future HouseПродолжительность: 01:38:28 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5902D3EEA8CE3BF8CBFB035B8527ABCB51FD246F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572160   (425406) от 25.08.2022
+
+VA - Simply Breaks & Beats Vol. 02 (2022) [MP3|320 Kbps] <Grime, 2-Step, Breakbeat, Nu Skool>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_425406.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paket - Face Your Fears (Original Mix)
+02. Poor In Spirit - Guardian Angel (Original Mix)
+03. Strongbass - Mortal (SellRude Remix)
+04. Prato & GreenFlamez - U Keep On (Original Mix)(   Читать дальше...   )Жанр: Grime, 2-Step, Breakbeat, Nu SkoolПродолжительность: 01:57:55 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72CAC94C781826886463573FE2A65442BB33A86A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1166611   (424273) от 17.09.2017
+
+VA - Empire Records - Retromania 6 (2017) [MP3|320 Kbps] <Italo Disco, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_424273.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Iron Maiden - Wasting Love (Nicolas Mussi Remix)
+02. Fast Foot - Speakers Killer V.1.2 (Original Mix)
+03. Jan Waterman - The C-Word (Original Mix)
+04. Opus - Live Is Live (Dj Solovey Remix)(   Читать дальше...   )Жанр: Italo Disco, ClubПродолжительность: 01:52:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD63371E96DFA25D11A598CCA4B31E78FC5198CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1411589   (423161) от 27.09.2020
 
 VA - The Official UK Top 40 Singles Chart 25.09.2020 [MP3|320 Kbps] <Pop, Dance, Other>
@@ -573,221 +776,6 @@ VA - Сборник Советского Рока (2012) [MP3|320 кб/с]<Rock,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:63CFED5F340757ADD3BC8F15792E6E5D6FA24119
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947563   (418261) от 17.10.2015
-
-VA - Amsterdam Music Festival - The 2015 Compilation (2015) [MP3|320 кб/с]<Trance, House, Progressive, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418261.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Guetta Ft Nicki Minaj, Bebe Rexha And Afrojack - Hey Mama (03:13)
-02. Armin Van Buuren Ft Mr. Probz - Another You (03:13)
-03. Dj Snake And Lil Jon - Turn Down For What (03:34)
-04. Martin Garrix - Forbidden Voices (Original Mix) (03:47)(   Читать дальше...   )Производство: Armada Music BundlesЖанр: Trance, House, Progressive, DanceПродолжительность: 00:51:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E967185F1F5168405386C995B53E39E75CD7B66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947662   (418111) от 17.10.2015
-
-VA - A Natural Woman (3 CD) (2015) [MP3|320 кб/с]<Pop, Disco, Soul, Rhythm and Blues, Retro>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418111.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-01. Carole King - (You Make Me Feel Like) A Natural Woman (03:48)
-02. ABBA - The Name Of The Game (04:50)
-03. Dolly Parton - 9 To 5 (02:38)(   Читать дальше...   )Жанр: Pop, Disco, Soul, Rhythm and Blues, RetroПродолжительность: 03:46:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:626C04DB6E99F47BBA23BC11DE92C7C46E89E7BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251246   (417764) от 01.10.2018
-
-VA - Зайцев.нет Музыкальные новинки 2 Сентябрь 2018 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417764.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alan Walker feat. Sophia Somajo - Diamond Heart 4:00
-002. Thalia & Gente De Zona - Lento 3:38
-003. Полиграф ШарикOFF - Сальса 3:32
-004. Natan - Покажи мне любовь (Ivan Spell Remix) 2:18(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:49:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03C2FF0511545024720C0C6C940B6F8B808B116E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947665   (417717) от 17.10.2015
-
-VA - My Favourite Hits of 1960 (3CD) (2015) [MP3|320 кб/с]<Funk, Soul, Rhythm & Blues, Pop, Pop Rock, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417717.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Everly Brothers - Cathy's Clown (02:23)
-02. Brenda Lee - Some Of These Days (02:21)
-03. The Shadows - Man Of Mystery (02:00)
-04. Roy Orbison - Only The Lonely (02:25)(   Читать дальше...   )Жанр: Funk, Soul, Rhythm & Blues, Pop, Pop Rock, RockПродолжительность: 03:45:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3BD7731D5312497A82F1ED7BDC8AE489C4ACE8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 558260   (417488) от 09.10.2012
-
-VA - Осенняя супер вечеринка (2012) [MP3|256 кб/с]<Pop, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417488.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alexandra Burke feat. DJ Smash - Tonight
-02. DJ Ihlas feat. Xenia - Love Me (Одну Меня Люби)
-03. Юлия Волкова (Julia Volkova) - Didn't Wanna Do It
-04. Руки Вверх - Я Тебя Люблю
-05. Размер Project & TD - My Song Can't Resist
-06. Настя Ясная - Расстояния
-07. MatreShka Girls - American Boy (Dj AFFecta & Dj Natasha Baccardi Radio Edit)
-08. Dancecom Project - Turn Up The Love (Radio Mix)
-09. Алена Винницкая - Я жду
-10. Pink - Blow Me (One Last Kiss)(   Читать дальше...   )Жанр: Pop, ClubПродолжительность: 06:03:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:270DD93CCCF24C3C2B9050801AE8021089C64A14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947708   (417407) от 17.10.2015
-
-VA - Дискотека 80-х, 90-х, 2000-x. Музыка По-Новому проверенная временем. 50x50 (2015) [MP3|320 кб/с]<Eurodance, Dance, Disco, Synth-Pop, Italo Disco, Club House, Nu Disco, Progressive House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417407.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. С.Минаев - Мы Вместе Опять (Rework Version 2013) (03:28)
-002. Silent Circle - Touch In The Night (Remix) (06:17)
-003. Гр.Круг - Маскарад (Remix) (05:28)
-004. Mr. Zivago - Little Russian (Remix) (07:47)(   Читать дальше...   )Жанр: Eurodance, Dance, Disco, Synth-Pop, Italo Disco, Club House, Nu Disco, Progressive HouseПродолжительность: 09:57:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4E0F076CA047EB72F460FF6B74B893D04EF215C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 558182   (417232) от 09.10.2012
-
-VA - Top 55 Tracks for Cars Vol.14 (2012) [MP3|320 кб/с]<Breaks, House, Trance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A.Shine - Never Leave (Stan Kolev & Matan Caspi Remix)
- 02. Alter Nature - Bursting With Life
- 03. Badboyz Of Breakz - Droppin That Funk (Seth Vogt Remix)
- 04. Baymont Bross feat Dynamite MC - Set Me Free
- 05. Bazu - Real Deal
- 06. Birds of Paradise - Quicksilver
- 07. Burian Robert - Boomerang
- 08. Cahill feat Chrome - Can't You See (Club Edit)
- 09. Chocolate Puma - Sexy Girl (Funkermen remix) (DJ Lexx & Ivan Nrav Re-Edit)
- 10. Dart Rayne - Four Steps To Eternity (Alex Larichev Remix)(   Читать дальше...   )Жанр: Breaks, House, TranceПродолжительность: 05:44:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E5257CE57B5B8C95F340C146377F415376A8BC1
 ```
 
 https://mybot314.ru/tekegram_catalog/

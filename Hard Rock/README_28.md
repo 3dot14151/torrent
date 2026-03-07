@@ -1,3 +1,32 @@
+###  Публикация: 1626844   (243346) от 17.04.2023
+
+Gnarwhal - Gnarwhal (2023) [MP3|320 Kbps] <Hard Rock, Fuzz, Stoner>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_243346.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Faultline 03:01
+02. Shadows Fading 03:21
+03. The Outlier - Album Version 02:48
+04. Sleepwalkers 03:42(   Читать дальше...   )Жанр: Hard Rock, Fuzz, StonerПродолжительность: 00:31:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E65D8F0F1EB94248C7ED6BEA9441055B07DC72F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1626795   (243096) от 18.04.2023
 
 Aviator - Aviator (1986) Reissue, 1997, Escape [MP3|320 Kbps] <Melodic Hard Rock>
@@ -165,34 +194,6 @@ Lee Small - The Last Man On Earth (2023) [MP3|320 Kbps] <Melodic Rock, AOR>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04BE2613EA531EAF06E059C2AE52B59874678118
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637223   (239999) от 03.06.2023
-
-Black Sabbath - Live Evil (1982) 2023, 4CD, 40th Anniversary Super Deluxe, Sanctuary Records [MP3|320 Kbps] <Heavy Metal, Hard-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239999.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Mob Rules (Live in Seattle, April 24, 1982) (2023 Remix) [00:03:23]
-02. Heaven and Hell (Live in San Antonio, May 13, 1982) (2023 Remix) [00:11:58]
-03. The Sign of the Southern Cross / Heaven and Hell (Continued)Жанр: Heavy Metal, Hard-RockПродолжительность: 00:33:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F63AFAF9BB8826FC1EC79A05875CECE051BF179
 ```
 
 https://mybot314.ru/tekegram_catalog/

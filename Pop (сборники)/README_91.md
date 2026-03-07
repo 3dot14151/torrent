@@ -1,3 +1,67 @@
+###  Публикация: 572850   (381681) от 10.11.2012
+
+VA - Осенняя хитовая двухсотка 50/50 (2012) [MP3|128 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_381681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Кристина Межинская - До рассвета
+02. Алёна Копылова - Осень
+03. Zedd feat. Matthew Koma - Spectrum (Radio Mix)
+04. Kato & John - Turn The Lights Off (Sasha Semenov Remix)
+05. Mc Zali & Trinity - Певица Из Села (Dmitriy Rs Radio Remix)
+06. Ирина Дубцова - Ешь, молись, люби
+07. Ocean Drive - Revolution (Radio Edit)
+08. Moodorama - Wondering Why
+09. Marc Korn feat. Miani - Elena (Radio Mix)
+10. Ирина Тараканова - Где же ты(   Читать дальше...   )Жанр: PopПродолжительность: 12:01:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52E66EB3854E48BEB180831DFE6E67AF7951CC9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253545   (381617) от 10.10.2018
+
+VA - Pop Panorama: October Set (2018) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_381617.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Guetta & Sia - Flames
+002. Cnco - Solo Yo
+003. Negramaro - La Prima Volta
+004. Giiants - American Summer(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 11:58:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60A2FA2E37A6B65390194441E66D644247F4A845
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 572926   (381217) от 10.11.2012
 
 VA - LUX music клубный. Сборник русских хитов (2012) [MP3|256 кб/с]<Pop, Dance>
@@ -756,64 +820,6 @@ VA - Play Exclusive Cloud October 2018 (2018) [MP3|320 Kbps] <Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:767DE11EEDC6924C55A1878FDF4C466C89AF1C68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950043   (372870) от 25.10.2015
-
-VA - Autumn Dance Hits Vol.1 (2015) [MP3|320 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372870.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alessia - Ale Kumaye (Black Due Remix)
-02. Kshmr & Bassjackers Feat. Sirah - Memories (Original Mix)
-03. Audshine feat. Diego Coronas & El Siciliano - Baila (Radio Edit)
-04. Madcon Feat. Ray Dalton - Dont Worry (Kolya Funk & Eddie G Remix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:40:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86B770A538496C9D77BF318227EFEA2348AC68AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950067   (372578) от 25.10.2015
-
-VA - Дискотека забытых хитов (зарубежная) - 17 (2015) [MP3|160 - 320 кб/с]<Italo Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ's Project - Vision Of Love (01:54)
-02. Clock On 5 - Take It (Mayerling) (06:21)
-03. Tina Charles - Hold Me (04:12)
-04. Tom Spencer - Blue Eyed Eddy (06:43)(   Читать дальше...   )Жанр: Italo DiscoПродолжительность: 02:50:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A994037C934057FAFCB8446068EA90F40702FDD
 ```
 
 https://mybot314.ru/tekegram_catalog/

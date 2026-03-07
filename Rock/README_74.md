@@ -1,3 +1,32 @@
+###  Публикация: 1624564   (245078) от 07.04.2023
+
+The Adekaem - 5 Albums (2015-2023) [MP3|320 Kbps] <Progressive Rock, Neo-Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/004/save_picture_245078.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2015 - The Adekaem (0)
+2017 - Sound Coloring (0)
+2021 - Exile(   Читать дальше...   )Жанр: Progressive Rock, Neo-ProgПродолжительность: 00:48:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCC149DDA75D13D072C92444E4AF327CDE5EBD2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1624670   (245069) от 07.04.2023
 
 Sharp Edges - Slice of Life (1983) [MP3|320 Kbps] <AOR, Pop Rock>
@@ -136,35 +165,6 @@ IT - Live At ProgDreams VIII (2021) [MP3|320 Kbps] <Neo Prog>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AAEE1799F0795894942B1A4E27379E46D4B6C31E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609375   (244846) от 03.02.2023
-
-Mgzavrebi - Kamara (2023) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244846.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Allegro
-2. Western
-3. Silamaze
-4. O, Moda Moda(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5051991FD010D8BF5ECF203A5CB2B54DF5AFD9F8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1677836   (36135) от 25.11.2024
+
+Suicidal Angels - Studio Albums (9 releases) (2007-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_36135.jpg" />
+</div>
+
+
+###  Подробнее
+
+Suicidal Angels - трэш-метал группа из Афин, Греция, образованная в начале 2001 года Ником Мелиссургосом в возрасте 16 лет под влиянием трэш-метала старой школы.2007 - Eternal Domination
+2009 - Sanctify The Darkness
+2010 - Dead Again
+2012 - BloodbathЖанр: Thrash MetalПродолжительность: 06:28:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:283F20255D32605832DBE453E4F8E81F712E18DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762879   (35841) от 28.11.2024
+
+Keep of Kalessin - Studio Albums (9 releases) (1997-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Black/Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_35841.jpg" />
+</div>
+
+
+###  Подробнее
+
+Keep of Kalessin — метал-группа из Тронхейма, Норвегия, образованная в 1993 году.1997 - Through Times of War
+1999 - Agnen - A Journey Through The Dark
+2006 - Armada
+2008 - KolossusЖанр: Melodic Black/Death MetalПродолжительность: 06:50:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:238CFB97E998C7E3439221401141B8645FE8AAAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762941   (35839) от 28.11.2024
+
+Benjamin Croft - We Are Here to Help (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_35839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carter Arrington - Age of Magrathea (7:14)
+02. Carter Arrington - We Are Here to Help (5:10)
+03. Mike Stern - You Made Me Miss (6:48)
+04. Lynsey Ward - Caught in the Flypaper (6:15)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:47:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60114C3E90476F1C152C1D074F28FE54E09F2032
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762957   (35836) от 28.11.2024
+
+We Are The Catalyst - Friction (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alt Metal, Alt Rock, Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_35836.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Tension (01:46)
+ 02 - Antihero (02:51)
+ 03 - Demons (03:56)
+ 04 - Hollow (03:51)(   Читать дальше...   )Жанр: Alt Metal, Alt Rock, ElectronicПродолжительность: 00:45:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C016BE9D28F2D6F620B25ED9A5E78F05BDB721F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762946   (35833) от 28.11.2024
+
+Ginger Evil - Hands Move to Midnight (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_35833.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rainmaker (3:31)
+02. Dead On Arrival (4:01)
+03. Shame Old (3:33)
+04. Hands Move To Midnight (3:41)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:23:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6324A8FCAAA1F30A7151C26DD96CD60417D61463
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762945   (35827) от 28.11.2024
+
+David Rose - In Your Embrace (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_35827.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seeing You Tonight (2:30)
+02. Night Whispers (1:13)
+03. Love on a Rainy Afternoon (2:55)
+04. Looking for True Love (3:31)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:53:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FF75F42D7A2A048A046F84CBF0A422FDB9D07A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 419469   (35777) от 29.11.2024
 
 AC/DC - Back In Black (1980) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Hard Rock>
@@ -573,180 +747,6 @@ The Gathering — рок-группа из Нидерландов, основа�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F9F569124D39D09264B26A2B1D7FCFF8B55A781
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764833   (34707) от 09.12.2024
-
-VA - Шлягеры Уходящего Века (2000) [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34707.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона А:
-01. Олег Газманов - Эскадрон
-02. Сергей Крылов - Девочка
-03. На-На - Фаина(   Читать дальше...   )Жанр: PopПродолжительность: 01:26:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51DF8F30C6B8827120BF08FCF07B529EFE7343B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764858   (34613) от 10.12.2024
-
-Karfagen - Constellations (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progresive-Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34613.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dominion [00:03:28]
-02. Cassiopeia, Pt. 1 [00:08:33]
-03. Orion [00:06:06]
-04. Virgo [00:03:49](   Читать дальше...   )Жанр: Progresive-RockПродолжительность: 00:52:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4296FEDAE794C8288F29A484A6B5BDA4CB9D3CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765085   (34612) от 10.12.2024
-
-Babbba - Two to Tango (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jazz, International Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34612.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whispering dreams (3:06)
-02. Stepping lightly (3:02)
-03. Spin around (2:47)
-04. Wrap around (1:58)(   Читать дальше...   )Жанр: Smooth Jazz, International PopПродолжительность: 00:58:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA403E5A1B10D6F5CBC0C7711D33330900B287AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764852   (34611) от 10.12.2024
-
-Vanessa Paradis - Live (1994) Remaster - 30th Anniversary Deluxe Edition, 2024, Universal Music Division Barclay [FLAC 24/48|Lossless|WEB-DL|tracks] <Acoustic, Chanson, Pop-Rock, French-Music>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34611.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Natural High (Live à l'Olympia, Paris / 1993) [00:04:51]
-02. Les cactus (Live à l'Olympia, Paris / 1993) [00:02:48]
-03. Marilyn & John (Live à l'Olympia, Paris / 1993) [00:04:01]
-04. As Tears Go By (Live à l'Olympia, Paris / 1993) [00:03:55](   Читать дальше...   )Жанр: Acoustic, Chanson, Pop-Rock, French-MusicПродолжительность: 01:16:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C37D1B7CAA4CC1E33F979A1400C1AC0184EE59B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765083   (34610) от 10.12.2024
-
-Babbba - Smooth as silk (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jazz, International Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34610.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Promise me, we'll meet again (3:04)
-02. Side by side (2:51)
-03. They own the night (2:06)
-04. Their pulses meet (1:44)(   Читать дальше...   )Жанр: Smooth Jazz, International PopПродолжительность: 00:54:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E76E9B8C4A3ECC3A907713CB2E98384DBB535E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764854   (34607) от 10.12.2024
-
-Nancy Sinatra - Sugar (1967) Remastered, 2024, Boots Enterprises, Inc. [FLAC 24/96|Lossless|WEB-DL|tracks] <Soft-Rock, Ballad, Easy-Listening, Vocal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34607.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet Georgia Brown (2024 Remastered) [00:04:00]
-02. Vagabond Shoes (2024 Remastered) [00:02:02]
-03. Oh! You Beautiful Doll (2024 Remastered) [00:02:51]
-04. Hard Hearted Hannah (2024 Remastered) [00:03:34](   Читать дальше...   )Жанр: Soft-Rock, Ballad, Easy-Listening, VocalПродолжительность: 00:43:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B7F8FF5E09B04CE5B3FEE68F991CB75B2BBA54E
 ```
 
 https://mybot314.ru/tekegram_catalog/

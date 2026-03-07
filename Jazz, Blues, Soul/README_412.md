@@ -1,3 +1,235 @@
+###  Публикация: 1268814   (223446) от 13.12.2018
+
+Ronnie Scott - Six Classic Albums Plus Bonus Singles (1956 - 1961) 4CD, 2015, Real Gone Jazz [FLAC|Lossless|image + .cue] <Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_223446.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Basie Talks [3:31]
+02. It Might As Well Be Spring [4:22]
+03. Drop Me Off At Harlem [3:56](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 04:43:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:626FC2BA5ED3D4ED9A80252DC45ED1BDEE1A4398
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651285   (223291) от 05.08.2023
+
+The Cash Box Kings - Oscar's Motel (2023) [FLAC|Lossless|tracks + .cue] <Modern Chicago Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_223291.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oscar's Motel (2:47)
+02. Down on the South Side (3:41)
+03. Please Have Mercy (4:00)
+04. I Can't Stand You (4:20)(   Читать дальше...   )Жанр: Modern Chicago BluesПродолжительность: 00:39:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C15742E52C7D23399FD0C615B06649AF8D090EFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651162   (223182) от 05.08.2023
+
+Papik - Bossarama (2023) [FLAC|Lossless|WEB-DL|tracks] <Bossa Nova, Easy Listening>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_223182.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunlight For Two (feat. Gustavo Baião)
+02. If You Leave Me Now (feat. Dagmar Segbers)
+03. Passos De Esperanza (feat. Giuseppe Milici)
+04. Alone Again (Naturally) (feat. Francesca Gramegna)(   Читать дальше...   )Жанр: Bossa Nova, Easy ListeningПродолжительность: 00:44:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCB7326535AAB7C40AE1FD4E7D0F46C831B3B3DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342730   (222904) от 03.12.2019
+
+Beaux J Poo Boo - All Things Are New (2005) Summit Records [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_222904.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ferris Wheel [7:40]
+02. Dancing with the Monk [5:26]
+03. Only Trust Your Heart [5:43]
+04. Beaux J Poo Boo [6:58](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:10:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29F8FFF6C859BCE6E0866F3BFD22FDBA18FD37AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585293   (222897) от 21.10.2022
+
+Miho Hazama - Imaginary Visions (2021) Edition Records [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_222897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Said Cool, You Said... What? [6:45]
+02. Your Scenery Story [8:10]
+03. Mingle-Mangle Goody Bag [7:22]
+04. Home [8:48](   Читать дальше...   )Жанр: Contemporary Jazz, Big BandПродолжительность: 00:52:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B472B7613160AEC786ED3BA602D0C0F124E5F5E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342727   (222884) от 03.12.2019
+
+John Dankworth & Rochester Pops - Ellington: Echoes of Harlem (1988) ProJazz [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_222884.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rockin' in Rhythm [3:35]
+02. Cottontail [4:28]
+03. In a Sentimental Mood [5:40]
+04. Perdido [4:16](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:50:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26A35EE5DB36B9EEC4D6BE7457FF60D5D2F9D5BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425277   (222860) от 20.11.2020
+
+Art Farmer, Benny Golson, Jazztet - The Complete Argo-Mercury Sessions (1960 - 1962) 2004, 7CD, Mosaic Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_222860.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Serenata [3:32]
+02. It Ain't Necessarily So [4:30]
+03. Avalon [3:31](   Читать дальше...   )Жанр: Hard BopПродолжительность: 07:51:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:528E0B5D88E61D9109E801D3B9105DEC8C3B1E69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513657   (222792) от 30.11.2021
+
+Tamara Kuldin - This May Only Be a Dream (2020) [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_222792.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Where or When (3:08)
+02. I Love You Much Too Much (5:32)
+03. In the Still of the Night (6:06)
+04. For All We Know (6:22)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:49:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CCA820FE4C20E211DBDB760E881744AD16A6F70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 966001   (222765) от 16.12.2015
 
 Peps and Blues Quality - Sweet Mary Jane (1969) Remastered, 1994, Sonet Grammafon AB [MP3|320 кб/с] <Blues Rock>
@@ -513,238 +745,6 @@ Eddie Higgins - Romantic Higgins (2009) Venus Records [FLAC|Lossless|image + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6ED146A2B7FB459D028333886A6A5C9C08F0BC94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585478   (221375) от 22.10.2022
-
-Papik & Alfredo Bochicchio - Cocktail Guitar, Vol.2 (2022) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221375.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Breezin'
-02. Nel Blu Dipinto Di Blu (Volare)
-03. Fo The Love Of You
-04. Flor D'Luna (Moonflower)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:58:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CE2F178B0C2BB7E144A35514FA0806BD41E3FED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513909   (221350) от 01.12.2021
-
-V.A. - Bossa & Latin Flavours (2021) [FLAC|Lossless|WEB-DL|tracks] <Bossa Nova, Nu Jazz, Latin>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221350.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bossa Nostra – Inverno (Cybophonia Bossa 'N' Funk remix)
-02. 12 Fingers – Rio (feat. Viviane Cruz)
-03. Bossa Nostra – Espera (feat. Bruna Loppez)
-04. Silvia Donati – Avenida (feat. Clan Greco)(   Читать дальше...   )Жанр: Bossa Nova, Nu Jazz, LatinПродолжительность: 01:36:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F1548E3C321452F16072EBC2BF5713DB72776AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651571   (221319) от 07.08.2023
-
-Herbie Nichols - Love, Gloom, Cash, Love (1957) 1994, Bethlehem [FLAC|Lossless|tracks + .cue] <Bop, Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_221319.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Too Close For Comfort [4:55]
-02. Every Cloud [4:01]
-03. Argumentative [3:43]
-04. Love, Gloom, Cash, Love [4:25](   Читать дальше...   )Жанр: Bop, Post-Bop, Piano JazzПродолжительность: 00:41:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F56C4CB0E23E0972FBB5AFD7E82E7E78AE89ACDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651596   (221277) от 07.08.2023
-
-Sam Rucker - In Position, The Album (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_221277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In Position (4:00)
-02. Unspeakable (3:48)
-03. Be Thankful For What You Got (5:01)
-04. One Touch (4:19)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:51:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4F001F7DA4D7DAC29CA3540E2ED8FD6989AC5C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651595   (221270) от 07.08.2023
-
-Patrick Yandall - Dance in the Rain (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_221270.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. City Boy (4:22)
-02. Find Your Purpose (4:25)
-03. Dance In The Rain (4:17)
-04. House Party (4:21)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:02:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71800411A4B48A0995FF8BF3F1A4426A4195F149
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651594   (221263) от 07.08.2023
-
-Everett B Walters - Funkin Under the Chicago Skyline (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_221263.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2 Minutes 2 Funk (5:07)
-02. On The Upside (5:35)
-03. Where Did Time Go (3:09)
-04. It's So Amazing (4:41)(   Читать дальше...   )Жанр: Smooth Jazz, FunkПродолжительность: 00:38:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A96A1AFBF4B3051A6E30373EDED2B85D85EDD6C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651599   (221233) от 07.08.2023
-
-Thom Rotella - Say Hey! (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_221233.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Virtual Insanity (3:35)
-02. Patti Cake (4:29)
-03. Sugar (4:23)
-04. Somethin’ about You (3:55)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:46:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F83CBB63BC2D266B17F67B1200BA64BA1DAE11C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651606   (221161) от 07.08.2023
-
-VA - Jazzin' (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_221161.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Louis Armstrong - What A Wonderful World (2:18)
-02. Etta James - At Last (3:03)
-03. Nina Simone - Feeling Good (2:55)
-04. Nat King Cole - L-O-V-E (2:35)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:57:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A566FA421EECB047C29430F943E72E2A2BE6384
 ```
 
 https://mybot314.ru/tekegram_catalog/

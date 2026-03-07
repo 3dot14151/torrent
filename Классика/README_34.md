@@ -1,3 +1,32 @@
+###  Публикация: 1251806   (413353) от 03.10.2018
+
+Annabel Parker - The New Classics (1994) A Tom Parker Project [FLAC|Lossless|image + .cue] <Neo-Classical, Pop, Classical>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_413353.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Autumn Rain
+2.	Meditation
+3.	Song Without Words
+4.	Intermezzo(   Читать дальше...   )Жанр: Neo-Classical, Pop, ClassicalПродолжительность: 00:51:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4F635CE73DD48FE3B07F1C888DAED37D85412C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 557968   (411553) от 11.10.2012
 
 Wolfgang Amadeus Mozart–Divertimento KV 287 Eine Kline nachtmusik KV 525: Berliner Philarmoniker conductor Herbert von Karajan (1982)/2003, EMI/[FLAC|Lossless]<Chamber>
@@ -743,35 +772,6 @@ Giuseppe Verdi - La Forza del destino (1986) 3CD [FLAC|Lossless]<Classical, Roma
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50D19348A8E80AB079D586D72EE20EA95084191F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 717446   (391525) от 31.10.2013
-
-Lindsey Stirling - Lindsey Stirling (Target Exclusive Deluxe Edition) (2013) [FLAC|Lossless]<Dance-Pop, Classical, Dubstep>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391525.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Electric Daisy Violin (03:15)
- 02. Zi-Zi's Journey (03:17)
- 03. Crystallize (04:18)
- 04. Song of the Caged Bird (03:05)(   Читать дальше...   )Жанр: Dance-Pop, Classical, DubstepПродолжительность: 01:07:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B8FC212559B9B84B74F2346B46E82B167E3524B
 ```
 
 https://mybot314.ru/tekegram_catalog/

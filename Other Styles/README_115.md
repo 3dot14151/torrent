@@ -1,3 +1,32 @@
+###  Публикация: 1167986   (412722) от 22.09.2017
+
+VA - Knockin' on Heaven's Door (1997) [MP3|320 Kbps] <Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_412722.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Til Schweiger - Gedanken uber Das Meer (Original Film-Dialog)
+02 - Selig - Knockin' On Heaven's Door
+03 - Selig - Love And Rockets
+04 - Instant Karma - Silver Whale(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:19:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C05997E9B909D426B138D01383066FFD41EAB042
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 948595   (411399) от 20.10.2015
 
 Gomer Edwin Evans - The Very Best Of Angel Dreams (2015) [MP3|320 кб/с]<New Age, Instrumental, Relax>
@@ -723,41 +752,6 @@ Enigma - The Screen Behind The Mirror (2000) [OGG Vorbis|485 Kbps] <New Age, Amb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8DB5775AC8178908C8165160739F7ED474F68B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 559860   (407116) от 14.10.2012
-
-VA - Сборник Cаундтреков (1966-2012) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407116.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jan A.P. Kaczmarek - Goodbye (OST Хатико. Самый верный друг 2009)
- 02. John Williams (violin Itzhak Perlman) – Theme from Schindlers List (Список Шиндлера 1993 OST)
- 03. Michael Nyman - The Heart Asks Pleasure FirstThe Promise (Edit) (Пианино 1993 OST)
- 04. Celine Dion - My Heart Will Go On (c бэк вокалом) (Титаник 1997 OST)
- 05. Angelo Badalamenti - The Theme from Twin Peaks Fire Walk with Me (Твин Пикс 1990 OST)
- 06. Andre Rieu - Love Theme From Romeo & Juliet (Nino Rota 1968)
- 07. Hans Zimmer - Tennessee (Перл Харбор 2001OST)
- 08. London Symphony Orchestra - Requiem for a dream (Orchestral version) (Реквием по мечте 2000 OST)
- 09. Hans Zimmer - Leaving Wallbrook-On The Road Человек Дождя 1988 OST)
- 10. Hans Zimmer & Lisa Gerrard Now We Are Free (Gladiator 2000 OST)Жанр: SoundtrackПродолжительность: 02:03:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1D24FC1B3E2B5362FFCF225B6AA31D03F3D2A8A
 ```
 
 https://mybot314.ru/tekegram_catalog/

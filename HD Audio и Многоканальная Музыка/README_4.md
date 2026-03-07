@@ -1,3 +1,177 @@
+###  Публикация: 1620890   (1031642) от 22.03.2023
+
+Donny Osmond - Донни Осмонд (1976) Лицензия фирмы Polydor International GmbH (ФРГ) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031642.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Life Is Just What You Make It • Ты хозяин своей судьбы
+A2. The Twelfth Of Never • Буду любить тебя вечно
+A3. Sunshine Rose • Солнечная роза
+A4. Do You Want Me • Нужен ли я тебе(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:48:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8948462218AF8523624C54057C3BA079C5E73471
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621442   (1030764) от 26.03.2023
+
+Bob Catley - Studio Albums (6 releases) (1998-2008) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Heavy Metal, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030764.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роберт Адриан Кэтли — английский певец, музыкант, солист британской рок-группы Magnum. Здесь представлена его сольная дискография.1998 - The Tower
+1999 - Legends
+2001 - Middle Earth
+2003 - When Empires BurnsЖанр: Heavy Metal, Hard RockПродолжительность: 06:08:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9876342E36D4E11DFFDC08EB0B147A5D33EF14AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622220   (1030295) от 28.03.2023
+
+Sheavy - Studio Albums (9 releases) (1996-2013) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Stoner/Doom Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030295.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sheavy — канадская группа, образованная в 1993 году в городе Сент-Джонс.1996 - Blue Sky Mind
+1998 - The Electric Sleep
+2000 - Celestial Hi-Fi
+2003 - SynchronizedЖанр: Stoner/Doom MetalПродолжительность: 07:57:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E64BB1176D53B40C64F57A3C34A02AFBC73F9D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623730   (1029090) от 03.04.2023
+
+Grant Miller - Greatest Hits & Remixes (2016) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029090.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Doctor For My Heart (12" Version) 5:18
+A2. Wings Of Love (12" Version) 5:21
+A3. Colder Than Ice (12" Version) 5:38
+A4. Lost In Paradise (Extended Version) 5:05(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:52:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD24E1CD66A198AF5A6AC49156FEE5D0C6E12513
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1450767   (1028846) от 27.02.2021
+
+Ryszard ''Skiba'' Skibinski - 1951-1983 (1984) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028846.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Lutek - Pogromca Lwow
+A2 Boogie Dziadka Skiby
+A3 Jak Nas Gonili Tacy Jedni
+A4 MPO Blues(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:39:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF8086AA473E2A386A93B4DAA40853E5D2DBEAC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1450936   (1028743) от 28.02.2021
+
+Tango - Electric Ball (1986) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock, New Wave>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028743.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Break This Glass = Co S Tim Sklem
+A2 Going Downhill = Na Sikme Plose
+A3 It's A Zombie = Chtelas To Videt
+A4 They'll Get You Anyway = Z Blata Do Louze(   Читать дальше...   )Жанр: Rock, New WaveПродолжительность: 00:43:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21A076D554BE6AE5FAB761F7D08FE619BC73C6FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 203549   (1025347) от 20.03.2021
 
 Manowar - 11 альбомов (1982-2012) (FLAC 2.0|96,192/24|FLAC|VinylRip] <Heavy Metal>
@@ -569,183 +743,6 @@ The Happy Sound Of Ray Conniff (1974)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0AC8F321262E4702BDB4E58280921155B8EF7C54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350668   (1002912) от 07.01.2020
-
-Ray Conniff - Laughter in the Rain & Love Will Keep Us Together (2017) 1975 [DTS 4.0 CD-DA|44.1/16|image+.cue|SACD] <Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002912.jpg" />
-</div>
-
-
-###  Подробнее
-
-Laughter In The Rain (1975)
-
-01. Laughter in the Rain (Sedaka; Cody)
-02. I Honestly Love You (Allen; Barry)(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 01:08:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5D9AE82F682A1C1D911C50097499386D40B139B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351125   (1002667) от 08.01.2020
-
-Ray Conniff - Theme From S.W.A.T. & Send In The Clowns (2017) 1976 [DTS 4.0 CD-DA|44.1/16|image+.cue|SACD] <Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002667.jpg" />
-</div>
-
-
-###  Подробнее
-
-Theme From S.W.A.T. (1976)
-
-01. Police Story
-02. Happy Days(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 01:05:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78D1FDABEC9FD7DFD8732CC2D313A47CBD3E9A4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351039   (1002642) от 08.01.2020
-
-Ray Conniff - Alone Again & Love Theme From The Godfather (2017) 1972 [DTS 4.0 CD-DA|44.1/16|image+.cue|SACD] <Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002642.jpg" />
-</div>
-
-
-###  Подробнее
-
-Alone Again (Naturally) (1972)
-
-01. Alone Again (Naturally) (O’Sullivan)
-02. Song Sung Blue (Diamond)(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 00:56:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69BEFAFCD6451B4575263D134505AF8C71239710
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488224   (1001742) от 12.08.2021
-
-Jon & Vangelis - The Best Of (1993) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Electronic, Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001742.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tracklist
-A1 I'll Find My Way Home
-A2 Italian Song
-A3 And When The Night Comes(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 00:44:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F40978C9707A4FF25CDC49EFAB29533FEA6CBB31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597511   (1000318) от 02.01.2013
-
-Fleetwood Mac – Rumours (1976) /2011 Remaster/ [DST 2.0, 5.1 1bit/2822,4kHz |SACD-R]<Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000318.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Second Hand News (2:46)
-02. Dreams (4:18)
-03. Never Going Back Again (2:04)
-04. Don't Stop (3:13)
-05. Go Your Own Way (3:43)
-06. Silver Springs (4:33)
-07. The Chain (4:28)
-08. You Make Loving Fun (3:34)
-09. I Don't Want To Know (3:14)
-10. Oh Daddy (3:56)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:44:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D33CEC6B18D9E7CB77D10DE0ABD2D8637627322B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600572   (998808) от 08.01.2013
-
-Ария - 3 магнитоальбома (1986-1987) [FLAC 2.0 24/48|tracks (MBRip)]<Hard Rock, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998808.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Hard Rock, Heavy MetalПродолжительность: 00:43:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B425FAEE41CF5FDE429FC176AA2755AD8CE431AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

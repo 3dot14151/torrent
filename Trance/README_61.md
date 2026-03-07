@@ -1,3 +1,90 @@
+###  Публикация: 1769469   (100684) от 28.12.2024
+
+VA - Reason II Rise Best Of 2024 (2024) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100684.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pinkque - Ghost Of You (Mixed) [03:23]
+02. Airdream & Victor Special - Autumn Haze Before Sunrise (Mixed) [05:36]
+03. Kvaii - Sunshine (Mixed) [05:01]
+04. Cenk Basaran - Coming From Paradise (Mixed) [04:20](   Читать дальше...   )Жанр: TranceПродолжительность: 01:28:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73DDFC6E70083306DF213093BE62A2C5C7EC4A31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769458   (100679) от 28.12.2024
+
+VA - Reason II Rise: Uplift Best Of 2024 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100679.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. TP One & D`Arcangel - Jade Eyes Of Asia (Mixed) [05:02]
+02. Mike Van Fabio - Love Of Yesterday (Mixed) [03:45]
+03. Kaselia & N-sKing - Endless Horizon (Mixed) [04:54]
+04. Laucco - Yinghu (Mixed) [04:26](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:14:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C73C4B1745B5D314744F701065D210C0442DAFD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770099   (100607) от 30.12.2024
+
+VA - The Best Releases 2024 of Endlessky Audio (By Abstract Moon & André Wildenhues) (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_100607.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. D.J.G. & M.I.K! - Who You Are (Forceflow Remix) (06:38)
+02. Andy Newtz - Take Me to the Stars (Rick Art Remix) (05:16)
+03. Gayax - Midnight Bird (Original Mix) (06:47)
+04. Iberian - Lose Yourself in the Dream (D.J.G. & M.I.K! Remix) (06:18)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:15:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AB3719D90615DDE996270DBFC03EF4D5E72907A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1770284   (100534) от 31.12.2024
 
 VA - The Best Releases 2024 Of Sounds Of The Stars (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -661,93 +748,6 @@ VA - Progressive Trance Awakening, Vol. 02 (2025) [MP3|320 Kbps] <Trance, Progre
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C9724FD4C6079A3E2CAE51B481DB90648C26F76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774445   (71540) от 21.01.2025
-
-VA - Uplifting Only Top 15: January 2025 (Extended Mixes) (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreamira & Tsuki Shizumutoki - Revive (Intro Mix) [5:37]
-02. Etasonic - In The Valley Of The Blue River (Extended Mix) [9:40]
-03. Jericho Frequency & Kate Miles - Blink Of An Eye (Extended Mix) [7:14]
-04. Dalmoori & RillLua with Euphoric Heart - Wheel Of Fortune (Harmonic Wave Extended Remix) [5:38](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:43:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D67EA0974A8C9985108BBA60F531B6BEB5E087B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775219   (71475) от 25.01.2025
-
-VA - Markus Schulz - Year in Review 2024 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hel:Sløwed & Amber Revival - If You Only Knew (Intro Mix) (Mixed) [3:10]
-02. Yotto & AVIRA feat. ALSO ASTIR - Forget (Mixed) [2:51]
-03. PARAFRAME - Breathe (Mixed) [2:35]
-04. Markus Schulz & HALIENE - Death Of A Star (Mixed) [3:06](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 06:14:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F86E041BD6906FFDFE73258BABDBF06901F6D5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775517   (71425) от 27.01.2025
-
-VA - Keep It Trance Vol. 26 (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. WhiteLight - Transcend Reality (Original Mix) [3:29]
-02. Simonic - We Are One (Original Mix) [2:51]
-03. Dalmoori & Euphoric Heart - Intelligence (Original Mix) [5:19]
-04. LekSin - Resistance (Extended Mix) [6:45](   Читать дальше...   )Жанр: TranceПродолжительность: 02:16:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D60CC433376D724452D88FD44333FDA0D04E7A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

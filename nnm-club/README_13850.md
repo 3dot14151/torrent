@@ -1,22 +1,31 @@
-###  Публикация: 239575   (472485) от 25.09.2010
+###  Публикация: 547004   (474440) от 15.09.2012
 
-Анджей Сапковский | Сага о Ведьмаке [1986-1998] [MP3]
+VA - Kiss FM Dance Radio Chart 3 (2005) [MP3|320 кб/с]<House>
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472485.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_474440.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ведьмак - фэнтезийный цикл польского писателя Анджея Сапковского, главным героем которого является Геральт из Ривии - охотник за монстрами, представляющими угрозу для жизни людей. В детстве ему, как и другим ведьмакам, с помощью мутаций были приданы высокие боевые качества: большая сила, мгновенная реакция, ускоренный метаболизм. Основная работа Геральта — за деньги (   Читать дальше...   )Жанр: Фэнтэзи
+01. David Morales with Lea Lorien - How Would U Feel (Rouhofer Radio Edit) [03:57]
+02. Stonebridge Vs. Ultra Nate - Freek On (Ferry Corsten Radio Edit) [03:26]
+03. Global Deejays - What A Feeling (Clubhouse Radio Version) [03:28]
+04. Sonique - Why (Radio Edit) [03:10]
+05. Dave Mcallen - Bitch (Radio Edit) [03:09]
+06. Tom Novy Feat. Lima - Take It (Video Edit) [03:31]
+07. DJ Sender - What You Need (Original Mix) [04:13]
+08. Bastian Bates - So Much Love (Short Club Mix) [03:27]
+09. Heiko & Meik(O) - Glucklich (French Cut) [03:05]
+10. Uniting Nations - You&Me (Radio Edit) [02:59](   Читать дальше...   )Жанр: HouseПродолжительность: 01:04:37
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:65BA96458B3D23A678D0C2C094E105B23E8AE257
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,673 +33,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057783   (472484) от 29.09.2016
+###  Публикация: 547533   (474438) от 15.09.2012
 
-Reigns (2016) [Ru/Multi] (1.23/dlc) License GOG [Collector's Edition]
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472484.jpg" />
-</div>
-
-
-###  Подробнее
-
-Воссядьте на престол и станьте милостивым (или жестокосердым) средневековым монархом с современным подходом, чтобы легкими взмахами контроллера доносить монаршую волю до поданных. Постарайтесь выжить под нескончаемым градом прошений от ваших советников, холопов, соратников и врагов и при этом сохранить баланс между всеми столпами вашего королевства. И помните: любое (   Читать дальше...   )Тип издания: LicenseРазработчик: NerialЖанр: Logic (CCG)Язык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E7DE9C0D123627F88BD9F416BA793F52965BC52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 238582   (472483) от 25.09.2010
-
-Проекты - 3D Wedding Album - Honeymoon [AEP]
-
->>Проекты
->>Свадебные и романтические (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472483.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания 3D свадебного фото альбома, воспоминаний, медового месяца и т.д.Формат: AEP
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567427   (472478) от 03.08.2022
-
-Sinsaenum - Echoes Of The Tortured (2016) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472478.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Materialization 01:19
-02. Splendor and Agony 03:45
-03. Excommunicare 00:45
-04. Inverted Cross 03:35(   Читать дальше...   )Жанр: Death MetalПродолжительность: 01:01:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75345F3E67E2B26DD82636D15F055747583E8B75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567551   (472477) от 03.08.2022
-
-Kadaverficker - Kaos Nekros Kosmos (2020) [APE|Lossless|image + .cue] <Death Metal, Goregrind, Grind>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472477.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moonstoned (Nekrologue)
-02. Warfare in Sects
-03. I Put a Smell on You
-04. Bier sind dein Gott(   Читать дальше...   )Жанр: Death Metal, Goregrind, GrindПродолжительность: 00:45:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F23FA84B08E264469941C049AE384177E0B051E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 701819   (472476) от 20.09.2013
-
-Журнал | Everyday Practical Electronics №9 (сентябрь 2012) [PDF] [En]
-
->>Журналы
->>Журналы по электротехнике и радиоэлектронике
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472476.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал "Everyday Practical Electronics" предназначен для электронщиков и компьютерных энтузиастов. В журнале для повторения приводится полное описание проектов, со схемами и печатными платами. Журнал Everyday Practical Electronics будет полезен и как для начинающих, так и для опытных радиолюбителей.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23DECC65ECA97561F287CB7D6EC0B01E85A5F5AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567614   (472475) от 03.08.2022
-
-Роковая шутка Бронко Билли / Broncho Billy's Fatal Joke (1914) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472475.jpg" />
-</div>
-
-
-###  Подробнее
-
-Старатель Бронко Билли получает от золотодобывающей компании предложение продать свой золотосодержащий участок за 1.000 долларов. Рандел, участок которого находился рядом с участком Бронко, услышав эту новость, он тоже решает продать свой надел. Когда Бронко Билли становится об этом известно, он задумывает над ним подшутить...Производство: США, The Essanay Film Manufacturing CompanyЖанр: Комедия, короткометражный, немое киноРежиссер: Гилберт М. "Бронко Билли" АндерсонАктеры: Бронко Билли, Карл Стокдейл, Маргерит Клэйтон, Тру Бордман, Билл Като, Виктор Потел, Ли Уиллард, Фред ВиндемерПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:18:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65C6F1ED57E718820785B3FC4471859884A76DFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567419   (472473) от 03.08.2022
-
-A Taste of Fear - God's Design (2017) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Thrash, Technical>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472473.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. God's Design (06:08)
-02. Into Hell (04:04)
-03. Out of Place (05:24)
-04. A Feared Secret (07:48)(   Читать дальше...   )Жанр: Death Metal, Thrash, TechnicalПродолжительность: 00:47:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B0ADA228441E4C1268CEA8098DE19E9E070F8B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 701833   (472472) от 20.09.2013
-
-Журнал | Everyday Practical Electronics №8 (август 2012) [PDF] [En]
-
->>Журналы
->>Журналы по электротехнике и радиоэлектронике
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472472.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал "Everyday Practical Electronics" предназначен для электронщиков и компьютерных энтузиастов. В журнале для повторения приводится полное описание проектов, со схемами и печатными платами. Журнал Everyday Practical Electronics будет полезен и как для начинающих, так и для опытных радиолюбителей.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BB57C22117F1916DF1E69DDF92E52E70B1744D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567495   (472470) от 03.08.2022
-
-Acanthosis - Scriptures of the Accursed (2022) [FLAC|Lossless|WEB-DL|tracks] <Technical, Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472470.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Thirst of Knowledge (00:04:05)
-02 - Deep Scarlet, Chapter I - Impertinent Worship (00:03:35)
-03 - Deep Scarlet, Chapter II - Terraria now resides basking in red (00:02:58)
-04 - The Deep Beckons (00:04:15)(   Читать дальше...   )Жанр: Technical Brutal Death MetalПродолжительность: 00:32:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4877F851F39A40B99394E5C830CE8BDF7E4E883
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567549   (472468) от 03.08.2022
-
-TextMan 1.4.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472468.jpg" />
-</div>
-
-
-###  Подробнее
-
-С приложением TextMan вы избавитесь с рутиной работой по набору текста на веб-сайтах, в файлах формата PDF, изображениях или системных пользовательских интерфейсах. Просто выберите область экрана так же, как если бы вы делали снимок экрана, и найдите весь распознанный текст в буфере обмена, готовый для вставки куда угодно.Тип издания: macOS SoftwareРелиз состоялся: 02.08.2022Разработчик: © 2022 KF Interactive GmbHПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C52F34A51D1DBCA49368618110B5966B6F48878B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 702027   (472467) от 20.09.2013
-
-Redlight King - Something For The Pain (2011) [FLAC|tracks + .cue]<Alternative Rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472467.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Something For The Pain   (3:30)
-02.  Bullet In My Hand   (3:06)
-03.  Old Man   (3:01)
-04.  City Life   (3:28)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:39:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C37E94FE57ECF392BCE51CB5BD6BEB2B2FDAB5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567474   (472466) от 03.08.2022
-
-Mulberry Sky - Who's There? (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472466.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Light in the Distance (6:04)
-02. Second Face (4:17)
-03. The Fuckening (4:00)
-04. Hot Hot Thunder (3:50)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:51:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55762957020FBA0B2616F7097F63C5F1FBC40D05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567489   (472465) от 03.08.2022
-
-James Morrison - On The Edge (2003) Morrison Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472465.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Still Dangerous [7:43]
-02. Da Speech [9:33]
-03. Self Portrait [8:24]
-04. Even Seiben [13:04](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 01:12:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04E929BB5F29D99862E7F70E1CB62213E4003834
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 701858   (472464) от 20.09.2013
-
-Журнал | Everyday Practical Electronics №6 (июнь 2012) [PDF] [En]
-
->>Журналы
->>Журналы по электротехнике и радиоэлектронике
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472464.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал "Everyday Practical Electronics" предназначен для электронщиков и компьютерных энтузиастов. В журнале для повторения приводится полное описание проектов, со схемами и печатными платами. Журнал Everyday Practical Electronics будет полезен и как для начинающих, так и для опытных радиолюбителей.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB1D590FD1F4F42BE200174F5FA1DC7C98B8DAFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567611   (472463) от 03.08.2022
-
-Rename Photos 1.1 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472463.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rename Photos — приложение для одновременного переименования нескольких файлов. Можно манипулировать различными способами путем настройки методов переименования имени.
-Легко настроить пакетное задание, используя несколько методов для большого количества файлов.
-С помощью Rename Photos вы можете создавать новые имена файлов, добавляя, удаляя, заменяя, изменяя регистр (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.01.2021Разработчик: © 2020 ClueBees TechПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:186656BC9F8F848C52E13D987C995A2196EDCBCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567579   (472461) от 03.08.2022
-
-Underword 1.0.2 [En]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_472461.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легко управляйте субтитрами с помощью приложения Underword в формате файлов SubRip (.srt). Импортируйте обычный текст в качестве субтитров с пустыми строками чтобы выделить границы.Тип издания: macOS SoftwareРелиз состоялся: 06.10.2022Разработчик: © DesairemПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 701870   (472460) от 20.09.2013
-
-Журнал | Everyday Practical Electronics №5 (май 2012) [PDF] [En]
-
->>Журналы
->>Журналы по электротехнике и радиоэлектронике
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472460.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал Everyday Practical Electronics предназначен для электронщиков и компьютерных энтузиастов. В журнале для повторения приводится полное описание проектов, со схемами и печатными платами. Журнал Everyday Practical Electronics будет полезен и как для начинающих, так и для опытных радиолюбителей.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EBB365374C7A5982880621ECAF120B903404E87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 701667   (472459) от 20.09.2013
-
-Журнал | Everyday Practical Electronics №12 (декабрь 2012) [PDF] [En]
-
->>Журналы
->>Журналы по электротехнике и радиоэлектронике
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472459.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал "Everyday Practical Electronics" предназначен для электронщиков и компьютерных энтузиастов. В журнале для повторения приводится полное описание проектов, со схемами и печатными платами. Журнал Everyday Practical Electronics будет полезен и как для начинающих, так и для опытных радиолюбителей.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E7898A9517C65E2C8455C8ABFB51A439500B6F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 702038   (472456) от 20.09.2013
-
-Ben-Tou / Жрач-ка [2011, TV, 12] BDrip 720p Hi10bit raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472456.jpg" />
-</div>
-
-
-###  Подробнее
-
-16-летнему Ё Сато насладиться весной жизни мешает безденежье – в школьном общежитии кормят лишь завтраком, на остальное всего тысяча иен в день, а еще мангу надо покупать! Вот и рыскал парень по местному универмагу, а потом очнулся, ничего не помня. Размотав цепочку событий, Сато понял, что случайно забрел в святое место, где каждую ночь перед закрытием продавец клеит на готовые обеды-бэнто заветные ярлычки половинной цены. После этого из-под земли вырастают бойцы, и начинается королевская битва, в которой школьники и студенты от души метелят друг друга за право получить вожделенный приз. Можно сказать, что в магазине сложился «бойцовский клуб» со своими фольклором и традициями.
-
-Все это Сато узнал не сразу, а в ходе нескольких визитов в нужный отдел, которые неизменно заканчивались одним и тем же. Упорство новичка не осталось незамеченным: у него появилась верная болельщица, симпатичная Хана Осирой. А потом над ребятами взяла шефство на год старшая «Ледяная Ведьма» Сэн Яридзуй – легендарный бэнто-боец и основатель (   Читать дальше...   )Жанр: комедия, школаРежиссер: Итагаки СинПродолжительность: 12 серий по 25 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1E221F34397B2B22567EF11B50AC27F6A8BDAE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 547727   (472428) от 16.09.2012
-
-Журнал | Gadgets & Gizmos (India) [октябрь 2012] [PDF] [En]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472428.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание посвящено различной электронике: ПК, навигаторы, смартфоны, фотоаппараты, мультимедиаустройства. Ежемесячный обзор новинок. В этом номере: обзор новых фотокамер, ноутбуков и другой электроники.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77E5A0315AFFAABBD31F568908E813DDCEAC94F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 547360   (472427) от 16.09.2012
-
-EVEL7N feat. J. Worthy - Dirty Nights (2012) [H.264/720р] WEBRip
-
->>Архив торрентов
->>Архив Музыкального Видео
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472427.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DanceПродолжительность: 00:04:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF190679F60F50040740444A4B06DC3A4D1BC268
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 548059   (472426) от 16.09.2012
-
-VA - Beach Trance 2012-01 (2012) [MP3|320 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472426.jpg" />
-</div>
-
-
-###  Подробнее
-
-VA - Beach Trance 2012-01 (2012)
-
-Год: 2012
-Жанр: Trance
-Продолжительность: 01:42:10Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТрек лист:
-01. Matteo Sala - Believe Me - Luigi Gabriele Remix (6:23)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:727578AF68ED0EC4725DC1057F24F769502F68F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 547164   (472425) от 16.09.2012
-
-Acacia Avenue - Acacia Avenue (2010) [MP3|320 кб/с]<Melodic Hard Rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Don’t Call Me Tonight (4:12)
-02.  Hold On (4:47)
-03.  An Illusion (4:10)
-04.  Jamie’s In Love (4:18)
-05.  Can’t Make You Stay (4:23)
-06.  Mad Antenna (4:00)
-07.  Wait No More (5:13)
-08.  No Looking Back (5:00)
-09.  Just Wanna Be With You (4:23)
-10.  Let Go (4:29)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:49:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CDDB6CAE4F8E08DF35D168FDEB264CCDB225313
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 547571   (472424) от 16.09.2012
-
-Nic ZigZag - Winter Road Mix (2012) [MP3|320 кб/с]<Drum and Bass>
+VA - Billboard Hot 100 (08.09.2012) [MP3|219-298 кб/с]<House, Club, Funky, Dance, Vocal>
 
 >>Неофициальные сборники
->>Electronic (сборники)
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472424.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_474438.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 Blu Mar Ten Feat. Rochelle Parker - Sweet Little Supernova
-02 Subwave - Bring Me Down
-03 Flame - Misty One
-04 BCee - Captured In Time
-05 Physical Illusion - Talk To You
-06 Smote - Great Moments
-07 Grafix - Devotion
-08 Mistabishi - Traveler
-09 Bcee Feat. Robert Owens - Keep The Faith
-10 Blu Mar Ten - All Thoughts Are Prayers(   Читать дальше...   )Жанр: Drum and BassПродолжительность: 00:46:06
+01. Taylor Swift - We Are Never Ever Getting Back Together [03:11]
+ 02. Flo Rida - Whistle [03:45]
+ 03. Ellie Goulding - Lights [03:31]
+ 04. Maroon 5 - One More Night [03:39]
+ 05. Fun - Some Nights [04:37]
+ 06. Carly Rae Jepsen - Call Me Maybe [03:13]
+ 07. Katy Perry - Wide Awake [03:41]
+ 08. Maroon 5 ft. Wiz Khalifa - Payphone [03:51]
+ 09. Owl City ft. Carly Rae Jepsen - Good Time [03:26]
+ 10. Justin Bieber ft. Big Sean - As Long As You Love Me [03:49](   Читать дальше...   )Жанр: House, Club, Funky, Dance, VocalПродолжительность: 06:22:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AA6E7DCF6F080D90C94DFEC86971546BCFF1DAF8
+magnet:?xt=urn:btih:B07B83537A3722B765D5D3B57186740CBC9C30FB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -698,25 +68,647 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 547730   (472423) от 16.09.2012
+###  Публикация: 547592   (474436) от 15.09.2012
 
-HQ Wallpapers Perfect Women (15.09.12) [Wallpapers 16+]
+[Wallpapers] Абстракции (Часть 2)
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472423.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_474436.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего столаРазрешение файлов: 1600 x 1200 ~ 1920 x 1200
+Абстракции обои для рабочего стола часть 2.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5466138256FD81C25F8018F5A003C8D8247183DD
+magnet:?xt=urn:btih:A7FEC29818477D660E514D4CD1D418F9CF58DA5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567299   (474435) от 02.08.2022
+
+VA - Nothing But... Pure Dance Vol. 12 (2022) [MP3|320 Kbps] <Club, Dance, Electro Pop, Groove>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_474435.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lukkino Feat. Hecate - Aliens (Vox & Sax Zuli Radio Version)
+02. Fabrizio La Marca - Alone With You
+03. Loving Touch - Take Me
+04. Dino Del Moro - Just Believe(   Читать дальше...   )Жанр: Club, Dance, Electro Pop, GrooveПродолжительность: 01:28:53 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6921CADD13366C02C1067010357B07B894BE7DD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567321   (474434) от 02.08.2022
+
+Easy Markdown 1.9.1 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_474434.jpg" />
+</div>
+
+
+###  Подробнее
+
+HTML (от англ. HyperText Markup Language — «язык гипертекстовой разметки») — стандартный язык разметки документов во Всемирной паутине. Язык HTML интерпретируется браузерами и отображается в виде документа в удобной для человека форме.
+Easy Markdown позволяет создавать веб-страницы так же, как запись обычного текста. Easy Markdown поможет улучшить вашу скорость в (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.08.2022Разработчик: © 2012-2022 Ecleti - Roberto PanettaПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75B108C48195C14DAC32914693FC686304DA6652
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567367   (474433) от 02.08.2022
+
+The Mysterines - Reeling (2022) [FLAC|Lossless|tracks + .cue] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_474433.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Life's a Bitch (but I like it so much) (2:51)
+02. Hung Up (3:25)
+03. Reeling (3:09)
+04. Old Friends Die Hard (2:18)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:43:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5FE884451D2A91758C1584C3AFB06D21AA2C642
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567338   (474432) от 02.08.2022
+
+ApolloOne - Photo Video Viewer 3.1.2 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_474432.jpg" />
+</div>
+
+
+###  Подробнее
+
+ApolloOne - это разработанное с нуля приложение как быстрый, эффективный и многофункциональный медиа-просмотрщик. ApolloOne использует расширенные функции операционной системы, такие как: многопоточность, Grand Central Dispatch и Core Image для высокой производительности приложения.Тип издания: macOS SoftwareРелиз состоялся: 01.08.2022Разработчик: © 2015-2022 Anogeissus Ltd.Поддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC015892A851467349D9B9F43FE1A85344C55BB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567303   (474431) от 02.08.2022
+
+VA - Nothing But... Pure Dance Vol. 13 (2022) [MP3|320 Kbps] <Club, Dance, Electro Pop, Groove>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_474431.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fandoctor - Want 2 Dance
+02. WastReal - Flava Pas
+03. Newsouth Housewaves - Greece 2022
+04. My Secret Garden - If I Say(   Читать дальше...   )Жанр: Club, Dance, Electro Pop, GrooveПродолжительность: 01:36:30 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CD0F72CB31E658ABEC111084E7E47E48EAF77A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567365   (474430) от 02.08.2022
+
+Вячеслав Клименков - Дыхание любви (1996) [FLAC|Lossless|image + .cue] <Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_474430.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Дыхание любви
+02. Расставание в ночи
+03. Подари мне любовь
+04. Маленький китаец(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:49:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E80878D1E66C9B685436AE11D37CC179B02811B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567318   (474429) от 02.08.2022
+
+Mutharoad - Midnight Stalker (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_474429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back In The Saddle 06:14
+02. Heart Of Gold 04:12
+03. Born To Roll 04:53
+04. Midnight Stalker 04:28(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:47:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F61B879BE501C0F5BB0D02F11C7522FEEB48082
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567257   (474428) от 02.08.2022
+
+Dato 4.0.4 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_474428.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dato - это замена часов системного меню. По умолчанию он выглядит точно так же, но когда вы нажимаете на него, вы получаете небольшой календарь, события календаря, текущее время в разных часовых поясах и многое другое.
+Dato поддерживает все языковые стандарты и языки, которые macOS поддерживает для текста, даты, времени и календаря в строке меню, но меню доступны (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.08.2022Разработчик: © Sindre SorhusПоддерживаемая ОС: macOS 12.3+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CD30F3956D97C6673E26DCA545A880A8DB6384A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567295   (474427) от 02.08.2022
+
+The Ragged Saints - The Sound Of Breaking Free (2013) Reissue, 2021, Lions Pride Music [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_474427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Sound Of Breaking Free (3:21)
+02. A Place Where I Belong (3:59)
+03. Don't Let Me Go (3:40)
+04. I'll Never Give Up On Love (3:22)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50F5ED13DC204C678EA459CA4A66D802D92C7C4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567351   (474426) от 02.08.2022
+
+Две унции свинца / 2 once di piombo (1966) BDRip [H.264] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_474426.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пекос Мартинез - единственный, кто знает, куда убитый бандитами владелец фургона спрятал кучу денег. И уж конечно он знает, что головорезы любыми способами попытаются выбить у него эту информацию...Производство: Италия, ItalcineЖанр: вестернРежиссер: Маурицио ЛучидиАктеры: Роберт Вудс, Пьер Паоло Каппони, Лючия Модуньо, Петер Карстен, Луиджи Каселлато, Джулиано Раффаелли, Маурицио Бон, Умберто Рахо, Массимо РиджиПеревод: авторский (Василий Горчаков)Субтитры: английские SDHПродолжительность: 01:25:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73B95D6B64AA973E703ED11379B8A8B292C84F9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567307   (474425) от 02.08.2022
+
+Smart File Renamer 1.2.3 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_474425.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легко переименовывайте несколько файлов. Чрезвычайно гибкий пакетный «переименовщик» файлов, который поддерживает сотни сценариев переименования.Тип издания: macOS SoftwareРелиз состоялся: 16.03.2022Разработчик: © 2022 QiplexПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70D265D6C173684D631088828F86E5FFEA2E54B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567385   (474424) от 02.08.2022
+
+Две унции свинца / 2 once di piombo (1966) BDRip [H.264/720p] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_474424.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пекос Мартинез - единственный, кто знает, куда убитый бандитами владелец фургона спрятал кучу денег. И уж конечно он знает, что головорезы любыми способами попытаются выбить у него эту информацию...Производство: Италия, ItalcineЖанр: вестернРежиссер: Маурицио ЛучидиАктеры: Роберт Вудс, Пьер Паоло Каппони, Лючия Модуньо, Петер Карстен, Луиджи Каселлато, Джулиано Раффаелли, Маурицио Бон, Умберто Рахо, Массимо РиджиПеревод: авторский (Василий Горчаков)Субтитры: английские SDHПродолжительность: 01:25:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE7FBFD587DFA3E90C0A9445EA6846F5FC369702
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567438   (474423) от 02.08.2022
+
+Task Office 7.9 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_474423.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подключите все свои календари к Task Office. Двусторонняя синхронизация работает с Apple iCal, Google Calendar, Exchange, Yahoo, Outlook и другими. После того как вы настроите соединение, все будет обновляться автоматически.Тип издания: macOS SoftwareРелиз состоялся: 02.08.2022Разработчик: © 2015 – 2022 by DK ConsultingПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D501C5A04076A435F7363100CA9D3F91C12BB9D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567291   (474422) от 02.08.2022
+
+VA - Nothing But... Pure Dance Vol. 11 (2022) [MP3|320 Kbps] <Club, Dance, Electro Pop, Groove>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_474422.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lakus Feat. Yonna Marie - YEARN (Original Mix)
+02. JSED - Give Me A Feelin (6AM Extended Remix)
+03. Lau Kid - Wandering (Original Mix)
+04. Lee Dagger & Melanie Fontana - Making It Up (Dark Intensity Radio)(   Читать дальше...   )Жанр: Club, Dance, Electro Pop, GrooveПродолжительность: 01:38:56 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC29777FCF305E8CC72368A7A10916159A95DDA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567311   (474421) от 02.08.2022
+
+Speedy Duplicate Finder 1.3.3 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_474421.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чрезвычайно быстрый поиск дубликатов файлов. Этот мощный и гибкий инструмент поможет вам найти и удалить повторяющиеся файлы в один клик.Тип издания: macOS SoftwareРелиз состоялся: 19.07.2022Разработчик: © 2022 QiplexПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA8571ED62685C476632D060E30797294A63A72C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567348   (474420) от 02.08.2022
+
+SyncMate Expert 8.5.504 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_474420.jpg" />
+</div>
+
+
+###  Подробнее
+
+SyncMate — это единственное приложение для синхронизации данных в OS X, которое позволяет синхронизировать Mac с несколькими устройствами одновременно (Android-устройства, неограниченное количество iOS устройств, другие Mac компьютеры, любые MTP устройства и монтируемые диски).
+Больше нет необходимости покупать различные приложения для синхронизации под каждое устройство (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.05.2022Разработчик: © 2022 Electronic Team, Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F6E2054FAFDD45CD2A79017F7ADC6DB0D0D83B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567082   (474419) от 02.08.2022
+
+Жан-Клод Ларше | Болезнь в свете православного вероучения (2016) [PDF, DJVU, FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_474419.jpg" />
+</div>
+
+
+###  Подробнее
+
+Известный православный богослов Жан-Клод Ларше пытается выработать квинтэссенцию учения о телесных болезнях и их излечении. Исследуя эту тему, автор опирается на Священное Писание, труды святых отцов, литургические тексты и учение о Таинствах Церкви. Первая часть книги посвящена вопросам об источниках и причинах появления болезней, о взаимосвязи болезни со злом и (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE925B7D32CEBC19CF3ABC7C0D85465DFE6CD1E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567288   (474418) от 02.08.2022
+
+All Remixes 1.1.0 [En]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_474418.jpg" />
+</div>
+
+
+###  Подробнее
+
+Откройте для себя все ремиксы на песни, которые вы любите.Тип издания: macOS SoftwareРелиз состоялся: 19.03.2022Разработчик: © 2022 QiplexПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AA254AE361C762813552350DB7B48986552098B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567302   (474417) от 02.08.2022
+
+Full Discography 1.2.3 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_474417.jpg" />
+</div>
+
+
+###  Подробнее
+
+Откройте для себя полную дискографию любимых исполнителей. Full Discographer помогает найти недостающие релизы ваших любимых исполнителей.Тип издания: macOS SoftwareРелиз состоялся: 07.05.2022Разработчик: © 2022 QiplexПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50CA1CF3FF03BDBD8A47C4B1EEEB6904830A970D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567293   (474416) от 02.08.2022
+
+Easy File Organizer 3.1.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_474416.jpg" />
+</div>
+
+
+###  Подробнее
+
+Easy File Organizer — этот мощный, гибкий и трудолюбивый инструмент поможет вам покончить с хаосом ваших неорганизованных файлов простым щелчком мыши и взять под контроль свои неопрятные папки и рабочий стол.Тип издания: macOS SoftwareРелиз состоялся: 24.03.2022Разработчик: © 2022 QiplexПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:349B676BE2B149D5B1859567BE017268D7A39E32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1406368   (474407) от 03.09.2020
+
+[Академия Excel] Дмитрий Якушев | Excel. Полезные приемы работы с графиками.
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_474407.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы получите навыки графического представления данных и научитесь правильно строить графики, диаграммы и другие визуальные объекты. Тут уже больше не про уровень, а про специализацию. Вот есть тема графики. Вот вы читаете название первого курса Полезные приемы работы с графиками и думаете, что раз всего 3 курса по графикам, значит первый самый простой и его материал (   Читать дальше...   )Производство: Академия ExcelЖанр: MS ExcelПродолжительность: 03:09:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A78A0579329DEF0EBEBDF0CD42EB357ABB87DAC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466577   (474405) от 03.09.2020
+
+Малышка на миллион / Million Dollar Baby (2004) [720p] BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_474405.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тренер по боксу Фрэнк Данн переживает не лучшие времена. Из-за сложных отношений со своей дочерью он долгое время не позволял себе привязываться к кому-либо, боясь вновь пережить потерю. Однако все меняется, когда в его тренировочном зале появляется Мэгги. Существуя в постоянной борьбе с окружающим миром, Мэгги выработала в себе непоколебимую стойкость духа и волю (   Читать дальше...   )Жанр: Драма, СпортРежиссер: Клинт ИствудАктеры: Клинт Иствуд, Хилари Суэнк, Морган Фриман, Джей Барушель, Майк Колтер, Люсия Рижкер, Брайан Ф. О’Бирн, Энтони Маки, Марго Мартиндейл, Рики ЛиндхоумПеревод: Дублированный, Авторский одноголосый, закадровыйЯзык субтитров: Русский, АнглийскийПродолжительность: 02:12:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3410DDC27D71284FDECCFE88490B7888097770E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1406505   (474403) от 03.09.2020
+
+Aarklash: Legacy (2013) [Ru/Multi] (0.1.134.20013) Repack Other s
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_474403.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Aarklash: Legacy возьмите на себя командование отрядом наемников в поисках истины и проведите его через бесчисленные сражения. Добро пожаловать в Аарклаш, страну хаоса, где с незапамятных времен продолжаются непрекращающиеся битвы между силами Света, Судьбы и Тьмы. В центре этого конфликта группа наемников, несправедливо обвиненный в преступлениях против Алаханского (   Читать дальше...   )Тип издания: RepackРазработчик: Cyanide StudioЖанр: Strategy, Adventure, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

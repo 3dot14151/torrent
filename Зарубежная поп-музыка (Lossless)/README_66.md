@@ -1,3 +1,119 @@
+###  Публикация: 962498   (294738) от 04.12.2015
+
+VA - Absolute Music 79 (2015) 2CD [FLAC|track+.cue]<Top 40, Pop Compilation, Pop, Rock, Pop-Rock, Dancepop, House, R&B, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_294738.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представляю вашему вниманию последний сборник хитов от Warner Music Sweden AB (Absolute). Практически год на трекере не было этих сборников, а с момента моей раздачи с 74 сборником прошло ровно два года. Повторю то, о чем писал два года назад. Не отправляйте этот диск в каталог ретро. Пусть не смущает вас цифра 79 - это не год издания и не период выхода композиций (   Читать дальше...   )CD1:
+01. Avicii - For A Better Day  (3:26)
+02. Felix Jaehn feat Jasmine Thompson - Ain't Nobody (Loves Me Better)  (3:07)
+03. Robin Schulz feat Francesco Yates - Sugar  (3:41)(   Читать дальше...   )Тип издания: 2CDЖанр: Top 40, Pop Compilation, Pop, Rock, Pop-Rock, Dancepop, House, R&B, SoulПродолжительность: 02:33:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBB96BC35FFF69BAF2282D753ADE4E1BBAC19F23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 961961   (294729) от 04.12.2015
+
+Backstreet Boys - Greatest Hits - Chapter One (2001) [FLAC|tracks+.cue]<Europop, Vocal, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_294729.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Want It That Way (3:35)
+02. Everybody (Backstreet's Back) (4:47)
+03. As Long as You Love Me (3:34)
+04. Show Me the Meaning of Being Lonely (3:56)(   Читать дальше...   )Жанр: Europop, Vocal, BalladПродолжительность: 01:00:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F11777354596852338D1AF3DDD0BEAE15227DADA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 961948   (294618) от 04.12.2015
+
+Lara Fabian - Greatest Hits (2010) 2CD [FLAC|image + .cue]<Pop, Vocal, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_294618.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Demain N' Existe Pas (04:35)
+02. Amoureuse (04:32)
+03. La Lettre (03:55)
+04. Toccami (05:00)(   Читать дальше...   )Жанр: Pop, Vocal, BalladПродолжительность: 02:39:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E9BA87C15ABBFFFA123BD126F6985106B85D8DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262687   (293320) от 16.11.2018
+
+Vanessa Paradis - Les sources (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Chanson>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_293320.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Les sources 0:58
+02. Kiev 3:52
+03. La plage 4:06
+04. Ces mots simples 2:54(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 00:42:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:437E29528CAF6376B3F42D51884C6FCD6146380F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1334634   (292912) от 30.10.2019
 
 The Real ABBA Gold - Janus (1998) Hey Presto! 1999 [FLAC|Lossless|image + .cue] <EuroDance, Pop>
@@ -626,122 +742,6 @@ Celine Dion - Courage (Deluxe Edition) (2019) Scene [FLAC|Lossless|tracks + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B326C72A89ED730A8754DD2D7E746C6D228E306
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264002   (284359) от 21.11.2018
-
-VA - Romantic Easy Listening (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Vocal Jazz, Easy Listening>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284359.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frankie Valli - Can't Take My Eyes Off You
-02. Shirley Bassey - (Where Do I Begin) Love Story
-03. Fred Astaire - My Eyes Adored You
-04. Vera Lynn - Besame Mucho (Kiss Me)(   Читать дальше...   )Жанр: Pop, Vocal Jazz, Easy ListeningПродолжительность: 01:19:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEC4DFEB769746577FCCE5D255EE20141468B106
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264014   (284334) от 21.11.2018
-
-Platinum Blonde - Standing in the Dark (1983) Remastered, 2014, Columbia [FLAC|Lossless|tracks] <Pop Rock, New Wave>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Doesn't Really Matter
-02. Standing in the Dark
-03. Sad Sad Rain
-04. Take It From Me(   Читать дальше...   )Жанр: Pop Rock, New WaveПродолжительность: 00:37:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F71AF4CD92D6A0934DBD7AE48644BB4EB88A12FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186431   (284239) от 26.11.2017
-
-Charlotte Gainsbourg - Rest (2017) [FLAC|Lossless|tracks + .cue] <Indie Pop, French Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ring-a-Ring o' Roses (4:30)
- 02. Lying with You (3:19)
- 03. Kate (3:41)
- 04. Deadly Valentine (6:05)(   Читать дальше...   )Жанр: Indie Pop, French Pop-RockПродолжительность: 00:48:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6543205967D66DC6474069D022EB27ADE710D7AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964042   (283784) от 10.12.2015
-
-Sarah Brightman - The Trees They Grow So High (1998) [FLAC|image + .cue]<Vocal>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283784.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Early One Morning
-02. Come You Not from Newcastle? (Hullah's Song Book) (English)
-03. Sweet Polly Oliver (Old English Tune)
-04. The Trees They Grow So High (Somerset folksong)(   Читать дальше...   )Жанр: VocalПродолжительность: 00:52:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC52421A9036360E6D1275C9E53F0EB65DCBCFA2
 ```
 
 https://mybot314.ru/tekegram_catalog/

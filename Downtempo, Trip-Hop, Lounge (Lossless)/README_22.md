@@ -1,3 +1,32 @@
+###  Публикация: 1648677   (230689) от 24.07.2023
+
+VA - Maretimo Chill Radio - Best of, Vol. 2 - Positive Summer Vibes (2023) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/003/save_picture_230689.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cinematic - Summer Dreaming (Blue Island Mix) (4:32)
+02. Vladi Strecker - One Day On Earth (Warm Colours Mix) (6:47)
+03. In Credo - The Lovers Theme (Non Vocal Remastered Mix) (4:58)
+04. Cocogroove - Sole Del Mar (Island Beach Mix) (5:02)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:34:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:362EF4D863D1701E114AA0F8E88680513F301346
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1648730   (230662) от 24.07.2023
 
 VA - Bossa N' Elvis (2023) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo, Bossa Nova>
@@ -716,35 +745,6 @@ VA - Relaxing Melodies: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:217278204B7A5F14BA57E666A96C790E70670C07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642258   (210517) от 26.06.2023
-
-Sex Music Zone - Orgasm after Orgasm: Seductive Chillout (2023) [FLAC|Lossless|WEB-DL|tracks] <Easy Listening, Lounge>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210517.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Undress Me (3:53)
-02. Let the Fire Burn (4:35)
-03. Let Me Be Your Fantasy (1:46)
-04. Sexual Stimulation (3:16)(   Читать дальше...   )Жанр: Easy Listening, LoungeПродолжительность: 01:16:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98CD9E82EAE86311D3710CB3969CA1BEF38E2D34
 ```
 
 https://mybot314.ru/tekegram_catalog/

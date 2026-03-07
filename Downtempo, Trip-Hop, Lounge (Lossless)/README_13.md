@@ -1,3 +1,32 @@
+###  Публикация: 1146171   (615952) от 28.06.2017
+
+V.A. - Vintage Cafe: Lounge & Jazz Blends Vol.10 (2017) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Lounge, Jazz>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_615952.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Cooltrane Quartet - Purple Rain
+02. Michelle Simonal - This Is What You Came For
+03. Stella Starlight Trio - Get The Party Started
+04. Michelle Simonal - When We Were Young(   Читать дальше...   )Жанр: Downtempo, Lounge, JazzПродолжительность: 01:26:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C65990ABAF8531D264034925F296D0881DCC23A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1296437   (611830) от 17.04.2019
 
 Jens Buchert - Aurora Electronica (2019) Elbroar [FLAC|Lossless|WEB-DL|tracks] <Electronic, Downtempo, Ambient Dub, House>
@@ -718,35 +747,6 @@ VA - Green Fields: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Bale
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:289FBED6E1972443ADB16A4CA5B71E93A842560F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921891   (569876) от 28.07.2015
-
-VA - Cafe Ipanema (2011) [FLAC|tracks+.cue]<Downtempo, Bossa Nova>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569876.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ela E Carioca - Joao Gilberto
-2. Do You Really Want To Hurt Me - Karen Souza
-3. Escola Do Samba - Marcha Cordaz
-4. Catavento - Milton Nascimento(   Читать дальше...   )Жанр: Downtempo, Bossa NovaПродолжительность: 00:48:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D30A04F1663BB6A13CDD6B62C8C351ED84B6F34
 ```
 
 https://mybot314.ru/tekegram_catalog/

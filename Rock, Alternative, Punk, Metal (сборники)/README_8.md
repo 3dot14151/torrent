@@ -1,3 +1,32 @@
+###  Публикация: 1374390   (872985) от 10.04.2020
+
+VA - Advanced Rock (2020) [MP3|320 Kbps] <Rock, Punk, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872985.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dayseeker - Already Numb
+002. Dylan Leblanc - I See It In Your Eyes
+003. Temples - It's All Coming Out
+004. Scott Lavene - Modern World(   Читать дальше...   )Жанр: Rock, Punk, AlternativeПродолжительность: 06:37:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD4778B0B4752F386767CD33CCB73C6ADDBE2D24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 765274   (872982) от 13.03.2014
 
 VA - Alterportal HITS 14 Vol. 66 - February (2014) [MP3|128-320 кб/с]<Alternative, Metal, Rock>
@@ -722,35 +751,6 @@ Dire Straits - 100% Dire Straits (2020) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F3B044E7DF38B6861E990054AD2E78B41AC4D7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 874850   (861196) от 04.03.2015
-
-VA - Alterportal HITS 15 Vol. 78 - February (2015)  [MP3|128-320 кб/с]<Alternative, Metal, Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Smash Into Pieces - Another Day On The Battlefield
-02. Adelitas Way - I Get Around
-03. Beyond the Black - Fall Into The Flames
-04. Poynte - Nursery Crimes(   Читать дальше...   )Жанр: Alternative, Metal, RockПродолжительность: 02:05:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9D66F4FAAC42E5FBF4E96065707C95ABE79FFF4
 ```
 
 https://mybot314.ru/tekegram_catalog/

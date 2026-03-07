@@ -1,3 +1,119 @@
+###  Публикация: 1385448   (797801) от 24.05.2020
+
+VA - Miguel Migs – Nude Tempo One (2002) [FLAC|Lossless|tracks + .cue] <Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797801.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Hajime Yoshizawa - Endless Bow (Jimpster Remix).flac
+02.Onda - Happiness Is Free.flac
+03.Blue Six - Love Yourself (Vincenzo & Basti Remix).flac
+04.Fusion Groove Orchestra - The Dream (Deep Dreamer Dub).flac(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:11:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D471CFDA7C5E52E8CD4A9E5AA44308BCC1E1CFD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199372   (797530) от 18.01.2018
+
+VA - Vip Room Saint-Tropez Famous Club - 20th Anniversary (2009)( mixed by Jean-Roch) [FLAC|Lossless|tracks] <House, Dance-pop, Electro House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797530.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Run-DMC Vs Jason Nevins - It'S Like That
+02.Black Legend - You See The Trouble With Me
+03.Joe Smooth - Promised Land
+04.Moloko - Sing It Back(   Читать дальше...   )Жанр: House, Dance-pop, Electro HouseПродолжительность: 02:25:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92263B7392E28218E602A86F09BC32BCC74916D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199773   (797499) от 18.01.2018
+
+VA - Back To The Future, Vol. 6 (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797499.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sasse - On My Mind (Metrica Remix) (05:32)
+02. Benny Grauer - Falling (Markus Homm Remix) (07:18)
+03. Frankey, Sandrino - Cephei (Locked Groove Remix) (09:13)
+04. Ben La Desh - 2912 (Original Mix) (07:28)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 02:28:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4EC2D2E634A739539FF1BB439CE73E9956A781C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385731   (797277) от 25.05.2020
+
+VA - SPECTRO-017 (2020) Specimen Records [FLAC|Lossless|WEB-DL|tracks] <Electro>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arsonist Recorder - React (06:22)
+ 02. Sound Synthesis - 60 Minute Bleeps (05:36)
+ 03. Francois Dillinger - Humans Among Us (05:30)
+ 04. Datawave - Genotype 1 (04:04)Жанр: ElectroПродолжительность: 00:21:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A0E7803E3E4BD4F8B126DEA52807F83F9CAAFB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1385547   (797205) от 25.05.2020
 
 VA - Bare Essentials Vol. 2 (2003) [FLAC|Lossless|tracks + .cue] <Deep House>
@@ -626,117 +742,6 @@ System 7 & Derrick May - Mysterious Traveller (2002) A-Wave [FLAC|Lossless|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DBD8DF03380372DD33CFB4702EB4FC4C38173123
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274128   (795064) от 05.01.2019
-
-Drexciya - Neptune's Lair (1999) Tresor [FLAC|Lossless|tracks+.cue] <Electro, Detroit Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795064.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro: Temple Of Dos De Agua (1:00)
-02. Species Of The Pod (3:53)
-03. Andreaen Sand Dunes (6:15)
-04. Running Out Of Space (1:54)(   Читать дальше...   )Жанр: Electro, Detroit TechnoПродолжительность: 01:11:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F047C61C339118569404440F9007C6BC5A0B9FCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274157   (795045) от 05.01.2019
-
-Derrick May - Innovator (1997/2008) R & S Records [FLAC|Lossless|tracks+.cue] <Detroit Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795045.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. To Be Or Not To Be (06:54)
- 02. Icon (Montage Mix) (05:50)
- 03. Phantom (01:43)
- 04. Kaotic Harmony (06:35)(   Читать дальше...   )Тип издания: CD, Remastered, ReissueЖанр: Detroit Techno •Продолжительность: 01:08:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67FAA32B2C9BB65ADE0F3800B1960A57AF21541A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200766   (795019) от 22.01.2018
-
-IsoQuant - Discography 4 Releases (2015-2017) [FLAC|Lossless|WEB-DL|tracks] <Techno, Minimal, Dark Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Random Walker (10:50)
- 02. Pulses (09:22)Тип издания: WEBЖанр: Techno/MinimalПродолжительность: 00:20:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1595A8CA37D9E28916613C880AED9B8389D5E92E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156137   (794930) от 05.01.2019
-
-Radius - Discography 7 Releases (2017-2018) echospace [detroit] [FLAC|Lossless|tracks+.cue, tracks] <Dub Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794930.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Interpolation Tapes 0.1Тип издания: CD, Web, VinylЖанр: Ambient/Dub TechnoПродолжительность: 01:10:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D100A0BAE17E0FF76A580ACB2EAD81B736E73308
 ```
 
 https://mybot314.ru/tekegram_catalog/

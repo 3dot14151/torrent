@@ -1,3 +1,90 @@
+###  Публикация: 1741978   (105348) от 18.08.2024
+
+Logic - Ultra 85 (2024) [MP3|320 Kbps] <Hip-Hop, Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105348.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul Rodriguez
+02. Mission Control (feat. T Man the Wizard)
+03. Deja Vu (feat. DJ Drama)
+04. Glorious Ultra Panavision (Skit)(   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 01:17:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0854CE2643D4DF02C08448609B24A2651789253F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741464   (105337) от 18.08.2024
+
+Master Spensor - Чужой (2009) [WavPack|Lossless|image + .cue] <Rap, Hip Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105337.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Чужой (Intro)
+ 02. Чужие
+ 03. Спеши любить
+ 04. На эстакаде(   Читать дальше...   )Жанр: Rap, Hip HopПродолжительность: 00:43:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B02D0285D00459BAEEDA8C91871EE780C307A2BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741466   (105335) от 18.08.2024
+
+Мишка - Мама (2002) [WavPack|Lossless|image + .cue] <Hip Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_105335.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Октябрь 87
+ 02. Нормальный
+ 30. Быть лучшим
+ 04. Шесть(   Читать дальше...   )Жанр: Hip HopПродолжительность: 00:43:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCECC631A298071A0C220D853324E129CB19597B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1743781   (105327) от 18.08.2024
 
 Триада - Шестое Чувство (2009) [WavPack|Lossless|image + .cue] <Hip Hop, Rap>
@@ -677,93 +764,6 @@ Joell Ortiz & L'Orange - Signature (2023) [FLAC|Lossless|tracks + .cue] <Hip-Hop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1059B9F4AB18CDF9DFDB40437FF318C8E04A60B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771699   (71820) от 07.01.2025
-
-Apathy - Connecticut Casual: Chapter 2 (2024) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Boom Bap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Connecticut Formal (3:41)
-02. Hammond Court Kids (3:59)
-03. No One Can Hear You Scream In Space (3:36)
-04. Vacation (3:31)(   Читать дальше...   )Жанр: Hip-Hop, Boom BapПродолжительность: 00:41:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B7E93EFF681D8801E40733E9564C2677ECD3A5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785074   (69368) от 15.03.2025
-
-Coolio - Greatest Hits (2025) Compilation [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Rap, Dance>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69368.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Gangsta's Paradise (feat. L.V.) [4:02]
-02 - Ooh La La [4:06]
-03 - County Line [2:58]
-04 - Rollin' with My Homies [4:07](   Читать дальше...   )Жанр: Hip-Hop, Rap, DanceПродолжительность: 00:40:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:507E132B2FEEC7E5BA267B50A835FB58F3F63EB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792029   (67761) от 17.04.2025
-
-Red Snapper - Barb and Feather (2025) [FLAC|Lossless|WEB-DL|tracks] <Trip-Hop, Funk>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67761.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ban-Di-To [00:04:53]
-2. Tolminka [00:04:49]
-3. Sirroco [00:04:43]
-4. Sound and Vision [00:03:55](   Читать дальше...   )Жанр: Trip-Hop, FunkПродолжительность: 00:37:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C16CC13810FC31F5A1E4CDA500824553A2112AF3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1760056   (37462) от 12.11.2024
+
+VA - Pop Dance Summer Caramel (2024) [MP3|320 Kbps] <Pop, Pop-Rock, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_37462.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Taylor Swift - You Belong With Me (00:03:51)
+002. Clo - Futur (00:02:36)
+003. Angelina Mango - Fila Indiana (00:03:13)
+004. Burito - Парнас (00:03:08)(   Читать дальше...   )Жанр: Pop, Pop-Rock, DanceПродолжительность: 10:20:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F0B3DD0D1EC9A957C8611A25F7E9C62EFF0A992
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760518   (37222) от 15.11.2024
+
+VA - National Pop Dance Vol.90 (2024) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_37222.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Boyz - Shout It Out - (04:31)
+ 002. Omah Lay - Reason - (02:27)
+ 003. Black Sherif - January 9Th - (03:43)
+ 004. Gaëtan Roussel Feat. Louane - La Beauté - (04:09)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 11:50:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:555CA20DC803241719099C409A174CF3F7743BB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1761408   (36702) от 20.11.2024
 
 Николай Гринько - Синглы (2020-2024) (2024) [MP3|320 Kbps] <Бард-рок, Поп-рок, Авторская песня>
@@ -687,64 +745,6 @@ VA - 100 Pop Hits (2025) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90BB54ADEC809E5668F6C21675733AB777DE078D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784307   (25098) от 10.03.2025
-
-Texas - Compilation (1989-2021) [MP3|320 Kbps] <Pop rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25098.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zero Zero (The Hush 1999)
-02. Telephone X (Careful What You Wish For 2003)
-03. Summer Son (The Hush 1999)
-04. The Conversation (The Conversation 2013)(   Читать дальше...   )Жанр: Pop rockПродолжительность: 03:25:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22AFD170266F917E863F47824AB1C4603C5524AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784363   (24951) от 12.03.2025
-
-VA - Песни Юмор (2025) [MP3|320 Kbps] <Pop, Юмор>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24951.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Перепесня - Это Инфобизнес
-02. Игорь Малинин - Перископ
-03. Перепесня - Барсучий Случай (Квадроберы)
-04. Игорь Малинин - Рога(   Читать дальше...   )Жанр: Pop, ЮморПродолжительность: 00:13:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD40502DD41DA4F246B241914526E359BFBA8802
 ```
 
 https://mybot314.ru/tekegram_catalog/

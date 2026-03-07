@@ -1,3 +1,31 @@
+###  Публикация: 575129   (370098) от 14.11.2012
+
+[Wallpapers] Обои для рабочего стола - League of Legends (Лига Легенд)
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_370098.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола - League of Legends (Лига Легенд)
+Собраны все чемпионы и их скины.
+(14.11.2012)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:759CB1CCC5183B1E1DFF73582EC55CBBE12EE7C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 950529   (370043) от 26.10.2015
 
 Обои - Computer Desktop Wallpapers Collection 1355 [JPG]
@@ -643,32 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:120EBDCBEA8F7151619ADC158FE15FDF12054BA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255831   (361239) от 19.10.2018
-
-Обои - Desktop Wallpapers (4K) Ultra HD. Part (125) [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361239.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка красивых и качественных обоев на разные темы в (4K) Ultra HD формате.Формат: JPGРазрешение файлов: 3840x2160
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8613BED3C5AC5404AD719C34755135546889410D
 ```
 
 https://mybot314.ru/tekegram_catalog/

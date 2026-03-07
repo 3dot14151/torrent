@@ -1,3 +1,206 @@
+###  Публикация: 1732810   (51905) от 26.06.2024
+
+VA - Music News vol.393 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_51905.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Leka - Малая (02:44)
+ 002. AJONIRAS - Акварель (04:19)
+ 003. Alina Eremia feat. David Ciente - Adn (03:02)
+ 004. Andrei Ursu - Langa Tine (02:53)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:47:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85CC2CDF6DF646F259CDC9356960205D1CF20AD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733616   (51647) от 29.06.2024
+
+VA - Дискотека 2024 Dance Club Vol. 224 (2024) от NNNB [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_51647.jpg" />
+</div>
+
+
+###  Подробнее
+
+Part 1 (Discoteka):
+001. MIROLYBOVA - Лето (2:20)
+002. Armin van Buuren, Vanessa Campagna - Vulnerable (3:19)
+003. Ad Voca - Down Low (2:33)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 15:11:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D187E67208BD470E5693C7C2B523DD5C43E65F4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733488   (51636) от 29.06.2024
+
+VA - ЕвроХит Топ 40 Europa Plus 28.06.2024 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_51636.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jack Harlow - Lovin On Me (2:19)
+02. Ariana Grande - We Can't Be Friends (Wait For Your Love) (3:48)
+03. Disturbed - The Sound Of Silence (Cyril Remix) (3:05)
+04. Artemas - I Like The Way You Kiss Me (2:22)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:02:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E08AE29A15C02BB6731CCDAA8C4C963E1E0B2075
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733481   (51487) от 30.06.2024
+
+VA - РАДИО БАТЯ - 016 (2024) [MP3|320 Kbps] <Шансон, Поп, Русская и Зарубежная Эстрада>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_51487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. T. Ark - Under Cover Lover (06:13)
+02. Олег Митяев - Небесный калькулятор (04:20)
+03. Thomas Anders - Modern Talking (Connect The Nation) (03:33)
+04. Secret Service - When The Night Closes In (04:10)(   Читать дальше...   )Жанр: Шансон, Поп, Русская и Зарубежная ЭстрадаПродолжительность: 01:38:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4F261D951CFB00986D47F848C25A2C21EEFF641
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734700   (51103) от 04.07.2024
+
+VA - Dance Party 2! (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_51103.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. War - Low Rider - Kyle Watson Remix (5:27)
+002. Tom Santa - Rainfall (Praise You) (4:46)
+003. cassö - Prada (2:12)
+004. Tiësto - Rule The World (Everybody) (3:31)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:14:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42C97C0304B92528FEC0BA5D66D896CBDDB1F0DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734926   (50968) от 05.07.2024
+
+VA - Music News vol.394 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_50968.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. IRINA ZORINA - Под Кожей (03:40)
+ 002. A.V.G - Биг Сити Лайф (01:44)
+ 003. A.V.G - Интроверт (02:13)
+ 004. A.V.G - Ловлю (02:08)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 08:59:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAC2DBBB1A0A12FE7677B73577F38F0494908E30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735026   (50891) от 06.07.2024
+
+VA - РАДИО БАТЯ - 017 (2024) [MP3|320 Kbps] <Шансон, Поп, Русская и Зарубежная Эстрада>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_50891.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. МГК - Мне нужен ты (03:54)
+02. MATRANG - Заманчивая (03:36)
+03. Владимир Пресняков - Ты у меня одна (03:46)
+04. Sting - Mad About You (03:54)(   Читать дальше...   )Жанр: Шансон, Поп, Русская и Зарубежная ЭстрадаПродолжительность: 01:37:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BEE3747BE88CBBEB15464E5C99C4837C104D683
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1735092   (50867) от 06.07.2024
 
 VA - Music News vol.395 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -542,209 +745,6 @@ VA - Music News For Forum vol.008 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2125D2760A503F539E5A970BD956D8953E39834
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741749   (47458) от 08.08.2024
-
-VA - Music News For Forum vol.009 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47458.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Britney Manson - Philipp Plein (01:50)
- 002. Alex Nebo - Сувенир (02:27)
- 003. Alle Farben feat. Lum!x & Noel Holler - Gonna Dance With Somebody (03:08)
- 004. Alterlite feat. Aexcit - Wildfire (02:48)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:15:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F34F31B8EF8C939CEBBF290D3FE4693F9C158AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742450   (47150) от 11.08.2024
-
-VA - Music News For Forum vol.010 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47150.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alseyda - Ты (04:06)
- 002. 4ETVERGOV - Муж и Жена (01:59)
- 003. 5УТРА - Футболка (03:24)
- 004. 104 feat. Armich - Далеко (03:21)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:29:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B759E386A3FA18FCCE7953355BAC992A1CB36A54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743226   (46700) от 15.08.2024
-
-VA - Music News For Forum vol.011 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46700.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Pakalena - Дестрой (02:53)
- 002. Alex Warren feat. Ella Henderson - Carry You Home (02:47)
- 003. AmMur - Мой Рай (02:08)
- 004. Andrei Ursu - Apari In Vise (02:49)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:24:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD862C3F96A5407DDB33EE563B240B66E1D638DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743503   (46592) от 16.08.2024
-
-VA - Music News For Forum vol.012 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46592.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Валерия Морарь - Притяжение (03:40)
- 002. AFRODISHKA - Lover Summer (02:13)
- 003. Al Rakhim feat. RAMZA - Быль (02:58)
- 004. Alan Walker - Club Leclerc (Racers Mix) (02:04)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:10:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DA5DED5464472780FB509622E26E24823601C89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743739   (46556) от 17.08.2024
-
-VA - Summer Dance Hits 2024 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46556.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Wouji - Smart (2:42)
-002. Oli Harper & Maggie Szabo - Believe (3:41)
-003. SINTEA - Pakito Pakita (3:35)
-004. Dimitri Vegas & Like Mike, Regard, Natti Natasha, SASH! - To The Beat (2:32)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:15:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68574231570009B382CD6CE7C4D6BBA5535176B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743883   (46381) от 18.08.2024
-
-VA - Music News For Forum vol.013 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46381.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mary J. Blige feat. Fabolous - Breathing (03:29)
- 002. Ad Voca feat. Solange - On The Floor (03:44)
- 003. Antonia - Ploi De Tequila (02:27)
- 004. Arozin Sabyh - Campfire (03:00)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:40:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CE0B026A05AEF03131ACAA28CEDF29B4F9389D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744543   (45968) от 22.08.2024
-
-VA - Music News For Forum vol.014 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45968.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Daryana - Мой Парень (01:54)
- 002. a.Ja - Засыпай (02:21)
- 003. Adi Ulmansky feat. Rares - Mykonos (02:46)
- 004. AllExe - Радуйся (02:41)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:27:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88A8BEB49C0989E199B3EE1FCABA9A76E114DDF4
 ```
 
 https://mybot314.ru/tekegram_catalog/

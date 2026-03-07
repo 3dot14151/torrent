@@ -1,3 +1,32 @@
+###  Публикация: 1562248   (509104) от 09.07.2022
+
+Hienas - Socavon (2022) [MP3|320 Kbps] <Sludge, Doom, Stoner, Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_509104.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Sombra del Cerro
+02 Abismo
+03 Puntualidad
+04 El Mejor y el Peor(   Читать дальше...   )Жанр: Sludge, Doom, Stoner, GrungeПродолжительность: 00:38:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DDC967E1C39009B3CB84785510EA386A71AB5B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1562081   (509020) от 09.07.2022
 
 Journey - Freedom (2022) [MP3|320 Kbps] <Rock, AOR>
@@ -758,35 +787,6 @@ CD - 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24135783B56D4BB055AD0555A1B18C73559897FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563845   (502610) от 16.07.2022
-
-Jeff Beck & Johnny Depp - 18 (2022) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502610.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Midnight Walker (03:04)
-02. Death And Resurrection Show (05:30)
-03. Time (03:38)
-04. Sad Motherfuckin' Parade (03:31)(   Читать дальше...   )Жанр: RockПродолжительность: 00:55:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53E496D595BD2A3A53A3DC87E334B11B2C699A9B
 ```
 
 https://mybot314.ru/tekegram_catalog/

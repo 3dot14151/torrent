@@ -1,3 +1,293 @@
+###  Публикация: 1219469   (713774) от 14.04.2018
+
+VA - Любимая волна для души (2) (2018) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713774.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Валерий Соликамский - Тоска
+002. Олег Голубев - Для Тебя Любимая Моя
+003. Карабас Барабас - Фонари
+004. Юрий Гора - Остаться(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6587ABDE43CCA23A941A8EBEF0E97D7CB30357B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219461   (713773) от 14.04.2018
+
+VA - Любимая волна для души (2018) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713773.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Катя Ростовцева - Атеистка
+002. Вадим Жогин - Упал Отжался И Встал
+003. Вероника Андреева - Позови Меня
+004. Евгений Коновалов - Мои Ошибки(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D270126444215E86AD0B27C671815BF0BF1778C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024882   (713705) от 10.06.2016
+
+VA - Bon Voyage Songs Popular (2016) [MP3|221-320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713705.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Hey Ya! (Radio Mix Club Mix) - OutKast
+002. Islands In The Stream - Dolly Parton & Kenny Rogers
+003. Roses - OutKast
+004. Toxic - Britney Spears(   Читать дальше...   )Жанр: PopПродолжительность: 07:21:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B24FD14B94E1C20975379CEF24F00C081DB6EE12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219460   (713652) от 14.04.2018
+
+VA - Душевный сборник радио Шансон (9) (2018) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713652.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Михаил Кармаш - Некрасивая
+002. Валерий Лукашевский - Праздник Души
+003. Семен Канада - Женщина-Жемчужина
+004. Эдуард Изместьев - Ревность Глупая(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3F7AC97A50DEF05129ED0C2C34910700894FCA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219542   (713650) от 14.04.2018
+
+VA - Любимая волна для души (3) (2018) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713650.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Сергей Славянский - Каждый День Для Тебя
+002. Крестовый Туз - Была Весна
+003. Ольга Алмазова - Разбитая Любовь
+004. Алмас Багратиони - Спасибо За Любовь(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:25:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1BCDD7C877DE89CA259CB76393055087D209672
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219493   (713645) от 14.04.2018
+
+VA - Душевный шансон в хорошей компании (7) (2018) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713645.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Евгений Корн - Одинокая Девочка
+002. Александр Кир - Сон
+003. Раиса Отрадная - Облака Крылатые
+004. Александр Маршал & Роман Юрченко - Ветераны(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7B11BFD2A9FD562570BA3058B54F9B7A3B9E0E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219349   (713644) от 14.04.2018
+
+VA - Душевный сборник радио Шансон (8) (2018) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713644.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ирина Круг - Ты Сердце И Душа
+002. Николай Шишкин - Летят Песни Шансона
+003. Майя Подольская - Он Просто Не Знает
+004. Сергей Матвеев - Проводник(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:07:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:263548E6BE4BBCBE7A3864B626CBEB64D5DC4B3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219543   (713642) от 14.04.2018
+
+VA - Любимая волна для души (4) (2018) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713642.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Олеся Павлова - Не Могу Без Тебя
+002. Олеся Атланова - Есть Любовь
+003. Александр Зарецкий & Александр Иванов - Жди Меня
+004. Эдуард Изместьев - Моя Далекая(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D67B441E7DA65BAC08356DE92E1488B74D5351BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219495   (713636) от 14.04.2018
+
+VA - Душевный сборник радио Шансон (10) (2018) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713636.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Александр Келеберда - Продавщица
+002. Климм - Хочется Любить
+003. Жанна Прохорихина - Все Будет Хорошо
+004. Александр Валявин - Отвали(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:849EBE13BD6422DD9EFA61AF0A4EA03504B9BC54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401023   (713504) от 08.08.2020
+
+VA - Imaginary World Electronic (2020) [MP3|320 Kbps] <09:36:35>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713504.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Omega Danzer - Travelling The Wastelands
+002. Four Seconds Ago - The Vacancy
+003. Daniel Holt - Alles
+004. Lazer Station - Tonight He Comes(   Читать дальше...   )Жанр: Synthwave, ElectronicПродолжительность: 09:36:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:837C13DD874A101820479270F8B04B33B0714C22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1401020   (713473) от 08.08.2020
 
 VA - The Official UK Top 40 Singles Chart 07.08.2020 [MP3|320 Kbps] <Pop, Dance, Other>
@@ -455,296 +745,6 @@ VA - Finding Around Blessing (Energy Tech Trance) 004 (2017) [MP3|320 Kbps] <Tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E7CB9DBCAA5D833C39E59433120EFEAE573008A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286344   (712749) от 02.03.2019
-
-Ten Years After - The Platinum Collection (2019) 2CD [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712749.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad Scene
-02. Over The Hill
-03. Going Back To Birmingham
-04. Look Into My Life(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 01:58:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A23F8E15D1E63316CEB5D7FA621B67085C8C7C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400923   (712739) от 08.08.2020
-
-VA - Very very very slow Blues (2020) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712739.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stevie Ray Vaughan - Life Without You (Live at the Mann Music Center, Philadelphia, Pa 1987)
-02. Tinsley Ellis - Kiss Of Death
-03. Bon Jovi - I'll Be There For You
-04. Katie Melua - The Closest Thing to Crazy(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 08:09:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2B74E8E36426433B1CB50868BA4C02E1BF290C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532594   (712697) от 20.02.2022
-
-VA - Record Super Chart 19.02.2022 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712697.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. OWNBOSS, Sevek - Move Your Body (2:37)
-02. Alis Shuka - Not About Us (2:09)
-03. Acraze - Do It To It feat Cherish (2:37)
-04. Alok - It Don't Matter (Feat. Sofi Tukker, Inna) (2:53)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:32:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7502E48E48E748E55CED8107FFFA79BEF6EDA503
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130741   (712674) от 03.05.2017
-
-VA - Trance Traveling 88 (Mixed by VNP) (2017) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712674.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Daminika - Stupid Hope (Original Mix)  3:27
-02.  ATB feat. Sean Ryan - Never Without You (Original Mix)  5:14
-03.  Aurosonic & Denis Karpinskiy feat. Kate Louise Smith - Heaven (Progressive Mix)  7:00
-04.  Armin van Buuren - This Is A Test (Extended Mix)  4:45(   Читать дальше...   )Жанр: TranceПродолжительность: 04:09:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:078A586C080DAD1D1DF698ED177E38E448A2EB3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532538   (712576) от 20.02.2022
-
-VA - Зайцев.нет Лучшие новинки Февраля (2022) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712576.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. CAPTOWN - С любовью (2:05)
-02. INSAF, Альба Рябова - Пополам (3:32)
-03. KOTOIN - Raksha (Original Mix) (3:15)
-04. NILETTO - Angels (2:43)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:15:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F445573DBB12BAB5E474E2917DB3669A43FEF08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532477   (712534) от 20.02.2022
-
-VA - Country: New Folk Music (2022) [MP3|320 Kbps] <Country, Folk, Blues>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712534.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это музыка является наследием творчества первых колонистов - переселенцев из Европы в Новый свет, представляя собой характерное смешение фольклора различных европейских народностей, которые были широко представлены в колониальной Америке. Впоследствии полюбившаяся музыка обрела широкую популярность и нашла себе применение в балладах американских ковбоев.001. Johnny Cash - The Caretaker
-002. Chris Janson - Beer Me
-003. Brothers Osborne - It Ain't My Fault
-004. Diplo - Hometown(   Читать дальше...   )Жанр: Country, Folk, BluesПродолжительность: 09:00:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B05FAE4CEE3B62695AFE81C946B4B80D31EFD5A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532628   (712478) от 20.02.2022
-
-VA - Vintage Reggae Cafe: Hits Collection (2022) Presents Elgujakviso [MP3|320 Kbps] <Reggae>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712478.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Natty Bong - Blue Jeans
-002 Sublime Reggae Kings - Human
-003 The Reggister's & Melizza - Back to Black
-004 Stereo Dub & Lila Liu - Set Fire to the Rain(   Читать дальше...   )Жанр: ReggaeПродолжительность: 05:05:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8E8DB97C090D8526276200F84BAAD3BE6184DDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130817   (712467) от 03.05.2017
-
-VA - 100 Party Play The Music Hits (2017) [MP3|320 Kbps] <Funky, Groove, Jackin, Progressive, Future House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712467.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stella Grundy Feat. Jah Wobble - Supersize (Jose Jimenez Clean Clean) 04:06
-02. Luca Debonaire - Bass Is Kickin (Original Mix) 05:42
-03. Mikah Feat. R.E.M. - Lost Religions (Original Mix) 06:06
-04. Dompe Agent - Shake (Original Mix) 07:15(   Читать дальше...   )Жанр: Funky, Groove, Jackin, Progressive, Future HouseПродолжительность: 08:40:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EFF5A1A05C7F7123403E71227CDC5B3EDCAE3F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025194   (712292) от 11.06.2016
-
-VA - Fitness Lounge Collection (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712292.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enrico Donner - Through Your Eyes
-02. Cane Garden Quartet - Love Goddess
-03. Don Gorda Project - Um Momeno
-04. Enrico Donner - Yearning for More(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:24:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EBB9447D9A18ED2358C86E13DF102C41A227844
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025043   (712226) от 11.06.2016
-
-VA - Maldives Luxury Lounge: Perfect Beach Chill Out in Paradise (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pretzeltronik - First Movement
-02. Adeleeya - My Conquest Of Paradise - Sunset Beach Cafe Mix
-03. Loungeotic - Lifetime - Beach Chillout Mix
-04. Vintage Blue - Sunrise To Sunset - Extended Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:35:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50E76524FC90EA6DCFFE090BBC4507227CE0C32E
 ```
 
 https://mybot314.ru/tekegram_catalog/

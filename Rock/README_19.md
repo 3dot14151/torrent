@@ -1,3 +1,32 @@
+###  Публикация: 1008325   (816035) от 18.04.2016
+
+April Wine - Harder.....Faster (1979) [MP3|320 кб/с] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_816035.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Like To Rock (04:24)
+02. Say Hello (02:59)
+03. Tonite (04:13)
+04. Ladies Man (03:37)(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1E465BBADAD69A500947EE17565B1E12DAC9C52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1118036   (815047) от 24.03.2017
 
 The Kelly Family - We Got Love (2017) Deluxe Edition [MP3|320 Kbps] <Pop-Rock, Soft Rock, Folk>
@@ -710,35 +739,6 @@ William T. & The Black 50's - Rock'n'Roll... Baby!!! (2018) [MP3|320 Kbps] <Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:398E0AF4C2CCC0EB58A8F2426FC32772F793E71F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505794   (802934) от 28.10.2021
-
-Bobby Solo - Rock'n'Roll (1979) LP [MP3|320 Kbps] <Rock & Roll, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802934.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock Pie - Medley (5:20)
-02. Babe Babe (2:36)
-03. Guitar Boogie (3:02)
-04. My Darling (2:52)(   Читать дальше...   )Жанр: Rock & Roll, PopПродолжительность: 00:33:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70C79BA4E346A1281EC1C8F6866E14FA7FB5B93E
 ```
 
 https://mybot314.ru/tekegram_catalog/

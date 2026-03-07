@@ -1,3 +1,87 @@
+###  Публикация: 1222266   (687487) от 28.04.2018
+
+VA - Workout Vol. 5 (2018) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_687487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ivanshee - Eclipse  07:03
+02. Coffein - Detective  05:45
+03. Andrew MacTire - Insurrection  08:22
+04. Superidea - Ocean  02:57(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 04:16:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:336C87A523DD8AF75F095AE1775560AC75042E40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222020   (687122) от 28.04.2018
+
+Saad Ayub & Cristina Soto - Daylight (Amir Hussain Remix) (2018) Single [MP3|320 Kbps] <Electronic, Vocal Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_687122.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Saad Ayub & Cristina Soto - Daylight (Amir Hussain Extended Mix) (07:27)Жанр: Electronic, Vocal Trance, Uplifting TranceПродолжительность: 00:07:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADC96398DCA04EC27E00410B5B8D057D647B01C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222251   (687110) от 28.04.2018
+
+VA - Female Vocal Trance (2018) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_687110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aurosonic feat. Ana Criado - Ask Me Anything 3:10
+02. 4 S'trings feat. Fenna Day - Everybody's Gotta Learn Sometime 3:13
+03. Katty Heath - Connection Through Sound 3:57
+04. Steve Allen feat. Sue McLaren - Old Flame 3:20(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 02:21:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E9DB37642DD560D4582F2C70EED20EAD100A764
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1289743   (684332) от 17.03.2019
 
 VA - I Love Trance Ocean (2019) [MP3|320 Kbps] <Trance, UpliftingTrance, ProgressiveTrance>
@@ -656,93 +740,6 @@ VA - EDM Flash Trance Vol.1 (2016) [MP3|320 Kbps] <Trance, Progressive Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B43B85D989DE3F0967C415016A41B39BB7BF944
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137509   (665564) от 28.05.2017
-
-VA - Summer Hits (2017) [MP3|320 Kbps] <Trance, Progressive Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665564.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Mivase - I Can't Give Up (Original Mix) 3:12
-02.  Russian Dolls & Nathia Kate - Always (feat. Robin Vane) (Original Mix) 4:24
-03.  WeareD - Assertive (Original Mix) 2:49
-04.  Frainbreeze - Signs Of Time (feat. Natune & Angel Falls) (Vadim Bonkrashkov Remix) 4:26(   Читать дальше...   )Жанр: Trance, Progressive Trance, Vocal TranceПродолжительность: 01:18:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61CB60E09896311C8768A80A4838CF1D12860F19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537962   (665442) от 18.03.2022
-
-VA - Black Hole Trance Music 03-22 (2022) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665442.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Richard Durand & Christian Burns - Almost Home (Extended Mix) [06:30]
-02. Siskin - Never Alone (Extended Mix) [07:45]
-03. Ciaran Mcauley & Clara Yates - Light A Rainbow (Extended Mix) [05:25]
-04. Cosmic Gate & Olivia Sebastianelli - We Got The Fire (Extended Mix) [07:04](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:43:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0436AC52B44599AEA45E7D87C61689337F8ABD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137604   (665314) от 28.05.2017
-
-Robert Miles - Remember Robert Miles (2017) [MP3|320 Kbps] <Trance, Dream House>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665314.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Children (Dream Version) 7:06
-02.  Fable (Message Version) 6:25
-03.  Children (Message Version) 6:51
-04.  One And One (Radio Version) (feat. Maria Nayler) 4:01(   Читать дальше...   )Жанр: Trance, Dream HouseПродолжительность: 01:44:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC1CCBDD702EDDBFEAA7023047E455D6A2C70F04
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,121 @@
+###  Публикация: 548435   (805683) от 26.10.2021
+
+Michael Jackson - Bad (1987) 2012, 25th Anniversary Deluxe Edition, 3CD [FLAC|Lossless] <Pop, R&B, Funk, Dance, Rock, Dubstep>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_805683.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данный релиз состоит из трёх CD-дисков из нового Коллекционного издания в формате Бокс Сета, состоящего из 3-х СD-дисков (и 1-го DVD, в этой раздаче отсутствует).
+
+Диск 1 - ремастеринговые хиты основного альбома (01. Bad (4:08)
+02. The Way You Make Me Feel (4:59)
+03. Speed Demon (4:05)
+04. Liberian Girl (3:50)(   Читать дальше...   )Жанр: Pop, R&B, Funk, Dance, Rock, DubstepПродолжительность: 03:05:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E82C0398F650ADDF86FE4472D6378CA51BBD37B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009975   (805564) от 23.04.2016
+
+VA - Radio 538 Hitzone 77 (2016) 2CD [FLAC|Lossless|image + .cue] <Top 40, Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_805564.jpg" />
+</div>
+
+
+###  Подробнее
+
+Известный Нидерландский лейбл Радио 538 продолжает в этом году свою серию двухдисковым сетом новинок популярной музыки. Довольно регулярно на трекере публикуются эти новинки. Как указано на их сайте все хиты с этих дисков должны пополнить вашу коллекцию.CD1:
+01. Dua Lipa - Be The One  (3:24)
+02. Coldplay -  Hymn For The Weekend  (4:21)
+03. Fifth Harmony feat. Ty Dolla Sign - Work From Home  (3:38)(   Читать дальше...   )Жанр: Top 40, Pop, RockПродолжительность: 02:31:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DD27BB68E39FCFDFCF08699ABE1BFE4DCB98C91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 318570   (805153) от 04.04.2011
+
+Duran Duran - Greatest (1998) [FLAC|Lossless]<Pop, New Wave>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_805153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Is There Something I Should Know
+02. The Reflex
+03. A View To A Kill
+04. Ordinary World(   Читать дальше...   )Жанр: Pop, New WaveПродолжительность: 01:18:14
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384151   (804172) от 19.05.2020
+
+VA - Eurovision Song Contest 2020 - A Tribute to the Artists and Songs (2020) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804172.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Arilena Ara - Fall From the Sky (Albania) (3:10)
+02. Athena Manoukian - Chains on You (Armenia) (3:03)
+03. Vincent Bueno - Alive (Austria) (3:03 )(   Читать дальше...   )Жанр: PopПродолжительность: 02:02:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29B76D573A5E63E56ED7961D5CC159C022859A41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1010113   (803954) от 24.04.2016
 
 Dami Im - Classic Carpenters (2016) [FLAC|Lossless|tracks] <Pop>
@@ -628,122 +746,6 @@ Fancy - Hit Party (1998)(Compilation)[FLAC|Lossless|image + .cue] <Euro-disco, S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19B2A605627524887A6F1E1BB5B082E18D85DBBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507598   (798243) от 05.11.2021
-
-ABBA - Voyage (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798243.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Still Have Faith In You (5:09)
-02. When You Danced With Me (2:50)
-03. Little Things (3:08)
-04. Don't Shut Me Down (3:56)(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A954D8FCA97188C542DEFEBF21AF8C315A4F4704
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507667   (798220) от 05.11.2021
-
-ABBA - Voyage (2021) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798220.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Still Have Faith In You (05:09)
- 02. When You Danced With Me (02:50)
- 03. Little Things (03:08)
- 04. Don't Shut Me Down (03:56)(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF0C460E3FF37E2D1F9E306F5C17893EE7E19BE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507966   (798123) от 06.11.2021
-
-Diana Ross - Thank You (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thank You
-02. If The World Just Danced
-03. All Is Well
-04. In Your Heart(   Читать дальше...   )Жанр: Pop, SoulПродолжительность: 00:49:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6CFFC1DF2E3630793B37A332B9A292CF94E57EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508055   (798120) от 06.11.2021
-
-MARUV - No Name (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798120.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Money
-2. Ne zabudu
-3. Put your hands up
-4. You and I(   Читать дальше...   )Жанр: PopПродолжительность: 00:34:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:865691CA74C096316782AD38FD14A38126A9E20E
 ```
 
 https://mybot314.ru/tekegram_catalog/

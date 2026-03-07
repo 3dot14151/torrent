@@ -1,3 +1,29 @@
+###  Публикация: 548245   (469270) от 17.09.2012
+
+[Фотография]Creative photography
+
+>>Графика, Арт, Разное
+>>Современная фотография
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_469270.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка отличных креативных фото.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A87F567B006CF133E12250B6879B2BFE5125FBA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1320503   (469112) от 19.08.2019
 
 Обои - Desktop Wallpapers Full HD. Part (497) [JPG]
@@ -645,32 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E028C0148B92B111979B78EB99DE22A89F302761
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246255   (465586) от 09.09.2018
-
-Обои - Desktop Wallpapers Full HD. Part (284) [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465586.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64BE16F7B54DED97AFD6AEE45145D4A69997F73F
 ```
 
 https://mybot314.ru/tekegram_catalog/

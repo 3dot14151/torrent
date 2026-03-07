@@ -1,3 +1,55 @@
+###  Публикация: 1379114   (842380) от 27.04.2020
+
+Сборник - Creative Market - The Icon Bundle 4000 - 618315 [AI, PNG, PSD, EPS, SVG]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_842380.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всем привет. Это мой новый большой набор иконок. В этом наборе вы не увидите, 500 значков стрелок или 300 значков сетки. Только разные и сложные иконки, только хардкор.Формат: AI, PNG, PSD, EPS, SVGРазрешение файлов: 16x16-512x512
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C8BF9C595104B439DD3A3031E7A08EEEB56377F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1500732   (840832) от 06.10.2021
+
+Сборник - GraphicRiver, Envato Elements - Сборник шаблонов от Envato Elements [PSD, IDML, INDD, INX, AI, EPS, INDT]
+
+>>Материалы для мультимедиа и дизайна
+>>Сборники
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_840832.jpg" />
+</div>
+
+
+###  Подробнее
+
+Большой сборник шаблонов от Envato Elements и GraphicRiver.Формат: PSD, IDML, INDD, INX, AI, EPS, INDT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86E1D07A5D6DCAC546A62A74D4464F1C2CCBD6FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 773716   (832482) от 04.04.2014
 
 Сборник - Супергерои / Superheroes [JPEG,EPS,AI,CDR,PSD]
@@ -619,58 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:59D5F3F28B09C022209F90598DDFBA4E2AD0BA72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222520   (684695) от 29.04.2018
-
-Текстуры - PSDkeys - 1000 Marble Textures and pattern - 1901080 [PNG, AI]
-
->>Материалы для мультимедиа и дизайна
->>Сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684695.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатная 1000 мраморных текстур и паттерны.Формат: PNG, AIРазрешение файлов: 5000 x 3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B72DD0D200D9F05A39F35757610BE1929384E6BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222618   (684683) от 29.04.2018
-
-Сборники - Мега коллекция День Победы (клипарт, открытки, шаблоны) [CDR, AI, EPS, PSD, PNG, CMX, JPG]
-
->>Материалы для мультимедиа и дизайна
->>Сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684683.jpg" />
-</div>
-
-
-###  Подробнее
-
-Большая подборка различного клипарта, открыток и шаблонов к Дню Победы в различных форматах и большом размере.Формат: CDR, AI, EPS, PSD, PNG, CMX, JPGРазрешение файлов: 163x166-2560x1600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F87B4ADC09C32C2E957849D07F06B8CCBFEE414B
 ```
 
 https://mybot314.ru/tekegram_catalog/

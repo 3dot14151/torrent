@@ -1,3 +1,32 @@
+###  Публикация: 1167034   (419558) от 19.09.2017
+
+VA - Snatch (Expanded) (2000) [MP3|320 Kbps] <Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_419558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Klint - Diamond
+02 - Penicio Del Toro - 'vere iz da storn_'
+03 - Overseer - Supermoves
+04 - The Johnston Brothers - Hernando's Hideaway(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:57:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24D8B16561AECC8963BC98F6AE68929533BDD7A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1167334   (419436) от 19.09.2017
 
 Michel Pepe - La Foret d'Eden (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -732,35 +761,6 @@ VA - Eurotrip (2004) [MP3|320 Kbps] <Soundtrack>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83EED80D78584205E59BB3A81D4C421D3B7659DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167986   (412722) от 22.09.2017
-
-VA - Knockin' on Heaven's Door (1997) [MP3|320 Kbps] <Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412722.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Til Schweiger - Gedanken uber Das Meer (Original Film-Dialog)
-02 - Selig - Knockin' On Heaven's Door
-03 - Selig - Love And Rockets
-04 - Instant Karma - Silver Whale(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:19:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C05997E9B909D426B138D01383066FFD41EAB042
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1775700   (28290) от 08.02.2025
+
+Шрифты - D. Astakhov - NoNaMe Club - Astakhov Flacon - 1775700 [OTF, WOFF, WOFF2]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/001/save_picture_28290.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатное семейство шрифтов для персонального и коммерческого использования (в т.ч. OFL)
+Количество / Штук: 2
+Разработчик: D. Astakhov
+(   Читать дальше...   )Формат: OTF, WOFF, WOFF2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58807363D26662263CDACB8FB82E4FBA7B63E8BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1779003   (28044) от 10.02.2025
 
 Шрифты - MyFonts - Havering [TTF, WOFF, WOFF2, EOT]
@@ -656,32 +685,6 @@ Ballinger X-Condensed - наследственная ДНК видна в щед
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E0EF40CF4576A2D6510E121FBB18602CE2549AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783202   (25716) от 04.03.2025
-
-Шрифты - Future Fonts - Granblue [OTF, TTF, WOFF, WOFF2]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25716.jpg" />
-</div>
-
-
-###  Подробнее
-
-Granblue — это красивое семейство шрифтов, поддерживающих кириллицу.Формат: OTF, TTF, WOFF, WOFF2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2B26156D2D01FF1A71F94358B76412B7FE6C541
 ```
 
 https://mybot314.ru/tekegram_catalog/

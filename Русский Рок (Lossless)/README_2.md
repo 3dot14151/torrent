@@ -1,3 +1,119 @@
+###  Публикация: 1612813   (1039911) от 17.02.2023
+
+LASCALA - El Dorado (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039911.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. АН-2 (2022)
+2. Sex, Rock'n'Roll & Alcohol (2022)
+3. Жалость неуместна (2022)
+4. Пятница (Edit)(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:57:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0148F0EC91955CF751B1C2376622CA4E8C0F5AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439412   (1039908) от 13.01.2021
+
+Аффинаж - Сделай море (2017) [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039908.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Первая мысль - это ты
+2. Страдать
+3. Заметь меня
+4. Новый номер(   Читать дальше...   )Жанр: RockПродолжительность: 00:33:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:248C8A7A9D2D2A2920F97472AECC39FBBFC6448C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439547   (1039902) от 13.01.2021
+
+Рви Меха Оркестр - Сильная & Независимая (2020) [FLAC|Lossless|image + .cue] <Ska-Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039902.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Сильная & независимая
+02. Валера
+03. Мы с тобою
+04. Hello, Новосибирск!(   Читать дальше...   )Жанр: Ska-PunkПродолжительность: 00:34:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71E82B059D5B3D0181292F6FDF02A719A08170FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1613257   (1039664) от 18.02.2023
+
+Shrezzers - Sex & Sax (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Post-Hardcore, Jazz, Funk, Experimental>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (1:20)
+02. Tabidachi (feat. Kaito of Paledusk) (3:07)
+03. 23 (4:36)
+04. Gambit (feat. Adam Bentley of Arch Echo) (3:36)(   Читать дальше...   )Жанр: Progressive, Post-Hardcore, Jazz, Funk, ExperimentalПродолжительность: 00:46:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:914DE04AC41C6712EC5F9C2FA85A8EFE675A17DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1613584   (1039408) от 19.02.2023
 
 Ethir Anduin - Холод (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, Doom Metal>
@@ -630,122 +746,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36824A4961E26CAB2B33F7496622A4D0975E6FA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616861   (1035842) от 04.03.2023
-
-Gorod himikov - Танцы в одиночестве (2023) [FLAC|Lossless|WEB-DL|tracks] <Post punk, New wave>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035842.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я живу среди панелек [00:03:08]
-02. Истома [00:04:40]
-03. Я мудак [00:03:31]
-04. Внутри домов [00:03:39](   Читать дальше...   )Жанр: Post punk, New waveПродолжительность: 00:57:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3C63B7B212B38F63F230F9C49DA2ECCDD18C12A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616908   (1035827) от 04.03.2023
-
-Пятая Бригада - Золотой Петушок (2023) [FLAC|Lossless|WEB-DL|tracks] <Punk, Comedy>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035827.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сказочное вступление [00:03:36]
-02. Гневная ария царя [00:02:55]
-03. Ария звездочёта без кия [00:04:48]
-04. Ария царя и петуха [00:05:47](   Читать дальше...   )Жанр: Punk, ComedyПродолжительность: 00:44:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C5D8FA54A65C74869B9DE994C01AC1A07F60E74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616985   (1035619) от 05.03.2023
-
-Спирин и Кежватов (Тараканы) - Бард - это слово из четырёх букв (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock, Acoustic>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035619.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Выходной [00:02:59]
-02. Летом [00:03:06]
-03. Как в 3-й Quake [00:02:36]
-04. 365 дней [00:03:57](   Читать дальше...   )Жанр: Rock, AcousticПродолжительность: 01:31:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA0583844409DEDA97CC76BB7F625B1834DFE150
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616993   (1035617) от 05.03.2023
-
-Гаснет Свет - Symphonia Vitiorum (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035617.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ноктюрн [00:02:06]
-02. Архитектор судеб (feat. Дарья Бурлюкало, Олег Ховрин) [00:06:44]
-03. Маскарад (feat. Евгений Егоров, Antonis Loizides) [00:07:00]
-04. Алхимик (feat. Дмитрий Скиданенко, Сергей Салкин, Роман Валерьев) [00:07:14](   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:15:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C9159F860886831107273E4BC3D3407640CCD21
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,221 @@
+###  Публикация: 951715   (361110) от 30.10.2015
+
+VA - Зарубежный фестиваль клубной музыки (2015) [MP3|320 кб/с]<Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_361110.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Pryda - Axis (Original Mix)
+002. Marc Volt - Axis (Original Mix)
+003. Third Party - Arrival (Original Mix)
+004. Invalyd Feat. Stef Lang - All Or Nothing (Original Mix)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 07:56:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D4755A3328644C17AE313A813FA05F7C3A34341
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 576870   (360809) от 18.11.2012
+
+VA - Sylt Finest Lounge Music Vol. 1-7 (2002-2010) [MP3|256 кб/с]<Lounge, downtempo, easy listening>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_360809.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Koop - Come To Me
+02. Yuliet Topaz - That's The Way Love Goes
+03. Tape Five Feat. Iain Mackenzie - The Sky Is Not The Limit
+04. Jazzamor - Fly Me To The Moon
+05. Crystin - Save A Little Love (Fab Samperi Remix)
+06. Anna Luca - Desperatly Trying
+07. Boozoo Bajou - Sign
+08. Club Des Belugas Feat. Anna Luca - Passing On The Screen
+09. Dinah Washington - Smoke Gets In Your Eyes
+10. Callmecat - Toxic(   Читать дальше...   )01. Nightcruzer - Lazy Day
+02. Stargazer - Eastend
+03. Eduardo Arroya - Ring ...Hello (Close Your Eyes)
+04. Chammbre Individuelle - Journey To A Friend
+05. Comuna De Musica - Ramonesque Interlude
+06. Akmusique - And Suddenly It`s Morning
+07. Frame By Frame - Seaguls
+08. Flunk - Sugar Planet
+09. Velocity - Among The Reed
+10. Dreamweaver - Delicate Emotions (Island Mix)(   Читать дальше...   )Жанр: Lounge, downtempo, easy listeningПродолжительность: 02:28:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9A1E64A17B24613A40E2FE0317F0BD2895F5DB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416963   (360258) от 19.10.2020
+
+VA - Music News vol.41 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_360258.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Гарик Сукачёв - Бусидо Путь Самурая (03:37)
+ 002. Alloise - Empire (02:50)
+ 003. Alloise - This Is A War (03:37)
+ 004. Alma - My Mama Told Me (02:26)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:40:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AB4A7AAE713695F834ADB6554BC2E24909DFC7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416984   (360082) от 19.10.2020
+
+Земляне - Коллекция Лучших Песен (2020) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_360082.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Прости, Земля (05:33)
+ 02. Путь Домой (04:22)
+ 03. А Жизнь Идёт (03:30)
+ 04. Артист (04:11)(   Читать дальше...   )Жанр: RockПродолжительность: 01:19:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D0A748BA775B7DAED95C12B6A0F5EBE292C55F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577245   (359605) от 17.09.2022
+
+VA - В машине с музыкой Vol.303 (2022) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_359605.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Veronicas  - Cruisin’ On My Own  (02:30) 2022
+02. Ikon  - Urus (02:02) 2022
+03. Kolunov  - Мы Вернёмся (03:28) 2022
+04. Nara Play  - На Флексе (02:39) 2022(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:24:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6DC98194670F6120AF5A943B5EC1442DDD9F5D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577165   (359517) от 17.09.2022
+
+VA - Music News vol.217 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_359517.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 044 ROSE - Роузи Каждый День (02:47)
+ 002. 5Утра - Пришлите Мне Песню (03:30)
+ 003. 7Б - Понторезо (02:44)
+ 004. 7Б - Спокойной Ночи, Рабочий (03:36)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 08:58:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E06AB896B026CE6B227CB52B62DF6ACCD2273AED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256084   (358904) от 20.10.2018
+
+VA - ЕвроХит Топ 40 Europa Plus 19.10.2018 (2018) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_358904.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calvin Harris & Dua Lipa - One Kiss 3:35
+02. David Guetta feat. Sia - Flames 3:15
+03. Clean Bandit feat. Demi Lovato - Solo 3:41
+04. The Chainsmokers feat. Emily Warren - Side Effects 2:57(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:13:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D724ACDDDC12B28541EA1D4995699AE71F0120D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 577355   (358731) от 19.11.2012
 
 VA - Клубные Новинки Vol.180 (2012) [MP3|320 кб/с]<Club, Dance>
@@ -542,224 +760,6 @@ VA - По волне моей памяти Том 19 (Compiled by Виктор31
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4127E42D480F2F3F5451843E3706394F599A5458
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1178366   (355776) от 28.10.2017
-
-VA - По волне моей памяти: Том 18 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Ретро, Советская эстрада>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355776.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Игорь Саруханов - Лодочка 4:30
-02.  Владимир Маркин - Колокола 4:14
-03.  Юрий Антонов - Я не жалею ни о чем 3:59
-04.  Таня Буланова - Колыбельная 4:00(   Читать дальше...   )Жанр: Поп, Ретро, Советская эстрадаПродолжительность: 02:23:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58F9480B31116D7C56BCE898B898DD2B518E92D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 543677   (355271) от 20.11.2012
-
-VA - Hip Guide... (2012) [MP3|320 кб/с]<Lounge, Chill Out, Downtempo>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_355271.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Watch It Wash Over — DJ Ideal
-02. Eight Way Path — Gateway
-03. Under Darkness — Xed
-04. Only the Truth — Lee Masters
-05. Terminus Nord — Thomas Le Head
-06. Mind Games — Jon Rushi
-07. Enlightenment — Navigator
-08. My Willing Embrace — Mae Hong
-09. Po Sang Long — Showtime MCs
-10. In Time We Grow — Monica Alvern(   Читать дальше...   )01. Wahid Yom - Akram Mahboub
-02. Marhaba Ab - Amir DJ
-03. Ismi Fantastic - Zaki D
-04. Ithnan Wadi - Anwar Murad
-05. Jameel Arouosa - Baba Elektronik
-06. Akht Samah - DJ Fantastic & The Hakim Allstars
-07. Shukran - Golden Project
-08. Qamar Hafla - Kamal & Fadil
-09. Sseif Kittar - Nasim Ral
-10. Salam - Cheb Bin Hassan(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:34:13
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1178561   (355124) от 28.10.2017
-
-VA - Deep House Desire Vol.2 (2017) [MP3|320 Kbps] <Deep House, Nu Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355124.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ariana Grande - Into You
-02. Pyperb - Waiting For A Girl (Original Mix)
-03. Iceleak feat. Karl Michael - Don't Leave Me (Extended Mix)
-04. Gosha, DJ Aristocrat - French Kiss(   Читать дальше...   )Жанр: Deep House, Nu DiscoПродолжительность: 08:07:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:741F0A17D6796C55E67F1899D16DA0F75BFA3CC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952420   (354913) от 01.11.2015
-
-VA - The Best Dance Hits Of 90's-3 (2015) [MP3|320 кб/с]<Pop, Eurodance, House,Techno, Trance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354913.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Heath Hunter-Revolution In Paradise 3:29
-002 No Mercy-Missing 3:59
-003 Carrapicho-Tic Tic Tac 3:35
-004 Culture Beat-Got To Get It 5:21(   Читать дальше...   )Жанр: Pop, Eurodance, House,Techno, TranceПродолжительность: 16:54:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CAE1231B4BE28895BA1568413926FAAA2EE6FFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072256   (354545) от 12.11.2016
-
-VA - Radio Top musicFM (2016) [MP3|320 Kbps] <Pop, dance, house, trance, club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354545.jpg" />
-</div>
-
-
-###  Подробнее
-
-LOVE радио - Тор 20
-01. DJ Snake ft. Justin Bieber - Let Me Love You (3:26)
-02. Charlie Puth feat. Selena Gomez - We Don't Talk Anymore (Attom Remix) (3:38)
-03. Дима Билан - В твоей голове (3:46)(   Читать дальше...   )Жанр: Pop, dance, house, trance, clubПродолжительность: 00:23:05:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74D4D612B1CC76D6EC4F08BA781EAEBB2170F5FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329361   (354433) от 04.10.2019
-
-VA - ЕвроХит Топ 40 Europa Plus 04.10.2019 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354433.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shawn Mendes & Camila Cabello - Senorita 3:11
-02. Lil Nas X feat. Billy Ray Cyrus - Old Town Road (Remix) 2:37
-03. Ilkay Sencan - Do It 3:51
-04. Billie Eilish - Bad Guy 3:14(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:09:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC803BC162C9479DC2561DB4BBD6C73E813172BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256601   (354151) от 22.10.2018
-
-VA - Kiss FM Top 40 21.10.2018 [MP3|320 Kbps] <House, Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354151.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. TRU Concept - Save Me (Probass & Hardi Remix) 3:40
-02. Platon feat. Joolay - Melt 3:48
-03. Rompasso - Ignis 3:32
-04. Dynoro & Gigi D'Agostino - In My Mind 3:05(   Читать дальше...   )Жанр: House, Pop, DanceПродолжительность: 02:30:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:395F63AC566F6DF3CAD7C51184A269D009204FBE
 ```
 
 https://mybot314.ru/tekegram_catalog/

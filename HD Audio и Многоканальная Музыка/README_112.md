@@ -1,3 +1,174 @@
+###  Публикация: 1711568   (112498) от 30.03.2024
+
+Joe Satriani & Steve Vai - Satch/Vai: The Sea of Emotion, Pt. 1 (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112498.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Satch/Vai: The Sea of Emotion, Pt. 1 (5:54)Жанр: RockПродолжительность: 00:05:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A76FA97E3B9F68F46C9E612BE616BEF26C1109AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711499   (112497) от 30.03.2024
+
+Алексей Глызин и группа "Ура" - Зимний сад (1990) [FLAC 24/192|Lossless|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112497.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+01. Зимний сад — 4.35
+02. Африка — 4.35
+03. Все позади — 3.40(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91ED4FEE76E057A44C7742168A21330F6EABA7C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711504   (112485) от 30.03.2024
+
+Frankie Goes To Hollywood - Liverpool (1986) 1989 [FLAC 24/192|Lossless|tracks] <Electronic, Rock, Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112485.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. Воины бесплодной земли
+Warriors Of The Wasteland
+2. Упорный гнев(   Читать дальше...   )Жанр: Electronic, Rock, Synth-popПродолжительность: 00:43:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3E2905F0472D5C36274771D489234F968772EF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711415   (112467) от 30.03.2024
+
+Texas & Spooner Oldham - The Muscle Shoals Sessions (Parce que - La Collection) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop Rock, Alternative Rock, Indie Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112467.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Would I Lie To You (The Muscle Shoals Sessions) [3:44]
+02 - I Don't Want A Lover (The Muscle Shoals Sessions) [3:36]
+03 - Save The Last Dance (The Muscle Shoals Sessions) [3:43]
+04 - Halo (The Muscle Shoals Sessions) [3:10](   Читать дальше...   )Жанр: Pop Rock, Alternative Rock, Indie RockПродолжительность: 00:46:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E35D5FC14AC41E87D004159FFDEE3203B5141435
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711428   (112453) от 30.03.2024
+
+:LOR3L3I: - The Demo Collection (2020) Limited Edition, Remastered 2021 [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dark Electronic, Rock, Ethereal, Coldwave>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112453.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Metanoia [5:08]
+02 - Reprochuman [4:22]
+03 - Otherworldly Children [6:08]
+04 - Dear Brother [4:58](   Читать дальше...   )Жанр: Dark Electronic, Rock, Ethereal, ColdwaveПродолжительность: 01:37:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6855799F7830DF4885470F10B0482B28F37962A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823033   (112408) от 09.10.2025
+
+30th August Cover - Bad Songs (Europe Master) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_112408.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Thank U (3:27)
+02.  Dog Days Are Over (4:01)
+03.  Running Up That Hill (5:01)
+04.  What You Waiting For (3:43)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:53:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F09E95E26C56780E2DD7AC372B6472C164731184
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1823035   (112403) от 09.10.2025
 
 Aaron Lehnen - Black Sabbath: A Tribute To Ozzy (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -571,180 +742,6 @@ Fort Romeau - Romantic Gestures Vol. 1 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC3853D8AAEB91AE078A3B6037772A954139FDFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1712480   (112166) от 02.04.2024
-
-HJirok - HJirok (2024) [FLAC 24/44|Lossless|WEB-DL|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112166.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Sanandaj
-02 – HJirok Rock
-03 – Yahu
-04 – Jin Bo Chie(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92EC125340D01C94F7DFD75276E3BC3B01414059
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1712507   (112164) от 02.04.2024
-
-The Disco Biscuits - Revolution in Motion (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Psychedelic Trance>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112164.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shocked! [00:03:50]
-02. The Wormhole [00:06:12]
-03. Twisted in the Road [00:04:35]
-04. Another Plan of Attack [00:06:33](   Читать дальше...   )Жанр: Psychedelic TranceПродолжительность: 01:11:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64D0889C65E4DEEA1FA6A46E2601DCD5D8DE5350
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1712213   (112151) от 02.04.2024
-
-Rapture - Silent Stage (2005) Limited Edition, Reissue, 2018, Alone Records [FLAC|24/192|tracks|Vinyl-Rip] <Melodic Doom, Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112151.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Misery 24/7
-02. The Past Nightmares
-03. I Am Complete
-04. For The Ghosts Of Our Time(   Читать дальше...   )Жанр: Melodic Doom, Death MetalПродолжительность: 00:41:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:477A03AB06B5008A1DD9F54608805A778F67D4C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619166   (112128) от 03.04.2024
-
-Royal Thunder - Studio Albums (5 releases) (2010-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock, Psychedelic Rock, Stoner Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112128.jpg" />
-</div>
-
-
-###  Подробнее
-
-Royal Thunder — американская рок-группа из Атланты, штат Джорджия, основанная в 2004 году гитаристом Джошем Уивером. На их стиль в первую очередь повлиял классический рок и гранж 1990-х с элементами прогрессивного рока и психоделического рока. Журнал Rolling Stone описал группу как «немного похожую на альтернативную вселенную, где Дженис Джоплин была фронтменом Led (   Читать дальше...   )2010 - Royal Thunder (EP)
-2012 - Cvi
-2015 - Crooked Doors
-2017 - WickЖанр: Hard Rock, Psychedelic Rock, Stoner RockПродолжительность: 04:10:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F64DCFE912F31F8D9722A5BC60D2CEBE7B2CE434
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1712994   (112006) от 04.04.2024
-
-Mad Caddies - Arrows Room 117 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Ska-Punk, Ska, Reggae>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112006.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Green Eyes (3:22)
-02. Palm Trees and Pines (3:40)
-03. Arrows Room 117 (3:52)
-04. Beautiful Red (3:58)(   Читать дальше...   )Жанр: Ska-Punk, Ska, ReggaeПродолжительность: 00:41:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE1DFF840067A6FF3B64BCEB68FF571B08C415FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713078   (112002) от 04.04.2024
-
-Erra - Cure (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112002.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cure [00:03:45]
-02. Rumor Of Light [00:04:02]
-03. Idle Wild [00:04:12]
-04. Blue Reverie [00:05:01](   Читать дальше...   )Жанр: Progressive MetalcoreПродолжительность: 00:48:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFB2003D62EA7C79450AA59AEAC60A7B9699AEDA
 ```
 
 https://mybot314.ru/tekegram_catalog/

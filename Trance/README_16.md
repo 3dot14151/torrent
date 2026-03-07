@@ -1,3 +1,90 @@
+###  Публикация: 1131303   (705419) от 07.05.2017
+
+VA - Trancespotting Vol.5 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_705419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Rene Ablaze & Jam Da Bass - Fly (Radio Edit)  3:13
+02.  Amitacek - Causeway (Radio Cut)  3:46
+03.  Bvibes - Vertigo (Radio Cut)  3:48
+04.  Damian Wasse - Rise Of Nation (Radio Cut)  3:50(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:29:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26038A7241AEA40778992A5034A65EC68A18DCF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220362   (704511) от 19.04.2018
+
+VA - Recoverworld Radio 019 (Mixed by Para X) (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_704511.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ T.H. feat. Elyse G. Rogers – Strong Enough (Para X Remix)
+02. KoRay – I Feel Love (Original Mix)
+03. Sly One vs. Jurrane – Everything to Me (Opt-In Remix)
+04. The Avains – Infestation (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:14:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC3415A19A36125444E6A8C860BE611DB12B44B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220541   (704509) от 19.04.2018
+
+VA - Spring Sampler Vol.01 (2018) [MP3|320 Kbps] <Trance,Progressive House>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_704509.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Proluction - Back To You (Original Mix)
+02. Kucki - Dream On (Original Mix)
+03. myni8hte - Paths We Walked (Original Mix)
+04. HyperPhysics - Moonrise (Original Mix)(   Читать дальше...   )Жанр: Trance,Progressive HouseПродолжительность: 01:50:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17F6B88DFAE289C48BCCC69D04F8E13A89C58C9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1220562   (704503) от 19.04.2018
 
 VA - Silk Music Pres. Trance Treasures 10 (2018) [MP3|320 Kbps] <Trance>
@@ -655,90 +742,6 @@ VA - Total Trance Selections Vol.04 (2017) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A88E5092368376E9A3138E99F95E031000F4A51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222266   (687487) от 28.04.2018
-
-VA - Workout Vol. 5 (2018) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687487.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ivanshee - Eclipse  07:03
-02. Coffein - Detective  05:45
-03. Andrew MacTire - Insurrection  08:22
-04. Superidea - Ocean  02:57(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 04:16:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:336C87A523DD8AF75F095AE1775560AC75042E40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222020   (687122) от 28.04.2018
-
-Saad Ayub & Cristina Soto - Daylight (Amir Hussain Remix) (2018) Single [MP3|320 Kbps] <Electronic, Vocal Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687122.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Saad Ayub & Cristina Soto - Daylight (Amir Hussain Extended Mix) (07:27)Жанр: Electronic, Vocal Trance, Uplifting TranceПродолжительность: 00:07:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADC96398DCA04EC27E00410B5B8D057D647B01C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222251   (687110) от 28.04.2018
-
-VA - Female Vocal Trance (2018) [MP3|320 Kbps] <Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687110.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aurosonic feat. Ana Criado - Ask Me Anything 3:10
-02. 4 S'trings feat. Fenna Day - Everybody's Gotta Learn Sometime 3:13
-03. Katty Heath - Connection Through Sound 3:57
-04. Steve Allen feat. Sue McLaren - Old Flame 3:20(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 02:21:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E9DB37642DD560D4582F2C70EED20EAD100A764
 ```
 
 https://mybot314.ru/tekegram_catalog/

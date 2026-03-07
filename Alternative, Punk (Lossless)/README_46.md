@@ -1,3 +1,32 @@
+###  Публикация: 1260526   (311618) от 07.11.2018
+
+Muse - Simulation Theory (2018) Deluxe [FLAC|Lossless|tracks + .cue] <Alternative Rock, Electronic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_311618.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Algorithm
+02. The Dark Side
+03. Pressure
+04. Propaganda(   Читать дальше...   )Жанр: Alternative Rock, Electronic RockПродолжительность: 01:00:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5BC873F95330590A01FAB4CDAD081F11658F73B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1422254   (310721) от 08.11.2020
 
 Alter Bridge - Walk the Sky 2.0 (2020) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock, Alternative-Metal, Post-Grunge>
@@ -713,32 +742,6 @@ INXS - X (1990) 2011, Petrol Electric, RM. RE. [FLAC|Lossless|tracks + .cue] <Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20768BE7955FDDA2020604C32E7B088D1CCCAA11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185422   (292946) от 21.11.2017
-
-Linkin Park - Crawling (One More Light Live) (2017) Single [FLAC|Lossless|WEB-DL|track] <Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292946.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crawling (One More Light Live) (3:29)Жанр: AlternativeПродолжительность: 00:03:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C5DA3B70279F2E8E44972D809791FB904DB9CFA
 ```
 
 https://mybot314.ru/tekegram_catalog/

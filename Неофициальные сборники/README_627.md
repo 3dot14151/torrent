@@ -1,3 +1,293 @@
+###  Публикация: 1693282   (121882) от 20.01.2024
+
+VA - Aquarelle Chilled (2024) [MP3|320 Kbps] <Chillout, Relax, Downtembo, Ambient>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121882.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jose Luis Encinas - Summer Tangos [03:40]
+002. Zjay - Blue Vibes [05:07]
+003. Aleyum - The Subtleties Of Life [04:14]
+004. Scandroid Experiment's - Zero Mood [03:36](   Читать дальше...   )Жанр: Chillout, Relax, Downtembo, AmbientПродолжительность: 08:56:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE5D9F04F20D1F2EBD23A697052F11C09880F51F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692779   (121770) от 21.01.2024
+
+VA - Dark Western Country Rock (2024) [MP3|320 Kbps] <Blues, Country, Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121770.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Blues Saraceno - Dogs of War [02:57]
+002. Johnny Cash - (Ghost) Riders in the Sky [03:45]
+003. Bill Elm, Woody Jackson - (Theme From) Red Dead Redemption [05:38]
+004. Brother Dege - Too Old to Die Young [03:44](   Читать дальше...   )Жанр: Blues, Country, RockПродолжительность: 10:10:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2C3143267C3AA3136CD2BC3AD7B0D0899ABB328
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693339   (121750) от 21.01.2024
+
+Mr. Big - Collection (2024) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121750.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очень сильная команда, одна из любимых, ещё с далёких 90х. Помню году в 96, приятель раздобыл видеошколу басиста и барабанщика Mr. Big на кассете. С каким восторгом и восхищением, мы юнцами всё это впитывали. У группы своё неподражаемое звучание. Обаятельный и приятный вокал Eric Martin, виртуозная игра гитариста Paul Gilbert и мясистые барабаны. Все альбомы крутые (   Читать дальше...   )001. Addicted To That Rush
+002. Wind Me Up
+003. Merciless
+004. Had Enough(   Читать дальше...   )Жанр: RockПродолжительность: 08:10:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAC976E8E995729C5231BBB64A5337B6D04C4245
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693569   (121749) от 21.01.2024
+
+VA - Naturally Blues Rock forward 3000 (2024) [MP3|320 Kbps] <Blues, Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121749.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Gurf Morlix - Hodgepodge [04:11]
+002. Joe Bonamassa - Black Roses [05:02]
+003. Larkin Poe - Kick the Blues [03:26]
+004. Ringo Starr, Dave Koz, Jose Antonio Rodriguez - Free Your Soul [05:28](   Читать дальше...   )Жанр: Blues, RockПродолжительность: 09:06:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C869A961C4DAFBB447B859CC00F6BCC05E6F82B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693584   (121739) от 21.01.2024
+
+VA - Record Super Chart 20.01.2024 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121739.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. АИГЕЛ - Пыяла (3:30)
+02. Zerb feat. Sofiya Nzau - Mwaki (Tiesto's VIP Mix) (2:40)
+03. Dezko - Ascend (3:20)
+04. James Hype feat. Kim Petras - Drums (Turno Remix) (2:59)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:42:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45BAFDDCD854429085A6A8181797D6469270629E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823240   (121515) от 10.10.2025
+
+VA - Musical kaleidoscope part 57 Assorted (2025) [MP3|320 Kbps] <Electronic, Easy listening, Instrumental>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121515.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Riltim - Last Kiss
+02 - Yenra - Prompts on the Seine
+03 - Aurora Night - Frozen Eyes
+04 - Stive Morgan - Romantic(   Читать дальше...   )Жанр: Electronic, Easy listening, InstrumentalПродолжительность: 00:42:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0FAC27D7F96CEFBAABBDCF355EDBFDDA9382E25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823192   (121513) от 10.10.2025
+
+VA - VA - Compilation Part 200 Electronic, Vocal (2025) [MP3|320 Kbps] <Electronic, Vocal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Azimov - Mirage
+02 - Dova Music - Pain
+03 - Davvi - Dream in Color
+04 - Rodle - Still With Me(   Читать дальше...   )Жанр: Electronic, VocalПродолжительность: 01:45:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0145F0302F8B42B7823689CCDD31CDD2642B745E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823191   (121511) от 10.10.2025
+
+VA - Compilation Part 199 Electronic, Vocal (2025) [MP3|320 Kbps] <Electronic, Vocal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121511.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Adex - Broken Link
+02 - Kasimoff - Broken My Heart
+03 - Rodle - Hold Me Tonight
+04 - Kasimoff - Cold Nights(   Читать дальше...   )Жанр: Electronic, VocalПродолжительность: 01:45:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D62AD2DDA593901D4BBFF2FEC3C08EFDA61ABC90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693720   (121504) от 22.01.2024
+
+VA - Compilation Electronic part 44 (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121504.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. RILTIM - Flicker
+02. Hamidshax - Symbol of Love
+03. Akmalov - Sabriya
+04. DNDM - Inner Peace(   Читать дальше...   )Жанр: ElectronicПродолжительность: 03:40:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5298203CDEBC312EC2D6ADF6F1C8D73466D7B0FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823054   (121486) от 10.10.2025
+
+Anna Zueva - Favorites Collection Part 4 (2025) [MP3|320 Kbps] <Easy Listening, Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/002/save_picture_121486.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Костёр
+ 02 - Ночной Город
+ 03 - На Струнах Души
+ 04 - Лёгкая Волна Моря(   Читать дальше...   )Жанр: Easy Listening, InstrumentalПродолжительность: 00:34:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DA6691EA0566133FFEA076596362B1B61AF9758
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1823263   (121438) от 11.10.2025
 
 Павел Кашин - Compilation (1992-2025) [MP3|320 Kbps] <Soft rock, World music>
@@ -455,296 +745,6 @@ VA - Зима на Love Radio (2024) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D0FA4B6FA6C2C1A6F47E0F160E884D64FB86C6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696802   (119352) от 04.02.2024
-
-VA - Music News vol.337 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119352.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Anna Serj feat. Алексей Васильчук - Все Прошло (03:22)
- 002. Alberta Cross - Never Gonna Walk Away (04:18)
- 003. Alexander Popov feat. TRITICUM - Give It to Me (02:17)
- 004. Amay - Красные Поцелуи (02:37)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 08:53:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18B410B2BA0091ABAA61FE61FBEBA7A8C130FBFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697004   (119188) от 05.02.2024
-
-VA - Play Blues Ballads (2018) [MP3|320 Kbps] <Blues, Electric Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119188.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ZZ Top - Blue Jeans Blues [04:40]
-02. T-bone Walker - How Long Blues [05:17]
-03. Fats Domino - Wait till It Happens to You (Version 2) [02:32]
-04. Freddie King - Ain't Nobody's Business What We Do [03:38](   Читать дальше...   )Жанр: Blues, Electric BluesПродолжительность: 02:14:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18B724A3E8A7F829D194F67C12E161A23A9A1E4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696822   (119163) от 05.02.2024
-
-VA - Compilation Electronic part 51 (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Umar Keyn - Deceived Heart Again
-02. Ultra Beats - Yegana
-03. Elno & Dieez - Night City
-04. Hayit Murat - Time Love(   Читать дальше...   )Жанр: ElectronicПродолжительность: 04:30:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:451FC2F5BE070120AA97012DA95D818A9E958F2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696669   (119134) от 05.02.2024
-
-DJ PafTron - Freestyle Arena (2023) [MP3|320 Kbps] <Freestyle, Electronic, Breakbeat>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome to Freestyle Arena (Сontents Skit)
-02. Freestyle Electric
-03. Freestyle Electric 2
-04. Freestyle Jamix(   Читать дальше...   )Жанр: Freestyle, Electronic, BreakbeatПродолжительность: 03:49:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A67EF2DC289FA775DF7F71D7B40A53F57C9A433
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696551   (119017) от 06.02.2024
-
-VA - 70s Sex Mixtape (2024) [MP3|320 Kbps] <Pop, Rock, Blues, Jazz>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119017.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Donna Summer - Love To Love You Baby (Single Edit) [03:22]
-02. Barry White - I'm Gonna Love You Just A Little More Baby [07:12]
-03. Piero Umiliani - La ragazza dalla pelle di luna (Extended Version) [03:25]
-04. Otis Gayle - I'll Be Around [03:36](   Читать дальше...   )Жанр: Pop, Rock, Blues, JazzПродолжительность: 05:21:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B8FD355ACEF786E73B58E1288EE4ED2204D8998
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697511   (119001) от 06.02.2024
-
-VA - Микс Дня #1 (2024) [MP3|320 Kbps] <Rock, Metal, Other>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119001.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alice Cooper - I Never Cry (03:45)
- 02. The Cult - Fire Woman (05:08)
- 03. Guthrie Govan - Jelly Bean (02:14)
- 04. UFO - Doctor Doctor (04:13)(   Читать дальше...   )Жанр: Rock, Metal, OtherПродолжительность: 03:41:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92DA51DCDADF46D6E9CD731E5824B4DA8E8D36C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697319   (118993) от 06.02.2024
-
-VA - Hard Rock 60’s What does he look like (2024) [MP3|320 Kbps] <Rock, Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118993.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jefferson Airplane - Somebody to Love [02:55]
-02. Blue Cheer - Summertime Blues [03:47]
-03. The Yardbirds - For Your Love [02:28]
-04. The Animals - House Of The Rising Sun [04:30](   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 04:24:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:266936F67F1AED6CF7B2B82A10EB2FC4D24ED4A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697340   (118981) от 06.02.2024
-
-VA - Contact 2: People & Machines (2024) [MP3|320 Kbps] <Minimal, Tech House, Other>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118981.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adriatique - Miracle - RUFUS DU SOL Remix (8:23)
-02. KASST - 2084 (7:52)
-03. Cristoph - I Will Find You (7:45)
-04. Armonica - Better With Time - Armonica Version (7:37)(   Читать дальше...   )Жанр: Minimal, Tech House, OtherПродолжительность: 07:11:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEE2B977F16E3ED725CCFC6E60181EBBBF50A735
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698287   (118634) от 08.02.2024
-
-VA - Hot songs to make out to (2024) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118634.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Weeknd - Wicked Games (5:24)
-02. Big Sean - I Know (5:20)
-03. Drake - Jungle (5:20)
-04. PARTYNEXTDOOR - Recognize (feat. Drake) (5:14)(   Читать дальше...   )Жанр: PopПродолжительность: 05:28:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A653F04B2A325556C1A6C240DDBE2C0CD08AE62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698490   (118451) от 09.02.2024
-
-VA - Music News vol.339 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118451.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. JAOVA - I Don't Feel (02:44)
- 002. Ad Voca - Running On My Mind (02:30)
- 003. Arthur Freedom feat. Iriser - Follow Your Heart (02:11)
- 004. Artik & Asti - Качели (03:46)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 08:33:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:807040DAD22B1CFDC02CDD3DBA96308156A9B11B
 ```
 
 https://mybot314.ru/tekegram_catalog/

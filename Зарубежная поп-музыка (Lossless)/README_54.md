@@ -1,3 +1,122 @@
+###  Публикация: 258418   (473621) от 15.09.2012
+
+Barbra Streisand - 2 альбома (1980, 2005) [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_473621.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Guilty" - самый популярный альбом певицы (продано более 20 миллионов экземляров).
+Через 25 лет был выпущен альбом "Guilty Pleasures" который стал тоже весьма популярен.
+И конечно обе эти работы объединяет совместная работа с Barry GibbАльбомы:
+1980 - Guilty
+2005 - Guilty PleasuresЖанр: PopПродолжительность: 01:29:43
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1245719   (470085) от 07.09.2018
+
+Citizen King - Mobile Estates (1999) [FLAC|Lossless|tracks + .cue] <Hip Hop, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_470085.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Under The Influence (4:23)
+ 02. Better Days (And The Bottom Drops Out) (3:27)
+ 03. Safety Pin (3:45)
+ 04. Jalopy Style (3:13)(   Читать дальше...   )Жанр: Hip Hop, PopПродолжительность: 00:42:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A25CB6748C37039DB1F732E123CBC6B1B60F1D3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1161225   (469657) от 27.08.2017
+
+VA - Love Songs (2017) [FLAC|Lossless|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_469657.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. En Vogue - Don't Let Go (Love) (4:52)
+02. INXS - Never Tear Us Apart (3:06)
+03. Donna Lewis - I Love You Always Forever (4:00)
+04. a-ha - This Alone Is Love (Remastered 2015) (5:15)(   Читать дальше...   )Жанр: PopПродолжительность: 01:54:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07FDDD23C8A96CAACBC572B65979A46FCF128B5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 547786   (469551) от 17.09.2012
+
+Carly Rae Jepsen - Curiosity (EP) (2012) [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_469551.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Call Me Maybe [03:14]
+2. Curiosity [03:26]
+3. Picture [03:04]
+4. Talk To Me [02:52]
+5. Just A Step Away [03:47]
+6. Both Sides Now [03:52]Жанр: PopПродолжительность: 00:20:15
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1245848   (467880) от 08.09.2018
 
 MAGIC! - Expectations (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -641,123 +760,6 @@ VA - The All Time Greatest Love Songs of the 60's, 70's, 80's & 90's, Vol. II (1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E6202F84FD64A829558994A3E7E63748D5A736DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408056   (455909) от 12.09.2020
-
-Everything Everything - RE-ANIMATOR (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455909.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lost Powers (03:41)
-02. Big Climb (03:54)
-03. It Was a Monstering (04:34)
-04. Planets (03:57)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:45:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9789B8ACB0CD823449695398D272702623E0361A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569051   (455717) от 11.08.2022
-
-Bryan Ferry - Taxi (1993) [FLAC|Lossless|image + .cue] <Pop Rock, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455717.jpg" />
-</div>
-
-
-###  Подробнее
-
-Taxi - восьмой студийный альбом Bryan(а) Ferry, вышедший в апреле 1993. Альбом достиг 2 места в Соединенном Королевстве и по итогам продаж получил золотой сертификат. Синглы I Put A Spell On You и Will You Love Me Tomorrow достигли соответственно 18 и 23 позиции в чартах Великобритании.
-Как отмечали критики - "Taxi показывает зрелого Bryan'а Ferry, вежливого, (   Читать дальше...   )01. I Put A Spell On You (5:26)
-02. Will You Love Me Tomorrow (4:16)
-03. Answer Me (2:46)
-04. Just One Look (3:32)(   Читать дальше...   )Жанр: Pop Rock, Synth-popПродолжительность: 00:39:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:486D01DFE3DA5C9915CF9B159AB05E869691B05A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568968   (455706) от 11.08.2022
-
-VA - Love You Tonight (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop, RnB, Other>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Camila Cabello - Señorita (3:10)
-02. Maroon 5 - Sugar (3:54)
-03. Quavo - Intentions (3:32)
-04. Lady Gaga - The Edge Of Glory (5:20)(   Читать дальше...   )Жанр: Pop, RnB, OtherПродолжительность: 01:29:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F798F25EFCD511672DC52E9A2A14A7B6A4D284CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408385   (453920) от 13.09.2020
-
-Doves - The Universal Want (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453920.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carousels (04:49)
-02. I Will Not Hide (04:15)
-03. Broken Eyes (04:15)
-04. For Tomorrow (05:28)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:47:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E3E71B386EF5A2EF2775B0284D95C7535B150C4
 ```
 
 https://mybot314.ru/tekegram_catalog/

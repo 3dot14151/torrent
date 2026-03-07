@@ -1,3 +1,32 @@
+###  Публикация: 1609758   (1043141) от 04.02.2023
+
+VA - From Nightmares: Metal Hard Compilation (2023) [MP3|320 Kbps] <Metal, Hard Rock, Core>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043141.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kvasir - Authenticity
+002. Sleeping Romance - Smoke And Mirrors
+003. Goatwhore - Born Of Satan's Flesh
+004. Infection Code - Daily Slavery System(   Читать дальше...   )Жанр: Metal, Hard Rock, CoreПродолжительность: 11:35:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCCF82B99F7D5F2B6FA6CD6310ADEBA0718F6140
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1609741   (1043140) от 04.02.2023
 
 VA - The Rock Meeting Vol.02 (2023) [MP3|320 Kbps] <Rock, Punk, Alternative>
@@ -716,35 +745,6 @@ VA - The Black Lavender (2021) [MP3|320 Kbps] <Rock, Alternative>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C02FF9920E2C0A5750F17F5039D621741E386E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448611   (1030678) от 18.02.2021
-
-VA - Glam Rock 1970 - 1976 (2021) 5CD [MP3|320 Kbps] <Rock, Glam Rock, Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Suzi Quatro - 48 Crash
-02. Gary Glitter - I.O.U.
-03. Alice Cooper - Desperado
-04. Slade - I Won't Let It 'Appen Agen(   Читать дальше...   )Жанр: Rock, Glam Rock, Hard RockПродолжительность: 16:37:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FF32D684EF04594CB843CF965C60760CC24A655
 ```
 
 https://mybot314.ru/tekegram_catalog/

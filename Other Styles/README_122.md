@@ -1,3 +1,32 @@
+###  Публикация: 951361   (363067) от 29.10.2015
+
+Govi - The High Road (2015) [FLAC|Lossless]<New Age, New Flamenco>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_363067.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Passage To Paradise
+02. The High Road
+03. Almeria
+04. Cabriolet(   Читать дальше...   )Жанр: New Age, New FlamencoПродолжительность: 00:51:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:322F6B260A2CEF84DE8C5DD3C2B4D9D662077936
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1071064   (361674) от 09.11.2016
 
 VA - Acoustic 90s Covers (2016) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
@@ -732,35 +761,6 @@ Hildur Gudnadottir, Johann Johannsson - Mary Magdalene / Мария Магдал
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:010B545F1DADF20478E467A6567FE3A5D215594D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329084   (356631) от 03.10.2019
-
-Brian Tyler & John Carey - Escape Room / Клаустрофобы (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356631.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Escape Room (03:40)
-02. Escape Room (Madsonik and Kill The Noise Remix) (03:52)
-03. The Invitation (04:43)
-04. Coaster (05:08)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:14:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A80C8CD68B55419531012CF4FC6D129C685A5F60
 ```
 
 https://mybot314.ru/tekegram_catalog/

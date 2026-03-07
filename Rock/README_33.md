@@ -1,3 +1,31 @@
+###  Публикация: 1225061   (662883) от 13.05.2018
+
+Richie Sambora (Ричи Самбора) - Ballad Of Youth (1991) Single, Mercury [MP3|320 Kbps] <Rock, Blues Rock, Ambient>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_662883.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легендарная американская рок–группа BON JOVI - это ни в коем случае не собственность ее фронтмена и человека, подарившего ей свою фамилию, - Джона Бонджови. Это сплоченная команда, в которой каждый имеет право голоса и старается сохранить индивидуальность, несмотря на то, что вот уже около 15 лет ребята делают общее дело. Объективно говоря, в группе два лидера - (   Читать дальше...   )01. Ballad Of Youth 3:56
+02. Wind Cries Mary 5:58
+03. Rest In Peace 3:46Жанр: Rock, Blues Rock, AmbientПродолжительность: 00:13:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:245B8F72A4B6650C6ED9F0B66A7464F44A71930A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1225070   (662881) от 13.05.2018
 
 Angel - Sinful (1979) Reissue, 1992, Casablanca [MP3|320 Kbps] <Rock, Hard Rock, Glam>
@@ -721,35 +749,6 @@ Fool's Garden (Fools Garden) - 12 Альбомов, 22 Сингла (1993-2021) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D631FB7C173FC07D9FEAE66F9DA25E7F675197F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904418   (654389) от 03.06.2015
-
-Indigo Girls - One Lost Day (2015) [MP3|320 кб/с]<Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654389.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elizabeth (3:36)
-02. Happy In The Sorrow Key (2:56)
-03. Southern California Is Your Girlfriend (4:19)
-04. Texas Was Clean (4:11)(   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:51:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:834305CE677EF531EA3A68251D6DA07204EF7BFF
 ```
 
 https://mybot314.ru/tekegram_catalog/

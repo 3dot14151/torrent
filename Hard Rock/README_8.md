@@ -1,3 +1,32 @@
+###  Публикация: 1014566   (776187) от 08.05.2016
+
+Bliss - Bliss (1969) Reissue, 2007, Tone Arm [MP3|320 кб/с] <Psych Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776187.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ride The Ship Of Fools
+2. Cry For Love
+3. Gangster Of Love
+4. I Want To Be Free(   Читать дальше...   )Жанр: Psych Hard RockПродолжительность: 00:28:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72525C52168696C36430C4459E9C02C9B5C515B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1212964   (774400) от 14.03.2018
 
 FM - Atomic Generation (2018) [MP3|320 Kbps] <Hard Rock>
@@ -715,35 +744,6 @@ The Alex Parche Project - Prohibido El Paso (1994) [MP3|320 кб/с] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5FDD98A0336A0EBAAD0F01C6C8899E3689F4D208
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127138   (741004) от 20.04.2017
-
-Racing The Sun - Killing Time (2017) [MP3|320 Kbps] <Hard Rock, Grunge, Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741004.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Philadelphia Scream  (01:52) 
-02. Relapse  (04:13) 
-03. Waiting for You  (03:19) 
-04. Killing Time  (03:24) (   Читать дальше...   )Жанр: Hard Rock, Grunge, Punk RockПродолжительность: 00:31:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C594BE0D5A5AFBE63CE91159AD2E1A10D6802610
 ```
 
 https://mybot314.ru/tekegram_catalog/

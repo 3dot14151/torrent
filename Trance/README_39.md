@@ -1,3 +1,90 @@
+###  Публикация: 1188595   (275019) от 02.12.2017
+
+VA - Euro Trance Classics (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_275019.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vechigen - Magic Frost (Paul Farrin Remix)
+02. Matt Pincer - Reckless (Original Mix)
+03. Snoww - Sparks (Original Mix)
+04. Hivanova - Past, Present, Future (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:13:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF2323F3946247DB80B61A9DA9BC989720FC073A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188054   (275002) от 02.12.2017
+
+VA - Rielism - Best Of (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_275002.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Rene Ablaze & Universal Sense  -  Island Of Dreams (Original Mix) 7:04
+02.  8 Wonders & Arnej  -  Together We Will Rise (Jak Aggas Remix) 6:22
+03.  Eryon Stocker  -  Skyscrapers (Perrelli & Mankoff Remix) 7:02
+04.  Amy Kirkpatrick & Dark Fusion  -  Be There For You (Original Mix) 4:33(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:21:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BE05AD35671792A3C6409AB5C9F6D5EE0733878
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188644   (274999) от 02.12.2017
+
+VA - Trance Favorites EPisode #010 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_274999.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ER7E - Revelation (Original Mix)
+02. Airosource - Rising Love (Original Mix)
+03. Dave Deen - Forgotten Promise (Original Mix)
+04. Hartrone - Crossroad (Original Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:02:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEEF18B8FBDB08FFF3A96CD11295D3D8E58402D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1265692   (274142) от 28.11.2018
 
 VA - Best of Trance  Vol.08 (2018) [MP3|320 Kbps] <Trance>
@@ -658,93 +745,6 @@ VA - The VERSE Uplifting Trance Journey (Mixed by Philip Langham) (2018) [MP3|32
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD5B0F90602F72002FFF0CE90ED6F60DF60477C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338570   (269826) от 15.11.2019
-
-VA - Markus Schulz - Global DJ Broadcast - Top 20 November (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269826.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Markus Schulz & Lachi - Far (Fisherman Extended Festival Mix)
-02. Richard Durand & Christina Novelli - Save You (Extended Mix)
-03. Cosmic Gate - FAV (Patrick White Extended Remix)
-04. Tinlicker & Run Rivers - Lost (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:17:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BAE4D99BB41E1361FD935CA66A43D02AD0627ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189796   (269621) от 07.12.2017
-
-VA - Amsterdam. The End Of Year Album (Mixed by Three Drives) (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269621.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  F.G. Noise & Andrew Manning  -  Amsterdam (Original Mix)  8:45
-02.  Brent Rix  -  Lunar Halo (Original Mix)  7:03
-03.  Marco Mc Neil  -  Discovery (Original Mix)  7:58
-04.  Fabrice  -  Northern Lights (Original Mix)  6:45(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 05:26:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A0791B3BD42E6A169346F78BBA8816BAB46ECF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189946   (269618) от 07.12.2017
-
-VA - The Best Of Suanda True (Mixed by Tom Exo) (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269618.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Attila Syah - Malang Rain (Extended Mix)
-02 Tom Exo - Skywatch (Extended Mix)
-03 Nomosk - Duel (Original Mix)
-04 F.G. Noise & Tom Exo - Skyworld (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:26:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C8FB7FDC4EB2BD0F883BCBFF0F54F7A02800930
 ```
 
 https://mybot314.ru/tekegram_catalog/

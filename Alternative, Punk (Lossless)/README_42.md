@@ -1,3 +1,32 @@
+###  Публикация: 1255624   (364365) от 18.10.2018
+
+The Magic Band - Back To The Front (2003) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Blues Rock, Jazz-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_364365.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Human Gets Me Blues (3:12)
+ 02. Click Clack (4:04)
+ 03. Abba Zaba (2:44)
+ 04. I'm Gonna Booglarize You Baby (4:24)(   Читать дальше...   )Жанр: Alternative Rock, Blues Rock, Jazz-Rock, AvantgardeПродолжительность: 00:55:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:111A1AB8E59459AFD0B720F68438A04C1E8C14D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1328492   (363714) от 30.09.2019
 
 The Maine - You Are OK (2019) Limited Edition [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
@@ -716,35 +745,6 @@ The Enemy - It's Automatic (2015) [FLAC|Lossless|WEB-DL]<Alternative Rock, Indie
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD49FA861D81D8F5D46AA6D7AC54561EDA20917D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952469   (355450) от 01.11.2015
-
-Brutto - Родны Край (2015) [FLAC|image+.cue]<Punk Rock, Alternative rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355450.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Человек
-02. Родны Край
-03. Чёрная Сотня
-04. Moscow Calling(   Читать дальше...   )Жанр: Punk Rock, Alternative rockПродолжительность: 00:39:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25E0B645E325CC7D28CE28DB00C16AD5C450020E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,234 @@
+###  Публикация: 1356072   (980554) от 29.01.2020
+
+John Coltrane - A John Coltrane Retrospective: The Impulse! Years 1961 - 1967 (1992) 3CD, Impulse! [FLAC|Lossless|tracks + .cue] <Hard Bop, Avant-Garde Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_980554.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Greensleeves [9:59]
+02. Naima [7:43]
+03. Impressions [14:56](   Читать дальше...   )Жанр: Hard Bop, Avant-Garde JazzПродолжительность: 03:06:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:027D95E78751B890268E01C7182E1A0233AF7A83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 742317   (980375) от 05.01.2014
+
+Jazzamor - Things We Do For Love (Instrumentals) (2013) [FLAC|Lossless|WEB-DL]<Acid Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_980375.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fragile
+02. Things We Do For Love
+03. Tomorrow
+04. Life Is So Real(   Читать дальше...   )Жанр: Acid JazzПродолжительность: 01:18:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25B2424EE9169675F2963A2FCCF205AFACA5BAE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973312   (980333) от 08.01.2016
+
+J. J. Johnson - Blue Trombone (1957) Remaster, 2014, Sony Music[FLAC|tracks+.cue] <Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_980333.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Hello, Young Lovers [05:26]
+ 02.Kev [08:47]
+ 03.What's New [04:52]
+ 04.Blue Trombone, Part 1 [04:23](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 00:42:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C49A856178ACD7BC9CB048DF547A1EAC0A809333
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973316   (980332) от 08.01.2016
+
+Coleman Hawkins - Sirius (1966) 2003, Planet[FLAC|tracks+.cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_980332.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.The Man I Love [05:15]
+ 02.Don't Blame Me [04:45]
+ 03.Just A Gigolo [03:02]
+ 04.The One I Love (Belongs To Someone Else) [03:58](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:42:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4F8879E299B93B8258C4450C650FECA2F4AABC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973342   (980331) от 08.01.2016
+
+Art Blakey And The Jazz Messengers - Buhaina (1973) Remaster, 2014, Universal[FLAC|tracks+.cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_980331.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Moanin' [05:34]
+ 02.A Chant For Bu [08:39]
+ 03.One For Trane [06:11]
+ 04.Mission Eternal [12:12](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:42:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C189CB3311F0A2946D0CE82F04B1DEBD7D4A9EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973408   (980321) от 08.01.2016
+
+Howard Alden, Lloyd Ellis, Cal Collins - Famous Door: Ace Guitarists (1976/1978/1987) 3CD, 2015, Famous Door[FLAC|tracks+.cue] <Mainstream Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_980321.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Howard Alden:
+01.Make Believe [04:31]
+02.Blue Because Of You [04:26]
+03.Intimacy Of The Blues [05:14](   Читать дальше...   )Жанр: Mainstream Jazz, Guitar JazzПродолжительность: 00:48:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:369DEAD84930FA7D7384EC1BFFC7B9FF1C438D1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973447   (980319) от 08.01.2016
+
+Johnny Griffin & Art Taylor Quartet - The Jamfs Are Coming! (1975/1977) Remaster, 2015, Timeless Records[FLAC|tracks+.cue] <Post-Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_980319.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.The Jamfs Are Coming, Wee Dot [16:24]
+ 02.Wee [01:23]
+ 03.All The Things You Are [19:34]Жанр: Post-Bop, Hard BopПродолжительность: 00:37:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:230B13FB4F573D8F5CA8082706B2C672BC9582BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973385   (980243) от 08.01.2016
+
+Kim Simmonds & Savoy Brown - The Devil To Pay (2015) [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_980243.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ain't Got Nobody (05:29)
+02. Bad Weather Brewing (04:32)
+03. Grew Up In The Blues (04:08)
+04. When Love Goes Wrong (04:05)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:58:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E857E53C076EF971CFBA3CCD6CE4C5AE1374E109
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 973418   (980199) от 08.01.2016
 
 Julie London - Calendar Girl (1956) [MP3|320 кб/с] <Jazz, Pop>
@@ -510,257 +741,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B2E59253BEE1413FB7330A1BF270C0BAF464A853
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356555   (977943) от 31.01.2020
-
-Bernard Allison - Songs From The Road (Live) (2020) [MP3|320 Kbps] <Blues, Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977943.jpg" />
-</div>
-
-
-###  Подробнее
-
-[05:01] 01. Night Train
-[04:48] 02. Stay With Me Tonight
-[09:55] 03. You're Gonna Need Me
-[04:55] 04. I Can't Get You Out Of My Mind(   Читать дальше...   )Жанр: Blues, RockПродолжительность: 01:16:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44FD5132E1BE3F9F1E5E4A502D177FFBA70CE48F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356579   (977852) от 31.01.2020
-
-Bill Evans - Smile With Your Heart 1950-e - 1960-e (2019) Resonance Records [FLAC|Lossless|tracks + .cue] <Cool, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977852.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Someday My Prince Will Come [5:16]
-02. Yesterdays [5:09]
-03. Mother of Earl [4:24]
-04. You're Gonna Hear from Me [3:34](   Читать дальше...   )Жанр: Cool, Piano JazzПродолжительность: 01:09:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01E995D615F22F5FBCDA91165DBF3E85BCE9F217
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356614   (977849) от 31.01.2020
-
-Tinsley Ellis - Ice Cream In Hell (2020) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977849.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Last One To Know [4:44]
- 02 - Don't Know Beans [3:43]
- 03 - Ice Cream In Hell [4:13]
- 04 - Foolin' Yourself [4:30](   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:50:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C502228129C49721B605F8B9BBC11F30DAE664F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 615487   (977704) от 08.02.2013
-
-Oscar Peterson - Debut: The Clef/Mercury Duo Recordings 1949-1951 (3CD) (2009) [MP3|320 кб/с]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977704.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Caravan
-2. Summer Nocturne
-3. Salute To Garner
-4. I Get A Kick Out Of You
-5. What’s New?
-6. Dark Eyes
-7. What Is It?
-8. The Way You Look Tonight
-9. Minor Blues
-10. Slow Down(   Читать дальше...   )Жанр: JazzПродолжительность: 01:00:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E2AAD9AE09BE082826169F68AB3E17860032EB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 612684   (977698) от 08.02.2013
-
-Buddy Guy - Live at Legends (2012) [MP3|320 кб/с]<Blues, Chicago Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977698.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Best Damn Fool
-03. Mannish Boy
-04. I Just Want to Make Love to You/Chicken Heads
-05. Skin Deep
-06. Damn Right I Got the Blues
-07. Boom Boom/Strange Brew
-08. Woodoo Chile/Sunshine of Your Love/Keep on Truckin'
-09. Polka Dot Love
-10. Coming for You(   Читать дальше...   )Жанр: Blues, Chicago BluesПродолжительность: 00:54:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F300375FC333BD75323EAF9B756DCCFA0E5F05FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 613578   (977693) от 08.02.2013
-
-Various Artists - The Sound Of Acid Jazz (2010) [MP3|320 кб/с]<Acid Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977693.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. H.W. Theme - Soul, Truth & Power
-    02. Stoop, The
-    03. Expansions - Lonnie Liston Smith
-    04. Never Say Never
-    05. That Girl - Jonas Schoen
-    06. My Life - Ghee & Gheetribe
-    07. Don't Throw Your Love - Vicki Anderson
-    08. Adivinhacao - Sergio Bor?
-    09. Summerbreeze - Lucky Loop
-    10. Funky Nassau - Roy Ayers/Soul SocietyЖанр: Acid JazzПродолжительность: 00:46:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C15CC4428294783B6E2F0CF310FE64D6107AF730
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356439   (977652) от 31.01.2020
-
-Gary Moore - Live From London (2020) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977652.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oh, Pretty Woman (4:36)
-02. Bad For You Baby (3:06)
-03. Down The Line (3:11)
-04. Since I Met You Baby (4:26)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:18:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24FCF1267BFC14CCA5F22D9C70B89FA273CF8689
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 613136   (977622) от 08.02.2013
-
-Robin Trower - Roots And Branches (2013) [MP3|320 кб/с]<Hard Rock, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977622.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Hound Dog [00:03:50]
-02 - The Thrill Is Gone [00:05:31]
-03 - When I Heard Your Name [00:05:06]
-04 - Little Red Rooster [00:06:04]
-05 - I Believe to My Soul [00:04:22](   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:53:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7191511EFFC84E77F9C49C32F843666376FD301B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 867174   (902196) от 08.02.2015
+
+ДДТ - Коллекция легендарных песен (2014) [MP3|320 kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_902196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Прекрасная любовь
+02. Что такое осень
+03. Дождь
+04. Ветер(   Читать дальше...   )Жанр: RockПродолжительность: 05:55:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AB7CDA896129C15774427A2999DA8C4CC5706F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1369557   (902024) от 24.03.2020
 
 VA - Enemy Of Silence (2CD) (2020) [MP3|320 Kbps] <Hard Rock>
@@ -716,35 +745,6 @@ The Rolling Stones - 100% The Rolling Stones (2020) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8D4DEC2557F4AB614917B40F40738046D6E9E16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370821   (891661) от 30.03.2020
-
-Rammstein - Remixes (2020) [MP3|320 Kbps] <Industrial Metal, Neue Deutsche Harte>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891661.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. du riechst so gut (scal remix) (04:45)
-02. rammstein in the house (the timewriter remix) (06:24)
-03. du riechst so gut ('98) (04:24)
-04. du riechst so gut (remix by faith no more) (01:57)(   Читать дальше...   )Жанр: Industrial Metal, Neue Deutsche HarteПродолжительность: 05:41:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A28DCB8A040E3E1B37FBC13C26546C266950CD39
 ```
 
 https://mybot314.ru/tekegram_catalog/

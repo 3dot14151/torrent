@@ -1,3 +1,206 @@
+###  Публикация: 1389801   (783933) от 12.06.2020
+
+Montana - I Love Music (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783933.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Love Music (4:37)
+02. You Know How Good It Is (9:29)
+03. Samba De Montana (4:45)
+04. Put It In Love (4:09)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:38:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53F3028E3D7E6ABA41936A0CDFE4461DD9405613
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389748   (783930) от 12.06.2020
+
+Mariah Carey - Music Box (1993) Columbia CCK 53205 [FLAC|Lossless|image + .cue]<Pop, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783930.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreamlover (3:54)
+ 02. Hero (4:20)
+ 03. Anytime You Need A Friend (4:26)
+ 04. Music Box (4:58)(   Читать дальше...   )Жанр: Pop, R&BПродолжительность: 00:41:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D73EFA954A7631F66948BDE5E662B8D4712E00E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389636   (783921) от 12.06.2020
+
+Frankie Goes To Hollywood - Welcome To The Pleasuredome (1984) [FLAC|Lossless|tracks + .cue] <Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783921.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The World Is My Oyster-Snatch Of Fury (Stay) (1:58)
+02. Welcome To The Pleasure Dome (13:39)
+03. Relax (Come Fighting) (3:56)
+04. War (And Hide) (6:14)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 01:09:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB7781725183440E0E0F3367E2C2E7A3F3913CC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389691   (783914) от 12.06.2020
+
+Jehnny Beth - To Love is to Live (2020) [MP3|320 Kbps] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783914.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Am (03:42)
+ 02. Innocence (03:22)
+ 03. Flower (03:20)
+ 04. We Will Sin Together (03:00)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:38:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90DF803F95B9DCA4F5DA5AECFFECE97413E593A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205321   (783745) от 09.02.2018
+
+Анжелика Варум - Зимняя вишня (1996) [FLAC|Lossless|image + .cue]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783745.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Зимняя вишня
+02. Розовый зайчик
+03. Очаровашка
+04. Я и ты(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C8459A0082F5B6F6A115E10F82E59886A14F032
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390019   (783631) от 13.06.2020
+
+Dexter Wansel - 4 Albums (1976-1979) LP [MP3|320 Kbps] <Jazz-Funk, Soul, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783631.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящее имя - Dexter Gilman Wansel. Родом из Филадельфии. Музыкант, клавишник, автор песен, аранжировщик, дирижер, продюсер. В раздаче собраны четыре начальных и созвучных альбома.Список альбомов:
+1976 - Life On Mars
+1977 - What The World Is Coming To
+1978 - Voyager(   Читать дальше...   )Жанр: Jazz-Funk, Soul, DiscoПродолжительность: 02:33:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C33961B7456BC0834B705C6DF29105C82B4C7986
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205412   (783538) от 10.02.2018
+
+The Saturdays - Finest Selection: The Greatest Hits (2014) Polydor, Compilation [MP3|320 Kbps] <Electronic, Pop, Dance Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783538.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Saturdays - британско-ирландская девичья группа, сформировавшаяся в Лондоне в 2007 году, и состоящая из Фрэнки Сэндфорд, Молли Кинг, Ванессы Уайт, Рошель Вайзмен и Уны Хили. Четыре сингла с дебютного альбома девушек, «Chasing Lights» и оба сингла с их второго альбома - «Wordshaker» вошли в первую десятку британского чарта. Участницы реалити-шоу «The Saturdays: (   Читать дальше...   )01. What About Us (feat. Sean Paul) 3:42
+02. Higher (feat. Flo Rida) 3:19
+03. Ego 3:03
+04. All Fired Up 3:12(   Читать дальше...   )Жанр: Electronic, Pop, Dance PopПродолжительность: 01:07:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7860ACDE0FE6A7145AD8DC4403C1CE48F1351E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1205417   (783506) от 10.02.2018
 
 Doctor's Cat - Gee Wiz (1984) LP, 7'' [MP3|320 Kbps] <Electronic, Italo-Disco>
@@ -540,209 +743,6 @@ Kongas сформировался во Франции в начале 1970-х г
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5AA001BEC57D4CFE233F994C2A9C7D41CAF9FC10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205962   (782520) от 13.02.2018
-
-Justine - You`re My Sunshine (2000) Single [MP3|320 Kbps] <Europop>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782520.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You`re My Sunshine (Radio Version) 3:24
-02. You`re My Sunshine (Extended Mix) 5:15
-03. You`re My Sunshine (Bonelli Remix) 3:32
-04. You`re My Sunshine (Karaoke Version) 3:30Жанр: EuropopПродолжительность: 15:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF67643422062C69B04EBFC4CFC553A8B9922B2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206461   (782139) от 14.02.2018
-
-16 Bit - Inaxycvgtgb (1987) CD [MP3|320 Kbps] <Electronic, Synth-pop, New Beat>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Where Are You (4:13)
-02. (Ina) Gadda-Da-Vida (Feat. Eddie Hind) (5:10)
-03. Be Quit (4:19)
-04. Mac's Flight (3:32)(   Читать дальше...   )Жанр: Electronic, Synth-pop, New BeatПродолжительность: 01:14:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:952AA4669C0FD3BDFF3138CA61E9E437F97282F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206559   (782138) от 14.02.2018
-
-OFF - 2 Albums (1988,1989) CD [MP3|320 Kbps] <Electronic, Pop, New Beat, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782138.jpg" />
-</div>
-
-
-###  Подробнее
-
-Luca Anzilotti, Michael Münzing, Sven Väth - таков состав группы из Франкфурта/Германия, который несколько лет спустя будет рассматриваться как коллектив произведший огромное влияние на немецкую танцевальную сцену и получивший платиновые пластинки.01. Bad News (5:06)
-02. Time Operator (5:23)
-03. Step By Step (3:53)
-04. Electrica Salsa (4:47)(   Читать дальше...   )Жанр: Electronic, Pop, New Beat, Synth-popПродолжительность: Кодек: MP3
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D287AFC177CAC534048C15B87BB08F422E7079F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206635   (782100) от 14.02.2018
-
-Systems In Blue - Melange Bleu (The 3rd Album) (2017) [FLAC|Lossless|tracks + .cue] <Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782100.jpg" />
-</div>
-
-
-###  Подробнее
-
-Part 1. - The Blue Part
-01. Back In Blue 4:13
-02. There's No Heart 3:54
-03. Lady Ocean 3:42(   Читать дальше...   )Жанр: Euro-DiscoПродолжительность: 01:11:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0DABA1924929309CABAEBA944DF8FA79B0E897B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391123   (781845) от 18.06.2020
-
-Катя Лель - Сияние (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781845.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Чемодан
-2. Утону в твоих глазах
-3. Подключись
-4. Я не она(   Читать дальше...   )Жанр: PopПродолжительность: 00:32:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C273D9D352536B6A43CAEC3579561DE47C063577
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390862   (781793) от 18.06.2020
-
-Bee Gees - Odessa (1969) Box Set Felt Cover 2009 3-CD Reprise Records [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781793.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bee Gees (рус. Би Джиз) — британско-австралийская музыкальная группа, основанная в 1958 году. Состояла из троих братьев: лидера-вокалиста Барри Гибба, второго лидера-вокалиста Робина Гибба и клавишника-гитариста Мориса Гибба. Мировые продажи пластинок группы превышают 220 миллионов копий, что делает их одним из самых успешных коллективов в истории музыкальной индустрии. (   Читать дальше...   )01. Odessa Demo (6:42)
-02. You'll Never See My Face Again Alternate Mix (4:08)
-03. Black Diamond Demo (4:04)
-04. Marley Purt Drive Alternate Mix (4:35)(   Читать дальше...   )Жанр: PopПродолжительность: 01:16:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5766EC2AF8AE4BB31A96C06BBED37D2529F1B912
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206810   (781732) от 15.02.2018
-
-Тина Кароль - Show Me Your Love (2006) [FLAC|Lossless|image + .cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781732.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Money Doesn't Metter 3:55
-02. Russian Boy 3:14
-03. Life Is Not Enough 3:21
-04. Honey 3:02(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2573ACDDCBF4BE14EA770D8B6833C7374737843C
 ```
 
 https://mybot314.ru/tekegram_catalog/

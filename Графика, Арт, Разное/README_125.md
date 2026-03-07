@@ -1,3 +1,29 @@
+###  Публикация: 1339235   (266997) от 18.11.2019
+
+Календарь 2020 от РОЗА123 №8 [GIF]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_266997.jpg" />
+</div>
+
+
+###  Подробнее
+
+Календарь на 2020 год.Формат: GIFРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFE5B9EDA556A65A119E59C67FDF234DE9B2BB9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1190556   (266905) от 10.12.2017
 
 Обои - Desktop Wallpapers Full HD. Part (112) [JPG]
@@ -641,32 +667,6 @@ Desktop Wallpapers Full HD. Part (538) [JPG]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:806BA79441ED9A71515DF1234CCA33584139BA64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340451   (263952) от 23.11.2019
-
-Desktop Wallpapers Full HD. Part (537) [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263952.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0F414AC3AFC0640514051DCCEDE31EF92478930
 ```
 
 https://mybot314.ru/tekegram_catalog/

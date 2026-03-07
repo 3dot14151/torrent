@@ -1,3 +1,235 @@
+###  Публикация: 977576   (965788) от 21.01.2016
+
+Duke Ellington - Presents... (1956) 2005, Bethlehem[FLAC|tracks+.cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_965788.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Summertime [02:14]
+ 02.Laura [04:16]
+ 03.I Can't Get Started [04:26]
+ 04.My Funny Valentine [04:49](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:42:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAD30CE489F82EBE030BE19B7FDDAC6C47D4A1A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 977588   (965786) от 21.01.2016
+
+Cedar Walton - Animations & Soundscapes (1978/1980) 2010, Soul Brother Records[FLAC|image+.cue] <Post-Bop, Jazz Fusion, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_965786.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Animations [05:02]
+ 02.Jacob's Ladder [05:46]
+ 03.Charmed Circle [05:23]
+ 04.Another Star [05:45](   Читать дальше...   )Жанр: Post-Bop, Jazz Fusion, Piano JazzПродолжительность: 01:22:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5144F0285A273803AF99C95631A82B703915DA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 977585   (965682) от 21.01.2016
+
+Ray Charles - The Birth Of Soul (1952-1959) 2CD, 2004, Atlantic Records[FLAC|tracks+.cue] <Blues, R&B, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_965682.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.The Sun's Gonna Shine Again [02:40]
+02.Roll With My Baby [02:38]
+03.The Midnight Hour [03:02](   Читать дальше...   )Жанр: Blues, R&B, SoulПродолжительность: 02:31:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7405F5CD55FE6D1A249623E4933A50D3955C0A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359315   (965188) от 11.02.2020
+
+Al Cohn - Four Classic Albums Plus 1954 - 1957 (2009) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_965188.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Something For Lisa [6:30]
+02. Count Every Star [3:10]
+03. Cabin In The Sky [3:06](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 02:35:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DB1F6F9D4B466C06229170A46A798CA241671CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1178424   (965169) от 11.02.2020
+
+Mel Torme & Tony Bennett - The Song Stylists (1950-e - 1960-e) 1993, TKO Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_965169.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Mel Torme - I'm Getting Sentimental Over You [02:32]
+02.Mel Torme - I Can't Believe You're in Love With Me [02:27]
+03.Mel Torme - Prelude to a Kiss [03:20]
+04.Mel Torme - I've Got the World on a String [02:15](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:51:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C380C8CE95A1E819173E19BAD41056F678F29CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359332   (965126) от 11.02.2020
+
+Rob Mullins - 2 of Hearts (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_965126.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - City Nights [4:30]
+ 02 - Slinky [4:42]
+ 03 - Soulful (Remix) [3:19]
+ 04 - 2 of Hearts [2:56](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:48:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A40BA88E7B1F70BE414D8B75D4CAACD2F9B053FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359353   (965115) от 11.02.2020
+
+Stan Getz - Getz Plays Jobim: The Girl From Ipanema (2002) [MP3|320 Kbps] <Bossa Nova, Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_965115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Corcovado (Quiet Nights Of Quiet Stars) (4:14)
+02. Desafinado (Instrumental Verrsion) (5:50)
+03. Chega De Saudade (No More Blues) (4:15)
+04. The Girl From Ipanema (5:22)(   Читать дальше...   )Жанр: Bossa Nova, JazzПродолжительность: 01:04:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ED245A0E6DAAD8F1300EDEF10935F455F1F271F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 977971   (964815) от 22.01.2016
+
+Ellis Marsalis - The Classic (1963) 1991, AFO Records[FLAC|tracks+.cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_964815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Monkey Puzzle [04:46]
+ 02.Whistle Stop [03:39]
+ 03.After [04:35]
+ 04.Dee Wee [05:38](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:11:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48F6C58C2D33024BEF7140ED6BF6F1CB9B3C26AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 977977   (964795) от 22.01.2016
 
 Michel Camilo - Solo (2005) Telarc[FLAC|tracks+.cue] <Post-Bop, Latin Jazz, Piano Jazz>
@@ -513,238 +745,6 @@ CD1 - It's Magic:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7ECFF46A8FB4B34E860EEFC2D6A6242D06451B56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 855323   (962440) от 01.01.2015
-
-Duke Ellington & Count Basie - First Time! Count Meets Duke (2001) [FLAC|Lossless]<Jazz, Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962440.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Battle Royal [05:35]
-02. To You [03:55]
-03. Take the A Train [03:47]
-04. Corner Pocket [04:55](   Читать дальше...   )Жанр: Jazz, Swing, Big BandПродолжительность: 01:13:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D835E0F207D8D3CD7FBBC49D201E9D788BA7BBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978598   (962418) от 24.01.2016
-
-Konstantin Klashtorni - Love Suggestions/Guitar Night (2014) [FLAC|Lossless|image + .cue] <Smooth Jazz, Chill Out>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962418.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It’s Our Time (5:48)
- 02. Stay (4:39)
- 03. Life Is Love (4:45)
- 04. Little Talks (5:02)(   Читать дальше...   )Жанр: Smooth Jazz, Chill OutПродолжительность: 00:53:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8E17A7F2357F541DE56B4E7DC3CD4BC1338857A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978520   (962413) от 24.01.2016
-
-Konstantin Klashtorni - Kool & Klean (Volume V) (2014) [FLAC|Lossless|image + .cue] <Smooth Jazz, Chill Out>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962413.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turn Me On (4:18)
- 02. Kiss the Rain (4:52)
- 03. Counting Stars (5:18)
- 04. River Flows in You (4:37)(   Читать дальше...   )Жанр: Smooth Jazz, Chill OutПродолжительность: 01:02:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1716C64F526F8D3F57F54AEC8C03484F85B8BC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978552   (962411) от 24.01.2016
-
-Konstantin Klashtorni - Love Suggestions: Piano Night (2013) [FLAC|Lossless|image + .cue] <Smooth Jazz, Chill Out>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962411.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hey Girl (5:11)
- 02. Treasure (4:18)
- 03. Come & Get It (5:26)
- 04. What Makes You Beautiful (4:37)(   Читать дальше...   )Жанр: Smooth Jazz, Chill OutПродолжительность: 00:52:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C94DE2DDB2B9459FC719EAD74D716864CD3CAA6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978766   (962155) от 24.01.2016
-
-Alfa Mist - Nocturne (2015) [FLAC|Lossless|WEB-DL|tracks] <Indie, Nu Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alfa Mist feat. Racheal Ofori & Barney Artist - Intro (2:06)
-02. Alfa Mist feat. Rick David & Kaya Thomas-Dyke - Answers (3:35)
-03. Alfa Mist feat. Kaya Thomas-Dyke - Blaze (2:30)
-04. Alfa mist - What If (Interlude) (1:23)(   Читать дальше...   )Жанр: Indie, Nu JazzПродолжительность: 00:31:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8133C79D020E5ACBE2825A14F9C85BE904796F9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978916   (962154) от 24.01.2016
-
-Zucchero - Una Rosa Blanca (2013) (2 CD) [MP3|320 кб/с] <Pop, Rock, Folk, Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ave Maria No Morro
-02. Diamante
-03. Pronto
-04. Bacco Perbacco(   Читать дальше...   )Жанр: Pop, Rock, Folk, BluesПродолжительность: 01:53:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E53F27C74FBCEA936AD35266E098988DCF907024
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360070   (961927) от 14.02.2020
-
-Thelonious Monk - The Complete Albums Collection 1954-57 (2015) 5CD, Enlightenment [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961927.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. 'Round About Midnight [3:12]
-02. Off Minor [3:02]
-03. Ruby, My Dear [3:08](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 06:20:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5486CDD5889165E7B1E3BCFC3A7255C403EF2813
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979081   (961242) от 25.01.2016
-
-One For All - What's Going On? (2007) Venus Records[FLAC|image+.cue] <Post-Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.What's Going On? [06:50]
- 02.How Sweet It Is (To Be Loved By You) [05:23]
- 03.Let's Stay Together [08:07]
- 04.Reasons [06:54](   Читать дальше...   )Жанр: Post-Bop, Mainstream JazzПродолжительность: 00:57:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B697A8186A00E49261525BD8DCCC0D546A91FF7D
 ```
 
 https://mybot314.ru/tekegram_catalog/
